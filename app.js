@@ -75,7 +75,7 @@
       }
 
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=2.3`)
+        fetch(`data/chapters/${chapterId}.json?v=2.4`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -102,7 +102,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=2.3`;
+    script.src = `data/chapters/${chapterId}.js?v=2.4`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -123,7 +123,7 @@
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=2.3');
+        const res = await fetch('data/book.json?v=2.4');
         state.bookMeta = await res.json();
       }
 
@@ -373,7 +373,25 @@
     showToast(`Đã chuyển sang ${langNames[newLang]}`);
   }
 
-  function setPinyin(pinyinMode) {
+    function setPinyin(pinyinMode) {
+    // Capture the exact visible paragraph anchor before height expansion
+    const article = DOM.chapterArticle;
+    let anchorPara = null;
+    let anchorOffset = 0;
+    const topOffset = 70;
+
+    if (article && article.children.length > 0) {
+      const paras = Array.from(article.children);
+      for (let i = 0; i < paras.length; i++) {
+        const rect = paras[i].getBoundingClientRect();
+        if (rect.bottom > topOffset) {
+          anchorPara = paras[i];
+          anchorOffset = rect.top - topOffset;
+          break;
+        }
+      }
+    }
+
     state.pinyin = pinyinMode;
     try { localStorage.setItem('reader_pinyin', pinyinMode); } catch(e){}
 
@@ -386,6 +404,15 @@
     document.querySelectorAll('[data-pinyin]').forEach(el => {
       el.classList.toggle('active', el.dataset.pinyin === pinyinMode);
     });
+
+    // Re-anchor scroll position instantly so the current paragraph does not jump!
+    if (anchorPara) {
+      const newRect = anchorPara.getBoundingClientRect();
+      const delta = newRect.top - topOffset - anchorOffset;
+      if (Math.abs(delta) > 0.5) {
+        window.scrollBy({ top: delta, behavior: 'instant' });
+      }
+    }
 
     showToast(pinyinMode === 'on' ? 'Đã bật hiển thị Pinyin' : 'Đã tắt Pinyin');
   }
