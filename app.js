@@ -41,6 +41,7 @@
     tocSearch: document.getElementById('toc-search'),
     btnJumpInput: document.getElementById('btn-jump-input'),
     
+        btnPinyinToggle: document.getElementById('btn-pinyin-toggle'),
     btnSettings: document.getElementById('btn-settings'),
     btnCloseSettings: document.getElementById('btn-close-settings'),
     settingsSheet: document.getElementById('settings-sheet'),
@@ -330,6 +331,10 @@
     try { localStorage.setItem('reader_pinyin', pinyinMode); } catch(e){}
 
     DOM.body.classList.toggle('show-pinyin', pinyinMode === 'on');
+
+    if (DOM.btnPinyinToggle) {
+      DOM.btnPinyinToggle.classList.toggle('active', pinyinMode === 'on');
+    }
 
     document.querySelectorAll('[data-pinyin]').forEach(el => {
       el.classList.toggle('active', el.dataset.pinyin === pinyinMode);

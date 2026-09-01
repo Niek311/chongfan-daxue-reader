@@ -20,11 +20,17 @@
       <span class="btn-text">Mục lục</span>
     </button>
     
-    <!-- Quick Language Switcher in Header -->
-    <div class="lang-switch-header">
-      <button class="lang-pill active" data-lang="vi" title="Bản Tiếng Việt">🇻🇳 Việt</button>
-      <button class="lang-pill" data-lang="zh" title="Bản Tiếng Trung">🇨🇳 中文</button>
-      <button class="lang-pill" data-lang="dual" title="Bản Song Ngữ">📖 Song ngữ</button>
+    <!-- Quick Language & Pinyin Controls in Header -->
+    <div class="header-controls">
+      <div class="lang-switch-header">
+        <button class="lang-pill active" data-lang="vi" title="Bản Tiếng Việt">🇻🇳 Việt</button>
+        <button class="lang-pill" data-lang="zh" title="Bản Tiếng Trung">🇨🇳 中文</button>
+        <button class="lang-pill" data-lang="dual" title="Bản Song Ngữ">📖 Song ngữ</button>
+      </div>
+      <button id="btn-pinyin-toggle" class="pinyin-pill" title="Bật / Tắt phiên âm Pinyin">
+        <span class="pinyin-icon">拼</span>
+        <span class="pinyin-status">Pinyin</span>
+      </button>
     </div>
 
     <button id="btn-settings" class="icon-btn" aria-label="Cài đặt" title="Cài đặt">
@@ -105,62 +111,64 @@
         <button id="btn-close-settings" class="icon-btn-close">&times;</button>
       </div>
       
-      <!-- Language Mode Selection in Settings -->
-      <div class="setting-group">
-        <label class="setting-label">Ngôn ngữ hiển thị (Đổi tức thì không cần tải lại)</label>
-        <div class="toggle-options">
-          <button class="toggle-btn active" data-lang="vi">🇻🇳 Tiếng Việt</button>
-          <button class="toggle-btn" data-lang="zh">🇨🇳 Tiếng Trung</button>
-          <button class="toggle-btn" data-lang="dual">📖 Song ngữ</button>
+      <div class="sheet-scroll-body">
+        <!-- Language Mode Selection in Settings -->
+        <div class="setting-group">
+          <label class="setting-label">Ngôn ngữ hiển thị (Đổi tức thì)</label>
+          <div class="toggle-options">
+            <button class="toggle-btn active" data-lang="vi">🇻🇳 Tiếng Việt</button>
+            <button class="toggle-btn" data-lang="zh">🇨🇳 Tiếng Trung</button>
+            <button class="toggle-btn" data-lang="dual">📖 Song ngữ</button>
+          </div>
         </div>
-      </div>
 
-            <!-- Pinyin Setting Toggle -->
-      <div class="setting-group" id="pinyin-setting-group">
-        <label class="setting-label">🔤 Phiên âm Pinyin (Cho bản Tiếng Trung & Song ngữ)</label>
-        <div class="toggle-options">
-          <button class="toggle-btn" data-pinyin="on">✨ Bật Pinyin</button>
-          <button class="toggle-btn active" data-pinyin="off">Tắt Pinyin</button>
+        <!-- Pinyin Setting Toggle -->
+        <div class="setting-group" id="pinyin-setting-group">
+          <label class="setting-label">🔤 Phiên âm Pinyin (Bản Tiếng Trung & Song ngữ)</label>
+          <div class="toggle-options">
+            <button class="toggle-btn" data-pinyin="on">✨ Bật Pinyin</button>
+            <button class="toggle-btn active" data-pinyin="off">Tắt Pinyin</button>
+          </div>
         </div>
-      </div>
 
-      <!-- Themes -->
-      <div class="setting-group">
-        <label class="setting-label">Màu nền & Giao diện</label>
-        <div class="theme-options">
-          <button class="theme-btn theme-sepia active" data-theme="sepia">Giấy cũ</button>
-          <button class="theme-btn theme-light" data-theme="light">Sáng</button>
-          <button class="theme-btn theme-dark" data-theme="dark">Ban đêm</button>
-          <button class="theme-btn theme-green" data-theme="green">Dịu mắt</button>
+        <!-- Themes -->
+        <div class="setting-group">
+          <label class="setting-label">Màu nền & Giao diện</label>
+          <div class="theme-options">
+            <button class="theme-btn theme-sepia active" data-theme="sepia">Giấy cũ</button>
+            <button class="theme-btn theme-light" data-theme="light">Sáng</button>
+            <button class="theme-btn theme-dark" data-theme="dark">Ban đêm</button>
+            <button class="theme-btn theme-green" data-theme="green">Dịu mắt</button>
+          </div>
         </div>
-      </div>
 
-      <!-- Font Size -->
-      <div class="setting-group">
-        <label class="setting-label">Cỡ chữ</label>
-        <div class="font-size-control">
-          <button id="btn-font-dec" class="size-btn">A -</button>
-          <span id="font-size-label" class="size-value">19 px</span>
-          <button id="btn-font-inc" class="size-btn">A +</button>
+        <!-- Font Size -->
+        <div class="setting-group">
+          <label class="setting-label">Cỡ chữ</label>
+          <div class="font-size-control">
+            <button id="btn-font-dec" class="size-btn">A -</button>
+            <span id="font-size-label" class="size-value">19 px</span>
+            <button id="btn-font-inc" class="size-btn">A +</button>
+          </div>
         </div>
-      </div>
 
-      <!-- Spacing -->
-      <div class="setting-group">
-        <label class="setting-label">Khoảng cách dòng</label>
-        <div class="toggle-options">
-          <button class="toggle-btn active" data-spacing="normal">Chuẩn</button>
-          <button class="toggle-btn" data-spacing="loose">Thoáng</button>
-          <button class="toggle-btn" data-spacing="compact">Gọn</button>
+        <!-- Spacing -->
+        <div class="setting-group">
+          <label class="setting-label">Khoảng cách dòng</label>
+          <div class="toggle-options">
+            <button class="toggle-btn active" data-spacing="normal">Chuẩn</button>
+            <button class="toggle-btn" data-spacing="loose">Thoáng</button>
+            <button class="toggle-btn" data-spacing="compact">Gọn</button>
+          </div>
         </div>
-      </div>
 
-      <!-- Font Family -->
-      <div class="setting-group">
-        <label class="setting-label">Kiểu chữ</label>
-        <div class="toggle-options">
-          <button class="toggle-btn active" data-font="sans">Không chân (Sans)</button>
-          <button class="toggle-btn" data-font="serif">Có chân (Serif)</button>
+        <!-- Font Family -->
+        <div class="setting-group">
+          <label class="setting-label">Kiểu chữ</label>
+          <div class="toggle-options">
+            <button class="toggle-btn active" data-font="sans">Không chân (Sans)</button>
+            <button class="toggle-btn" data-font="serif">Có chân (Serif)</button>
+          </div>
         </div>
       </div>
     </div>

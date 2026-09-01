@@ -1,5 +1,5 @@
 /* ==========================================================================
-   Web Reader Styles - Optimized for Chrome iOS & Mobile (Dual Language)
+   Web Reader Styles - Optimized for Chrome iOS & Mobile (Dual Language + Pinyin)
    ========================================================================== */
 
 :root {
@@ -14,6 +14,7 @@
   --accent-light: rgba(140, 75, 38, 0.12);
   --active-chapter-bg: rgba(140, 75, 38, 0.15);
   --dual-subtext: #705c48;
+  --pinyin-color: #a0491d;
   
   --font-sans: -apple-system, BlinkMacSystemFont, "PingFang SC", "Segoe UI", Roboto, "Helvetica Neue", Arial, sans-serif;
   --font-serif: "Songti SC", "Source Han Serif SC", "Noto Serif", Georgia, "Times New Roman", serif;
@@ -40,6 +41,7 @@
   --accent-light: rgba(0, 102, 204, 0.1);
   --active-chapter-bg: rgba(0, 102, 204, 0.12);
   --dual-subtext: #666666;
+  --pinyin-color: #005bb5;
 }
 
 [data-theme="dark"] {
@@ -54,6 +56,7 @@
   --accent-light: rgba(229, 147, 80, 0.15);
   --active-chapter-bg: rgba(229, 147, 80, 0.2);
   --dual-subtext: #9e9e9e;
+  --pinyin-color: #e59350;
 }
 
 [data-theme="green"] {
@@ -68,6 +71,7 @@
   --accent-light: rgba(46, 105, 48, 0.12);
   --active-chapter-bg: rgba(46, 105, 48, 0.18);
   --dual-subtext: #4f6951;
+  --pinyin-color: #245826;
 }
 
 body.font-sans { font-family: var(--font-sans); }
@@ -77,11 +81,42 @@ body.spacing-compact { --line-height: 1.55; --para-spacing: 0.9em; }
 body.spacing-normal { --line-height: 1.85; --para-spacing: 1.25em; }
 body.spacing-loose { --line-height: 2.15; --para-spacing: 1.6em; }
 
+/* Pinyin Styles */
+ruby {
+  display: inline-flex;
+  flex-direction: column-reverse;
+  vertical-align: bottom;
+  text-align: center;
+  line-height: 1.15;
+  margin: 0 0.5px;
+}
+
+rt {
+  display: none;
+  font-size: 0.54em;
+  line-height: 1;
+  color: var(--pinyin-color);
+  font-family: -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, sans-serif;
+  font-weight: 500;
+  margin-bottom: 2px;
+  user-select: none;
+  -webkit-user-select: none;
+}
+
+body.show-pinyin rt {
+  display: block;
+}
+
+body.show-pinyin {
+  --line-height: 2.3 !important;
+}
+
 * {
   box-sizing: border-box;
   margin: 0;
   padding: 0;
   -webkit-tap-highlight-color: transparent;
+  touch-action: manipulation;
 }
 
 html, body {
@@ -108,8 +143,8 @@ html, body {
   display: flex;
   align-items: center;
   justify-content: space-between;
-  padding-left: max(12px, var(--safe-left));
-  padding-right: max(12px, var(--safe-right));
+  padding-left: max(8px, var(--safe-left));
+  padding-right: max(8px, var(--safe-right));
   transition: transform 0.3s cubic-bezier(0.16, 1, 0.3, 1), opacity 0.3s ease;
 }
 
@@ -134,7 +169,12 @@ html, body {
   transform: translateY(100%);
 }
 
-/* Header Language Switcher */
+.header-controls {
+  display: flex;
+  align-items: center;
+  gap: 6px;
+}
+
 .lang-switch-header {
   display: flex;
   background: var(--card-bg);
@@ -150,7 +190,7 @@ html, body {
   color: var(--text-muted);
   font-size: 13px;
   font-weight: 500;
-  padding: 4px 10px;
+  padding: 4px 8px;
   border-radius: 14px;
   cursor: pointer;
   transition: all 0.15s ease;
@@ -168,6 +208,40 @@ html, body {
   transform: scale(0.95);
 }
 
+/* Quick Pinyin Pill in Header */
+.pinyin-pill {
+  display: inline-flex;
+  align-items: center;
+  gap: 4px;
+  background: var(--card-bg);
+  border: 1px solid var(--border-color);
+  color: var(--text-muted);
+  font-size: 13px;
+  font-weight: 500;
+  padding: 4px 9px;
+  border-radius: 18px;
+  cursor: pointer;
+  transition: all 0.15s ease;
+  white-space: nowrap;
+}
+
+.pinyin-pill .pinyin-icon {
+  font-weight: 700;
+  font-size: 12px;
+  color: var(--accent-color);
+}
+
+.pinyin-pill.active {
+  background: var(--accent-light);
+  border-color: var(--accent-color);
+  color: var(--accent-color);
+  font-weight: 600;
+}
+
+.pinyin-pill:active {
+  transform: scale(0.95);
+}
+
 .icon-btn, .bar-btn {
   background: none;
   border: none;
@@ -176,7 +250,7 @@ html, body {
   font-weight: 500;
   display: inline-flex;
   align-items: center;
-  gap: 6px;
+  gap: 5px;
   padding: 8px 10px;
   border-radius: 20px;
   cursor: pointer;
@@ -200,8 +274,8 @@ html, body {
   margin: 0 auto;
   padding-top: calc(70px + var(--safe-top));
   padding-bottom: calc(85px + var(--safe-bottom));
-  padding-left: max(20px, var(--safe-left));
-  padding-right: max(20px, var(--safe-right));
+  padding-left: max(18px, var(--safe-left));
+  padding-right: max(18px, var(--safe-right));
   min-height: 100vh;
 }
 
@@ -247,7 +321,6 @@ html, body {
   word-break: break-word;
 }
 
-/* Dual Reading Mode Styles */
 .dual-paragraph-block {
   margin-bottom: var(--para-spacing);
   padding: 10px 14px;
@@ -268,7 +341,6 @@ html, body {
   line-height: var(--line-height);
 }
 
-/* Page Chapter Nav Buttons */
 .page-chapter-nav {
   display: flex;
   justify-content: space-between;
@@ -310,7 +382,6 @@ html, body {
   font-weight: 600;
 }
 
-/* Loading & Spinner */
 .loading-box {
   display: none;
   flex-direction: column;
@@ -338,7 +409,6 @@ html, body {
   to { transform: rotate(360deg); }
 }
 
-/* TOC Drawer */
 .drawer, .sheet {
   position: fixed;
   top: 0;
@@ -531,9 +601,15 @@ html, body {
   transform: translateY(100%);
   transition: transform 0.3s cubic-bezier(0.16, 1, 0.3, 1);
   box-shadow: 0 -4px 25px rgba(0,0,0,0.15);
-  padding-bottom: max(20px, var(--safe-bottom));
-  max-height: 80vh;
+  max-height: 85vh;
+  display: flex;
+  flex-direction: column;
+}
+
+.sheet-scroll-body {
   overflow-y: auto;
+  -webkit-overflow-scrolling: touch;
+  padding-bottom: calc(100px + var(--safe-bottom));
 }
 
 .sheet.open .sheet-content {
@@ -624,7 +700,7 @@ html, body {
   background: none;
   border: none;
   color: var(--text-color);
-  padding: 9px 0;
+  padding: 10px 0;
   border-radius: 8px;
   font-size: 13px;
   font-weight: 500;
@@ -658,34 +734,4 @@ html, body {
 .toast.show {
   opacity: 1;
   transform: translateX(-50%) translateY(0);
-}
-
-/* Pinyin Styles */
-ruby {
-  display: inline-flex;
-  flex-direction: column-reverse;
-  vertical-align: bottom;
-  text-align: center;
-  line-height: 1.15;
-  margin: 0 0.5px;
-}
-
-rt {
-  display: none;
-  font-size: 0.54em;
-  line-height: 1;
-  color: var(--pinyin-color, var(--accent-color));
-  font-family: -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, sans-serif;
-  font-weight: 500;
-  margin-bottom: 2px;
-  user-select: none;
-  -webkit-user-select: none;
-}
-
-body.show-pinyin rt {
-  display: block;
-}
-
-body.show-pinyin {
-  --line-height: 2.3 !important;
 }
