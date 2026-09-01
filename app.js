@@ -19,6 +19,7 @@
     fontFamily: localStorage.getItem('reader_font_family') || 'sans',
     spacing: localStorage.getItem('reader_spacing') || 'normal',
     chapterCache: new Map(),
+    positionsPerLang: { vi: null, zh: null, dual: null },
     isLoading: false,
     lastScrollY: 0
   };
@@ -74,7 +75,7 @@
       }
 
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=2.2`)
+        fetch(`data/chapters/${chapterId}.json?v=2.3`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -101,7 +102,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=2.2`;
+    script.src = `data/chapters/${chapterId}.js?v=2.3`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -122,7 +123,7 @@
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=2.2');
+        const res = await fetch('data/book.json?v=2.3');
         state.bookMeta = await res.json();
       }
 
@@ -186,6 +187,7 @@
 
     state.isLoading = true;
     state.currentChapter = chapterId;
+    state.positionsPerLang = { vi: null, zh: null, dual: null };
     window.location.hash = `#ch-${chapterId}`;
     try { localStorage.setItem('reader_last_chapter', chapterId); } catch(e){}
 
@@ -220,29 +222,36 @@
     }
   }
 
-    function renderCurrentChapter(preserveScroll = false) {
+      function captureCurrentLangPosition() {
+    const article = DOM.chapterArticle;
+    if (!article || article.children.length === 0) return;
+
+    const topOffset = 70;
+    const paras = Array.from(article.children);
+    let currentParaIndex = 0;
+    let currentParaOffset = 0;
+
+    for (let i = 0; i < paras.length; i++) {
+      const rect = paras[i].getBoundingClientRect();
+      if (rect.bottom > topOffset) {
+        currentParaIndex = i;
+        currentParaOffset = rect.top - topOffset;
+        break;
+      }
+    }
+
+    state.positionsPerLang[state.lang] = {
+      paraIndex: currentParaIndex,
+      paraOffset: currentParaOffset,
+      scrollY: window.scrollY
+    };
+  }
+
+  function renderCurrentChapter() {
     if (!state.currentChapterData) return;
     const data = state.currentChapterData;
     const article = DOM.chapterArticle;
 
-    // Calculate current visible paragraph index before swapping
-    let currentParaIndex = 0;
-    let currentParaOffset = 0;
-
-    if (preserveScroll && article.children.length > 0) {
-      const topOffset = 70; // Header height
-      const paras = Array.from(article.children);
-      for (let i = 0; i < paras.length; i++) {
-        const rect = paras[i].getBoundingClientRect();
-        if (rect.bottom > topOffset) {
-          currentParaIndex = i;
-          currentParaOffset = rect.top - topOffset;
-          break;
-        }
-      }
-    }
-
-    // Keep minimum height so document does not collapse to 0
     article.style.minHeight = article.offsetHeight + 'px';
 
     const titleZh = typeof data.title === 'object' ? (data.title.zh_ruby || data.title.zh) : data.title;
@@ -322,22 +331,16 @@
       }
     }
 
-    // Restore exact paragraph scroll position
-    if (preserveScroll && article.children.length > 0) {
-      const targetElem = article.children[Math.min(currentParaIndex, article.children.length - 1)];
-      if (targetElem) {
-        const targetRect = targetElem.getBoundingClientRect();
-        const currentScroll = window.scrollY;
-        const targetY = currentScroll + targetRect.top - 70 - currentParaOffset;
-        window.scrollTo({ top: Math.max(0, targetY), behavior: 'instant' });
-      }
-    }
-
     article.style.minHeight = '';
   }
 
   function setLanguage(newLang) {
     if (state.lang === newLang) return;
+
+    // 1. Capture current reading position for current language
+    captureCurrentLangPosition();
+
+    // 2. Switch language
     state.lang = newLang;
     try { localStorage.setItem('reader_lang', newLang); } catch(e){}
 
@@ -345,7 +348,24 @@
       el.classList.toggle('active', el.dataset.lang === newLang);
     });
 
-    renderCurrentChapter(true); // Preserve exact paragraph reading position!
+    // 3. Render content
+    renderCurrentChapter();
+
+    // 4. Restore the independent position of the target language
+    const savedPos = state.positionsPerLang[newLang];
+    if (savedPos && DOM.chapterArticle.children.length > 0) {
+      const targetElem = DOM.chapterArticle.children[Math.min(savedPos.paraIndex, DOM.chapterArticle.children.length - 1)];
+      if (targetElem) {
+        const targetRect = targetElem.getBoundingClientRect();
+        const currentScroll = window.scrollY;
+        const targetY = currentScroll + targetRect.top - 70 - savedPos.paraOffset;
+        window.scrollTo({ top: Math.max(0, targetY), behavior: 'instant' });
+      }
+    } else {
+      // If target language has no saved position yet in this chapter, start at top (0)
+      window.scrollTo({ top: 0, behavior: 'instant' });
+    }
+
     renderTocList(state.chapters);
     highlightActiveTocItem();
 
