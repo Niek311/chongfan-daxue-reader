@@ -220,93 +220,120 @@
     }
   }
 
-  function renderCurrentChapter() {
+    function renderCurrentChapter(preserveScroll = false) {
     if (!state.currentChapterData) return;
     const data = state.currentChapterData;
     const article = DOM.chapterArticle;
-    
-    article.classList.add('fade-out');
-    
-    setTimeout(() => {
-      article.innerHTML = '';
-      
-      const titleZh = typeof data.title === 'object' ? (data.title.zh_ruby || data.title.zh) : data.title;
-      const titleZhPlain = typeof data.title === 'object' ? data.title.zh : data.title;
-      const titleVi = typeof data.title === 'object' ? data.title.vi : data.title;
-      const wcZh = typeof data.wordCount === 'object' ? data.wordCount.zh : (data.wordCount || 0);
-      const wcVi = typeof data.wordCount === 'object' ? data.wordCount.vi : (data.wordCount || 0);
 
-      const contentZh = (data.content && data.content.zh_ruby) ? data.content.zh_ruby : ((data.content && data.content.zh) ? data.content.zh : []);
-      const contentVi = (data.content && data.content.vi) ? data.content.vi : [];
+    // Calculate current visible paragraph index before swapping
+    let currentParaIndex = 0;
+    let currentParaOffset = 0;
 
-      const header = document.createElement('div');
-      header.className = 'chapter-title-header';
-
-      if (state.lang === 'vi') {
-        header.innerHTML = `
-          <div>${titleVi || titleZhPlain}</div>
-          ${titleZhPlain ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
-          <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Bản Tiếng Việt · ${wcVi} từ</div>
-        `;
-        document.title = `${titleVi || titleZhPlain} - Trọng Phản Đại Học`;
-      } else if (state.lang === 'zh') {
-        header.innerHTML = `
-          <div>${titleZh}</div>
-          ${titleVi ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
-          <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 中文原版 · 约 ${wcZh} 字</div>
-        `;
-        document.title = `${titleZhPlain} - 重返大学`;
-      } else {
-        header.innerHTML = `
-          <div>${titleVi || titleZhPlain}</div>
-          <div class="chapter-title-sub">${titleZh}</div>
-          <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Chế độ Song Ngữ (Việt - Trung)</div>
-        `;
-        document.title = `Chương ${data.id} (Song ngữ) - Trọng Phản Đại Học`;
-      }
-
-      article.appendChild(header);
-
-      if (state.lang === 'vi') {
-        contentVi.forEach(p => {
-          const pElem = document.createElement('p');
-          pElem.className = 'chapter-paragraph';
-          pElem.textContent = p;
-          article.appendChild(pElem);
-        });
-      } else if (state.lang === 'zh') {
-        contentZh.forEach(p => {
-          const pElem = document.createElement('p');
-          pElem.className = 'chapter-paragraph';
-          pElem.innerHTML = p;
-          article.appendChild(pElem);
-        });
-      } else {
-        const maxLen = Math.max(contentVi.length, contentZh.length);
-        for (let i = 0; i < maxLen; i++) {
-          const block = document.createElement('div');
-          block.className = 'dual-paragraph-block';
-
-          if (i < contentVi.length) {
-            const pVi = document.createElement('div');
-            pVi.className = 'dual-para-vi';
-            pVi.textContent = contentVi[i];
-            block.appendChild(pVi);
-          }
-
-          if (i < contentZh.length) {
-            const pZh = document.createElement('div');
-            pZh.className = 'dual-para-zh';
-            pZh.innerHTML = contentZh[i];
-            block.appendChild(pZh);
-          }
-
-          article.appendChild(block);
+    if (preserveScroll && article.children.length > 0) {
+      const topOffset = 70; // Header height
+      const paras = Array.from(article.children);
+      for (let i = 0; i < paras.length; i++) {
+        const rect = paras[i].getBoundingClientRect();
+        if (rect.bottom > topOffset) {
+          currentParaIndex = i;
+          currentParaOffset = rect.top - topOffset;
+          break;
         }
       }
+    }
 
-      article.classList.remove('fade-out');
-    }, 40);
+    // Keep minimum height so document does not collapse to 0
+    article.style.minHeight = article.offsetHeight + 'px';
+
+    const titleZh = typeof data.title === 'object' ? (data.title.zh_ruby || data.title.zh) : data.title;
+    const titleZhPlain = typeof data.title === 'object' ? data.title.zh : data.title;
+    const titleVi = typeof data.title === 'object' ? data.title.vi : data.title;
+    const wcZh = typeof data.wordCount === 'object' ? data.wordCount.zh : (data.wordCount || 0);
+    const wcVi = typeof data.wordCount === 'object' ? data.wordCount.vi : (data.wordCount || 0);
+
+    const contentZh = (data.content && data.content.zh_ruby) ? data.content.zh_ruby : ((data.content && data.content.zh) ? data.content.zh : []);
+    const contentVi = (data.content && data.content.vi) ? data.content.vi : [];
+
+    article.innerHTML = '';
+
+    const header = document.createElement('div');
+    header.className = 'chapter-title-header';
+
+    if (state.lang === 'vi') {
+      header.innerHTML = `
+        <div>${titleVi || titleZhPlain}</div>
+        ${titleZhPlain ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
+        <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Bản Tiếng Việt · ${wcVi} từ</div>
+      `;
+      document.title = `${titleVi || titleZhPlain} - Trọng Phản Đại Học`;
+    } else if (state.lang === 'zh') {
+      header.innerHTML = `
+        <div>${titleZh}</div>
+        ${titleVi ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
+        <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 中文原版 · 约 ${wcZh} 字</div>
+      `;
+      document.title = `${titleZhPlain} - 重返大学`;
+    } else {
+      header.innerHTML = `
+        <div>${titleVi || titleZhPlain}</div>
+        <div class="chapter-title-sub">${titleZh}</div>
+        <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Chế độ Song Ngữ (Việt - Trung)</div>
+      `;
+      document.title = `Chương ${data.id} (Song ngữ) - Trọng Phản Đại Học`;
+    }
+
+    article.appendChild(header);
+
+    if (state.lang === 'vi') {
+      contentVi.forEach(p => {
+        const pElem = document.createElement('p');
+        pElem.className = 'chapter-paragraph';
+        pElem.textContent = p;
+        article.appendChild(pElem);
+      });
+    } else if (state.lang === 'zh') {
+      contentZh.forEach(p => {
+        const pElem = document.createElement('p');
+        pElem.className = 'chapter-paragraph';
+        pElem.innerHTML = p;
+        article.appendChild(pElem);
+      });
+    } else {
+      const maxLen = Math.max(contentVi.length, contentZh.length);
+      for (let i = 0; i < maxLen; i++) {
+        const block = document.createElement('div');
+        block.className = 'dual-paragraph-block';
+
+        if (i < contentVi.length) {
+          const pVi = document.createElement('div');
+          pVi.className = 'dual-para-vi';
+          pVi.textContent = contentVi[i];
+          block.appendChild(pVi);
+        }
+
+        if (i < contentZh.length) {
+          const pZh = document.createElement('div');
+          pZh.className = 'dual-para-zh';
+          pZh.innerHTML = contentZh[i];
+          block.appendChild(pZh);
+        }
+
+        article.appendChild(block);
+      }
+    }
+
+    // Restore exact paragraph scroll position
+    if (preserveScroll && article.children.length > 0) {
+      const targetElem = article.children[Math.min(currentParaIndex, article.children.length - 1)];
+      if (targetElem) {
+        const targetRect = targetElem.getBoundingClientRect();
+        const currentScroll = window.scrollY;
+        const targetY = currentScroll + targetRect.top - 70 - currentParaOffset;
+        window.scrollTo({ top: Math.max(0, targetY), behavior: 'instant' });
+      }
+    }
+
+    article.style.minHeight = '';
   }
 
   function setLanguage(newLang) {
@@ -318,7 +345,7 @@
       el.classList.toggle('active', el.dataset.lang === newLang);
     });
 
-    renderCurrentChapter();
+    renderCurrentChapter(true); // Preserve exact paragraph reading position!
     renderTocList(state.chapters);
     highlightActiveTocItem();
 
