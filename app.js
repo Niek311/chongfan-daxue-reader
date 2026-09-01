@@ -1,6 +1,6 @@
 /**
  * Web Reader Core Application - Dual Language (VI / ZH / DUAL)
- * High performance, zero-latency swap, offline-ready.
+ * Supports both HTTP (GitHub Pages / Localhost) and Local File (file:///) protocol!
  */
 
 (function () {
@@ -12,7 +12,7 @@
     currentChapter: 1,
     currentChapterData: null,
     chapters: [],
-    lang: localStorage.getItem('reader_lang') || 'vi', // 'vi' | 'zh' | 'dual'
+    lang: localStorage.getItem('reader_lang') || 'vi',
     fontSize: parseInt(localStorage.getItem('reader_font_size')) || 19,
     theme: localStorage.getItem('reader_theme') || 'sepia',
     fontFamily: localStorage.getItem('reader_font_family') || 'sans',
@@ -31,7 +31,6 @@
     loadingSpinner: document.getElementById('loading-spinner'),
     progressText: document.getElementById('progress-text'),
     
-    // TOC
     btnToc: document.getElementById('btn-toc'),
     btnCloseToc: document.getElementById('btn-close-toc'),
     tocDrawer: document.getElementById('toc-drawer'),
@@ -41,7 +40,6 @@
     tocSearch: document.getElementById('toc-search'),
     btnJumpInput: document.getElementById('btn-jump-input'),
     
-    // Settings
     btnSettings: document.getElementById('btn-settings'),
     btnCloseSettings: document.getElementById('btn-close-settings'),
     settingsSheet: document.getElementById('settings-sheet'),
@@ -50,7 +48,6 @@
     btnFontInc: document.getElementById('btn-font-inc'),
     btnFontDec: document.getElementById('btn-font-dec'),
     
-    // Chapter Nav Buttons
     btnPrevTop: document.getElementById('btn-prev-chapter'),
     btnNextTop: document.getElementById('btn-next-chapter'),
     btnPrevBottom: document.getElementById('btn-prev-bottom'),
@@ -68,18 +65,76 @@
     }, duration);
   }
 
-  // Load Book Metadata & Table of Contents
+  // Load chapter data supporting both fetch and script loading (file://)
+  function fetchChapterData(chapterId) {
+    return new Promise((resolve, reject) => {
+      if (state.chapterCache.has(chapterId)) {
+        return resolve(state.chapterCache.get(chapterId));
+      }
+
+      // If running over HTTP/HTTPS, use fetch()
+      if (window.location.protocol.startsWith('http')) {
+        fetch(`data/chapters/${chapterId}.json`)
+          .then(res => {
+            if (!res.ok) throw new Error('HTTP ' + res.status);
+            return res.json();
+          })
+          .then(data => {
+            state.chapterCache.set(chapterId, data);
+            resolve(data);
+          })
+          .catch(err => {
+            // Fallback to script tag
+            loadViaScript(chapterId, resolve, reject);
+          });
+      } else {
+        // file:/// protocol -> use script tag injection
+        loadViaScript(chapterId, resolve, reject);
+      }
+    });
+  }
+
+  function loadViaScript(chapterId, resolve, reject) {
+    const callbackFn = `loadChapterCallback_${chapterId}`;
+    if (window[callbackFn]) {
+      const data = window[callbackFn]();
+      state.chapterCache.set(chapterId, data);
+      return resolve(data);
+    }
+
+    const script = document.createElement('script');
+    script.src = `data/chapters/${chapterId}.js`;
+    
+    window.onChapterLoaded = function(data) {
+      state.chapterCache.set(chapterId, data);
+      resolve(data);
+      script.remove();
+    };
+
+    script.onerror = function() {
+      reject(new Error('Script load failed for chapter ' + chapterId));
+      script.remove();
+    };
+
+    document.head.appendChild(script);
+  }
+
   async function initBook() {
     try {
-      const res = await fetch('data/book.json');
-      state.bookMeta = await res.json();
+      // 1. Try global BOOK_DATA first (if loaded via data/book.js)
+      if (window.BOOK_DATA) {
+        state.bookMeta = window.BOOK_DATA;
+      } else {
+        const res = await fetch('data/book.json');
+        state.bookMeta = await res.json();
+      }
+
       state.chapters = state.bookMeta.chapters || [];
       state.totalChapters = state.bookMeta.totalChapters || state.chapters.length;
       
       DOM.tocCount.textContent = state.totalChapters;
       renderTocList(state.chapters);
 
-      // Restore last reading state
       const hashChapter = parseHashChapter();
       const savedChapter = parseInt(localStorage.getItem('reader_last_chapter'));
       const initialChapter = hashChapter || savedChapter || 1;
@@ -87,7 +142,7 @@
       loadChapter(initialChapter);
     } catch (err) {
       console.error('Failed to load book metadata:', err);
-      showToast('Tải danh mục thất bại, vui lòng kiểm tra mạng');
+      showToast('Tải danh mục thất bại, vui lòng thử lại');
     }
   }
 
@@ -101,7 +156,6 @@
     return null;
   }
 
-  // Render Table of Contents
   function renderTocList(chapterArray) {
     DOM.tocList.innerHTML = '';
     const fragment = document.createDocumentFragment();
@@ -129,7 +183,6 @@
     DOM.tocList.appendChild(fragment);
   }
 
-  // Load Single Chapter
   async function loadChapter(chapterId, shouldScrollTop = true) {
     if (chapterId < 1 || chapterId > state.totalChapters) return;
     if (state.isLoading) return;
@@ -137,23 +190,14 @@
     state.isLoading = true;
     state.currentChapter = chapterId;
     window.location.hash = `#ch-${chapterId}`;
-    localStorage.setItem('reader_last_chapter', chapterId);
+    try { localStorage.setItem('reader_last_chapter', chapterId); } catch(e){}
 
     DOM.loadingSpinner.classList.add('active');
     DOM.chapterArticle.innerHTML = '';
     updateUIProgress();
 
     try {
-      let chapterData;
-      if (state.chapterCache.has(chapterId)) {
-        chapterData = state.chapterCache.get(chapterId);
-      } else {
-        const res = await fetch(`data/chapters/${chapterId}.json`);
-        if (!res.ok) throw new Error('Network error');
-        chapterData = await res.json();
-        state.chapterCache.set(chapterId, chapterData);
-      }
-
+      const chapterData = await fetchChapterData(chapterId);
       state.currentChapterData = chapterData;
       renderCurrentChapter();
 
@@ -161,12 +205,9 @@
         window.scrollTo({ top: 0, behavior: 'instant' });
       }
 
-      // Preload next chapter for instant transition
+      // Preload next chapter
       if (chapterId + 1 <= state.totalChapters && !state.chapterCache.has(chapterId + 1)) {
-        fetch(`data/chapters/${chapterId + 1}.json`)
-          .then(r => r.json())
-          .then(data => state.chapterCache.set(chapterId + 1, data))
-          .catch(() => {});
+        fetchChapterData(chapterId + 1).catch(() => {});
       }
     } catch (err) {
       console.error('Error loading chapter:', err);
@@ -183,7 +224,6 @@
     }
   }
 
-  // Render Current Chapter in Selected Language (0ms Swap!)
   function renderCurrentChapter() {
     if (!state.currentChapterData) return;
     const data = state.currentChapterData;
@@ -220,7 +260,6 @@
         `;
         document.title = `${titleZh} - 重返大学`;
       } else {
-        // Dual Mode
         header.innerHTML = `
           <div>${titleVi || titleZh}</div>
           <div class="chapter-title-sub">${titleZh}</div>
@@ -231,7 +270,6 @@
 
       article.appendChild(header);
 
-      // Render Paragraphs
       if (state.lang === 'vi') {
         const list = (contentVi.length > 0) ? contentVi : contentZh;
         list.forEach(p => {
@@ -249,7 +287,6 @@
           article.appendChild(pElem);
         });
       } else {
-        // Dual Mode: Align paragraphs side-by-side or stacked
         const maxLen = Math.max(contentVi.length, contentZh.length);
         for (let i = 0; i < maxLen; i++) {
           const block = document.createElement('div');
@@ -274,16 +311,14 @@
       }
 
       article.classList.remove('fade-out');
-    }, 50);
+    }, 40);
   }
 
-  // Switch Language (0ms latency!)
   function setLanguage(newLang) {
     if (state.lang === newLang) return;
     state.lang = newLang;
-    localStorage.setItem('reader_lang', newLang);
+    try { localStorage.setItem('reader_lang', newLang); } catch(e){}
 
-    // Update active pills
     document.querySelectorAll('[data-lang]').forEach(el => {
       el.classList.toggle('active', el.dataset.lang === newLang);
     });
@@ -371,7 +406,7 @@
   function applyTheme(theme) {
     state.theme = theme;
     DOM.html.setAttribute('data-theme', theme);
-    localStorage.setItem('reader_theme', theme);
+    try { localStorage.setItem('reader_theme', theme); } catch(e){}
 
     document.querySelectorAll('.theme-btn').forEach(btn => {
       btn.classList.toggle('active', btn.dataset.theme === theme);
@@ -391,14 +426,14 @@
     state.fontSize = Math.min(Math.max(size, 14), 32);
     DOM.html.style.setProperty('--font-size', `${state.fontSize}px`);
     DOM.fontSizeLabel.textContent = `${state.fontSize} px`;
-    localStorage.setItem('reader_font_size', state.fontSize);
+    try { localStorage.setItem('reader_font_size', state.fontSize); } catch(e){}
   }
 
   function applySpacing(spacing) {
     state.spacing = spacing;
     DOM.body.classList.remove('spacing-compact', 'spacing-normal', 'spacing-loose');
     DOM.body.classList.add(`spacing-${spacing}`);
-    localStorage.setItem('reader_spacing', spacing);
+    try { localStorage.setItem('reader_spacing', spacing); } catch(e){}
 
     document.querySelectorAll('[data-spacing]').forEach(btn => {
       btn.classList.toggle('active', btn.dataset.spacing === spacing);
@@ -409,7 +444,7 @@
     state.fontFamily = font;
     DOM.body.classList.remove('font-sans', 'font-serif');
     DOM.body.classList.add(`font-${font}`);
-    localStorage.setItem('reader_font_family', font);
+    try { localStorage.setItem('reader_font_family', font); } catch(e){}
 
     document.querySelectorAll('[data-font]').forEach(btn => {
       btn.classList.toggle('active', btn.dataset.font === font);
@@ -417,7 +452,6 @@
   }
 
   function setupEventListeners() {
-    // Drawer & Sheet Open/Close
     DOM.btnToc.addEventListener('click', openToc);
     DOM.btnCloseToc.addEventListener('click', closeToc);
     DOM.tocBackdrop.addEventListener('click', closeToc);
@@ -426,14 +460,12 @@
     DOM.btnCloseSettings.addEventListener('click', closeSettings);
     DOM.settingsBackdrop.addEventListener('click', closeSettings);
 
-    // Language Toggle Buttons (Header pills & Settings buttons)
     document.querySelectorAll('[data-lang]').forEach(btn => {
       btn.addEventListener('click', () => setLanguage(btn.dataset.lang));
     });
 
     DOM.btnSwapBottom.addEventListener('click', cycleLanguage);
 
-    // Navigation Buttons
     const prevAction = () => loadChapter(state.currentChapter - 1);
     const nextAction = () => loadChapter(state.currentChapter + 1);
 
@@ -442,7 +474,6 @@
     DOM.btnNextTop.addEventListener('click', nextAction);
     DOM.btnNextBottom.addEventListener('click', nextAction);
 
-    // TOC Search
     let searchTimer;
     DOM.tocSearch.addEventListener('input', (e) => {
       clearTimeout(searchTimer);
@@ -467,7 +498,6 @@
       });
     });
 
-    // Theme & Typography
     document.querySelectorAll('.theme-btn').forEach(btn => {
       btn.addEventListener('click', () => applyTheme(btn.dataset.theme));
     });
@@ -483,7 +513,6 @@
       btn.addEventListener('click', () => applyFontFamily(btn.dataset.font));
     });
 
-    // Keyboard Shortcuts
     window.addEventListener('keydown', (e) => {
       if (['INPUT', 'TEXTAREA'].includes(e.target.tagName)) return;
       if (e.key === 'ArrowLeft') {
@@ -495,7 +524,6 @@
       }
     });
 
-    // Hash Change
     window.addEventListener('hashchange', () => {
       const ch = parseHashChapter();
       if (ch && ch !== state.currentChapter) {
@@ -503,7 +531,6 @@
       }
     });
 
-    // Smart Navbar Autohide on Scroll
     window.addEventListener('scroll', () => {
       const currentScrollY = window.scrollY;
       const diff = currentScrollY - state.lastScrollY;
@@ -528,7 +555,6 @@
     applySpacing(state.spacing);
     applyFontFamily(state.fontFamily);
     
-    // Set initial active lang pill
     document.querySelectorAll('[data-lang]').forEach(el => {
       el.classList.toggle('active', el.dataset.lang === state.lang);
     });
