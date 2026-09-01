@@ -1,0 +1,227 @@
+# Chương 344: Không có một cái tiếp địa khí của.
+
+"Kim An, nhanh về nhà, nãi nãi tại cửa ra vào chờ ngươi rồi."
+
+Chương ngọc bé gái nuốt một ngụm nước bọt thúc giục nói.
+
+"ngươi bao nhiêu tuổi? Như vậy tham ăn?"
+
+"ngươi là chú ta, vậy ta chính là tiểu hài tử."
+
+Triệu Kim An nhìn mắt tay lái phụ chương ngọc bé gái bụng bằng phẳng cười nói:"còn không có nghi ngờ? Ngươi cha mẹ chồng không thúc giục ngươi?"
+
+"kế hoạch năm nay nghi ngờ."
+
+Tại Triệu gia thôn, đại khái tại rất nhiều nông thôn, cưới thê tử trở về, thế hệ trước càng coi trọng chính là sinh con, không quá coi trọng con dâu có xinh đẹp hay không.
+
+Không đầy một lát thì đến nhà rồi, nãi nãi cùng thẩm thẩm quả nhiên tại bevel; groove chỗ chờ lấy.
+
+"nãi nãi, ta trở về."
+
+Triệu Kim An xuống xe cho nãi nãi nhìn, nãi nãi nhìn cháu trai một hồi lâu:"hảo, trở về hảo, trở về hảo."
+
+"tẩu tử về nhà?"
+
+"thẩm thẩm ở nơi này không thấy? Vừa về đến liền hỏi tẩu tử!"
+
+Vương kim như cũng không biết ăn dấm cái gì, Triệu Kim An cười cười chỉ có thể lặp lại lần nữa:"thẩm thẩm, ta trở về."
+
+"ân!"
+
+Vương kim như tiến lên đúng đối với Triệu Kim An vạt áo, ngẩng đầu nhìn đẹp mắt chất tử:"một năm không trở về nhà, trong nhà có tiền, cũng không cần kiếm lời nhiều tiền như vậy."
+
+"tẩu tử ngươi tại phòng bếp nấu cơm, nàng vốn là hôm nay phải đi, đang chờ ngươi trở về."
+
+Nói, vương kim như đập Triệu Kim An một quyền.
+
+"thẩm thẩm."
+
+Triệu Kim An cười ha hả thụ lấy, đoạn thu bình sẽ không như vậy, vương kim như trợn mắt trừng một cái:"cũng không biết lớn lên giống ai."
+
+"ngươi nói bậy bạ gì?"
+
+Nãi nãi không vui, vương kim như lẽ thẳng khí hùng:"vốn chính là, Triệu Quốc Khánh cũng không đẹp như thế a."
+
+Nãi nãi:......
+
+"uy, chương ngọc bé gái, ngươi làm gì?"
+
+Vương kim như đột nhiên phát giác chương ngọc bé gái lén lút đi đến phòng ngủ mình phương hướng.
+
+"ta tìm một chút ăn của."
+
+"ta nói không có, chụp tiền lương ngươi a!"
+
+"thúc công muốn ta tới, hắn nói mua rất nhiều!"
+
+Vương kim như đuổi tới, Triệu Kim An cười cười đi đến phòng bếp.
+
+"Kim An, lập tức dọn cơm."
+
+Doãn Hiểu Lan tại bếp lò bận rộn, Triệu Kim An song song đứng Doãn Hiểu Lan bên cạnh, Doãn Hiểu Lan nghĩ nghĩ cầm đũa lên kẹp một khối thịt khô:"Kim An, ngươi ưa thích măng mùa đông xào thịt khô."
+
+Nhìn trước mắt màu vàng kim thịt khô, Doãn Hiểu Lan một tay cầm đũa một tay ở phía dưới tiếp theo, Triệu Kim An há mồm tiếp lấy.
+
+"ăn ngon không?"
+
+Doãn Hiểu Lan cười vấn đạo.
+
+"không lưu lại tới qua năm?"
+
+"không tốt."
+
+Doãn Hiểu Lan khẽ lắc đầu:"lưu lại ăn tết, người trong thôn sẽ giảng lời ong tiếng ve."
+
+"tẩu tử...."
+
+"Kim An, dạng này rất tốt."
+
+Doãn Hiểu Lan nhỏ giọng nói:"ta rất thỏa mãn rồi, thật sự, ngươi yên tâm ở bên ngoài kiếm tiền, nãi nãi ta sẽ ở trong nhà nhìn xem."
+
+Nàng không nói lần này trở về, nãi nãi dẫn chính mình"vào cửa", mình đã coi là tiến vào Triệu Kim An cái nhà này môn.
+
+Bên ngoài vương kim như cùng chương ngọc bé gái tại già mồm, Triệu Duyệt Thiên quấn sẽ ca ca sẽ đi thăm phim hoạt hình rồi.
+
+Triệu Quốc Hoa cơm nước xong xuôi mới về nhà, về nhà một lần tìm Triệu Kim An muốn thuốc lá.
+
+"thúc thúc, tiền lương ngươi cao như vậy còn có tiền thưởng, còn hỏi ta muốn khói?"
+
+"....."
+
+Triệu Quốc Hoa từ trong túi móc ra một bao Hoàng Phù cùng một bao cực khổ Bạch Sa vỗ bàn bên trên:"ta còn muốn hỏi ngươi, tiền lương của ta đánh ai trên thẻ đi? Ta một người trốn tránh cũng là rút cực khổ Bạch Sa!"
+
+"ta, đường đường xưởng trưởng! Hoàng Phù thế mà chỉ có thể dùng để ở bên ngoài chống đỡ mặt mũi!"
+
+"....."
+
+Triệu Kim An há to miệng:"thẩm thẩm móc chặt như vậy?"
+
+Triệu Quốc Hoa tức giận nói:"biết ngươi thẩm thẩm người nào, cũng không cho thúc thúc của ngươi lưu con đường sống?"
+
+"về sau hô Triệu Bác lan cho ngươi chừa chút."
+
+Triệu Kim An không có sưởi ấm, ở phía trước bãi nhìn xem bên cạnh, Triệu Quốc Hoa thổn thức nói:"cái nhà này triệt để bại, Triệu Vĩ cái này năm đoán chừng muốn tại sở câu lưu qua."
+
+"thế nào?"
+
+"hắn loại người này còn có thể thế nào, giết người phóng hỏa không dám làm, đánh bài không có tiền trộm cắp."
+
+Triệu Quốc Hoa hướng phòng bếp bĩu bĩu môi, ngữ trọng tâm trường nói:"Hiểu Lan là một cô gái tốt, Triệu Vĩ cùng nàng ly hôn, cái nhà này liền triệt để bại, ngươi xem qua năm mạng nhện...."
+
+"Hiểu Lan ở thời điểm, nơi nào không phải sạch sẽ?"
+
+"Kim An."
+
+"ân?"
+
+Triệu Quốc Hoa vỗ vỗ Triệu Kim An bả vai:"ta không có biết công ty mắt xích tài chính như thế nào, nếu như ngươi có tiền, Hiểu Lan ba ngàn tiền lương thiếu đi, nàng ở nhà cái gì công việc đều cướp làm."
+
+"có lần bà ngươi cảm mạo, nàng so ta và ngươi thẩm thẩm còn khẩn trương....."
+
+"ân."
+
+Chuyện này vương kim như gọi điện thoại cùng Triệu Kim An nói qua.
+
+"tiếc là gả nhầm người."
+
+Triệu Quốc Hoa lại bổ sung một câu:"gả sớm."
+
+Triệu Kim An minh bạch Triệu Quốc Hoa có ý tứ gì, hắn gọi tới thẩm thẩm cùng vương kim như, mở cóp sau xe để các nàng chính mình chọn hàng hiệu bao.
+
+Doãn Hiểu Lan chọn một màu cam của hương nại nhi, nhỏ giọng trưng cầu Triệu Kim An:"Kim An, ta lấy cái này đẹp không?"
+
+"dễ nhìn a."
+
+"vậy ta liền lấy cái này."
+
+"cùng quần áo ngươi có chút không đáp, mua đắt một chút."
+
+"trong thôn rất khá, ta cùng thẩm thẩm cùng ra đường mua, còn có nãi nãi cùng um tùm ăn tết của quần áo mới, bất quá là thẩm thẩm cướp giao của tiền."
+
+Doãn Hiểu Lan luôn luôn rất tiết kiệm, vương kim như lại bắt đầu mắng chửi người.
+
+"Kim An, ngươi mua cái gì đồ tết? Kéo một xe trở về!"
+
+Triệu Kim An cười:"thẩm thẩm, bao đều không chận nổi miệng của ngươi."
+
+Doãn Hiểu Lan cũng cười.
+
+"ngươi tại sao cùng tô xa một dạng, Kim An, không phải a, ngươi biết như thế nào mua đồ tết."
+
+Vương kim như một mặt ghét bỏ:"chính ngươi bây giờ đến xem, một hộp hộp bánh bích quy, chẳng lẽ ta mở ra trang đĩa? Còn có chocolate Dove, có 6, 7 loại sô cô la!"
+
+"mụ mụ, ta thích ăn."Triệu Duyệt Thiên nói.
+
+"chính là cho các ngươi mua!"
+
+Vương kim như có chút đau lòng:"mua đồ đắt tiền như vậy trước kia hàng, tiểu hài tử tới chúc tết sẽ ỷ lại không chịu đi."
+
+"....."
+
+Triệu Kim An ngẩn người, nghĩ thầm thẩm thẩm ngươi đừng vội, tô xa cũng tốt, Từ Mạn Mạn cũng tốt, đại khái thẩm tử nói cũng gần như, liền không có một cái tiếp địa khí của.
+
+Tại trong lòng ngươi chính là không có một cái hội công việc quản gia của, ngươi về sau có của lo lắng, không có một cái không bị ngươi ghét bỏ.
+
+Ban đêm, chín điểm.
+
+Đẹp cỗ bắt đầu phiên giao dịch.
+
+Triệu Quốc Hoa kéo dây lưới, Triệu Kim An dựa vào trên giường vọc máy vi tính, đẹp cỗ tài chính đi tới 9. 4 5 ức đô la mỹ.
+
+"chỉ có hơn một tháng thời gian."
+
+Bên ngoài rất náo nhiệt.
+
+Triệu gia thôn có hơn phân nửa nhân chủng rồi quả thụ, triệu có tài cùng chương ngọc bé gái của lão công bọn hắn sang năm liền có thu hoạch có thể bán lấy tiền rồi, tăng thêm lại là vương kim như phụ trách nhận hàng.
+
+Người trong thôn hướng ở đây tụ tập rất bình thường.
+
+Triệu Duyệt Thiên tắm rửa xong đi vào bò lên giường:"ca ca, ban đêm ta muốn cùng ngươi ngủ."
+
+"ngủ bên trong."
+
+Triệu Kim An vỗ vỗ bên trong, Triệu Duyệt Thiên một chút bò vào đi, cho nên nói hay là muốn nhiều ở chung, tống gia nguyệt cũng không dám, nàng tại Triệu Kim An trước mặt lúc nào cũng rất cẩn thận cẩn thận.
+
+"Kim An, um tùm không có quấy rầy ngươi công việc đi?"
+
+"không có."
+
+Doãn Hiểu Lan đi vào ngồi mép giường, Triệu Kim An vấn đạo:"bên ngoài rất nhiều người?"
+
+"ân, kể từ thu hàng mỗi ngày có người tới chơi."
+
+Có Triệu Duyệt Thiên tại, Doãn Hiểu Lan không sợ có người giảng lời ong tiếng ve, nàng ngồi mép giường nhìn trước mắt của nam sinh nói:"Kim An, năm nay trong thôn rất nhiều người kiếm nhiều rồi chút tiền."
+
+"ta cùng thẩm thẩm tính toán sổ sách, tổng cộng 2 6 hơn vạn."
+
+Doãn Hiểu Lan nội tâm vì Triệu Kim An tự hào:"nếu không có ngươi, những vật này nát vụn trong đất đổi không được tiền."
+
+"vậy là tốt rồi."
+
+Triệu Kim An cũng coi như không quên sơ tâm, một thế này chính mình kiếm tiền, chưa quên dẫn dắt người trong thôn làm giàu.
+
+2 6 vạn là không nhiều, bất quá cũng nho nhỏ sống động rồi phía dưới Triệu gia thôn của kinh tế.
+
+Triệu Kim An không học được Đông ca, cho người trong thôn phát tiền phân phát đồ tết, trong thôn hẹn 1 5 0 0 nhà, có 5 7 0 0 còn lại người, người người có phần, cái gì 6 0 tuổi trở lên lão nhân mỗi người cấp 1 vạn nguyên hồng bao.
+
+Bên ngoài có thể nghe thấy Triệu Chí Dũng của lớn yết hầu, cha mẹ của hắn cũng đánh đèn pin tới.
+
+Còn có chương ngọc bé gái.
+
+Vừa đến đã tìm người nhà mình một dạng:"các ngươi như thế nào ở nơi này?"
+
+Nói, còn hướng về ngồi trên giường, nhào tới trảo Triệu Duyệt Thiên:"um tùm, lấy đồ ăn đi."
+
+Nhìn phốc trên đùi mình của chương ngọc bé gái, Triệu Kim An không biết nói cái gì cho phải:"ngươi chú ý một chút, lão công ngươi tới."
+
+"Kim An, mau ra đây chỉ điểm xuống chúng ta công việc!"
+
+"không có gì tốt chỉ điểm, các ngươi nghe ta thẩm thẩm của liền tốt."
+
+Triệu Kim An chỉ có thể rời giường, đi tới xem xét, thật sao, phía trước bãi lên mã có 2 0 tới một người.
+
+Triệu Vũ bằng cũng tại, cùng triệu có tài bọn hắn trò chuyện quả thụ.
+
+Vương kim như hẹp hòi ở bên ngoài chỉ bày một bàn hạt dưa cùng một bàn đậu phộng.
+
+Chương ngọc bé gái xui khiến Triệu Duyệt Thiên lặng lẽ đi nằm

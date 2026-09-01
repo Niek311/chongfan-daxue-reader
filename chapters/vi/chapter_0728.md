@@ -1,0 +1,221 @@
+# Chương 728: Ăn cơm tốt.
+
+Đêm nay.
+
+Đáy vực siêu nhận bận đến rạng sáng 1 điểm, vẫn như cũ tá túc tại Phương Khiết của nhà máy.
+
+Phương Khiết cho đáy vực siêu nhận lấy ra tắm khăn chờ đồ rửa mặt.
+
+Lưu xông phong đại khái cùng đoạn bân đang bồi lãnh đạo xã giao, hoặc là mang mấy cái tiểu đệ bồi đoạn bân ra cửa.
+
+Cái sau là lặng lẽ, hành tung bất định, cũng là đáy vực siêu nhận rất lo lắng đề phòng.
+
+"khiết tỷ, hôm nay kinh doanh thuận lợi của."
+
+Đáy vực siêu nhận một thoại hoa thoại, chỉ muốn cùng Phương Khiết trò chuyện nhiều sẽ.
+
+Phương Khiết hé miệng mỉm cười, trở về gian phòng của mình, mang theo một hồi hương khí.
+
+Nhìn chăm chú Phương Khiết bóng lưng, đáy vực siêu nhận dựa vào cửa ra vào nhiều hít hà.
+
+Không bao lâu.
+
+Nghe thấy bên cạnh vang lên vòi hoa sen âm thanh, khiết tỷ đang tắm, đáy vực siêu nhận dựa vào tường huyễn tưởng Phương Khiết của dáng người, trong phòng tắm sương trắng bốc lên, khiết tỷ xoa tắm thân thể.
+
+"đinh linh linh."
+
+Lúc này điện thoại di động vang lên, là lưu xông phong.
+
+"lão Cốc, ngươi ở đâu? Buổi tối như thế nào không tại đăng phong tạo cực?"
+
+"ta, ta ở bên ngoài."
+
+Đăng phong tạo cực không có gì khách nhân, nghiệp vụ có chút"làm", đáy vực siêu nhận không nói tại Dương Thành, không nói tại Phương Khiết của trong xưởng, hắn vô ý thức mập mờ suy đoán nói láo.
+
+"không có gì sinh ý, ngươi cũng muốn ở trong bãi nhìn chằm chằm, ngươi nhìn ta chằm chằm mới yên tâm!"
+
+"hảo."
+
+Đáy vực siêu nhận sờ lấy vách tường, phía sau vách tường chính là Phương Khiết của phòng tắm.
+
+Hắn thề mình là ưa thích Phương Khiết của, chưa từng như vậy ưa thích một người.
+
+Trước đó đối với Đường Hiểu tinh chỉ có thể nói là hảo cảm, Phương Khiết là tình yêu!
+
+Hắn nghĩ tới, phát hiện mình không ngại Phương Khiết có phải hay không lần thứ nhất, có phải hay không cùng lưu xông phong nói qua, chính mình chỉ muốn nắm giữ Phương Khiết, cả một đời cùng khiết tỷ cùng một chỗ!
+
+Phương Khiết nói cái gì chính mình cũng nghe, đối với nàng một người hảo.
+
+Bên cạnh vòi hoa sen âm thanh ngừng, Phương Khiết tắm xong.
+
+Đáy vực siêu nghĩ tới rồi sẽ, cầm điện thoại di động lên bấm trần trạch điện thoại.
+
+Rạng sáng 1 giờ rưỡi, điện thoại di động vang lên nửa ngày mới tiếp.
+
+"trần trạch."
+
+"lão Cốc?"
+
+Trung thực giảng Triệu Kim An cùng trần trạch đối với đáy vực siêu nhận là không có nửa điểm ý kiến, đáy vực siêu nhận quá lộ sáng tỏ, tương phản có thể còn sẽ có điểm chiếu cố đáy vực siêu nhận tâm tư.
+
+"lão Cốc đã trễ thế như vậy có chuyện gì không?"
+
+Đầu bên kia điện thoại trần trạch ngữ khí rất tốt hỏi thăm.
+
+"trạch ca, đăng phong tạo cực ta cũng có chút cổ phần."
+
+Đáy vực siêu nhận ám chỉ đạo, hô lên đại học tiếng kia"trạch ca."
+
+Hắn càng phần lớn là muốn hướng Phương Khiết tranh công, không muốn xem Phương Khiết tâm tình không tốt.
+
+"lão Cốc, xin lỗi, việc này lan đến gần ngươi, thật sự là lưu xông phong quá mức."
+
+Đại học bộ kia điện thoại di động chuyện sớm đi qua, bây giờ tất cả mọi người không kém đài điện thoại tiền, trần trạch nâng điện thoại một mặt thành khẩn nói:"lão Cốc, nếu như đối với ngươi tạo thành tổn thất kinh tế, ta đền bù ngươi."
+
+"Dương Thành ta có mấy cái tòa nhà, các ngươi Dương ki thôn của tòa nhà cũng được, ta cho ngươi thấp giảm đi, ngươi thấy thế nào?"
+
+Có sao nói vậy, đồng học làm đến mức này, trần trạch rất có thành ý.
+
+"trạch ca, chuyện này có thể hay không đến đây thì thôi? Ngươi cùng Vương Phương dụ nói một tiếng."
+
+Đáy vực siêu nghĩ tới lên bên cạnh Phương Khiết nhỏ giọng nói.
+
+"xin lỗi, lão Cốc, việc này không được."
+
+"trạch ca, ta biết việc này là lão Lưu không đúng, là hắn dẫn người outgoing; departing Dương ki thôn..."
+
+"lão Cốc, ngươi có chứng cứ sao!?"
+
+Trần trạch đánh gãy, hắn chỉ muốn bức lưu xông phong cùng đường mạt lộ, thực hiện hai người ở trong bầy thả của ngoan thoại, nhìn lưu xông phong một lần nữa biến thành"kẻ nghèo hèn", biến thành hắn nên có của màu lót.
+
+"..."
+
+Đáy vực siêu nhận ngơ ngẩn, đầu óc điên cuồng vận chuyển.
+
+"không có, không có."
+
+"lão Cốc, nếu như ngươi có cái gì chứng cứ giao cho ta, ta sẽ trả tiền, so ngươi tại đăng phong tạo cực điểm này cổ phần càng đáng giá tiền."
+
+"... Hảo."
+
+Đáy vực siêu nhận cũng không biết vì cái gì, miệng của mình thế mà đáp ứng trần trạch.
+
+Hắn nhìn về phía bên cạnh.
+
+Nếu như lưu xông phong... Cái kia khiết tỷ không phải liền là chính mình?
+
+Có thể, chứng cớ gì sẽ không dính dấp đến chính mình, lại có thể đem lưu xông phong đưa vào đi?
+
+Hoặc tiêu thất?
+
+Tốt nhất là tiêu thất, tốt nhất giống tại tấn bớt lần kia.
+
+Trần trạch chỉ muốn nhìn lưu xông phong phá sản thiếu nợ, mà đáy vực siêu nhận lại muốn lưu xông phong có thể"tiêu thất."
+
+Chỉ có lưu xông phong tiêu thất, đáy vực siêu nhận mới có cơ hội nhận được Phương Khiết.
+
+Rất trong suốt tâm tư người ngược lại vô cùng tàn nhẫn nhất.
+
+Tại Lâm Thanh Tuyết cùng Phương Khiết trong lòng, tại tất cả mọi người trong lòng, đáy vực siêu nhận một mực quá thành thật rồi, không có Lâm Thanh Tuyết cùng Phương Khiết chiếu cố, coi như đáy vực siêu nhận đạp trúng điện thương đầu gió cũng không kiếm được tiền gì.
+
+Underdone; half-cooked; not cooked enough; not completely done Vương Phương dụ cõng trần trạch liên lạc Triệu Kim An.
+
+Vương Phương dụ: Triệu tổng, không có người gọi điện thoại cho ngươi đi?
+
+Triệu Kim An:???
+
+Vương Phương dụ: đáy vực siêu nhận tối hôm qua đánh trần trạch điện thoại.
+
+Triệu Kim An: ta nói qua theo ngươi.
+
+Triệu Kim An: còn có, Vương Phương dụ ngươi tại Dương Thành không ra sao, thời gian dài bao lâu? Lớp chúng ta trong đám đều yên tĩnh, đáy vực siêu nhận mới nhớ tới gọi điện thoại cầu viện.
+
+Vương Phương dụ: Triệu tổng, ngươi mắng chửi người không mang theo chữ thô tục.
+
+Triệu Kim An: không có mắng chửi người, thực sự cầu thị.
+
+Vương Phương dụ: Triệu tổng, ta chắc chắn không có ngươi lợi hại, ngươi là quận cát Triệu tổng, ta cũng sợ ngươi.
+
+Triệu Kim An: cũng không phải Dương Thành Triệu tổng, ngươi sợ cái gì.
+
+"hừ ~"
+
+Vương Phương dụ không có sinh khí, ngược lại nhìn xem điện thoại tin tức cười gằn một tiếng.
+
+"ngươi vì cái gì không xuất thủ? Nguyên nhân gây ra thế nhưng là lưu xông phong đối với bà bà ta có ý đồ."
+
+Càng là cùng Triệu Kim An tiếp xúc, Vương Phương dụ phát giác Triệu Kim An đi thẳng về thẳng càng tốt chơi.
+
+"ai, cũng không biết bà bà cùng Kim An từng có một lần không có."
+
+"nếu có, bà bà cũng coi như ăn cơm tốt..."
+
+Mới gặp lúc, tại 3 0 3 ký túc xá, lưu xông phong cùng đáy vực siêu nhận con mắt đăm đăm, Dương thù đẹp mới 4 0 ra mặt, bây giờ của Dương thù đẹp nhanh chạy 5 rồi, nhưng rất chú trọng bảo dưỡng.
+
+2 4 tuổi, đoạn thu bình cùng trương tuệ đều nhanh chạy 5 niên kỷ rồi.
+
+Mà còn lại tĩnh cùng lục hồng tiêu đã 5 0 rồi, tại tửu tuyền Lâm Thanh Tuyết không có theo tới, nàng bay hỗ thành công việc.
+
+Du Phỉ thở dài một hơi, chứng minh Lâm Thanh Tuyết trong lòng mình ít thấy, nàng không thể tính toán công ty lão bản nương, trước mắt công ty lão bản nương ngầm thừa nhận chỉ có hai cái: tô xa, Từ Mạn Mạn.
+
+"Triệu tổng, chỗ ở chọn xong, chờ phê duyệt thủ tục xuống."
+
+Cung hiệu trưởng nâng kế hoạch bản vẽ:"khai vật cửu Chương thứ 1 sáng khởi công chính là đốt tiền của động không đáy, ngươi phải làm cho tốt chuẩn bị tâm lý, một cái đạt đến nhiên rất khó chèo chống khai vật cửu chương."
+
+"còn có, hạng mục này ở trong nước đầu tư bỏ vốn cũng là vấn đề lớn."
+
+"Cung hiệu trưởng, khai vật cửu chương của tiền kỳ tài chính đã vào vị trí của mình."
+
+Triệu Kim An ngẩng đầu nhìn bầu trời một chút, nhan hi đoàn đội cùng đơn na cùng tại Tếch-xát, còn lại tĩnh qua tay qua biết 3 8 ức đô la mỹ tài chính khởi động đã đến công ty tài khoản.
+
+"trạm không gian, tinh liên..."
+
+"Dư lão sư."
+
+"ài."
+
+Còn lại tĩnh xích lại gần, Triệu Kim An nhìn qua xanh thẳm bầu trời nói:"khai vật cửu chương lại là thiên hạ thời đại tương lai đáng giá nhất công ty."
+
+"ân."
+
+Còn lại tĩnh nửa tin nửa ngờ gật đầu, yên tĩnh nhìn xem bên cạnh một mực đẹp như thế của nam sinh.
+
+Triệu Kim An khóe miệng hơi hơi cắn câu, nói:"là ta cho thưa dạ cùng biết hơi."
+
+Còn lại tĩnh:...
+
+"hảo."
+
+Không có người quả thật, chỉ coi là Triệu Kim An sủng ái hài tử, Triệu Kim An của"tiên tri"đến đây đánh chỉ, hắn đang cấp triệu biết ừm cùng triệu biết hơi đặt nền móng sớm sắp đặt.
+
+Thế giới tóm lại lại là người tuổi trẻ.
+
+Bành thật quản lý sân trượt tuyết chỉ là triệu biết hơi một cái đồ chơi nhỏ, thiên hạ công việc ở cảng cùng khai vật cửu chương mới là Triệu Kim An cho các nàng của lễ vật.
+
+Cung hiệu trưởng tại tửu tuyền gom đủ hàng không vũ trụ lĩnh vực 3 0 thêm cái thâm niên chuyên gia, Triệu Kim An một hơi"tiễn đưa"rồi 2 5 cái trở về, phàm là không hề tưởng tượng lực, nói không thể nào.
+
+Triệu Kim An toàn bộ cho rồi một bút cố vấn phí đưa bọn hắn trở về.
+
+"không nhìn tư chất cùng chức danh địa vị, thông báo tuyển dụng younger, liền nghĩ cũng không dám nghĩ, khai vật cửu chương còn làm cái gì?"
+
+Không trách Cung hiệu trưởng, đây là Cung hiệu trưởng mấy người này của phương thức làm việc.
+
+Tìm người nhìn danh khí, theo tư cách sắp xếp bối, làm như vậy lên mã sẽ không phạm sai, giống như bộ tài nguyên nhân lực thông báo tuyển dụng lần đầu tiên nhìn văn bằng: ta đều thông báo tuyển dụng Thanh Bắc tốt nghiệp người, trong công việc có sai lầm cũng không phải ta oa.
+
+Nếu như là học sinh tốt nghiệp trung học, vậy cái này oa công ty bộ tài nguyên nhân lực muốn bỏ cũng không xong.
+
+Kinh đô.
+
+Trần nhuế lần thứ nhất gọi điện thoại tới hỏi đến Triệu Kim An.
+
+"Kim An, khai vật cửu chương thật muốn làm?"
+
+"Trần a di, ta muốn thử xem."
+
+"ngươi nói cái kia tinh liên nếu như làm thành... Có thể quân dụng?"
+
+Trần nhuế hàm súc đạo.
+
+"có thể."
+
+Triệu Kim An thẳng thắn

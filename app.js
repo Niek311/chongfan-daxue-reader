@@ -1,6 +1,6 @@
 /**
- * Web Reader Core Application
- * High performance, offline-ready, mobile-first reader.
+ * Web Reader Core Application - Dual Language (VI / ZH / DUAL)
+ * High performance, zero-latency swap, offline-ready.
  */
 
 (function () {
@@ -10,7 +10,9 @@
     bookMeta: null,
     totalChapters: 1101,
     currentChapter: 1,
+    currentChapterData: null,
     chapters: [],
+    lang: localStorage.getItem('reader_lang') || 'vi', // 'vi' | 'zh' | 'dual'
     fontSize: parseInt(localStorage.getItem('reader_font_size')) || 19,
     theme: localStorage.getItem('reader_theme') || 'sepia',
     fontFamily: localStorage.getItem('reader_font_family') || 'sans',
@@ -28,10 +30,9 @@
     chapterArticle: document.getElementById('chapter-article'),
     loadingSpinner: document.getElementById('loading-spinner'),
     progressText: document.getElementById('progress-text'),
-    headerBookTitle: document.getElementById('header-book-title'),
     
+    // TOC
     btnToc: document.getElementById('btn-toc'),
-    btnTocBottom: document.getElementById('btn-toc-bottom'),
     btnCloseToc: document.getElementById('btn-close-toc'),
     tocDrawer: document.getElementById('toc-drawer'),
     tocBackdrop: document.getElementById('toc-backdrop'),
@@ -40,6 +41,7 @@
     tocSearch: document.getElementById('toc-search'),
     btnJumpInput: document.getElementById('btn-jump-input'),
     
+    // Settings
     btnSettings: document.getElementById('btn-settings'),
     btnCloseSettings: document.getElementById('btn-close-settings'),
     settingsSheet: document.getElementById('settings-sheet'),
@@ -48,15 +50,17 @@
     btnFontInc: document.getElementById('btn-font-inc'),
     btnFontDec: document.getElementById('btn-font-dec'),
     
+    // Chapter Nav Buttons
     btnPrevTop: document.getElementById('btn-prev-chapter'),
     btnNextTop: document.getElementById('btn-next-chapter'),
     btnPrevBottom: document.getElementById('btn-prev-bottom'),
     btnNextBottom: document.getElementById('btn-next-bottom'),
+    btnSwapBottom: document.getElementById('btn-swap-bottom'),
     
     toast: document.getElementById('toast')
   };
 
-  function showToast(msg, duration = 2000) {
+  function showToast(msg, duration = 1800) {
     DOM.toast.textContent = msg;
     DOM.toast.classList.add('show');
     setTimeout(() => {
@@ -64,6 +68,7 @@
     }, duration);
   }
 
+  // Load Book Metadata & Table of Contents
   async function initBook() {
     try {
       const res = await fetch('data/book.json');
@@ -74,6 +79,7 @@
       DOM.tocCount.textContent = state.totalChapters;
       renderTocList(state.chapters);
 
+      // Restore last reading state
       const hashChapter = parseHashChapter();
       const savedChapter = parseInt(localStorage.getItem('reader_last_chapter'));
       const initialChapter = hashChapter || savedChapter || 1;
@@ -81,7 +87,7 @@
       loadChapter(initialChapter);
     } catch (err) {
       console.error('Failed to load book metadata:', err);
-      showToast('加载目录失败，请检查网络');
+      showToast('Tải danh mục thất bại, vui lòng kiểm tra mạng');
     }
   }
 
@@ -95,6 +101,7 @@
     return null;
   }
 
+  // Render Table of Contents
   function renderTocList(chapterArray) {
     DOM.tocList.innerHTML = '';
     const fragment = document.createDocumentFragment();
@@ -103,7 +110,15 @@
       const btn = document.createElement('button');
       btn.className = `toc-item ${ch.id === state.currentChapter ? 'active' : ''}`;
       btn.dataset.id = ch.id;
-      btn.textContent = ch.title;
+
+      const titlePrimary = state.lang === 'zh' ? (ch.title.zh || ch.title) : (ch.title.vi || ch.title);
+      const titleSecondary = state.lang === 'zh' ? (ch.title.vi || '') : (ch.title.zh || '');
+
+      btn.innerHTML = `
+        <span class="toc-item-title-primary">${titlePrimary}</span>
+        ${titleSecondary ? `<span class="toc-item-title-secondary">${titleSecondary}</span>` : ''}
+      `;
+
       btn.addEventListener('click', () => {
         closeToc();
         loadChapter(ch.id);
@@ -114,6 +129,7 @@
     DOM.tocList.appendChild(fragment);
   }
 
+  // Load Single Chapter
   async function loadChapter(chapterId, shouldScrollTop = true) {
     if (chapterId < 1 || chapterId > state.totalChapters) return;
     if (state.isLoading) return;
@@ -138,12 +154,14 @@
         state.chapterCache.set(chapterId, chapterData);
       }
 
-      renderChapter(chapterData);
+      state.currentChapterData = chapterData;
+      renderCurrentChapter();
 
       if (shouldScrollTop) {
         window.scrollTo({ top: 0, behavior: 'instant' });
       }
 
+      // Preload next chapter for instant transition
       if (chapterId + 1 <= state.totalChapters && !state.chapterCache.has(chapterId + 1)) {
         fetch(`data/chapters/${chapterId + 1}.json`)
           .then(r => r.json())
@@ -154,8 +172,8 @@
       console.error('Error loading chapter:', err);
       DOM.chapterArticle.innerHTML = `
         <div style="text-align: center; padding: 50px 20px;">
-          <p style="color: red; margin-bottom: 16px;">章节加载失败</p>
-          <button class="nav-chapter-btn" onclick="location.reload()" style="display:inline-flex; width:auto; padding:8px 20px;">重新加载</button>
+          <p style="color: #e53935; margin-bottom: 16px;">Tải chương thất bại</p>
+          <button class="nav-chapter-btn" onclick="location.reload()" style="display:inline-flex; width:auto; padding:8px 20px;">Tải lại trang</button>
         </div>
       `;
     } finally {
@@ -165,28 +183,122 @@
     }
   }
 
-  function renderChapter(data) {
+  // Render Current Chapter in Selected Language (0ms Swap!)
+  function renderCurrentChapter() {
+    if (!state.currentChapterData) return;
+    const data = state.currentChapterData;
     const article = DOM.chapterArticle;
-    article.innerHTML = '';
+    
+    article.classList.add('fade-out');
+    
+    setTimeout(() => {
+      article.innerHTML = '';
+      
+      const titleZh = typeof data.title === 'object' ? data.title.zh : data.title;
+      const titleVi = typeof data.title === 'object' ? data.title.vi : data.title;
+      const wcZh = typeof data.wordCount === 'object' ? data.wordCount.zh : (data.wordCount || 0);
+      const wcVi = typeof data.wordCount === 'object' ? data.wordCount.vi : (data.wordCount || 0);
 
-    const header = document.createElement('div');
-    header.className = 'chapter-title-header';
-    header.innerHTML = `
-      <div>${data.title}</div>
-      <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 约 ${data.wordCount || 0} 字</div>
-    `;
-    article.appendChild(header);
+      const contentZh = (data.content && data.content.zh) ? data.content.zh : (data.paragraphs || []);
+      const contentVi = (data.content && data.content.vi) ? data.content.vi : [];
 
-    if (data.paragraphs && data.paragraphs.length > 0) {
-      data.paragraphs.forEach(p => {
-        const pElem = document.createElement('p');
-        pElem.className = 'chapter-paragraph';
-        pElem.textContent = p;
-        article.appendChild(pElem);
-      });
-    }
+      const header = document.createElement('div');
+      header.className = 'chapter-title-header';
 
-    DOM.headerBookTitle.textContent = data.title;
+      if (state.lang === 'vi') {
+        header.innerHTML = `
+          <div>${titleVi || titleZh}</div>
+          ${titleZh ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
+          <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Bản Tiếng Việt · ${wcVi} từ</div>
+        `;
+        document.title = `${titleVi || titleZh} - Trọng Phản Đại Học`;
+      } else if (state.lang === 'zh') {
+        header.innerHTML = `
+          <div>${titleZh}</div>
+          ${titleVi ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
+          <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 中文原版 · 约 ${wcZh} 字</div>
+        `;
+        document.title = `${titleZh} - 重返大学`;
+      } else {
+        // Dual Mode
+        header.innerHTML = `
+          <div>${titleVi || titleZh}</div>
+          <div class="chapter-title-sub">${titleZh}</div>
+          <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Chế độ Song Ngữ (Việt - Trung)</div>
+        `;
+        document.title = `Chương ${data.id} (Song ngữ) - Trọng Phản Đại Học`;
+      }
+
+      article.appendChild(header);
+
+      // Render Paragraphs
+      if (state.lang === 'vi') {
+        const list = (contentVi.length > 0) ? contentVi : contentZh;
+        list.forEach(p => {
+          const pElem = document.createElement('p');
+          pElem.className = 'chapter-paragraph';
+          pElem.textContent = p;
+          article.appendChild(pElem);
+        });
+      } else if (state.lang === 'zh') {
+        const list = (contentZh.length > 0) ? contentZh : contentVi;
+        list.forEach(p => {
+          const pElem = document.createElement('p');
+          pElem.className = 'chapter-paragraph';
+          pElem.textContent = p;
+          article.appendChild(pElem);
+        });
+      } else {
+        // Dual Mode: Align paragraphs side-by-side or stacked
+        const maxLen = Math.max(contentVi.length, contentZh.length);
+        for (let i = 0; i < maxLen; i++) {
+          const block = document.createElement('div');
+          block.className = 'dual-paragraph-block';
+
+          if (i < contentVi.length) {
+            const pVi = document.createElement('div');
+            pVi.className = 'dual-para-vi';
+            pVi.textContent = contentVi[i];
+            block.appendChild(pVi);
+          }
+
+          if (i < contentZh.length) {
+            const pZh = document.createElement('div');
+            pZh.className = 'dual-para-zh';
+            pZh.textContent = contentZh[i];
+            block.appendChild(pZh);
+          }
+
+          article.appendChild(block);
+        }
+      }
+
+      article.classList.remove('fade-out');
+    }, 50);
+  }
+
+  // Switch Language (0ms latency!)
+  function setLanguage(newLang) {
+    if (state.lang === newLang) return;
+    state.lang = newLang;
+    localStorage.setItem('reader_lang', newLang);
+
+    // Update active pills
+    document.querySelectorAll('[data-lang]').forEach(el => {
+      el.classList.toggle('active', el.dataset.lang === newLang);
+    });
+
+    renderCurrentChapter();
+    renderTocList(state.chapters);
+    highlightActiveTocItem();
+
+    const langNames = { vi: 'Tiếng Việt', zh: 'Tiếng Trung (中文)', dual: 'Song ngữ' };
+    showToast(`Đã chuyển sang ${langNames[newLang]}`);
+  }
+
+  function cycleLanguage() {
+    const cycle = { vi: 'zh', zh: 'dual', dual: 'vi' };
+    setLanguage(cycle[state.lang] || 'vi');
   }
 
   function updateUIProgress() {
@@ -231,7 +343,9 @@
     const num = parseInt(q);
     const filtered = state.chapters.filter(ch => {
       if (!isNaN(num) && ch.id === num) return true;
-      return ch.title.toLowerCase().includes(q);
+      const zh = (typeof ch.title === 'object' ? ch.title.zh : ch.title) || '';
+      const vi = (typeof ch.title === 'object' ? ch.title.vi : '') || '';
+      return zh.toLowerCase().includes(q) || vi.toLowerCase().includes(q);
     });
 
     renderTocList(filtered);
@@ -303,8 +417,8 @@
   }
 
   function setupEventListeners() {
+    // Drawer & Sheet Open/Close
     DOM.btnToc.addEventListener('click', openToc);
-    DOM.btnTocBottom.addEventListener('click', openToc);
     DOM.btnCloseToc.addEventListener('click', closeToc);
     DOM.tocBackdrop.addEventListener('click', closeToc);
 
@@ -312,6 +426,14 @@
     DOM.btnCloseSettings.addEventListener('click', closeSettings);
     DOM.settingsBackdrop.addEventListener('click', closeSettings);
 
+    // Language Toggle Buttons (Header pills & Settings buttons)
+    document.querySelectorAll('[data-lang]').forEach(btn => {
+      btn.addEventListener('click', () => setLanguage(btn.dataset.lang));
+    });
+
+    DOM.btnSwapBottom.addEventListener('click', cycleLanguage);
+
+    // Navigation Buttons
     const prevAction = () => loadChapter(state.currentChapter - 1);
     const nextAction = () => loadChapter(state.currentChapter + 1);
 
@@ -320,6 +442,7 @@
     DOM.btnNextTop.addEventListener('click', nextAction);
     DOM.btnNextBottom.addEventListener('click', nextAction);
 
+    // TOC Search
     let searchTimer;
     DOM.tocSearch.addEventListener('input', (e) => {
       clearTimeout(searchTimer);
@@ -332,7 +455,7 @@
         closeToc();
         loadChapter(val);
       } else {
-        showToast(`请输入有效章节 (1-${state.totalChapters})`);
+        showToast(`Vui lòng nhập số chương (1-${state.totalChapters})`);
       }
     });
 
@@ -344,6 +467,7 @@
       });
     });
 
+    // Theme & Typography
     document.querySelectorAll('.theme-btn').forEach(btn => {
       btn.addEventListener('click', () => applyTheme(btn.dataset.theme));
     });
@@ -359,15 +483,19 @@
       btn.addEventListener('click', () => applyFontFamily(btn.dataset.font));
     });
 
+    // Keyboard Shortcuts
     window.addEventListener('keydown', (e) => {
       if (['INPUT', 'TEXTAREA'].includes(e.target.tagName)) return;
       if (e.key === 'ArrowLeft') {
         prevAction();
       } else if (e.key === 'ArrowRight') {
         nextAction();
+      } else if (e.key === 's' || e.key === 'S') {
+        cycleLanguage();
       }
     });
 
+    // Hash Change
     window.addEventListener('hashchange', () => {
       const ch = parseHashChapter();
       if (ch && ch !== state.currentChapter) {
@@ -375,6 +503,7 @@
       }
     });
 
+    // Smart Navbar Autohide on Scroll
     window.addEventListener('scroll', () => {
       const currentScrollY = window.scrollY;
       const diff = currentScrollY - state.lastScrollY;
@@ -399,6 +528,11 @@
     applySpacing(state.spacing);
     applyFontFamily(state.fontFamily);
     
+    // Set initial active lang pill
+    document.querySelectorAll('[data-lang]').forEach(el => {
+      el.classList.toggle('active', el.dataset.lang === state.lang);
+    });
+
     setupEventListeners();
     initBook();
   }

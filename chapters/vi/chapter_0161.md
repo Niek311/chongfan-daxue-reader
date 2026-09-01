@@ -1,0 +1,217 @@
+# Chương 161: 1 vạn cái không dám!
+
+"cho ta xem một chút!"
+
+Lâm Thanh Tuyết đoạt mất, cùng Lý Lộ yêu thích không buông tay.
+
+"không phải, các ngươi chen đến ta rồi!"
+
+Vương duy đào bị kẹp ở giữa, không hiểu được hưởng thụ.
+
+2 0 tuổi tiểu nữ sinh a, lưu xông phong cùng đáy vực siêu nhận không thể hút mạnh mấy hơi thở.
+
+Phương Khiết xem xét vài lần, lấy điện thoại di động ra tra, nhìn xem điện thoại lẩm bẩm nói:"trong nước không có bán, mua hộ muốn 8 hơn ngàn."
+
+Lý Lộ:......
+
+"vậy, đắt như vậy!?"
+
+Lâm Thanh Tuyết nhìn Triệu Kim An của con mắt đều sáng lên, một đài điện thoại liền 8 hơn ngàn a, vẫn là trong nước không có bán!
+
+Vương duy đào không có kỳ quái chút nào, nếu như là 8 vạn có thể sẽ nho nhỏ kinh ngạc một chút.
+
+"Triệu Kim An, ta muốn làm bạn gái của ngươi!"
+
+Lý Airam đột nhiên nghiêng người mong chờ, làm ra một bộ nhóc đáng thương bộ dáng:"Triệu Kim An, ngươi liền làm bạn trai ta có được hay không, ta bảo đảm nghe lời ngươi."
+
+Lý Lộ: (° д °)
+
+Triệu Kim An nhịn cười không được một tiếng:"ngươi muốn điện thoại iphone?"
+
+"ân..... Không phải!!"
+
+Lý Airam vội vàng khoát tay lắc đầu, đại khái cảm thấy nói lỡ miệng, lại đóng vai đáng thương:"ta nghe lời ngươi còn không được sao? Ngươi nói cái gì chính là cái đó, ta cái gì tất cả nghe theo ngươi."
+
+Phương Khiết cũng che miệng cười một tiếng.
+
+Vương duy đào liền không có để vào trong lòng, ở chung ba cái học kỳ rồi, lớp học mấy tháng sống động đồng học đại khái người nào đều biết, có tô xa tỷ, Kim An có thể vừa ý lý Airam?
+
+Lâm Thanh Tuyết một mặt phiền muộn.
+
+Nếu là không có lưu xông phong, nàng cũng chuẩn bị học lý Airam rồi.
+
+Bây giờ tốt, trần trạch cùng Triệu Kim An cũng có ý đối với mình giữ một khoảng cách.
+
+Trần trạch còn khá một chút, sẽ trở về chính mình tin tức.
+
+Triệu Kim An là tin tức đều không trở về của người, cũng không biết hắn nhìn ảnh chụp không có.
+
+Qua Tương Giang một cầu, Triệu Kim An đối với quận cát rất quen thuộc, tại đường dành riêng cho người đi bộ phụ cận tìm nhà tốt một chút khách sạn, lý Airam còn nói không phải ở đây, Triệu Kim An dẫn các nàng lên lầu.
+
+Lên trên lầu cách cục lập tức trở nên không đồng dạng.
+
+Cửa ra vào dựng thẳng lệnh bài, 1 6 8 một vị.
+
+"Triệu Kim An, có thể hay không quá mắc?"
+
+Mấy nữ sinh có chút nửa đường bỏ cuộc.
+
+Lý Airam còn kéo lại Triệu Kim An, cái này 6 cá nhân muốn 1 ngàn khối tiền a, ăn cơm canh hoa một ngàn?
+
+"không có việc gì, ta có tiền, các ngươi đi tìm chỗ ngồi."
+
+Triệu Kim An cười cười, một người đi trả tiền.
+
+Thật giống như 1 ngàn khối tiền thật sự chuyện rất nhỏ một dạng, phần này sảng khoái, Lâm Thanh Tuyết cùng Lý Lộ nhớ tới lưu xông phong trước đây mời các nàng ký túc xá ăn pizza, trả tiền thịt đau của bộ dáng.
+
+Phương Khiết nhìn Triệu Kim An một hồi, rất hào phóng đi tìm chỗ ngồi.
+
+Lý Airam đi trước cầm xinh đẹp bánh ngọt, cũng không ăn, liền cầm lấy điện thoại chụp ảnh.
+
+Lâm Thanh Tuyết cũng không nhịn được chụp mấy bức.
+
+Nàng ăn qua tiệc đứng, chính là chưa ăn qua 1 6 8 một vị của.
+
+"Triệu Kim An, hợp trương ảnh có được hay không?"
+
+Lý Airam nói ôm chặt Triệu Kim An cánh tay, lộ ra khuôn mặt tươi cười, nàng rất ưa thích chụp ảnh, đáy vực siêu nhận nói qua lý Airam nơi nào giống nghèo khó sinh, nàng Q Q không gian, hôm nay một ly trà sữa, ngày mai một ly trà sữa.
+
+Lý Lộ thật hâm mộ, cũng tưởng tượng lý Airam một dạng cùng Triệu Kim An chụp ảnh chung, lại không tốt mở miệng.
+
+Phương Khiết bưng tới bàn ăn, nhìn lý Airam quấn lấy Triệu Kim An, nghĩ thầm Audi, 8 ngàn của điện thoại, lại dài đẹp như thế, tại lớp học làm người điệu thấp không nói lời thô tục, còn ưa thích cười lại hào phóng.....
+
+Tốt a, có phía trước ba điểm, lý Airam cùng Lâm Thanh Tuyết liền bước bất động chân.
+
+Nghe lời?
+
+Lý Airam đối với Triệu Kim An nói ta cái gì tất cả nghe theo ngươi, ngươi nói cái gì chính là cái đó.
+
+Phương Khiết nghiêm túc nhìn Triệu Kim An một hồi, thật đúng là.
+
+Lý Airam những thứ này"Tiểu Chiêu thức", đối phó lưu xông phong đối phó nam sinh khác vẫn được, tại Triệu Kim An trước mặt..... Lý Airam chỉ có thể nghe lời, chỉ dám nghe lời!
+
+Nói không ra vì cái gì.
+
+Ngay bây giờ Triệu Kim An đối với lý Airam cười, nếu như lý Airam thực sự là Triệu Kim An bạn gái, lý Airam còn dám cùng nam sinh"thành thạo điêu luyện?"dám đối với nam sinh khác làm nũng!?
+
+Phương Khiết lại nghiêm túc nhìn Triệu Kim An một hồi, nàng đánh cược lý Airam 1 vạn cái không dám!
+
+Đánh cược lý Airam không dám có chút"ngỗ nghịch"Triệu Kim An.
+
+Coi như Triệu Kim An bổ chân, lý Airam cũng chỉ dám nghe lời.
+
+"Lý Lộ cùng Lâm Thanh Tuyết cũng giống vậy."
+
+Phương Khiết cúi đầu ăn cái gì, nàng cũng không biết vì cái gì Triệu Kim An cho mình một loại dạng này ảo giác, hắn cười tựa hồ chỉ là một loại lễ phép......
+
+Chụp hình xong, lý Airam mới bay tới bay lui lấy đồ ăn.
+
+"ngươi dimensional; spatial ảnh chụp cũng là điện thoại chụp của?"
+
+Triệu Kim An hiếu kì vấn đạo.
+
+"đúng a, có thể cầm dây nối điện tử dẫn vào đi vào."
+
+Lý Airam kề sát Triệu Kim An ngồi, xẹp lép miệng:"điện thoại di động của ta pixel không tốt, không giống điện thoại di động của ngươi...."
+
+Triệu Kim An liền nhiền lấy lý Airam cười.
+
+"....."
+
+Phương Khiết ngẩng đầu nhìn một chút lý Airam, nàng đột nhiên nghĩ tới Triệu Kim An trên xe đối với lý Airam nói qua một câu nói"ngươi muốn điện thoại iphone", lý Airam nói là tình yêu tình báo, Triệu Kim An của trả lời càng giống là một loại giao dịch.
+
+Đêm đến.
+
+Trở lại ký túc xá, lưu xông phong liền hướng Triệu Kim An phàn nàn.
+
+"Kim An, chính ngươi đến xem!"
+
+"thế nào?"
+
+Lưu xông phong mua đài hai tay máy tính để bàn, chỉ vào tức giận nói:"lý Airam của Q Q không gian!"
+
+Đáy vực siêu nhận cũng tại.
+
+Nhìn xem Triệu Kim An trong lòng chua chát, Audi A 6, nữ đồng học?
+
+Triệu Kim An vẫn là không hiểu ra sao.
+
+"ngươi như thế nào mời các nàng đi ăn 1 6 8 của tiệc đứng!?"
+
+Lưu xông phong có chút nhớ đánh người:"ngươi dạng này.... Đem tiêu chuẩn giơ lên cao như vậy, chúng ta về sau làm sao bây giờ? Còn có, ta đi nơi nào mượn Audi? Tiểu Tuyết....."
+
+"Tiểu Tuyết vừa mới còn cầm ta cùng ngươi tương đối!"
+
+Triệu Kim An:......
+
+"trần trạch đi BMW ngươi tại sao không nói?"
+
+"vậy không giống nhau!"
+
+Lưu xông phong lẽ thẳng khí hùng:"trần trạch là trong nhà của, ta và ngươi là kiêm chức, Kim An ngươi dạng này nâng lên giá hàng, ngươi nhìn có bao nhiêu người tại lý Airam không gian nhắn lại!"
+
+"ngươi bây giờ là chúng ta kế toán ban một cùng ban hai nam sinh của công địch!!!"
+
+Đáy vực siêu nhận mãnh liệt gật đầu:"Kim An, đây là ngươi không đúng! Lâm Thanh Tuyết, Lý Lộ, Phương Khiết đều đổi mới Q Q không gian!"
+
+"....."
+
+Triệu Kim An không dám nói tiếp nữa.
+
+"còn có, đạo viên Lưu Huy còn giống như cho Phương Khiết nhắn lại phát cái biểu lộ."
+
+Đáy vực siêu nhận một mặt oán niệm:"Phương Khiết đem các ngươi hôm nay đi ăn thức ăn tự chọn viết thiên nhật ký, lưu loát hai ngàn nhiều chữ, lớp học có một nửa người nhấn Like nhắn lại."
+
+"Kim An, ngươi cũng trưởng thành dạng này rồi, ngươi liền không thể khiêm tốn một chút sao?"
+
+Lưu xông phong thật sự buồn bực:"Tiểu Tuyết nói ta muốn hẹn nàng đi chơi, lần sau liền cũng muốn đi mượn đài Audi."
+
+"bỏ dài, ngươi có bằng lái sao?"
+
+Triệu Kim An lễ phép hỏi một câu.
+
+Lưu xông phong:.....
+
+"không phải, Kim An, bây giờ là bằng lái vấn đề sao? Ngươi muốn nhìn thẳng vào vấn đề của ngươi!"
+
+Triệu Kim An chỉ có thể gật đầu:"hảo, ta khiêm tốn một chút."
+
+Lần này lý Airam cùng Lâm Thanh Tuyết các nàng quá có cảm xúc, ăn xong tiệc đứng Triệu Kim An lại lái xe đưa các nàng đến bên dưới nhà trọ nữ sinh, tiểu nữ sinh trong lòng sẽ có tương đối.
+
+Thể nghiệm qua sau, lần sau cùng bạn trai thoa xe buýt, đại khái liền sẽ nhớ tới lần này.
+
+Bò lên giường bật máy tính lên, dưới góc phải chim cánh cụt nhảy không ngừng.
+
+Có bên cạnh kế toán ban hai tăng thêm hảo hữu của nghiệm chứng tin tức.
+
+Lâm Thanh Tuyết lại phát tới mấy trương váy ngủ ảnh chụp, lý Airam hỏi Triệu Kim An ở nơi nào, giống như muốn đi ra tìm người, chỉ có Phương Khiết bình thường phát tới tin tức nói cảm tạ, hôm nay phá phí.
+
+Triệu Kim An chưa kịp nhìn Q Q không gian, điện thoại di động vang lên.
+
+Mắt nhìn điện báo, hắn lại điệu thấp bò xuống giường đi ban công đóng cửa lại.
+
+"uy."
+
+"Triệu tổng, không có quấy rầy ngươi nghỉ ngơi đi, ta cái này gặp phải điểm nan đề."
+
+Lư kiều vĩ là lạc cẩn chi của người, cùng Triệu Kim An nói chuyện khách khí rất nhiều, hắn là bị thẩm tử nói"đá trở về"cho lạc cẩn chi của, thẩm tử nói lại là Triệu Kim An của người.
+
+"vấn đề nan giải gì?"
+
+"Tưởng gia thung lũng của người đều nghĩ đến chúng ta nhà máy nước...."
+
+Lư kiều vĩ ấp úng:"có thật nhiều cũng là xưởng đóng hộp của người, Triệu tổng, ngươi nói chúng ta muốn hay không, nếu như muốn rồi, bên cạnh xưởng đóng hộp liền không có người."
+
+"Tưởng xưởng trưởng chắc chắn không có tiền thỉnh người bên ngoài tới làm việc."
+
+"Triệu tổng, ngươi đang nghe sao?"
+
+"ân."
+
+Tưởng gia thung lũng, lư kiều vĩ nâng điện thoại nhìn xem tối như mực yên tĩnh bên cạnh.
+
+Lầu hai chỉ sáng lên một chiếc đèn, chilly; chill; parky; algid; wintry; winterly; cold; hiemal; shivery; hibernal; chillsome đêm đông, một trận gió thổi qua, giống như muốn bị đêm tối nuốt hết.
+
+Sau một lúc lâu lư kiều vĩ nói:"Triệu tổng, ta.... Nếu như ta đem người thu, bên cạnh xưởng đóng hộp liền muốn đảo bế."
+
+"ta đã biết
