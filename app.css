@@ -81,7 +81,7 @@ body.spacing-compact { --line-height: 1.55; --para-spacing: 0.9em; }
 body.spacing-normal { --line-height: 1.85; --para-spacing: 1.25em; }
 body.spacing-loose { --line-height: 2.15; --para-spacing: 1.6em; }
 
-/* Pinyin Styles */
+/* Pinyin Styles (100% WebKit iOS & Desktop Compatible) */
 ruby {
   display: ruby;
   ruby-position: over;
@@ -92,21 +92,29 @@ ruby {
 }
 
 rt {
-  display: none;
-  font-size: 0.54em;
-  line-height: 1;
+  display: ruby-text;
+  font-size: 0;
+  line-height: 0;
+  visibility: hidden;
+  opacity: 0;
   color: var(--pinyin-color);
   font-family: -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, sans-serif;
   font-weight: 500;
-  margin-bottom: 2px;
+  text-align: center;
   user-select: none;
   -webkit-user-select: none;
+  transition: opacity 0.12s ease;
 }
 
-body.show-pinyin rt { display: ruby-text; -webkit-ruby-position: before; }
+body.show-pinyin rt {
+  font-size: 0.54em;
+  line-height: 1.15;
+  visibility: visible;
+  opacity: 1;
+}
 
 body.show-pinyin {
-  --line-height: 2.3 !important;
+  --line-height: 2.35 !important;
 }
 
 * {
