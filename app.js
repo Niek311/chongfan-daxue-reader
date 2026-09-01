@@ -468,6 +468,12 @@
     DOM.btnCloseToc.addEventListener('click', closeToc);
     DOM.tocBackdrop.addEventListener('click', closeToc);
 
+        if (DOM.btnPinyinToggle) {
+      DOM.btnPinyinToggle.addEventListener('click', (e) => {
+        e.preventDefault();
+        setPinyin(state.pinyin === 'on' ? 'off' : 'on');
+      });
+    }
     DOM.btnSettings.addEventListener('click', openSettings);
     DOM.btnCloseSettings.addEventListener('click', closeSettings);
     DOM.settingsBackdrop.addEventListener('click', closeSettings);

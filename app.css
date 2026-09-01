@@ -83,12 +83,12 @@ body.spacing-loose { --line-height: 2.15; --para-spacing: 1.6em; }
 
 /* Pinyin Styles */
 ruby {
-  display: inline-flex;
-  flex-direction: column-reverse;
-  vertical-align: bottom;
-  text-align: center;
-  line-height: 1.15;
-  margin: 0 0.5px;
+  display: ruby;
+  ruby-position: over;
+  -webkit-ruby-position: before;
+  margin: 0;
+  padding: 0;
+  vertical-align: baseline;
 }
 
 rt {
@@ -103,9 +103,7 @@ rt {
   -webkit-user-select: none;
 }
 
-body.show-pinyin rt {
-  display: block;
-}
+body.show-pinyin rt { display: ruby-text; -webkit-ruby-position: before; }
 
 body.show-pinyin {
   --line-height: 2.3 !important;
