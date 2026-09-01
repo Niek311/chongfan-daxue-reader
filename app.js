@@ -1,6 +1,6 @@
 /**
- * Web Reader Core Application - Dual Language (VI / ZH / DUAL)
- * Supports both HTTP (GitHub Pages / Localhost) and Local File (file:///) protocol!
+ * Web Reader Core Application - Dual Language + Pinyin Ruby
+ * Supports offline file:/// and online GitHub Pages
  */
 
 (function () {
@@ -13,6 +13,7 @@
     currentChapterData: null,
     chapters: [],
     lang: localStorage.getItem('reader_lang') || 'vi',
+    pinyin: localStorage.getItem('reader_pinyin') || 'off',
     fontSize: parseInt(localStorage.getItem('reader_font_size')) || 19,
     theme: localStorage.getItem('reader_theme') || 'sepia',
     fontFamily: localStorage.getItem('reader_font_family') || 'sans',
@@ -65,14 +66,12 @@
     }, duration);
   }
 
-  // Load chapter data supporting both fetch and script loading (file://)
   function fetchChapterData(chapterId) {
     return new Promise((resolve, reject) => {
       if (state.chapterCache.has(chapterId)) {
         return resolve(state.chapterCache.get(chapterId));
       }
 
-      // If running over HTTP/HTTPS, use fetch()
       if (window.location.protocol.startsWith('http')) {
         fetch(`data/chapters/${chapterId}.json`)
           .then(res => {
@@ -84,11 +83,9 @@
             resolve(data);
           })
           .catch(err => {
-            // Fallback to script tag
             loadViaScript(chapterId, resolve, reject);
           });
       } else {
-        // file:/// protocol -> use script tag injection
         loadViaScript(chapterId, resolve, reject);
       }
     });
@@ -121,7 +118,6 @@
 
   async function initBook() {
     try {
-      // 1. Try global BOOK_DATA first (if loaded via data/book.js)
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
@@ -205,7 +201,6 @@
         window.scrollTo({ top: 0, behavior: 'instant' });
       }
 
-      // Preload next chapter
       if (chapterId + 1 <= state.totalChapters && !state.chapterCache.has(chapterId + 1)) {
         fetchChapterData(chapterId + 1).catch(() => {});
       }
@@ -234,12 +229,13 @@
     setTimeout(() => {
       article.innerHTML = '';
       
-      const titleZh = typeof data.title === 'object' ? data.title.zh : data.title;
+      const titleZh = typeof data.title === 'object' ? (data.title.zh_ruby || data.title.zh) : data.title;
+      const titleZhPlain = typeof data.title === 'object' ? data.title.zh : data.title;
       const titleVi = typeof data.title === 'object' ? data.title.vi : data.title;
       const wcZh = typeof data.wordCount === 'object' ? data.wordCount.zh : (data.wordCount || 0);
       const wcVi = typeof data.wordCount === 'object' ? data.wordCount.vi : (data.wordCount || 0);
 
-      const contentZh = (data.content && data.content.zh) ? data.content.zh : (data.paragraphs || []);
+      const contentZh = (data.content && data.content.zh_ruby) ? data.content.zh_ruby : ((data.content && data.content.zh) ? data.content.zh : []);
       const contentVi = (data.content && data.content.vi) ? data.content.vi : [];
 
       const header = document.createElement('div');
@@ -247,21 +243,21 @@
 
       if (state.lang === 'vi') {
         header.innerHTML = `
-          <div>${titleVi || titleZh}</div>
-          ${titleZh ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
+          <div>${titleVi || titleZhPlain}</div>
+          ${titleZhPlain ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
           <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Bản Tiếng Việt · ${wcVi} từ</div>
         `;
-        document.title = `${titleVi || titleZh} - Trọng Phản Đại Học`;
+        document.title = `${titleVi || titleZhPlain} - Trọng Phản Đại Học`;
       } else if (state.lang === 'zh') {
         header.innerHTML = `
           <div>${titleZh}</div>
           ${titleVi ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
           <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 中文原版 · 约 ${wcZh} 字</div>
         `;
-        document.title = `${titleZh} - 重返大学`;
+        document.title = `${titleZhPlain} - 重返大学`;
       } else {
         header.innerHTML = `
-          <div>${titleVi || titleZh}</div>
+          <div>${titleVi || titleZhPlain}</div>
           <div class="chapter-title-sub">${titleZh}</div>
           <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Chế độ Song Ngữ (Việt - Trung)</div>
         `;
@@ -271,19 +267,17 @@
       article.appendChild(header);
 
       if (state.lang === 'vi') {
-        const list = (contentVi.length > 0) ? contentVi : contentZh;
-        list.forEach(p => {
+        contentVi.forEach(p => {
           const pElem = document.createElement('p');
           pElem.className = 'chapter-paragraph';
           pElem.textContent = p;
           article.appendChild(pElem);
         });
       } else if (state.lang === 'zh') {
-        const list = (contentZh.length > 0) ? contentZh : contentVi;
-        list.forEach(p => {
+        contentZh.forEach(p => {
           const pElem = document.createElement('p');
           pElem.className = 'chapter-paragraph';
-          pElem.textContent = p;
+          pElem.innerHTML = p;
           article.appendChild(pElem);
         });
       } else {
@@ -302,7 +296,7 @@
           if (i < contentZh.length) {
             const pZh = document.createElement('div');
             pZh.className = 'dual-para-zh';
-            pZh.textContent = contentZh[i];
+            pZh.innerHTML = contentZh[i];
             block.appendChild(pZh);
           }
 
@@ -329,6 +323,19 @@
 
     const langNames = { vi: 'Tiếng Việt', zh: 'Tiếng Trung (中文)', dual: 'Song ngữ' };
     showToast(`Đã chuyển sang ${langNames[newLang]}`);
+  }
+
+  function setPinyin(pinyinMode) {
+    state.pinyin = pinyinMode;
+    try { localStorage.setItem('reader_pinyin', pinyinMode); } catch(e){}
+
+    DOM.body.classList.toggle('show-pinyin', pinyinMode === 'on');
+
+    document.querySelectorAll('[data-pinyin]').forEach(el => {
+      el.classList.toggle('active', el.dataset.pinyin === pinyinMode);
+    });
+
+    showToast(pinyinMode === 'on' ? 'Đã bật hiển thị Pinyin' : 'Đã tắt Pinyin');
   }
 
   function cycleLanguage() {
@@ -464,6 +471,10 @@
       btn.addEventListener('click', () => setLanguage(btn.dataset.lang));
     });
 
+    document.querySelectorAll('[data-pinyin]').forEach(btn => {
+      btn.addEventListener('click', () => setPinyin(btn.dataset.pinyin));
+    });
+
     DOM.btnSwapBottom.addEventListener('click', cycleLanguage);
 
     const prevAction = () => loadChapter(state.currentChapter - 1);
@@ -521,6 +532,8 @@
         nextAction();
       } else if (e.key === 's' || e.key === 'S') {
         cycleLanguage();
+      } else if (e.key === 'p' || e.key === 'P') {
+        setPinyin(state.pinyin === 'on' ? 'off' : 'on');
       }
     });
 
@@ -555,6 +568,12 @@
     applySpacing(state.spacing);
     applyFontFamily(state.fontFamily);
     
+    // Apply Pinyin
+    DOM.body.classList.toggle('show-pinyin', state.pinyin === 'on');
+    document.querySelectorAll('[data-pinyin]').forEach(el => {
+      el.classList.toggle('active', el.dataset.pinyin === state.pinyin);
+    });
+
     document.querySelectorAll('[data-lang]').forEach(el => {
       el.classList.toggle('active', el.dataset.lang === state.lang);
     });
