@@ -75,7 +75,7 @@
       }
 
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=2.4`)
+        fetch(`data/chapters/${chapterId}.json?v=2.5`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -102,7 +102,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=2.4`;
+    script.src = `data/chapters/${chapterId}.js?v=2.5`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -123,7 +123,7 @@
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=2.4');
+        const res = await fetch('data/book.json?v=2.5');
         state.bookMeta = await res.json();
       }
 
@@ -629,22 +629,47 @@
       }
     });
 
-    window.addEventListener('scroll', () => {
-      const currentScrollY = window.scrollY;
-      const diff = currentScrollY - state.lastScrollY;
+    // Tap reading area to toggle header & bottom bar
+    let touchStartX = 0;
+    let touchStartY = 0;
+    let isTouchMove = false;
 
-      if (Math.abs(diff) > 10) {
-        if (diff > 0 && currentScrollY > 100) {
-          DOM.topBar.classList.add('hide-bar');
-          DOM.bottomBar.classList.add('hide-bar');
-        } else {
-          DOM.topBar.classList.remove('hide-bar');
-          DOM.bottomBar.classList.remove('hide-bar');
+    const readingContainer = document.getElementById('reader-main');
+
+    if (readingContainer) {
+      readingContainer.addEventListener('touchstart', (e) => {
+        if (e.touches.length === 1) {
+          touchStartX = e.touches[0].clientX;
+          touchStartY = e.touches[0].clientY;
+          isTouchMove = false;
         }
-      }
+      }, { passive: true });
 
-      state.lastScrollY = currentScrollY;
-    }, { passive: true });
+      readingContainer.addEventListener('touchmove', (e) => {
+        if (e.touches.length === 1) {
+          const dx = Math.abs(e.touches[0].clientX - touchStartX);
+          const dy = Math.abs(e.touches[0].clientY - touchStartY);
+          if (dx > 8 || dy > 8) {
+            isTouchMove = true;
+          }
+        }
+      }, { passive: true });
+
+      readingContainer.addEventListener('click', (e) => {
+        // Do not toggle if user is selecting/highlighting text for Gemini/dictionary
+        const selection = window.getSelection();
+        if (selection && selection.toString().trim().length > 0) return;
+        if (isTouchMove) return;
+
+        // Do not toggle if clicking on navigation buttons or interactive controls
+        if (e.target.closest('button, a, input, select, textarea, .page-chapter-nav, .app-bar')) return;
+
+        // Toggle top and bottom bar
+        const isCurrentlyHidden = DOM.topBar.classList.contains('hide-bar');
+        DOM.topBar.classList.toggle('hide-bar', !isCurrentlyHidden);
+        DOM.bottomBar.classList.toggle('hide-bar', !isCurrentlyHidden);
+      });
+    }
   }
 
   function init() {
