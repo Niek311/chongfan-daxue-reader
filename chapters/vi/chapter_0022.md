@@ -1,203 +1,207 @@
-# Chương 22: Gặp sao yên vậy.
+# Chương 22: Thuận theo tự nhiên
 
-2 0 0 6 niên bản của điện thoại Q Q, có rất ít điện thoại có ẩn thân công năng, ẩn thân công năng tại điện thoại bưng phổ cập là tại 2 0 0 8 năm trước theo sau 3 G mạng lưới cùng smartphone phát triển mới từng bước thực hiện.
+> **Tiêu đề gốc**: 第22章 随遇而安。
 
-Cái này, chứng minh Triệu Kim An thật sự không online.
+Phiên bản QQ trên điện thoại di động năm 2006 hiếm có dòng máy nào hỗ trợ tính năng ẩn trạng thái hoạt động. Tính năng ẩn thân này chỉ thực sự trở nên phổ biến trên di động vào khoảng năm 2008, khi mạng 3G và điện thoại thông minh từng bước phát triển mạnh mẽ.
 
-Ngươi như thế bảo vệ cho hắn, hắn lại không biết!
+Điều này chứng tỏ Triệu Kim An thực sự không hề online.
 
-Chỉ có Du Phỉ đoán được Mộc Dao hôm nay vì cái gì như vậy giữ gìn Triệu Kim An.
+Cậu ra sức đứng ra bênh vực người ta như thế, người ta nào có hay biết gì đâu!
 
-Bây giờ suy nghĩ một chút, có rồi trước sau so sánh, Du Phỉ cảm thấy Mộc Dao có nhiều chỗ làm của không đúng lắm, bạn trai mình sao có thể để cho người khác nói một câu không tốt nhỉ?
+Trong cả lớp, duy chỉ có Du Phi là đoán được lý do vì sao hôm nay Mộc Dao lại kiên quyết bảo vệ Triệu Kim An đến vậy.
 
-Thậm chí cảm thấy phải có âu mạnh họp lớp, Mộc Dao liền không phải đi, hẳn là tránh hiềm nghi.
+Giờ ngẫm lại, đặt lên bàn cân so sánh trước sau, Du Phi cảm thấy Mộc Dao có những điểm hành xử thực sự chưa đúng. Đã là bạn trai của mình, cớ sao lại có thể để mặc cho người khác gièm pha, nói xấu dù chỉ một lời?
 
-Trừ phi Triệu Kim An cũng ở tại chỗ.
+Thậm chí cô còn nghĩ, những buổi tụ tập bạn bè có mặt Âu Cường, Mộc Dao căn bản không nên đi, cần phải biết giữ khoảng cách để tránh điều tiếng.
 
-Hiện tại nhớ tới ngày đó tại chợ bán thức ăn đụng tới Triệu Kim An cùng Triệu Chí Dũng, Triệu Kim An không có giữ lại Mộc Dao, không có hẹn Mộc Dao, liền nhiền lấy Mộc Dao cùng các bạn học đi tụ hội.
+Trừ phi Triệu Kim An cũng có mặt ở đó.
 
-Đặc biệt là đám người kia bên trong còn có âu mạnh.
+Nhớ lại buổi sáng hôm chạm mặt Triệu Kim An và Triệu Trí Dũng ở chợ rau, Triệu Kim An không hề níu giữ Mộc Dao, cũng chẳng mở lời hẹn hò riêng, cứ thế lặng lẽ nhìn Mộc Dao rời đi cùng đám bạn học để tới buổi tụ tập.
 
-Mộc Dao cũng không có chủ động lưu lại bồi Triệu Kim An.
+Đặc biệt là trong nhóm người đó lại còn có cả Âu Cường.
 
-Rất nhỏ một sự kiện, Du Phỉ bây giờ nghĩ lại, đột nhiên cảm thấy chính mình có chút minh bạch Triệu Kim An rồi.
+Mà Mộc Dao khi ấy cũng chẳng hề chủ động ở lại bên cạnh Triệu Kim An.
 
-Biết rất rõ ràng âu mạnh truy cầu ngươi, mặc dù không phải đơn độc hai người, nhưng ngươi còn cùng hắn cùng nhau chơi đùa, phòng chơi, liên hoan lại K T V, vậy ta tại sao còn muốn giữ lại ngươi?
+Chỉ là một chuyện cỏn con tưởng chừng không đáng kể, nhưng giờ đây khi hồi tưởng lại, Du Phi bỗng cảm thấy mình dường như đã hiểu được tâm tư của Triệu Kim An.
 
-Coi như không có ở chợ bán thức ăn đụng tới.
+Biết rõ mười mươi Âu Cường đang theo đuổi cậu, dẫu không phải đi riêng hai người, nhưng cậu vẫn vô tư đi chơi cùng hắn, từ phòng chơi game, ăn uống đến quán karaoke, vậy thì cớ sao tôi phải mở miệng giữ cậu lại làm gì?
 
-Ngược lại cũng là ngoài ý muốn gặp được, nếu như ta không tại dặm......
+Thôi thì cứ coi như chưa từng vô tình gặp nhau nơi góc chợ ấy.
 
-Coi như ta không đến dặm.
+Dù sao cũng chỉ là một thoáng tình cờ chạm mặt, nếu như tôi không có mặt trên thị trấn...
 
-"ai, Mộc Dao đại khái còn không có chân chính ý thức được chính mình sai căn nguyên đi?"
+Thì cứ coi như tôi chưa từng đặt chân tới chốn này.
 
-Triệu Kim An đối với Du Phỉ không quá quen rồi, bất quá Du Phỉ mới cùng Triệu Kim An làm bạn ngồi cùng bàn, rất an tĩnh một cái nam sinh, nghỉ giữa khóa không cùng những nam sinh khác truy truy đánh đánh.
+"Haizz, xem ra Mộc Dao vẫn chưa thực sự nhận ra cội nguồn sai lầm của bản thân rồi..."
 
-Mệt mỏi liền gục xuống bàn nghỉ ngơi, cũng không cùng bạn ngồi cùng bàn, trước sau trái phải đồng học giao lưu.
+Ký ức của Triệu Kim An về Du Phi kỳ thực không quá sâu đậm, nhưng Du Phi thì vừa mới làm bạn cùng bàn với Triệu Kim An. Trong mắt cô, cậu là một nam sinh vô cùng trầm tĩnh, giữa giờ giải lao chẳng bao giờ chạy nhảy đùa giỡn, đuổi bắt cùng đám con trai khác.
 
-Gương mặt kia, nghiêng khuôn mặt, đôi mắt sạch sẽ của để cho người ta rất muốn"bá"một ngụm.
+Những lúc mệt mỏi, cậu chỉ lặng lẽ gục đầu xuống bàn nghỉ ngơi, cũng hiếm khi bắt chuyện với bạn cùng bàn hay những người xung quanh.
 
-"Kim An hắn sẽ không cho mượn ta 4 5 0 0 đều đi mua 1: 1 đi?"
+Gương mặt ấy khi nghiêng nghiêng ngủ, cùng ánh mắt trong veo thuần khiết đến mức khiến người ta chỉ muốn bất giác cúi xuống thơm nhẹ một cái.
 
-Du Phỉ không dám xác định.
+"Kim An mượn của mình 4.500 tệ, không lẽ cậu ấy đem tất cả đi bắt tỷ số 1:1 thật đấy chứ?"
 
-Dù sao hoa 4 5 0 0 mua điểm số quá dọa người rồi, nàng tính một cái, nếu như 4 5 0 0 đều mua điểm số, 4. 4 của tỉ lệ đặt cược chính là gần tới 2 vạn khối tiền.
+Du Phi không dám chắc chắn.
 
-Nghĩ tới đây, Du Phỉ vừa hi vọng Triệu Kim An toàn bộ mua điểm số, như thế hắn bốn năm đại học của học phí là đủ rồi.
+Dù sao bỏ ra ngần ấy tiền chỉ để đánh một tỷ số bóng đá thì quả thực quá đỗi liều lĩnh, đáng sợ. Cô thử làm phép tính nhẩm, nếu quả thực toàn bộ 4.500 tệ đều đổ vào cửa tỷ số, với tỷ lệ cược 4.4 thì số tiền thắng được sẽ lên tới gần hai mươi nghìn tệ.
 
-Thiên tài hiện ra, Triệu Chí Dũng liền cưỡi xe gắn máy tới.
+Nghĩ đến đây, Du Phi lại thầm mong Triệu Kim An đã dốc trọn số tiền đó vào tỷ số thật, vì như vậy thì toàn bộ tiền học phí suốt bốn năm đại học của cậu sẽ không còn phải lo lắng nữa rồi.
 
-Phía trước bãi"ầm ầm"của âm thanh, phá lệ the thé.
+...
 
-"nãi nãi!"
+Trời vừa hửng sáng, Triệu Trí Dũng đã cưỡi chiếc xe máy chạy sang.
 
-"chí dũng a, ăn điểm tâm sao?"
+Tiếng động cơ "bành bành" rền vang nơi sân trước, nghe chói tai vô cùng.
 
-Lão nhân gia đều lên được sớm, nãi nãi mỗi ngày 5 điểm nhiều liền sẽ rời giường nhóm lửa làm điểm tâm.
+"Bà nội ơi!"
 
-Kỳ thực chính là nấu bát cháo, nói điểm tâm thích hợp hơn.
+"Trí Dũng đấy à cháu, ăn sáng chưa?"
 
-Không có bánh bao cùng bánh quẩy loại vật này, chỉ có vớt mét bát cháo, có đường trắng cùng nấm mốc đậu hũ.
+Người già thường có thói quen dậy rất sớm. Mỗi ngày cứ hơn năm giờ sáng là bà nội đã trở dậy nhóm bếp nấu bữa sáng.
 
-Có người gọi nấm mốc đậu hũ gọi chao, còn có gọi đậu nhự của, tại quận cát gọi mèo còn lại.
+Thực ra chỉ là nấu một nồi cháo hoa loãng, gọi là cơm sáng thì đúng hơn.
 
-Triệu Duyệt Thiên cật hi phạn muốn thả đường trắng, Triệu Kim An rất thích ăn nãi nãi làm của nấm mốc đậu hũ.
+Ở vùng quê này làm gì có những thứ như bánh bao hay quẩy nóng, chỉ có cháo gạo trắng ăn kèm với đường cát hoặc vài miếng đậu phụ nhự lên men.
 
-Tại nãi nãi tâm lý, Triệu Kim An làm việc không có Triệu Chí Dũng lợi hại, hai người bây giờ hùn vốn bán cá, là Triệu Kim An chiếm Triệu Chí Dũng của tiện nghi.
+Đậu phụ nhự này có nơi gọi là chao, ở vùng Quận Sa người ta hay gọi dân dã là "mèo dư".
 
-Trang vật liệu gỗ loại kia việc khổ cực, nãi nãi không muốn Triệu Kim An đi làm, nhưng mà đi trong sông làm điểm cá bán lấy tiền, nãi nãi rất tình nguyện nhìn thấy.
+Bé Triệu Duyệt Thiên hễ ăn cháo là phải rắc thêm đường trắng, còn Triệu Kim An lại đặc biệt thích ăn món đậu phụ nhự do chính tay bà nội tự ủ.
 
-Không có cách nào, trong nhà liền cái này điều kiện kinh tế.
+Trong thâm tâm người bà, Triệu Kim An làm lụng tay chân chẳng thể nào tháo vát, nhanh nhẹn bằng Triệu Trí Dũng. Giờ hai đứa rủ nhau đi bắt cá đem bán, bà cứ ngỡ đứa cháu trai của mình đang chiếm phần hời, dựa dẫm vào Triệu Trí Dũng.
 
-Cuối cùng không làm cho thúc thúc Triệu Quốc Hoa lấy ra quá nhiều, nãi nãi sợ vương kim như trong lòng không vui.
+Những công việc nặng nhọc phơi nắng dầm sương như bốc vác gỗ keo, bà tuyệt đối xót xa không muốn Triệu Kim An phải làm, nhưng ra khúc sông cạn kiếm mớ cá tôm đổi lấy dăm ba đồng bạc lẻ thì bà lại rất đỗi bằng lòng.
 
-Dù sao thúc thúc chỉ là thúc thúc, giúp đỡ là tình cảm vẫn là bản phận?
+Cũng chẳng còn cách nào khác, hoàn cảnh kinh tế gia đình vốn dĩ eo hẹp như vậy.
 
-Không trọng yếu.
+Đâu thể cứ mở miệng đòi hỏi chú Triệu Quốc Hoa phải chu cấp quá nhiều, bà nội luôn nơm nớp lo sợ cô thím Vương Kim Như trong lòng sẽ nảy sinh nỗi ấm ức, bất hòa.
 
-Ngược lại nãi nãi không muốn nhìn thấy vương kim như cùng mình của tiểu nhi tử bởi vì chuyện này ồn ào.
+Dù sao chú cũng chỉ là chú, sự cưu mang đùm bọc ấy là vì tình cảm hay là bổn phận?
 
-Triệu Chí Dũng nhẹ môn con đường quen thuộc đẩy cửa ra, bổ nhào vào Triệu Kim An của trên giường, lôi kéo hắn thì đi dặm đổi tặng phẩm.
+Điều đó chẳng còn quan trọng nữa.
 
-Triệu Kim An mơ mơ màng màng, nhìn xem thời gian, mới 6 điểm,"ngươi một đêm không ngủ?"
+Điều cốt yếu là bà không bao giờ muốn nhìn thấy cảnh Vương Kim Như và đứa con trai út của mình vì chuyện này mà xảy ra cãi vã, lục đục trong nhà.
 
-"nói nhảm, ai có thể giống như ngươi!"
+Triệu Trí Dũng quen đường thuộc lối đẩy cửa bước vào, nhào thẳng lên giường Triệu Kim An, ra sức lôi cậu dậy đòi đi lên thị trấn đổi thưởng ngay lập tức.
 
-Triệu Chí Dũng treo lên mắt quầng thâm, đột nhiên lại nhớ tới cái gì.
+Triệu Kim An mắt nhắm mắt mở, nhìn đồng hồ mới vừa điểm sáu giờ: "Mày thức trắng cả đêm đấy à?"
 
-Hắn đem tối hôm qua Mộc Dao cùng âu mạnh chuyện sinh động như thật giảng một lần.
+"Nói thừa, trần đời này làm gì có ai vô tâm vô phế như mày chứ!"
 
-"Kim An, Mộc Dao ở trong bầy để âu mạnh xin lỗi ngươi, mặc dù âu mạnh không có xin lỗi, nhưng mà làm cho hắn thật là không có mặt mũi, một câu nói phía sau đều không nói, ha ha ha."
+Triệu Trí Dũng với đôi mắt thâm quầng như gấu trúc, bỗng nhiên sực nhớ ra chuyện gì đó.
 
-"a."
+Cậu liền hào hứng kể lại tường tận, thêm mắm dặm muối màn khẩu chiến nảy lửa đêm qua giữa Mộc Dao và Âu Cường.
 
-Triệu Kim An không để trong lòng, rời giường không nhanh không chậm rửa mặt.
+"Kim An, đêm qua Mộc Dao bắt Âu Cường phải xin lỗi mày ngay trong nhóm lớp đấy nhé! Dù thằng Âu Cường mặt dày không chịu xin lỗi, nhưng bị bẽ mặt một vố đau điếng, sau đó tịt ngòi chẳng dám hó hé thêm câu nào nữa, ha ha ha sướng vãi!"
 
-"đúng, ngươi thật giống như là mua hai trăm nhiều khối tiền đi, có hay không một ngàn?"
+"Ừ."
 
-"nhỏ giọng một chút!"
+Triệu Kim An chẳng để tâm chuyện đó, rời giường thong thả đi rửa mặt súc miệng.
 
-Triệu Kim An mắt nhìn phòng bếp, không quản là mua đã trúng vẫn là không có mua bên trong, nãi nãi là tuyệt đối không muốn nhìn thấy cháu trai tham dự bất luận cái gì"đánh cược"của sự tình.
+"À mà này, hôm đó hình như mày đánh hơn hai trăm tệ đúng không, trúng được cả nghìn tệ không đấy?"
 
-Cho dù là 500 vạn!
+"Nói nhỏ thôi!"
 
-Triệu Kim An, Triệu Kim An, nãi nãi chỉ hi vọng Triệu Kim An có thể bình an.
+Triệu Kim An liếc mắt nhìn về phía gian bếp. Bất kể là đánh trúng hay trật, bà nội tuyệt đối không bao giờ muốn nhìn thấy đứa cháu đích tôn của mình dính dáng đến bất kỳ trò cờ bạc đỏ đen nào.
 
-Tại trong sông lao động một ngày rất hao tổn thể lực, nãi nãi đựng hai bát rất nồng đậm của bát cháo, còn có một ít bát nấm mốc đậu hũ.
+Dù cho có trúng năm triệu tệ đi chăng nữa!
 
-Hai người trẻ tuổi ngồi xổm ở cửa ra vào rất mau ăn xong, Triệu Chí Dũng liền không kịp chờ đợi muốn lại Triệu Kim An đi vào thành phố.
+Kim An, Triệu Kim An, cái tên ấy gửi gắm toàn bộ tâm nguyện của người bà: chỉ mong cháu mình một đời bình an, phẳng lặng.
 
-"tiệm vé số còn chưa mở môn."
+Ngâm mình dưới sông cả ngày trời rất hao tổn thể lực, bà nội múc ra hai bát cháo đặc sánh, kèm theo một đĩa nhỏ đậu phụ nhự đỏ au thơm phức.
 
-"Kim An, ngươi trong bọc là cái gì? Lĩnh một ngàn đồng tiền thưởng không cần đến vác một cái bao đi? Cũng không phải đã trúng 500 vạn."
+Hai chàng trai trẻ ngồi xổm trước bậu cửa, loáng một cái đã lùa sạch bát cháo. Triệu Trí Dũng nóng lòng không đợi nổi, vội vã giục giã Triệu Kim An lên xe để cậu chở ra thị trấn.
 
-Triệu Kim An: · · · · · ·
+"Giờ này tiệm xổ số người ta còn chưa mở cửa đâu."
 
-"ngươi ở nơi này chờ lấy, ta đi chuyến sâm thành."
+"Kim An, mày đeo cái balo to đùng này làm gì thế? Đi lĩnh có một nghìn bạc mà cũng bày đặt vác balo, cứ như thể trúng độc đắc năm triệu không bằng."
 
-"ngươi đi sâm thành làm cái gì?"
+Triệu Kim An: [...]
 
-Triệu Chí Dũng cùng Triệu Kim An có thể nói là như hình với bóng, Triệu Kim An từ túi quần móc ra xổ số kín đáo đưa cho Triệu Chí Dũng:"đổi của tiền một người một nửa."
+"Mày cứ ở đây đợi tao, tao phải lên Sâm Thành một chuyến."
 
-Hắn không có ý định đem khoản này 500 vạn của"ngoài ý muốn chi tài"nói cho Triệu Chí Dũng.
+"Mày lên Sâm Thành làm cái gì cơ?"
 
-"giảng nghĩa khí!"
+Triệu Trí Dũng với Triệu Kim An xưa nay vốn như hình với bóng. Triệu Kim An liền thò tay vào túi quần, móc mấy tờ vé cược nhét thẳng vào tay Triệu Trí Dũng: "Đổi thưởng xong chia đôi, mỗi thằng một nửa."
 
-Triệu Chí Dũng cầm mấy trương xổ số, ngồi chờ tại tiệm vé số cửa ra vào.
+Cậu không hề có ý định tiết lộ món "món tiền từ trên trời rơi xuống" trị giá năm triệu tệ này cho Trí Dũng biết.
 
-Cho tới bây giờ, hai người tại tiền phía trên từ trước tới giờ không phân lẫn nhau, bất quá nói tóm lại, Triệu Chí Dũng của tiền tiêu vặt nhiều hơn một chút.
+"Được đấy, chí cốt!"
 
-Triệu Kim An đeo túi xách bước lên đi sâm thành của xe tuyến, đến sâm thành vừa vặn tám điểm nhiều.
+Triệu Trí Dũng cầm mấy tờ vé cược trong tay, hí hửng ngồi chồm hổm canh trước cửa tiệm xổ số thể thao.
 
-Nhìn như đã trúng 5 0 0 vạn hơn, kì thực tới tay mới 4 1 6 vạn.
+Từ trước đến nay, hai đứa họ chuyện tiền nong chưa bao giờ so đo tính toán, nhưng nhìn chung thì tiền tiêu vặt của Triệu Trí Dũng vẫn luôn rủng rỉnh hơn đôi chút.
 
-Bởi vì còn muốn nộp thuế.
+Triệu Kim An khoác balo bước lên chuyến xe khách hướng về phía Sâm Thành, khi tới nơi thì đồng hồ vừa điểm hơn tám giờ sáng.
 
-Nộp thuế tiêu chuẩn: đơn chú tiền thưởng   1 vạn nguyên, cần theo 2 0 % thuế suất giao nạp thuế lợi tức cá nhân, thuế khoản từ xổ số cơ quan đời chụp đời giao nộp.
+Mang tiếng là trúng hơn năm triệu tệ, nhưng thực tế số tiền cầm về tay chỉ có 4,16 triệu tệ.
 
-Liền có chút không nói đạo lý, không trúng cũng không thấy drawback a.
+Bởi vì còn phải khấu trừ thuế thu nhập cá nhân.
 
-Đeo túi xách chạy 5 nhà tiệm vé số, bao tự nhiên không phải dùng để cõng tiền của, 4 trăm vạn cũng chứa không nổi, Triệu Kim An trong túi của thẻ ngân hàng nhiều 4 1 6 vạn.
+Quy định nộp thuế: mỗi giải thưởng đơn lẻ trị giá trên 10.000 tệ đều phải chịu mức thuế suất 20%, số tiền thuế này sẽ do cơ quan xổ số khấu trừ trực tiếp tại nguồn trước khi chi trả.
 
-Tiệm vé số của lão bản một bộ thấy quỷ biểu lộ.
+Nghĩ cũng thấy có chút vô lý, những lúc đánh trượt chẳng thấy ai hoàn thuế bao giờ.
 
-Bất quá cũng tương đối thuận lợi, chưa từng xuất hiện"không cho đổi tiền"của cẩu huyết sự kiện, mở tiệm vé số paramount; leading chính là giữ chữ tín.
+Khoác balo chạy qua năm điểm đổi thưởng khác nhau, chiếc balo dĩ nhiên không phải để đựng tiền mặt—hơn bốn triệu tệ tiền mặt thì cái balo con con này làm sao chứa cho xuể. Lúc này trong thẻ ngân hàng của Triệu Kim An đã nhẹ nhàng tăng thêm một con số khổng lồ: 4.160.000 tệ.
 
-Cũng là xổ số đều tại Triệu Kim An trên thân, không giống hậu thế Wechat chuyển khoản.
+Mấy ông chủ tiệm vé số đều nhìn cậu với ánh mắt hệt như vừa trông thấy ma quỷ giữa ban ngày.
 
-Có khi trên WeChat nói một tiếng, lúc đó lại quên chuyển tiền, kết quả cái này kỳ liền trúng phải, lúc này liền giảng không rõ.
+Tuy nhiên mọi thủ tục nhìn chung diễn ra tương đối suôn sẻ, không hề xuất hiện mấy màn kịch cẩu huyết kiểu như "quỵt tiền không chịu trả". Mở tiệm kinh doanh vé số, chữ tín luôn là thứ được đặt lên hàng đầu.
 
-Lạc cẩn chi không chịu bán công ty, Triệu Kim An trong ngực cất thẻ ngân hàng, 4 0 0 một phần vạn thời gian không có"chỗ."
+Cũng may là toàn bộ vé cược đều do chính tay Triệu Kim An cầm giữ, chứ không giống như thời sau này giao dịch qua tin nhắn chuyển khoản.
 
-Đầu tư cái gì?
+Nhiều khi dặn dò nhau qua tin nhắn một câu, lúc ấy lại quên bẵng không chuyển tiền, đến khi đợt đó trúng thật thì lại nảy sinh tranh chấp, cãi cọ không biết đâu mà lần.
 
-Đừng nói Hàng Thành Mã lão sư của A Lý, đại khái kinh đô Lưu Tổng của kinh đông cũng chướng mắt cái này khu khu 4 0 0 vạn.
+Lạc Cẩn Chi nhất quyết không chịu bán công ty, Triệu Kim An ôm tấm thẻ ngân hàng trong túi áo, hơn bốn triệu tệ trong phút chốc bỗng trở nên "vô gia cư", chưa biết rót vào đâu.
 
-Chớ đừng nhắc tới 2 0 0 4 năm ngay tại thị trường chứng khoán Hương Cảng đưa ra thị trường của chim cánh cụt rồi.
+Đầu tư vào đâu bây giờ?
 
-Nếu như nhắc lại phía trước hai ba năm cũng không giống nhau.
+Đừng nói đến tập đoàn Alibaba của thầy Mã ở Hàng Châu, mà ngay cả trang thương mại điện tử JD của anh Lưu ở thủ đô vào lúc này có lẽ cũng chẳng thèm để mắt tới bốn triệu tệ cỏn con này.
 
-Mùa hè nóng bức, lá cây bị nướng tiu nghỉu xuống, Triệu Kim An ngồi ở ven đường dưới bóng cây, trong tay nắm vuốt một bình nước khoáng.
+Càng khỏi cần bàn tới tập đoàn Tencent của nhà họ Mã đã sớm niêm yết trên sàn chứng khoán Hồng Kông từ tận năm 2004.
 
-Có một chút rất tốt, chính là Triệu Kim An cái kia"gặp sao yên vậy"của tính tình, còn có, có tiền hay không đều như thế.
+Nếu như được trọng sinh sớm hơn hai, ba năm thì câu chuyện đã hoàn toàn khác.
 
-Hắn không có đột nhiên phất nhanh, mua xe xịn đồng hồ nổi tiếng, đóng gói chính mình.
+Giữa trưa hè gay gắt, tán lá ven đường bị nắng hun đến rũ rượi, Triệu Kim An ngồi dưới bóng râm của một gốc cây cổ thụ, trên tay cầm hờ một chai nước khoáng.
 
-Cũng không có đi trong đám âm dương quái khí vài câu âu mạnh.
+Có một điểm rất đặc biệt ở con người Triệu Kim An, đó chính là tính cách "tùy ngộ mà an", thuận theo tự nhiên, có tiền hay không có tiền đối với cậu dường như cũng chẳng có gì khác biệt.
 
-Hoặc chạy đến trương tuệ, Trương Vân thiến trước mặt"đánh mặt"nói, ta có tiền!
+Cậu không vì một bước đổi đời trở thành triệu phú mà vội vã sắm sửa xe sang, đồng hồ hiệu để dát vàng lên người.
 
-Cũng không có gọi điện thoại cho lạc cẩn chi, tranh thủ một lần nữa.
+Cũng chẳng hề lên nhóm lớp buông lời mỉa mai, châm chọc Âu Cường lấy vài câu cho bõ tức.
 
-Lúc này điện thoại"đinh"của một tiếng.
+Lại càng không chạy đến trước mặt Trương Tuệ hay Trương Vân Thiến để "vả mặt" mà gào lên rằng: "Tôi đây giờ có tiền rồi!"
 
-Du Phỉ: Kim An, ta với ngươi mua 1 trăm, vừa mới đi đổi xổ số, kiếm lời 3 4 0 khối tiền.
+Cậu cũng không buồn gọi điện lại cho Lạc Cẩn Chi để ra sức thuyết phục thêm một lần nào nữa.
 
-Triệu Kim An: chúc mừng.
+Đúng lúc này, chiếc điện thoại "tinh" lên một tiếng báo tin nhắn.
 
-Du Phỉ: cùng ngươi mua, ta mời ngươi ăn cơm.
+Du Phi: [Kim An, tớ theo cậu đánh một trăm tệ, vừa mới đi đổi thưởng về xong này, kiếm được tận 340 tệ lận.]
 
-Triệu Kim An: cảm tạ, không cần.
+Triệu Kim An: [Chúc mừng.]
 
-"người này là thực sẽ cự tuyệt người, nhiều đánh mấy chữ là sẽ thêm thu ngươi một đầu tin nhắn của tiền sao?"
+Du Phi: [Nhờ đi theo cậu mới trúng đấy, để tớ mời cậu đi ăn cơm nhé.]
 
-Tin nhắn là theo ký tự thu lệ phí, 7 0 ký tự theo một đầu tin nhắn thu phí, Du Phỉ nằm trên ghế sa lon oán niệm rất sâu, cái này bạn ngồi cùng bàn quá"bất cận nhân tình"rồi.
+Triệu Kim An: [Cảm ơn, không cần đâu.]
 
-Lúc này điện thoại lại"đinh"của một tiếng.
+"Cái tên này sao mà giỏi từ chối người khác thế không biết, gõ thêm mấy chữ thì nhà mạng tính thêm tiền của cậu chắc!?"
 
-Triệu Kim An: hẳn là ta mời ngươi, ngươi cho mượn tiền cho ta.
+Thời điểm này tin nhắn SMS vẫn tính cước theo ký tự, cứ 70 ký tự được tính là một tin. Du Phi nằm sấp trên ghế sofa, trong lòng tràn ngập nỗi hậm hực. Cậu bạn cùng bàn này sao mà "tuyệt tình", lạnh lùng đến thế cơ chứ.
 
-Du Phỉ: Kim An, ta không phải là thúc giục ngươi trả tiền!
+Điện thoại lại "tinh" thêm một tiếng.
 
-Triệu Kim An: phải.
+Triệu Kim An: [Phải là tớ mời cậu mới đúng, cậu đã cho tớ mượn tiền mà.]
 
-"cái gì phải?"
+Du Phi: [Kim An, tớ nhắn thế đâu phải có ý giục cậu trả nợ đâu!]
 
-Du Phỉ hận chết dạng này Triệu Kim An rồi, nói chuyện"phải chết không sống"của.
+Triệu Kim An: [Đó là điều nên làm.]
 
-Ngươi liền không thể nói rõ một chút, có chút cảm xúc sao?
+"Nên làm cái gì mà nên làm cơ chứ!?"
 
-Hồi tưởng lại đồng học ba năm, lại làm qua bạn ngồi cùng bàn, Triệu Kim An giống như lời nói thật sự rất ít, đối với người nào đều thích mỉm cười ứng đối, giống như không cùng ai đỏ mặt qua.
+Du Phi giận điên người trước cái tính cách dở dở ương ương, nói năng nhát gừng này của Triệu Kim An.
 
-Người này hảo vô vị, không có tí sức lực nào thấu!
+Cậu không thể nói năng rõ ràng, biểu lộ chút cảm xúc của con người ra ngoài được hay sao?
+
+Hồi tưởng lại suốt ba năm cấp ba, lại còn từng ngồi chung bàn học, Triệu Kim An quả thực là một người kiệm lời đến lạ kỳ. Với ai cậu cũng chỉ mỉm cười nhẹ nhàng đáp lại, dường như chưa từng to tiếng hay đỏ mặt cãi vã với bất kỳ ai.
+
+Cái con người này, sao mà nhạt nhẽo, vô vị đến phát chán thế không biết!

@@ -1,187 +1,173 @@
-# Chương 14: Đến Triệu Gia Thôn
+# Chương 14: Đến làng họ Triệu
 
-Ngày hôm sau, sau bữa trưa.
+> **Tiêu đề gốc**: 第14章 来了赵家村。
 
-Hai cô thiếu nữ ăn mặc xinh đẹp, Du Phỉ diện một chiếc váy liền thân màu xanh lá nhạt, Mộc Dao mặc váy trắng, đeo túi xách, chân đi giày vải trắng nhỏ nhắn.
+Trưa hôm sau, vừa dùng xong bữa cơm trưa.
 
-Sau kỳ thi đại học, cuối cùng họ cũng có thể trút bỏ bộ đồng phục "xanh da trời" rộng thùng thình, hơi thở thanh xuân của hai cô gái tràn ngập cả không gian.
+Hai cô gái nhỏ xúng xính sửa soạn thật xinh đẹp. Du Phi diện một chiếc váy liền thân màu xanh nhạt mát mắt, còn Mộc Dao khoác lên mình chiếc váy đầm trắng tinh khôi, vai đeo túi xách nhỏ, chân mang đôi giày vải trắng thanh thoát.
 
-Ở lứa tuổi này, cái đẹp của thiếu nữ không cần bất cứ sự tô điểm nào.
+Sau kỳ thi đại học, cuối cùng họ cũng có thể trút bỏ bộ đồng phục học sinh màu "xanh ếch cốm" thùng thình tẻ nhạt. Hai thiếu nữ tràn trề sức sống thanh xuân rực rỡ.
 
-Không cần chỉnh sửa, không cần bộ lọc, đó là vẻ đẹp thuần tự nhiên.
+Ở độ tuổi trăng tròn mười tám này, vẻ đẹp của người con gái chẳng cần đến bất kỳ sự son phấn, trau chuốt nào.
 
-Lượng collagen trên gương mặt cực kỳ căng mọng, ánh mắt trong veo, trên người còn tỏa ra một mùi hương thiếu nữ thoang thoảng.
+Không cần đến các phần mềm chỉnh sửa ảnh, không cần những lớp kính lọc màu mè, đó là nét đẹp thuần khiết và tự nhiên nhất của tạo hóa. Lượng collagen dồi dào trên đôi má căng mịn màng, đàn hồi như thạch, đôi mắt trong veo lấp lánh như mặt hồ mùa thu, và trên cơ thể thoang thoảng một mùi hương thanh tân, ngọt ngào rất đỗi đặc trưng của thiếu nữ mới lớn.
 
-Mấy gã đàn ông từng trải sẽ hiểu, phụ nữ đến một độ tuổi nhất định sẽ mất đi mùi hương này, hương thơm của thiếu nữ là thứ mà bất kỳ loại nước hoa nào, dù đắt tiền đến đâu cũng không thể mô phỏng được.
+Chỉ những người đàn ông từng trải mới thấu hiểu, phụ nữ khi bước qua một ngưỡng tuổi nhất định sẽ vĩnh viễn mất đi thứ hương thơm thuần khiết ấy. Hương thơm thanh xuân của một cô gái mười tám là thứ mà bất kỳ loại nước hoa đắt đỏ, xa xỉ nào trên thế gian này cũng không bao giờ có thể mô phỏng lại được.
 
-Ngoài khứu giác, còn có cả sự ngây thơ lãng mạn của những cô gái nhỏ.
+Bên cạnh nét cuốn hút của khứu giác, đó còn là sự ngây thơ, trong sáng và lãng mạn vô bờ của tuổi trẻ.
 
-"Mộc Dao, sắp đến rồi!"
+"Mộc Dao ơi, sắp tới nơi rồi kìa!"
 
-Du Phỉ cúi người nhìn qua cửa sổ xe, nhìn đông nhìn tây với vẻ mặt đầy hưng phấn, cứ như thể đang đi du lịch và trải nghiệm cuộc sống nông thôn vậy.
+Du Phi khom lưng ghé sát vào ô cửa kính nhìn dáo dác ra ngoài, gương mặt lộ rõ vẻ phấn khích tột cùng, chẳng khác nào một du khách đang háo hức đi trải nghiệm cuộc sống miền thôn dã.
 
-Trên xe khách, cửa sổ mở toang, gió mùa hè thổi thốc vào trong.
+Trên chuyến xe khách liên huyện, tất cả các ô cửa sổ đều mở toang hoang, từng luồng gió mùa hè lồng lộng ùa vào trong khoang xe.
 
-Hai cô gái không "tranh" được chỗ ngồi, một tay họ bám vào thanh vịn trên trần xe, mái tóc dài tung bay trong gió.
+Hai cô gái không giành được ghế ngồi, đành phải một tay bám chặt vào thanh vịn trên nóc xe, những lọn tóc mây mềm mại bay bay theo làn gió xao động.
 
-Từ thành phố đến Triệu Gia Thôn, Triệu Chí Dũng đi mô tô mất nửa tiếng, còn xe khách mất khoảng 45 phút.
+Từ trung tâm thành phố về đến làng họ Triệu, Triệu Trí Dũng phóng xe máy mất chừng nửa tiếng, còn xe khách chạy chầm chậm đón khách dọc đường thì mất khoảng bốn mươi lăm phút.
 
-Triệu Gia Thôn không có tuyến xe khách riêng, họ muốn lên thành phố chỉ cần đứng bên đường vẫy đại một chiếc xe buýt nhỏ là được, những chiếc xe này đều chạy về phía khu trung tâm.
+Làng họ Triệu không có tuyến xe buýt chuyên dụng riêng. Người dân trong làng mỗi khi muốn lên phố chỉ cần đứng bên vệ đường vẫy bất kỳ chiếc xe khách liên huyện nào chạy ngang qua là được, bởi tất cả những chuyến xe này đều hướng về trung tâm thành phố.
 
-Thời này xe cá nhân chưa nhiều, việc kinh doanh xe khách qua lại rất khấm khá.
+Thời điểm này xe hơi cá nhân vẫn còn rất hiếm hoi, việc làm ăn của các nhà xe khách liên huyện vô cùng phát đạt và nhộn nhịp. Trong xe vang lên đủ thứ thanh âm ồn ào, từ thứ tiếng phổ thông ngọng nghịu lai tạp cho đến những giọng phương ngữ địa phương đặc sệt.
 
-Bên trong xe, có người nói tiếng phổ thông "pha tạp", có người nói giọng địa phương, vô cùng ồn ào.
+Giữa đám đông ấy, người ta có thể nhận ra ngay Mộc Dao và Du Phi là những cô tiểu thư thành phố, không chỉ bởi cách ăn mặc trang điểm hợp thời, mà chính là khí chất toát ra từ cử chỉ và ánh mắt.
 
-Chỉ cần nhìn qua là biết ngay Mộc Dao và Du Phỉ là người thành phố, không chỉ ở cách ăn mặc mà còn ở khí chất toát ra.
+"Mộc Dao, làng họ Triệu đến rồi!"
 
-"Mộc Dao, Triệu Gia Thôn kìa!"
+Năm 2006 nơi đây vẫn chưa được xây dựng trạm chờ xe buýt đàng hoàng, bên lề đường chỉ cắm trơ trọi một tấm biển sắt rỉ sét ghi tên làng.
 
-Năm 2006 vẫn chưa xây dựng trạm dừng, bên đường chỉ dựng một tấm biển sắt.
+"Bác tài ơi, làm ơn cho chúng cháu xuống xe với ạ!"
 
-"Bác tài ơi, cho chúng cháu xuống xe với ạ!"
+Hai cô gái nhỏ đeo túi xách nhảy thoăn thoắt xuống xe, liền nhìn thấy ngay bên cạnh tấm biển sắt là một con dốc dài và thoai thoải dẫn xuống thung lũng.
 
-Hai cô gái đeo túi bước xuống xe, liền thấy bên cạnh tấm biển sắt là một con dốc dài và dốc đứng.
+Phía xa xa bên dưới là những mái nhà ngói đỏ lô xô, trải dài dọc theo con đường mòn nhỏ uốn lượn quanh những thửa ruộng bậc thang xanh mướt, nép mình bên sườn đồi thoai thoải, tạo nên một khung cảnh làng quê yên bình và thơ mộng.
 
-Phía dưới xa xa là những mái nhà nhấp nhô dọc theo một con đường nhỏ, ruộng lúa, sườn núi, được sắp xếp rất hài hòa.
+"Triệu Kim An, tớ với Mộc Dao về đến làng họ Triệu của cậu rồi đấy nhé!"
 
-"Triệu Kim An, mình với Mộc Dao đến Triệu Gia Thôn của cậu rồi đây!"
+Hai cô gái nắm chặt tay nhau sải bước đi xuống con dốc dài, đợi khi chân đã chạm đất làng họ Triệu mới rút điện thoại gọi cho Triệu Kim An. Họ chẳng hề lo lắng chuyện sẽ bị hụt chân hay đi về tay trắng, bởi họ biết chắc mười mươi kiểu gì Triệu Kim An cũng đang ở nhà.
 
-Hai cô gái tay trong tay đi xuống dốc, đến tận Triệu Gia Thôn mới gọi điện cho Triệu Kim An, cũng chẳng sợ leo cây, dù sao Triệu Kim An chắc chắn sẽ ở nhà.
+"Mộc Dao này, đằng kia là nhà tranh vách đất đấy à? Bố tớ bảo ngày xưa cả nhà bố cũng từng sống trong những ngôi nhà đất như thế."
 
-"Mộc Dao, kia là nhà vách đất kìa, bố tớ bảo ngày xưa nhà họ cũng ở như thế đấy."
+"Bố bảo hễ cứ mưa to gió lớn là dột tứ tung, sáng hôm sau phải trèo lên mái nhà nhặt lại từng viên ngói lợp lại."
 
-"Bảo là lúc trời mưa gió dễ bị dột lắm, hôm sau phải trèo lên mái nhà để nhặt lại ngói."
+"Mộc Dao, nhà của Kim An là..."
 
-"Mộc Dao, nhà Kim An là..."
+"Nhà xây bằng gạch đỏ đấy!" Mộc Dao đưa mắt nhìn quanh quất rồi nhanh nhảu đáp lời.
 
-"Nhà gạch đỏ!"
+Cô đã từng tò mò hỏi qua Triệu Kim An một lần.
 
-Mộc Dao vừa nhìn quanh vừa nhanh chóng đáp lời.
+Triệu Kim An bảo nhà hắn là nhà hai tầng xây bằng gạch đỏ, chỉ có điều tường ngoài chưa được ốp gạch men láng bóng mà thôi.
 
-Cô đã từng hỏi qua Triệu Kim An một lần.
+Còn làng họ Triệu ngày nay, hầu như nhà nào cũng đã cất được nhà lầu hai tầng bằng gạch đỏ, tường ngoài ốp gạch men sáng sủa. Những ngôi nhà chưa kịp ốp gạch men thường là do bố mẹ còn đang miệt mài làm thuê trong các công xưởng ở Dương Thành, chắt bóp kiếm được chút tiền là gửi về quê để xây nhà hoặc hoàn thiện nốt việc ốp lát.
 
-Triệu Kim An nói là nhà gạch đỏ, hai tầng, chỉ có điều tường ngoài chưa ốp gạch men thôi.
+Thời kỳ này, phần lớn người dân quê chưa hề có khái niệm mua nhà thương phẩm ở các thành phố lớn để đầu tư, hay nói đúng hơn, tư tưởng "lái rụng về cội", an cư lạc nghiệp nơi chôn rau cắt rốn của thế hệ cha chú họ vẫn còn ăn sâu bám rễ vô cùng nặng nề.
 
-Mà hiện tại ở Triệu Gia Thôn, hầu như nhà nào cũng xây nhà gạch đỏ, hơn nữa tường ngoài đều đã ốp gạch men bóng loáng.
+Thế hệ cha mẹ thời ấy, phải nói thế nào đây?
 
-Những nhà chưa ốp gạch chắc hẳn bố mẹ đang đi làm thuê ở các công xưởng tại Dương Châu, kiếm được tiền mới về xây nhà hoặc ốp gạch.
+Họ phần lớn không được học hành đến nơi đến chốn, thông tin tiếp cận cũng vô cùng hạn hẹp và lệch lạc. Nếu nói thẳng thắn và có phần cay đắng một chút, thì cái nghèo của họ cũng có những nguyên nhân sâu xa của nó. Với mặt bằng giá nhà đất thời bấy giờ, số tiền tích cóp xây một căn nhà lầu bề thế ở quê hoàn toàn đủ sức để mua đứt một căn hộ ở thành phố lớn, hoặc chí ít cũng dư sức thanh toán khoản tiền trả trước ban đầu.
 
-Thời này đa số mọi người chưa có khái niệm mua nhà thương mại (đầu tư) ở bên ngoài, hay nói cách khác, tư tưởng "lá rụng về cội" của thế hệ này rất nặng nề.
+Theo lời chỉ dẫn của Triệu Kim An qua điện thoại, Mộc Dao và Du Phi men theo con đường mòn rợp bóng mát ven bờ sông rảo bước tìm kiếm. Khi những rặng cây um tùm che khuất tầm nhìn, hai cô gái liền cất tiếng gọi to.
 
-Thế hệ cha chú phải nói sao nhỉ?
+Chẳng mấy chốc, họ đã nghe thấy tiếng bì bõm lội nước xao động dưới lòng sông vọng lên.
 
-Họ đa phần không được học hành nhiều, cũng có thể nói là do thông tin không đối xứng.
+"Triệu Kim An ơi!"
 
-Nếu nói khó nghe một chút, thì nghèo cũng có lý do của nó.
+"Ở dưới này!"
 
-Với giá nhà hiện nay, số tiền xây một căn nhà ở nông thôn là đủ để mua một căn hộ ở bên ngoài.
+"Phía trước có một lối mòn nhỏ đấy, hai cậu cứ đi theo lối đó bước xuống đây!"
 
-Dù không đủ thì trả trước một khoản đặt cọc cũng không thành vấn đề.
+"Được rồi!"
 
-Theo chỉ dẫn của Triệu Kim An, Mộc Dao và Du Phỉ đi dọc theo con đường nhỏ ven sông tìm tới, hễ có lùm cây rậm rạp che khuất tầm mắt là họ lại cất tiếng gọi.
+Triệu Trí Dũng vô cùng nhiệt tình vẫy tay chỉ đường cho hai người đẹp. Hai cô gái nhẹ nhàng lách qua bụi cỏ lau rậm rạp, bước xuống bờ sông phẳng lặng.
 
-Chẳng mấy chốc, họ đã nghe thấy tiếng động dưới sông.
+"Kim An, hai cậu bắt được bao nhiêu cá rồi?"
 
-"Triệu Kim An!"
+Du Phi bị khung cảnh thiên nhiên tươi đẹp trước mắt hớp hồn hoàn toàn: dòng sông trong vắt nhìn thấy tận đáy cát sỏi, ven bờ là những tảng đá muôn hình vạn trạng nhẵn bóng, cùng những rặng liễu rủ bóng sum suê che mát cả một khoảng trời.
 
-"Ở đây!"
+"Kỳ nghỉ hè của các cậu sao mà vui và thú vị thế này cơ chứ?" Du Phi không kìm được tiếng thốt lên đầy ghen tị.
 
-"Phía trước có con đường nhỏ, hai cậu xuống đi!"
+Mộc Dao nhìn chăm chú vào Triệu Kim An — chàng trai dường như có phơi nắng bao nhiêu cũng chẳng hề đen đi chút nào — khẽ bĩu môi hờn dỗi pha chút tủi thân.
 
-"Được!"
+Cô gái nhỏ đứng nguyên tại chỗ, dáng vẻ yêu kiều thướt tha, đôi mắt lúng liếng chờ đợi chàng trai bước đến dỗ dành.
 
-Triệu Chí Dũng nhiệt tình chỉ đường cho họ, hai cô gái băng qua bụi cỏ đi đến bờ sông.
+Gặp lại Mộc Dao của tuổi mười tám một lần nữa, trong một thoáng Triệu Kim An bỗng ngập ngừng chẳng biết nên mở lời ra sao. Dù thế nào đi chăng nữa, cô gái nhỏ bé xinh xắn trước mắt lúc này chính là bạn gái danh chính ngôn thuận của hắn.
 
-"Kim An, hai người bắt được bao nhiêu cá rồi?"
+"Oa, các cậu bắt được nhiều cá thế này cơ á?"
 
-Du Phỉ bị cảnh sắc trước mắt thu hút, dòng sông trong vắt thấy đáy, ven bờ là đủ loại đá cuội hình thù kỳ dị, cùng với những cây liễu rủ bóng mát.
+Lúc này Du Phi đã chạy tới, ghé mắt nhìn vào chiếc giỏ đựng cá mà trầm trồ kinh ngạc.
 
-"Mùa hè của các cậu chơi vui quá đi mất?" Du Phỉ kinh hô.
+Cái này có thể nói là mang lại giá trị cảm xúc tuyệt đối. Triệu Trí Dũng nở mũi đầy đắc ý, đây chính là sự công nhận ngọt ngào nhất mà cậu ta mong muốn.
 
-Mộc Dao nhìn Triệu Kim An dù phơi nắng thế nào cũng không thấy đen đi, bĩu môi có chút ủy khuất.
+Trên môi Triệu Kim An nở nụ cười ấm áp như ánh nắng sớm mai. Mái tóc hắn còn vương vài giọt nước sông lấp lánh, trông thực sự vô cùng tuấn tú và cuốn hút.
 
-Nàng đứng im tại chỗ, chờ Triệu Kim An đến dỗ dành.
+Hắn khẽ vẫy tay gọi Mộc Dao: "Lại đây, tớ dắt cậu đi xem."
 
-Gặp lại Mộc Dao tuổi mười tám, Triệu Kim An nhất thời không biết nói gì cho phải, dù sao đi nữa, cô gái nhỏ trước mặt lúc này đang là bạn gái của hắn.
+Mộc Dao lúc này mới chịu nhấc bước, bờ môi đỏ mọng khẽ chu lên hờn dỗi, nhưng bàn tay nhỏ nhắn đã chủ động vươn ra nắm chặt lấy tay Triệu Kim An.
 
-"Oa, các cậu bắt được nhiều cá thế này rồi sao?"
+"Kim An... ôi, cậu đi chậm thôi chứ, mấy hòn đá này trơn trượt quá à."
 
-Lúc này Du Phỉ ghé mắt nhìn vào giỏ cá, kinh ngạc không thôi.
+Mộc Dao suýt chút nữa trượt chân liền nhân cơ hội làm nũng, hai tay ôm ghì lấy cánh tay săn chắc của Triệu Kim An không chịu buông.
 
-Thực ra cũng có thể nói là cô nàng đã cung cấp giá trị cảm xúc đầy đủ, khiến Triệu Chí Dũng vô cùng đắc ý, đây chính là một sự công nhận.
+Hai cô gái còn toan cởi giày lội nước, nhưng Triệu Trí Dũng đã nhanh nhảu nhắc nhở rằng đi chân trần trên rêu đá còn dễ trơn ngã hơn nhiều.
 
-Triệu Kim An nở nụ cười hòa ái, mái tóc còn dính chút nước, trông thật sự rất đẹp trai.
+"Đi nào, dẫn cậu đi xem bắt cá."
 
-Hắn vẫy tay với Mộc Dao: "Lại đây, cho cậu xem cái này."
+Triệu Kim An dắt bàn tay mềm mại nõn nà của Mộc Dao tiến về phía vũng kè nhốt cá mà Triệu Trí Dũng đã công phu đắp bằng đá từ sáng.
 
-Mộc Dao bấy giờ mới nhấc bước, đôi môi đỏ mọng hơi dẩu lên, lại chủ động nắm lấy tay Triệu Kim An.
+Bên trên miệng vũng kè được phủ kín bởi những cành cây rậm rạp. Một là để ngăn cá nhảy ra ngoài, hai là vì trời nắng gắt, sợ cá bị hun nóng mà chết ngạt.
 
-"Kim An, á, cậu đi chậm thôi, đá trơn quá."
+"Oa, có cá thật này!"
 
-Mộc Dao suýt ngã liền làm nũng, nắm chặt lấy cánh tay Triệu Kim An không buông.
+Thực ra số cá trong vũng kè này từ sớm đã được gom hết vào giỏ rồi, mấy con cá đang tung tăng bơi lội này là do Triệu Kim An vừa mới ngầm bảo Triệu Trí Dũng thả ngược vào trong để tạo bất ngờ cho hai cô gái.
 
-Hai cô gái còn muốn cởi giày, nhưng Triệu Chí Dũng nhắc nhở họ đi chân trần còn dễ trượt hơn.
+Nhìn thấy Mộc Dao và Du Phi phấn khích nhảy cẫng lên, Triệu Trí Dũng đứng đực mặt ra ngơ ngác: *Quái lạ, sao cái đầu mình lại không nghĩ ra cái trò lãng mạn này sớm hơn nhỉ?*
 
-"Dẫn cậu đi xem cá."
+"Triệu Trí Dũng, cậu mau mang cái giỏ cá lại đây nhanh lên nào!"
 
-Triệu Kim An nắm lấy bàn tay nhỏ nhắn mềm mại của Mộc Dao đi xem cái bẫy cá mà Triệu Chí Dũng đã đắp.
+"À, ừ, có ngay đây!"
 
-Bên trên bẫy cá cần phải phủ một ít cành cây.
+Hai cô gái một tay túm lấy vạt váy bồng bềnh, một tay thò xuống nước mò cá. Những cô tiểu thư đài các đứng dưới dòng nước chảy xiết không vững, chốc chốc lại phải níu lấy Triệu Kim An để giữ thăng bằng, làm vạt váy trắng muốt bị nước bắn ướt một mảng lớn.
 
-Một là để ngăn cá nhảy ra ngoài; hai là vì thời tiết nắng nóng, sợ cá bị nắng làm chết.
+"Kim An, trong này có khoảng bao nhiêu con cá thế?"
 
-"Oa, thật sự có cá kìa!"
+"Chắc chừng hơn một cân đấy."
 
-Thực chất cá trong bẫy đã được thu hoạch từ sớm, chỗ cá này là do Triệu Kim An bảo Triệu Chí Dũng thả vào.
+"Vui quá đi mất thôi!"
 
-Thấy Mộc Dao và Du Phỉ hưng phấn như vậy, Triệu Chí Dũng hơi ngẩn ra, tại sao mình lại không nghĩ tới chuyện này nhỉ?
+Dòng nước cuồn cuộn chảy qua kẽ đá, cá trong vũng kè cũng không hề dễ bắt một chút nào, nhưng đối với Mộc Dao và Du Phi thì độ khó ấy lại vừa vặn tạo nên sự hào hứng tột bậc.
 
-"Triệu Chí Dũng, mày mau mang giỏ cá lại đây!"
+"Kim An, cậu giữ váy giúp tớ với!"
 
-"Ơ, được."
+Mộc Dao muốn dùng cả hai tay để vồ cá. Giữa cô và Triệu Kim An tuy chưa từng vượt quá giới hạn hay vào khách sạn bao giờ, nhưng những việc như nắm tay, ôm ấp hay hôn môi nồng nàn thì đều đã trải qua, thế nên việc nhờ bạn trai giữ hộ vạt váy chẳng có gì phải ngại ngùng.
 
-Hai cô gái một tay xách vạt váy, một tay bắt cá, những cô nàng yểu điệu đứng không vững lại cứ đòi Triệu Kim An phải đỡ mình một chút, khiến vạt váy bị ướt mất một mảng.
+Triệu Trí Dũng đứng bên cạnh rất muốn đưa tay giữ váy giúp Du Phi, nhưng đáng tiếc là cậu ta chẳng có được cái diễm phúc ấy.
 
-"Kim An, ở đây có bao nhiêu cá thế?"
+Tiếng cười trong trẻo như chuông bạc vang vọng rộn rã khắp mặt sông. Triệu Trí Dũng lại hào hứng dắt hai cô bạn đi kéo màng lưới đánh cá. Mộc Dao và Du Phi chơi đùa thỏa thích, vui vẻ hơn gấp vạn lần những trò chơi điện tử tẻ nhạt trong các khu trung tâm thương mại.
 
-"Chắc khoảng hơn một cân."
+"Kim An, cõng tớ đi~"
 
-"Vui thật đấy."
+Nói đoạn, Mộc Dao vòng tay ôm chặt lấy cổ Triệu Kim An, kiễng gót chân lên khẽ đặt một nụ hôn ngọt ngào lên má hắn.
 
-Có dòng nước chảy qua, cá trong bẫy cũng không dễ bắt, nhưng đối với Mộc Dao và Du Phỉ thì thế này là vừa khéo.
+Du Phi đứng bên cạnh đảo mắt lườm nguýt: "Hai người các cậu tém tém lại chút đi nhé, đừng có rải 'cơm chó' ngập mặt người ta như thế!"
 
-"Kim An, cậu giúp tớ xách váy với!"
+"Hì hì, người ta cứ thích rải đấy, làm gì được nhau nào."
 
-Mộc Dao muốn dùng cả hai tay bắt cá, nàng và Triệu Kim An tuy chưa từng đi khách sạn, nhưng chuyện nắm tay và hôn nhau thì đã làm rồi, nên việc nhờ xách váy cũng không là gì.
+"Được lắm, lần sau tớ thèm vào đi làm kỳ đà cản mũi cho hai người nữa!"
 
-Triệu Chí Dũng cũng muốn giúp Du Phỉ xách váy, nhưng lại không được hưởng cái đãi ngộ đó.
+Du Phi vén vạt váy bì bõm bước từng bước tập tễnh dưới lòng sông, bất ngờ một chân giẫm phải hòn đá trơn trượt mất thăng bằng, hoảng hốt vội vàng chộp lấy cánh tay Triệu Kim An cầu cứu:
 
-Tiếng cười như chuông bạc vang vọng trên dòng sông, Triệu Chí Dũng lại dẫn họ đi thu lưới, Mộc Dao và Du Phỉ chơi đùa rất vui vẻ, cái này chẳng phải hay hơn mấy tiệm trò chơi điện tử sao?
+"Á... Kim An, cứu tớ với!"
 
-"Kim An, cậu cõng tớ đi~"
+Triệu Trí Dũng đứng trơ trọi một bên: "..."
 
-Nói đoạn, Mộc Dao nắm lấy cánh tay Triệu Kim An, kiễng chân hôn hắn một cái.
+*Bộ mình là người vô hình, là bù nhìn rơm ở đây chắc?*
 
-Du Phỉ đảo mắt khinh bỉ: "Hai người chú ý chút đi, đừng có phát cơm chó bừa bãi!"
+*Rõ ràng mình mới là đứa bắt cá giỏi nhất ở cái khúc sông này cơ mà?!*
 
-"Hì hì, cứ thích thế đấy."
+Mộc Dao nằm áp sát trên lưng Triệu Kim An, hai cẳng chân thon dài trắng nõn nà vui sướng đung đưa qua lại. Ngắm nhìn cảnh sắc thanh bình hai bên bờ sông, cô bỗng ghé sát vào tai hắn, cất giọng thỏ thẻ đầy vẻ hối lỗi:
 
-"Được lắm, lần sau tớ không thèm đi làm bóng đèn cho hai người nữa đâu!"
+"Kim An ơi, chuyện lần trước là tớ sai rồi, cậu đừng giận tớ nữa có được không?"
 
-Du Phỉ xách váy bước thấp bước cao dưới sông, một chân dẫm không vững, sợ tới mức vội vàng chộp lấy cánh tay Triệu Kim An.
+"Hì hì, tớ thích cậu nhiều lắm đấy."
 
-"Á — Kim An, cứu tớ!"
-
-Triệu Chí Dũng: ...
-
-Bộ mình là đồ trang trí chắc?
-
-Mình mới là người lợi hại nhất ở đây có được không?
-
-Mộc Dao nằm bò trên lưng Triệu Kim An, hai bắp chân trắng nõn thon thả vui vẻ đung đưa, nhìn cảnh sắc hai bên bờ, nàng đột nhiên ghé sát tai hắn nói nhỏ.
-
-"Kim An, lần trước là em sai rồi, anh đừng giận nữa có được không?"
-
-"Hì hì, em thích anh lắm."
-
-Triệu Kim An xốc Mộc Dao lên một cái, không nói gì.
+Triệu Kim An khẽ xốc Mộc Dao lên cao một chút, không cất lời đáp lại...

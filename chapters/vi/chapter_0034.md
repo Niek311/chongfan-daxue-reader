@@ -1,193 +1,193 @@
-# Chương 34: Hai Cực Đoan
+# Chương 34: Hai thái cực
 
-Vương Kim Như dắt tay Triệu Duyệt Thiên đi một bên, nàng có thể góp vui vài câu với bất kỳ ai, giọng điệu tràn đầy vẻ kiêu hãnh.
+> **Tiêu đề gốc**: 第34章 两个极端。
 
-"Tất nhiên rồi, Kim An nhà chúng tôi học tận Sư Đại cơ mà!"
+Vương Kim Như một tay dắt bé Triệu Duyệt Thiên đi bên cạnh, gặp ai trên đường bà cũng có thể bắt chuyện dăm ba câu, giọng điệu ngập tràn vẻ hãnh diện khôn cùng:
 
-"Đúng rồi, Kim An còn chuẩn bị thi cao học, rồi còn cái gì mà nghiên cứu sinh tiến sĩ nữa đấy!"
+"Đấy là chuyện đương nhiên rồi! Thằng Kim An nhà tôi đỗ hẳn vào Đại học Sư phạm danh tiếng của tỉnh cơ mà!"
 
-Triệu Kim An: "..."
+"À đúng rồi, Kim An nhà tôi còn dự định sau này học tiếp lên thạc sĩ, rồi cả cái gì mà nghiên cứu sinh tiến sĩ nữa đấy!"
 
-Thím à, cháu mới chỉ đi báo danh năm nhất đại học thôi, thím đã sắp xếp xong cả thạc sĩ lẫn tiến sĩ cho cháu rồi sao?
+Triệu Kim An đứng bên cạnh chỉ biết cạn lời: "..."
 
-"Kim Như này, nghiên cứu sinh thì trong thôn không có tiền thưởng đâu nhé, ha ha ha!"
+Thím à, cháu mới chỉ đang trên đường đi nhập học năm nhất đại học thôi mà, thím đã vội vàng sắp xếp cả bằng thạc sĩ lẫn tiến sĩ cho cháu rồi sao?
 
-Có người cười hô hố trêu chọc, chắc là cười việc dạo nầy nàng ngày nào cũng chạy lên ủy ban thôn đòi khen thưởng, chẳng phân biệt nổi 211 với 985, đại khái là chỉ muốn chiếm chút lợi lộc của thôn.
+"Bác Kim Như ơi, sau này học lên thạc sĩ thì thôn mình không có tiền thưởng đâu nhé, ha ha ha!"
 
-Vương Kim Như chẳng thèm để tâm, cũng chẳng thấy mất mặt.
+Có người trong xóm bật cười trêu chọc, hàm ý mỉa mai chuyện dạo trước bà ngày nào cũng chạy lên trụ sở thôn đòi tiền thưởng thủ khoa, đến mức chẳng phân biệt nổi trường công lập trọng điểm 211 với 985, cốt chỉ để bòn mót chút lợi ích từ thôn.
 
-Nàng lộ vẻ khinh khỉnh nhưng đầy tự hào: "Xì, ai mà thèm hai ngàn đó chứ, không lẽ lại không nuôi nổi!"
+Vương Kim Như chẳng mảy may bận tâm, cũng chẳng thấy ngượng ngùng chút nào.
 
-Chẳng cần hỏi cũng biết, Triệu Quốc Hoa đã chuyển về 3.000 tệ, người trong thôn chắc chắn đều rõ cả rồi.
+Bà bĩu môi, hất cằm vẻ đầy kiêu hãnh: "Xì, ai thèm để vào mắt hai nghìn tệ cỏn con ấy chứ, nhà này đâu phải không nuôi nổi nó ăn học!"
 
-Vương Kim Như vốn không phải loại người làm việc tốt mà giấu tên.
+Chẳng cần gặng hỏi, chuyện Triệu Quốc Hoa vừa chuyển về ba nghìn tệ chắc chắn cả thôn làng này ai ai cũng đã tường tận.
 
-Loa phát thanh của thôn không thông báo là do nàng không có quyền hạn đó thôi, bằng không một ngày sáng trưa chiều chắc nàng phải cho phát ba lần.
+Vương Kim Như vốn dĩ không phải là mẫu người "làm việc tốt mà không để lại danh tính".
 
-Doãn Hiểu Lan tụt lại phía sau vài bước, trông theo bóng hình cao lớn phía trước, trong lòng vừa mừng rỡ lại có chút không nỡ.
+Cái loa phát thanh của thôn không phát tin này chẳng qua là vì bà không có quyền bật công tắc mà thôi, nếu không thì sáng, trưa, chiều mỗi ngày bà phải cho phát rả rích đủ ba cữ.
 
-Ba tháng chung sống vừa qua là khoảng thời gian nàng và Triệu Kim An ở bên nhau lâu nhất, lần gặp tới có lẽ phải đợi đến kỳ nghỉ đông.
+Doãn Hiểu Lan đi chậm lại vài bước phía sau, đôi mắt dịu dàng ngắm nhìn bóng lưng cao ráo, vững chãi của chàng thiếu niên đi phía trước, trong lòng vừa dâng lên niềm vui sướng lại vừa phảng phất nỗi lưu luyến khôn nguôi.
 
-Cả nhóm đi lên con dốc thoai thoải, Triệu Chí Dũng đã đứng chờ sẵn bên lề đường.
+Hơn ba tháng cùng chung sống dưới một mái nhà là quãng thời gian dài nhất mà cô được ở cạnh Triệu Kim An kể từ ngày về làm dâu. Lần gặp gỡ tiếp theo, có lẽ phải đợi đến tận kỳ nghỉ đông cuối năm.
 
-Bố mẹ hắn là Triệu Việt Tiến và Lưu Đồng Hoa cũng có mặt ở đó.
+Cả đoàn người bước lên con dốc lớn đầu làng, Triệu Trí Dũng đã đứng đợi sẵn bên lề đường cái từ bao giờ.
 
-"Kim An, sao giờ mày mới tới?"
+Bố mẹ cậu ta là ông Triệu Dược Tiến và bà Lưu Đồng Hoa cũng có mặt ở đó để tiễn con trai.
 
-Triệu Chí Dũng đeo một cái túi trên lưng, dưới chân còn có một chiếc vali hành lý, hắn cũng không để bố mẹ tiễn đi nhập học.
+"Kim An, sao giờ cậu mới tới thế?"
 
-Triệu Việt Tiến và Lưu Đồng Hoa hàn huyên với bà nội vài câu. Triệu Chí Dũng đã gọi Triệu Kim An là chú rồi, nên vai vế của Triệu Việt Tiến cũng ngang hàng với Triệu Kim An.
+Triệu Trí Dũng đeo một chiếc ba lô trên vai, dưới chân còn kéo theo một chiếc vali to tướng. Cậu ta cũng nhất quyết không cho bố mẹ phải nhọc công đưa lên tận trường đại học.
 
-Nghĩa là Triệu Việt Tiến và Lưu Đồng Hoa khi gọi Vương Kim Như cũng phải gọi là thím.
+Vợ chồng ông Triệu Dược Tiến tiến lại hàn huyên vài câu với bà nội. Triệu Trí Dũng vốn gọi Triệu Kim An là "chú họ", nên xét theo vai vế trong dòng tộc thì Triệu Dược Tiến ngang hàng với Triệu Kim An.
 
-Chỉ là họ không gọi như vậy, dù sao cũng chẳng phải họ hàng trực hệ.
+Điều đó đồng nghĩa với việc vợ chồng Triệu Dược Tiến khi gặp Vương Kim Như cũng phải cất tiếng gọi là "thím".
 
-Có một chuyến xe khách chạy vào thành phố đi ngang qua, Triệu Chí Dũng không đợi nổi mà vẫy tay chặn lại. Đã qua mùng 1 tháng 9, cao điểm khai giảng đã vơi bớt nên trên xe không có nhiều người.
+Chỉ là ngoài đời thường người ta hiếm khi xưng hô câu nệ như vậy, dẫu sao cũng không phải là họ hàng ruột thịt cận huyết.
 
-"Kim An, kiểm tra lại giấy báo nhập học với chứng minh thư đi, cả vé tàu hỏa nữa!"
+Đúng lúc ấy, một chiếc xe khách chạy tuyến liên huyện đi về phía trung tâm thành phố trờ tới, Triệu Trí Dũng vội vã vẫy tay ra hiệu dừng xe. Đã qua ngày mùng 1 tháng 9, cao điểm nhập học của học sinh phổ thông đã lắng xuống nên trên xe khá vắng vẻ.
 
-"Đừng có quên mang theo vé tàu đấy!"
+"Kim An, cháu kiểm tra lại lần nữa xem giấy báo nhập học với chứng minh thư, rồi cả vé tàu hỏa đã mang đủ chưa!"
 
-Vương Kim Như lại nhắc nhở, nàng tiến tới dặn dò nhỏ: "Đến trường rồi thì đừng quản chuyện gì khác, cứ đóng học phí trước đã, nghe rõ chưa?"
+"Đừng có đãng trí mà quên mất vé tàu hỏa đấy nhé!"
+
+Vương Kim Như lại cất giọng nhắc nhở lần nữa. Bà bước lại gần, ghé sát tai cậu dặn dò nhỏ nhẻ: "Lên đến trường thì đừng có mải chơi gì cả, việc đầu tiên là phải đi đóng học phí ngay lập tức, nghe rõ chưa?"
 
 "Vâng ạ."
 
-"Điện thoại mang theo chưa?"
+"Điện thoại di động mang theo người chưa?"
 
-"Mang rồi thím."
+"Cháu mang rồi."
 
-Lần "đầu tiên" Triệu Kim An đi xa, Vương Kim Như đang thực hiện quyền hạn của một người mẹ. Mặc dù đứa "con trai" này khiến nàng rất yên tâm, nhưng nàng vẫn không nhịn được mà lải nhải thêm vài câu.
+Đây là "lần đầu tiên" Triệu Kim An đi xa nhà, Vương Kim Như đang tận dụng trọn vẹn thiên chức của một người mẹ. Dẫu cho đứa "con trai" này từ trước tới nay luôn khiến người lớn an tâm tuyệt đối, nhưng bà vẫn không kìm được thói quen cằn nhằn đôi câu.
 
-Lúc này bà nội không xen lời được, bà rất vui lòng khi thấy Vương Kim Như như vậy.
+Lúc này bà nội đứng bên cạnh không chen lời vào, bà rất đỗi hài lòng khi thấy con dâu đối xử ân cần, chu đáo với cháu trai như vậy.
 
-"Tiền không đủ thì gọi điện cho thím... Nhưng cũng phải tiết kiệm một chút, biết chưa hả?"
+"Lên đấy mà thiếu tiền thì cứ gọi điện về cho thím... nhưng mà tiêu pha cái gì cũng phải biết tiết kiệm, liệu cơm gắp mắm, biết chưa hả?"
 
-"Cháu biết rồi."
+"Cháu biết rồi ạ."
 
-"Còn nữa."
+"Còn nữa này..."
 
-Nói đoạn, Vương Kim Như bước tới gần một bước, kéo kéo vạt áo của Triệu Kim An: "Yêu đương thì cẩn thận một chút, tốn tiền lắm đấy, đừng có khờ dại quá... biết chưa?"
+Nói đoạn, Vương Kim Như bước sát thêm một bước, đưa tay kéo nhẹ vạt áo của Triệu Kim An, thì thào: "Có yêu đương bạn gái thì cũng phải cẩn thận một chút, dính vào con gái tốn kém lắm đấy, đừng có mà ngốc nghếch dại dột... hiểu chưa?"
 
-"Thím, cháu biết rồi ạ."
+"Thím, cháu hiểu rồi ạ."
 
-Vương Kim Như không biết từ "liếm cẩu", nhưng ý tứ diễn đạt lại rất chuẩn xác.
+Vương Kim Như không biết đến từ "liếm cẩu" của giới trẻ sau này, nhưng ý tứ trong lời dặn dò của bà thì chuẩn xác đến từng centimet.
 
-Nàng sợ Triệu Kim An chịu thiệt, đừng để hắn ở trường thắt lưng buộc bụng mà tiền bạc lại đem đi dỗ dành con gái nhà người ta. Trong nhà vốn chẳng dư dả gì, lương tháng của Triệu Quốc Hoa chỉ có hơn một ngàn tệ.
+Bà chỉ sợ Triệu Kim An hiền lành chịu thiệt thòi. Nhỡ đâu cậu ở trường đại học nhịn ăn nhịn mặc, bóp mồm bóp miệng để rồi gom góp tiền bạc đi cung phụng, chiều chuộng con gái nhà người ta thì sao? Gia cảnh nhà này vốn dĩ chẳng dư dả gì, chú Triệu Quốc Hoa làm lụng vất vả ngoài công trường mỗi tháng lương cũng chỉ hơn một nghìn tệ bạc.
 
-Triệu Duyệt Thiên lại sắp lên tiểu học, còn đủ thứ chi phí quà cáp lễ nghĩa.
+Bé Duyệt Thiên thì sắp bước vào lớp một, bao nhiêu khoản chi tiêu đối nội đối ngoại đang chờ chực.
 
-Quan trọng nhất là trông Triệu Kim An có vẻ quá dễ bị bắt nạt.
+Điều quan trọng nhất là, trông bộ dạng thằng Kim An có vẻ quá đỗi hiền lành, dễ bị người khác bắt nạt.
 
-Cái cô bé tên Mộc Dao hôm đó, Triệu Kim An trông có vẻ rất nghe lời cô ta. Vương Kim Như cứ nghĩ đến là lại thấy đau đầu, nàng nhìn một cái là biết gia cảnh Mộc Dao cũng khá giả, không phải kiểu con gái biết tiết kiệm.
+Hôm trước cái cô bé tên Mộc Dao kia tới nhà, Triệu Kim An trông có vẻ rất nghe lời cô ta. Cứ nghĩ tới chuyện đó là Vương Kim Như lại thấy đau đầu. Nhìn qua một cái là bà biết ngay gia cảnh nhà Mộc Dao thuộc dạng khá giả, không phải mẫu con gái biết tằn tiện, vun vén cho gia đình.
 
-"Có đi không đây!?"
+"Có lên xe không thì bảo?!"
 
-Người bán vé tựa vào cửa xe giục giã.
+Người phụ xe đứng tựa lưng vào cửa xe, cất giọng the thé giục giã.
 
-"Bà nội, cháu đi đây ạ."
+"Bà nội, cháu đi nhé ạ."
 
-"Được rồi, đi đi cháu."
+"Ừ, đi mạnh giỏi nhé cháu."
 
-"Chị dâu... tạm biệt."
+"Chị dâu... em đi đây."
 
-Triệu Kim An bước lên xe khách rồi quay đầu nhìn Doãn Hiểu Lan. Doãn Hiểu Lan mỉm cười vẫy tay: "Chú ý an toàn nhé, đến trường rồi thì gọi điện về cho mọi người!"
+Triệu Kim An bước chân lên bậc cửa xe khách, quay đầu lại nhìn Doãn Hiểu Lan. Doãn Hiểu Lan nở nụ cười dịu dàng, vẫy vẫy bàn tay: "Đi đường cẩn thận nhé, tới trường nhớ gọi điện về cho mọi người yên tâm!"
 
-"Chị dâu, chào nhé!"
+"Chị dâu, em chào chị nhé!"
 
-Triệu Chí Dũng đã sớm xách vali lên chiếm chỗ ngồi, hắn cũng thò đầu ra ngoài cửa sổ vẫy tay với Doãn Hiểu Lan.
+Triệu Trí Dũng từ nãy đã nhanh nhảu xách vali lên xe chiếm chỗ ngồi trước, lúc này cũng thò đầu qua khung cửa sổ vẫy tay chào Doãn Hiểu Lan.
 
-Xe khách khởi hành rất nhanh, nhóm người vẫn đứng lặng bên lề đường, dõi theo hướng xe rời đi. Trong lòng họ, cả Triệu Kim An và Triệu Chí Dũng đều là lần đầu đi xa nhà.
+Chiếc xe khách nhanh chóng rồ ga lăn bánh. Đoàn người đứng bên lề đường vẫn bất động nhìn theo hướng chiếc xe dần khuất bóng. Trong tâm trí của họ, đây đều là lần đầu tiên hai chàng trai trẻ Triệu Kim An và Triệu Trí Dũng rời khỏi lũy tre làng để đi xa.
 
-Cái gì mà thành tích tốt thì thưởng đi du lịch hay trại hè, đó là trò chơi của con nhà giàu.
+Cái gọi là phần thưởng du lịch hay trại hè khi thi đỗ điểm cao, đó vốn dĩ là trò chơi xa xỉ của con nhà giàu có nơi phố thị.
 
-Cho đến khi xe khách biến mất, Doãn Hiểu Lan mới thầm nói trong lòng: "Tạm biệt."
+Mãi cho đến khi chiếc xe khách hoàn toàn mất hút sau khúc quanh, Doãn Hiểu Lan mới khẽ thì thầm trong đáy lòng: "Tạm biệt em."
 
-"Hôm đó cậu nói với tôi nếu sống không hạnh phúc thì ly hôn đi, nhưng nếu ly hôn rồi rời khỏi Kim An Gia thôn, chúng ta làm sao gặp lại nhau được nữa?"
+"Hôm ấy em bảo với tôi rằng nếu cuộc sống này ngột ngạt quá thì hãy ly hôn đi... Nhưng nếu tôi ly hôn rồi rời khỏi làng họ Triệu này, thì tôi và em... làm sao có thể gặp lại nhau được nữa?"
 
 ...
 
-Suốt quãng đường Triệu Chí Dũng tỏ ra rất phấn khích, đây thực sự là lần đầu tiên hắn đi xa.
+Suốt dọc đường đi, Triệu Trí Dũng vô cùng phấn khích, bởi cậu ta thực sự là lần đầu tiên được bước chân ra khỏi ranh giới huyện nhà.
 
-"Kim An, sao mày chỉ mang mỗi cái túi thế?"
+"Kim An, sao cậu mang có mỗi một cái ba lô thế kia?"
 
-"Trong vali của mày có gì vậy?"
+"Thế trong vali của cậu nhét những cái gì mà to thế?"
 
-"Quần áo chứ gì, áo lông vũ mùa đông to đùng thế này cơ mà."
+"Quần áo chứ gì nữa, chiếc áo phao lông vũ mùa đông to sụ chiếm hết cả nửa cái vali rồi."
 
-Hắn có chút ngưỡng mộ khi Triệu Kim An chỉ mang một cái túi. Thời cấp ba phải mặc đồng phục, Triệu Kim An có một chiếc áo lông vũ ra hồn là do Đoạn Thu Bình mua cho vào tết năm ngoái, nhưng hắn không mang theo.
+Cậu ta nhìn chiếc ba lô gọn gàng của Triệu Kim An với ánh mắt đầy ngưỡng mộ. Thời cấp ba học sinh đều mặc đồng phục, Triệu Kim An cũng có một chiếc áo phao tươm tất do mẹ Đoạn Thu Bình mua cho dịp Tết năm ngoái, nhưng lần này cậu nhất quyết không mang theo.
 
-Đến một ngã ba ở khu vực nội thành, hai người xuống xe, đứng bên đường chờ chuyến xe khách đi Sâm Châu.
+Đến một ngã ba lớn dẫn vào khu vực nội thành, hai người xuống xe, đứng bên lề đường đón chuyến xe khách liên tỉnh chạy về hướng Sâm Thành.
 
-Không cần vào trung tâm thành phố nữa, vì các chuyến xe đi Sâm Châu đều phải đi ngang qua đây.
+Không cần phải vào tận bến xe trung tâm, bởi toàn bộ các tuyến xe chạy về Sâm Thành đều bắt buộc phải đi qua ngã ba này.
 
 "Triệu Kim An!!!"
 
-Đột nhiên có người hét lớn.
+Bỗng nhiên có tiếng ai đó gọi với thật lớn.
 
-"Kim An, là Du Phỉ kìa."
+"Kim An, là Du Phi kìa!"
 
-Triệu Chí Dũng chỉ vào một chiếc Volkswagen màu đen đang chạy ngang qua: "Hình như là xe của bố Mộc Dao đúng không?"
+Triệu Trí Dũng chỉ tay về phía chiếc xe Volkswagen màu đen vừa lướt qua: "Hình như là xe của bố Mộc Dao đúng không?"
 
-Cửa kính hàng ghế sau hạ xuống, Du Phỉ tì vào cửa xe hét lớn, còn vẫy tay với Triệu Kim An bên đường.
+Cửa kính hàng ghế sau hạ xuống, Du Phi ghé sát người vào khung cửa sổ lớn tiếng gọi, tay không ngừng vẫy về phía Triệu Kim An đang đứng bên đường.
 
-Chiếc Volkswagen đen giảm tốc độ khoảng hai giây. Người lái xe là Mộc Nhân Cường, ông liếc nhìn ra ngoài cửa sổ, lại nhìn vào gương chiếu hậu, thấy Mộc Dao cũng đang nhoài người nhìn ra lề đường.
+Chiếc Volkswagen màu đen khẽ rà phanh giảm tốc độ chừng hai giây. Người cầm lái là Mộc Nhân Cường, ông ta liếc mắt nhìn ra ngoài cửa sổ, rồi liếc qua gương chiếu hậu thấy con gái Mộc Dao đang nhoài người nhìn ra ven đường.
 
-"Không ngồi vừa nữa đâu."
+"Xe chật ních rồi, không chở thêm được đâu."
 
-Mộc Nhân Cường nói một câu.
+Mộc Nhân Cường buông một câu lạnh nhạt.
 
-Đúng là không ngồi vừa thật, hàng ghế sau đã ngồi ba người: Du Phỉ, Mộc Dao và Lưu Văn Tinh.
+Quả thực là không còn chỗ trống, hàng ghế sau đã ngồi đủ ba người: Du Phi, Mộc Dao và bà Lưu Văn Tinh.
 
-Lưu Văn Tinh đi tiễn Du Phỉ đến trường, bà không biết chuyện gì nên hỏi con gái: "Bạn cùng lớp của các con à?"
+Bà Lưu Văn Tinh đi cùng để đưa con gái Du Phi lên trường nhập học. Bà không hề hay biết chuyện tình cảm riêng tư của giới trẻ, liền tò mò hỏi con gái: "Bạn học cùng lớp của các con đấy à?"
 
-"Vâng ạ, bạn cùng lớp."
+"Dạ vâng, bạn học cùng lớp ạ."
 
-Du Phỉ nhìn Mộc Dao một cái, không nói toạc ra.
+Du Phi liếc nhìn Mộc Dao một cái, không tiện nói toạc ra.
 
-Du Phỉ và Mộc Dao học cùng một trường đại học, lại chung chuyên ngành. Mộc Nhân Cường lái xe đi đón Lưu Văn Tinh và Du Phỉ, dĩ nhiên cũng chỉ tiễn đến ga tàu hỏa Sâm Châu thôi.
+Du Phi và Mộc Dao cùng đỗ vào một trường đại học, lại học chung một chuyên ngành, nên Mộc Nhân Cường mới lái xe sang đón cả hai mẹ con Lưu Văn Tinh đi cùng, tất nhiên ông cũng chỉ chở tới tận ga xe lửa Sâm Thành mà thôi.
 
-Đến ga tàu hỏa Quận Sa, Trương Vân Thiến sẽ lái chiếc BMW của bà ta đến đón người.
+Lên đến ga tàu hỏa thành phố Quận Sa, người cô Trương Vân Thiến sẽ lái chiếc xe BMW sang trọng tới tận nơi đón rước.
 
-Ở ghế phụ, Trương Tuệ vẫn luôn nhìn ra ngoài cửa sổ, ánh mắt đặt lên người Triệu Kim An.
+Ở ghế phụ phía trước, Trương Tuệ vẫn luôn hướng mắt nhìn qua khung cửa kính, ánh mắt dừng lại thật lâu trên người Triệu Kim An.
 
-Dưới bóng cây tránh nắng, Triệu Kim An chỉ nhìn chiếc Volkswagen một cái rồi dời mắt nhìn về hướng xe khách sắp tới. Cái nhìn đó... cùng với thần sắc dường như rất bình thản?
+Triệu Kim An đang đứng nép dưới bóng râm của tán cây ven đường tránh nắng, cậu chỉ khẽ liếc mắt nhìn chiếc xe Volkswagen một thoáng, rồi thản nhiên dời tầm mắt nhìn về phía xa xăm đón chuyến xe khách đang tới. Ánh mắt ấy... cùng với vẻ mặt bình thản đến lạ lùng.
 
-Không hề có chút gì gọi là hờn dỗi;
+Hoàn toàn không có chút giận dỗi hay hờn trách;
 
-Cũng không vì bản thân phải đứng bên đường chờ xe khách mà nảy sinh lòng tự trọng thấp hèn rồi cúi đầu giả vờ như không thấy.
+Càng không hề có sự tự ti của một kẻ đứng đón xe đò ven đường mà phải cúi gằm mặt xuống giả vờ như không nhìn thấy.
 
-Ngược lại, nam sinh hơi đen đứng bên cạnh hắn thì đầy vẻ ngưỡng mộ, sau đó ánh mắt lại có chút né tránh.
+Trái lại, cậu bạn trai có nước da ngăm đen đứng bên cạnh thì lộ rõ vẻ mặt ngưỡng mộ, rồi ánh mắt lại có phần lấm lét, né tránh.
 
-"Lạ thật đấy."
+"Kỳ lạ thật đấy."
 
-"Nó thật sự cầm lên được mà buông xuống được sao?"
+"Thằng nhóc này thật sự cầm lên được mà cũng buông bỏ xuống được sao?"
 
-Trương Tuệ đã gặng hỏi Mộc Dao vài lần, Mộc Dao mới nói ra sự thật rằng Triệu Kim An đã chặn liên lạc với mình, bảo "Bố mẹ hài lòng chưa!?".
+Trương Tuệ từng gặng hỏi Mộc Dao nhiều lần, con gái mới chịu ấm ức nói thật: "Triệu Kim An đã chặn số điện thoại của con rồi, mẹ và mọi người vừa lòng chưa?!"
 
-Con người ta vốn dĩ là như vậy.
+Con người ta vốn dĩ luôn mâu thuẫn như thế.
 
-Trương Tuệ không muốn thấy Mộc Dao dây dưa với Triệu Kim An, nhưng khi Triệu Kim An thực sự buông bỏ hoàn toàn và biến mất, trong lòng bà lại luôn cảm thấy có gì đó không ổn.
+Trương Tuệ không hề muốn nhìn thấy Mộc Dao dây dưa tình cảm với Triệu Kim An, nhưng khi Triệu Kim An thực sự dứt khoát buông tay và biến mất khỏi tầm mắt, trong lòng bà lại luôn cảm thấy có điều gì đó bứt rứt, không cam tâm.
 
-Hay nói cách khác, Triệu Kim An đã hoàn toàn thoát khỏi sự kiểm soát của Trương Tuệ.
+Hay nói đúng hơn, Triệu Kim An đã hoàn toàn vượt ra ngoài tầm kiểm soát của Trương Tuệ.
 
-Đối với một người phụ nữ có ham muốn kiểm soát cực mạnh mà nói, điều này có chút thất bại.
+Đối với một người phụ nữ có ham muốn kiểm soát người khác cực kỳ mạnh mẽ như bà, điều này chẳng khác nào một sự thất bại cay đắng.
 
-Lưu Văn Tinh đột nhiên khơi gợi chủ đề: "Đúng rồi, cái cậu lớp trưởng lớp các con hình như thi đỗ Phúc Đản phải không?"
+Bà Lưu Văn Tinh bất chợt khơi mào câu chuyện: "À này, cậu lớp trưởng lớp các cháu hình như thi đỗ vào Đại học Phục Đán danh tiếng lắm đúng không?"
 
-"Vâng, cậu ấy đi từ hôm kia rồi, hình như là đến Quận Sa để đi máy bay."
+"Dạ vâng, cậu ấy đã lên đường từ hôm kia rồi ạ, nghe bảo là lên Quận Sa rồi bay máy bay thẳng tới Thượng Hải." Du Phi đáp.
 
-Du Phỉ đáp.
+Lưu Văn Tinh khẽ cười: "Hình như tên là Âu Cường thì phải, một chàng trai rất hoạt bát, năng nổ."
 
-Lưu Văn Tinh mỉm cười: "Hình như tên là Âu Cường thì phải, một cậu bé rất hoạt bát."
+"Hoạt bát sao?"
 
-"Hoạt bát?"
+Trương Tuệ nghe ra hàm ý ẩn sau lời nhận xét của bạn thân, cũng khẽ mỉm cười theo.
 
-Trương Tuệ hiểu ẩn ý trong lời của Lưu Văn Tinh, cũng cười theo một tiếng.
+Trong bữa tiệc mừng đỗ đại học của Mộc Dao hôm nọ, chẳng phải Âu Cường đã thể hiện sự "hoạt bát" thái quá đó sao? Học đòi theo thói xã giao, chúc rượu của người lớn, trong mắt những bậc phụ huynh từng trải lại hóa ra có phần quá mức khôn lỏi và lố bịch.
 
-Trong tiệc mừng đỗ đại học của Mộc Dao, Âu Cường chẳng phải rất hoạt bát đó sao, học đòi người lớn giao thiệp, mời rượu, trong mắt người lớn thì có vẻ hơi "già đời" quá mức.
+"Hai đứa trẻ, hai thái cực hoàn toàn trái ngược nhau. Một đứa thì thích phô trương thể hiện, còn một đứa thì trầm tĩnh, kín đáo."
 
-"Hai cực đoan, một kẻ thích thể hiện, một người lại nội liễm."
+Nghĩ lại phong thái của Triệu Kim An hôm đó, Trương Tuệ cảm thấy sự chín chắn, già dặn của Triệu Kim An trông tự nhiên và đĩnh đạc hơn nhiều.
 
-Nghĩ đến biểu hiện hôm đó của Triệu Kim An, Trương Tuệ cảm thấy cái sự "già dặn" của hắn trông tự nhiên hơn nhiều.
-
-Hazzz, giá mà gia cảnh đổi chỗ cho nhau thì tốt biết mấy.
+Haizz, giá như gia cảnh của hai đứa nó hoán đổi lại cho nhau thì tốt biết mấy...

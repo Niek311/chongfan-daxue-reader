@@ -1,267 +1,271 @@
-# Chương 127: Lần Đầu Tiên
+# Chương 127: Lần đầu tiên!
 
-Nhưng đối với Triệu Kim An, sau khi chia tay với Mộc Dao, Trương Tuệ chỉ còn là một người xa lạ.
+> **Tiêu đề gốc**: 第127章 第一次！
 
-Hắn và Thẩm Tử Ngôn vẫn đang chỉ đạo việc điều phối hàng hóa.
+Nhưng đối với Triệu Kim An mà nói, một khi đã dứt khoát chia tay Mộc Dao, Trương Tuệ cũng chỉ là một người xa lạ không hơn không kém.
 
-Ai lại muốn nghe một người xa lạ giáo huấn mình chứ?
+Lúc này, anh và Thẩm Tử Ngôn còn đang bận rộn chỉ đạo điều phối hàng hóa.
 
-Về phần giao hàng, Đơn Vĩ trở thành lực lượng chủ chốt. Họ lái chiếc xe tải nhỏ, buổi tối phải chuẩn bị sẵn nước khoáng cho các trường đại học và cao đẳng tại Quận Sa.
+Ai rảnh rỗi đâu mà chịu ngồi nghe một người dưng nước lã giáo huấn, lên lớp?
 
-Ban ngày, trường nào sắp hết hàng là lập tức phải đi giao ngay.
+Khâu giao nhận hàng thì Đan Vĩ trở thành lực lượng nòng cốt. Nhóm của cậu ta lái xe tải nhỏ, ngay trong đêm phải vận chuyển nước khoáng tập kết đầy đủ tại các trường đại học lớn trên toàn Quận Sa.
 
-Tại các ngã tư trong khu đại học và quảng trường Đông Phương Hồng đều được thiết lập các điểm chốt, bày biện vật phẩm quảng cáo, treo băng rôn: "Chào mừng tân sinh viên khóa XXX!"
+Ban ngày, hễ điểm nào sắp cạn hàng là lập tức có xe tức tốc tiếp ứng.
 
-Tân sinh viên năm nhất chỉ cần dựa vào giấy báo nhập học là có thể nhận nước khoáng miễn phí.
+Tại các ngã tư trong làng đại học và quảng trường Đông Phương Hồng đều được bố trí các điểm tiếp đón, dựng biển bảng quảng bá, giăng băng rôn đỏ rực: "Nhiệt liệt chào mừng tân sinh viên khóa...!"
 
-Không giống như hậu thế, tặng chút đồ chơi nhỏ cũng bắt phải tải ứng dụng này nọ hay nhấn theo dõi.
+Tân sinh viên năm nhất chỉ cần xuất trình giấy báo trúng tuyển là có thể nhận nước khoáng hoàn toàn miễn phí.
 
-Vương Duy Đào cùng mấy tình nguyện viên canh giữ ở quảng trường Đông Phương Hồng, đây cũng là nơi có lưu lượng người qua lại lớn nhất khu đại học.
+Chẳng bù cho thời sau này, muốn xin mấy món đồ chơi lặt vặt cũng bắt người ta phải tải đủ thứ ứng dụng rồi bấm theo dõi trang.
 
-"Thật sự miễn phí à?"
+Vương Duy Đào cùng vài tình nguyện viên túc trực tại quảng trường Đông Phương Hồng — nơi có lưu lượng người qua lại sầm uất nhất cả khu làng đại học.
 
-Tháng Chín, Quận Sa vẫn còn rất nóng. Những tân sinh viên từ nơi khác đến báo danh luôn phải mua nước khoáng.
+"Miễn phí thật đấy chứ?"
 
-"Đúng vậy, bạn có giấy báo nhập học không?"
+Tháng Chín, tiết trời Quận Sa vẫn oi nồng như đổ lửa. Tân sinh viên từ các tỉnh thành xa xôi đến nhập học, ai nấy đều phải tìm mua nước khoáng giải khát.
 
-Vương Duy Đào nhìn nam sinh kia, phía sau là cha mẹ đang kéo hành lý, liền chủ động đưa qua ba chai nước khoáng.
+"Dạ đúng rồi ạ, em có mang theo giấy báo trúng tuyển không?"
 
-Cha mẹ của nam sinh rất bất ngờ. Ba chai nước khoáng dù mua loại 1.5 tệ cũng mất 4.5 tệ rồi.
+Vương Duy Đào nhìn cậu nam sinh, thấy phía sau bố mẹ cậu ta đang tay xách nách mang hành lý cồng kềnh, bèn chủ động đưa luôn ba chai nước khoáng mát lành.
 
-Thời tiết nóng bức thế này, ra ngoài bôn ba... Hiện tại không phải gia đình nào cũng dư dả, thế hệ cha mẹ đều là kiểu có thể tiết kiệm được đồng nào hay đồng nấy.
+Bố mẹ cậu tân sinh viên không khỏi bất ngờ. Ba chai nước khoáng, dù mua loại rẻ một tệ rưỡi cũng mất đứt bốn tệ rưỡi.
 
-Sau khi người nọ rời đi, Vương Học Ân cầm một chai nước khoáng lên nói: "Công ty bọn họ không sợ lỗ vốn sao?"
+Dưới cái nắng chang chang oi ả, dắt díu nhau đi xa xứ... Thời buổi này đâu phải gia đình nào cũng dư dả, thế hệ phụ huynh luôn tâm niệm tiết kiệm được đồng nào hay đồng ấy.
 
-"Lỗ?"
+Đợi gia đình nọ rời đi, lớp trưởng Vương Học Ân cầm một chai nước lên săm soi rồi thắc mắc: "Công ty này họ không sợ lỗ vốn à?"
 
-Vương Duy Đào nói: "Bây giờ là để xây dựng danh tiếng. Chi phí một chai nước khoáng bao nhiêu mình không biết, nhưng trong 4 năm đại học, họ chỉ cần mua thêm hai chai là công ty thu hồi vốn rồi chứ gì?"
+"Lỗ sao được?"
 
-"Nếu là ông mới vào đại học... sau này ông có ưu tiên mua Trăn Nhiên không?"
+Vương Duy Đào đáp: "Người ta đang tạo dựng danh tiếng đấy. Chi phí một chai nước khoáng là bao nhiêu tao không rõ, nhưng suốt bốn năm đại học, chỉ cần tụi nó mua ủng hộ lại chừng hai chai thôi là công ty đã hòa vốn rồi."
 
-"Có lẽ sau khi tốt nghiệp, ở nơi đất khách quê người nhìn thấy Trăn Nhiên, nhớ lại cảnh tượng mình đi báo danh hôm nay, nhớ đến cha mẹ, cùng là mua nước thì ông có mua Trăn Nhiên không?"
+"Thử nghĩ xem, nếu là mày vừa chân ướt chân ráo bước vào cổng trường đại học... sau này mày có ưu tiên chọn mua nước Trăn Nhiên không?"
 
-Vương Học Ân suy nghĩ một chút rồi gật đầu.
+"Biết đâu sau này tốt nghiệp ra trường, bươn chải nơi đất khách quê người, vô tình nhìn thấy chai Trăn Nhiên, mày sẽ nhớ lại cảnh tượng ngày đầu đi nhập học, nhớ đến bóng dáng bố mẹ năm nào... Cùng một giá tiền, mày có chọn Trăn Nhiên không?"
 
-"Có người sẽ mua, có người sẽ không."
+Vương Học Ân ngẫm nghĩ một hồi rồi gật gù.
 
-Vương Duy Đào gật đầu, cũng không phản bác.
+"Có người sẽ nhớ, nhưng cũng có người chẳng bận tâm đâu."
 
-"Vương Duy Đào, mau lại bốc hàng!"
+Vương Duy Đào gật đầu, cũng chẳng buồn tranh cãi thêm.
 
-Đúng lúc này, Đường Hiểu Tình lái chiếc xe van tới. Cô mặc chiếc áo vest nhỏ màu đỏ xuống xe, trên lưng áo in hai chữ "Trăn Nhiên".
+"Vương Duy Đào, mau ra bốc hàng này!"
 
-Các tình nguyện viên đều mặc loại áo khoác nhỏ này.
+Đúng lúc đó, Đường Hiểu Tình lái chiếc xe van trờ tới. Cô khoác chiếc áo gi lê đỏ rực bước xuống, sau lưng áo in nổi bật hai chữ "Trăn Nhiên".
 
-"Đậu xanh, Đường Hiểu Tình biết lái xe thật kìa!"
+Các bạn tình nguyện viên đều mặc đồng phục gi lê như thế.
 
-Lớp trưởng Vương Học Ân há hốc mồm. Bọn họ đều còn chưa biết lái xe, sự thay đổi của Đường Hiểu Tình quá lớn rồi.
+"Vãi thật, Đường Hiểu Tình biết lái xe ô tô từ bao giờ thế?!"
 
-Biết lái xe, làm thêm năm nhất đại học mà lương đã hai nghìn, người cũng càng nhìn càng xinh đẹp. Đây còn là Đường Hiểu Tình đó sao?
+Lớp trưởng Vương Học Ân trố tròn hai mắt kinh ngạc. Đám con trai bọn họ còn chưa đứa nào biết cầm vô lăng, vậy mà Đường Hiểu Tình đã thay đổi đến chóng mặt.
 
-Vương Duy Đào và Vương Học Ân chạy lại gần, hỏi: "Đường Hiểu Tình, cậu thi bằng lái hồi nghỉ hè à?"
+Biết lái ô tô, năm nhất đi làm thêm lương tháng đã hai nghìn tệ, người lại ngày càng trổ mã xinh đẹp... Đây còn là cô bạn Đường Hiểu Tình nhút nhát ngày nào nữa không?
 
-"Ừm, mau bốc hàng đi, lát nữa mình còn phải đến các điểm khác."
+Vương Duy Đào và Vương Học Ân vội chạy lại, cất giọng hỏi: "Hiểu Tình, đợt nghỉ hè cậu đi thi bằng lái à?"
 
-"Kim An đâu?" Vương Duy Đào hỏi.
+"Ừm, các cậu phụ mình bốc hàng nhanh lên, lát nữa mình còn phải chạy qua điểm khác."
 
-"Cậu ấy có việc khác phải bận."
+"Kim An đâu rồi?" Vương Duy Đào hỏi.
 
-Đường Hiểu Tình thúc giục.
+"Cậu ấy còn nhiều việc khác phải lo lắm."
 
-Vương Học Ân nhìn thêm một cái vào ghế lái, trên ghế còn lót một cái gối, ghế kéo lại rất gần vô lăng.
+Đường Hiểu Tình cất giọng giục giã.
 
-Lại nhìn thoáng qua vóc dáng của Đường Hiểu Tình.
+Vương Học Ân liếc nhìn ghế lái, thấy trên ghế có lót thêm một chiếc gối đệm, khoảng cách giữa ghế và vô lăng kéo lại rất gần.
 
-Không dám tưởng tượng!
+Lại liếc nhìn vóc dáng nảy nở của Đường Hiểu Tình.
 
-Thế này liệu có ảnh hưởng đến việc lái xe không, có bị ép vào vô lăng không nhỉ?
+Chẳng dám nghĩ sâu thêm nữa!
 
-Thành thật mà nói, các bạn học lớp Kế toán 1 đều cảm thấy Đường Hiểu Tình ngày càng xinh đẹp, ngay cả Lâm Thanh Tuyết cũng thấy địa vị hoa khôi lớp của mình có chút lung lay.
+Ngồi sát thế kia không biết có vướng víu tay lái không, có khi nào bị ép sát vào vô lăng không nhỉ?
 
-Nam sinh lớp Kế toán 1 bắt đầu thay lòng đổi dạ rồi, cuộn giấy vệ sinh đầu giường kia...
+Thú thật, đám con trai lớp Kế toán 1 đều thầm công nhận Đường Hiểu Tình ngày một xinh đẹp, mặn mà, đến mức Lâm Thanh Tuyết cũng bắt đầu cảm thấy vị trí hoa khôi của mình bị lung lay.
 
-Bốc hàng xong, Đường Hiểu Tình leo lên ghế lái, lái xe rời đi.
+Lũ con trai trong lớp bắt đầu thay lòng đổi dạ, cuộn giấy vệ sinh nơi đầu giường...
 
-Nhìn theo hướng chiếc xe van khuất dần, Vương Học Ân ngơ ngẩn hỏi: "Lương của chúng ta cũng là Đường Hiểu Tình kết toán à?"
+Bốc dỡ hàng xong xuôi, Đường Hiểu Tình trèo lên ghế lái, nổ máy rời đi.
 
-"Ừ, lần trước cũng là cậu ấy quản lý lương của bọn mình."
+Nhìn theo bóng chiếc xe van khuất dần, Vương Học Ân ngập ngừng hỏi: "Tiền công của bọn mình cũng do Đường Hiểu Tình phát à?"
 
-Vương Duy Đào đẩy đẩy Vương Học Ân: "Đừng nhìn nữa, biết Cốc Siêu Thừa không? Các ông không có cửa đâu, Đường Hiểu Tình từ lúc khai giảng năm nhất đã thích Kim An rồi..."
+"Ừ, lần trước cũng là cậu ấy quản lý tiền lương của bọn mình."
 
-"... Lại là Kim An?"
+Vương Duy Đào huých nhẹ Vương Học Ân: "Thôi đừng ngắm nữa. Biết Cốc Siêu Thừa không? Tụi mày chẳng có cửa đâu. Đường Hiểu Tình thích Kim An từ hồi mới vào năm nhất rồi..."
 
-Thấy Vương Duy Đào có vẻ đắc ý, Vương Học Ân nổi hết da gà, né xa Vương Duy Đào một chút.
+"... Lại là Kim An à?"
 
-Cậu ta mới nhớ ra xu hướng tính dục của Vương Duy Đào có vẻ hơi vấn đề.
+Thấy điệu bộ đắc ý của Vương Duy Đào, Vương Học Ân nổi cả da gà, vội lùi xa cậu ta vài bước.
 
-"Vương Duy Đào, năm hai rồi thì kiếm lấy một đứa bạn gái đi, đại học không yêu đương một lần là không trọn vẹn đâu."
+Cậu ta chợt nhớ ra thiên hướng tình cảm của Vương Duy Đào hình như có chút vấn đề.
 
-Vương Học Ân nhấn mạnh vào chữ "gái".
+"Vương Duy Đào này, lên năm hai rồi thì kiếm đứa bạn gái mà yêu đi. Học đại học mà không có một mảnh tình vắt vai là phí hoài thanh xuân đấy."
 
-Bên kia.
+Vương Học Ân cố tình nhấn mạnh thật rõ chữ "bạn gái".
 
-Đường Hiểu Tình lái xe không nhanh, tình cờ bắt gặp Triệu Kim An và Thẩm Tử Ngôn trên đường.
+...
 
-"Triệu Kim An, cậu thật sự không tiếp nhận phỏng vấn của phóng viên à?"
+Ở một diễn biến khác.
 
-"Cậu đi đi, mình không thạo mấy việc này."
+Đường Hiểu Tình lái xe chầm chậm, tình cờ bắt gặp Triệu Kim An và Thẩm Tử Ngôn đang đứng bên lề đường.
 
-Thẩm Tử Ngôn cười khổ một tiếng: "Mình gọi điện cho Lạc tổng, Lạc tổng cũng bảo không muốn lộ diện."
+"Triệu Kim An, cậu thật sự không chịu nhận lời phỏng vấn của phóng viên à?"
 
-Chuyện này thực ra Thẩm Tử Ngôn phù hợp hơn Triệu Kim An và Lạc Cẩn Chi nhiều.
+"Cậu đại diện là được rồi, tôi không rành mấy vụ này đâu."
 
-Hình ảnh và cách nói năng của Thẩm Tử Ngôn đều không có gì để chê, khả năng tổ chức thể hiện lần này cũng không còn gì để nói.
+Thẩm Tử Ngôn cười khổ: "Tôi gọi cho tổng giám đốc Lạc, chị ấy cũng bảo không thích lộ diện trước truyền thông."
 
-Triệu Kim An cười nói: "Người có tài thì làm nhiều thôi."
+Những việc thế này, thực chất Thẩm Tử Ngôn xuất hiện lại phù hợp hơn cả Triệu Kim An và Lạc Cẩn Chi.
 
-Thẩm Tử Ngôn lườm Triệu Kim An một cái, mặt lộ vẻ tươi cười. Cô biết tính cách của Triệu Kim An, không phải loại người thích chơi trội.
+Hình ảnh lẫn phong thái ăn nói của Thẩm Tử Ngôn đều hoàn hảo không tì vết, khả năng tổ chức điều phối thể hiện trong đợt này cũng chẳng có điểm nào để chê.
 
-"Đúng rồi, bên Đoàn trường các cậu còn hỏi mình một câu."
+Triệu Kim An mỉm cười: "Người tài thì gánh vác nhiều việc thôi."
 
-"Hỏi gì?"
+Thẩm Tử Ngôn liếc xéo Triệu Kim An một cái, khóe môi khẽ cong lên nét cười duyên dáng. Cô hiểu tính cách của anh, anh vốn không phải kiểu người thích phô trương thanh thế hay hám chút danh hão.
 
-Thẩm Tử Ngôn mỉm cười: "Nói là lần trước công ty các cậu chẳng phải do sinh viên trường mình phụ trách sao?"
+"À đúng rồi, bên Đoàn trường của các cậu có hỏi thăm tôi một câu đấy."
 
-Triệu Kim An gật đầu.
+"Hỏi gì cơ?"
+
+Thẩm Tử Ngôn mỉm cười: "Hỏi là công ty của các cậu lần trước không phải do sinh viên trường mình phụ trách hay sao?"
+
+Triệu Kim An khẽ gật đầu.
 
 "Này."
 
-Thẩm Tử Ngôn nghiêng người nhìn Triệu Kim An: "Triệu Kim An, cậu định đợi công ty làm lớn rồi mới cho trường học một điều bất ngờ à? Thật ra với quy mô hiện tại, cậu đã là người khởi nghiệp số một của trường cậu rồi."
+Thẩm Tử Ngôn nghiêng người nhìn sâu vào mắt Triệu Kim An: "Triệu Kim An, có phải cậu muốn đợi khi công ty lớn mạnh hơn nữa rồi mới cho nhà trường một bất ngờ không? Thật ra với quy mô hiện tại, cậu đã đủ tư cách làm tấm gương khởi nghiệp số một của trường cậu rồi đấy."
 
-"Trường các cậu chắc chắn sẽ lấy cậu làm gương."
+"Trường cậu chắc chắn sẽ lấy cậu ra làm hình mẫu điển hình."
 
-"Đợi công ty làm lớn thì không còn là bất ngờ nữa, mà là kinh hãi."
+"Đợi đến lúc công ty lớn mạnh thực sự, đó không còn là bất ngờ nữa đâu, mà là kinh hãi đấy."
 
-Triệu Kim An suy nghĩ một chút, lắc đầu nói: "Không có."
+Triệu Kim An ngẫm nghĩ một chút rồi lắc đầu: "Không có đâu."
 
-Hắn kể về Vu Tu Nhiên, kể về lễ kỷ niệm trường, nói rằng Vu Tu Nhiên đã hẹn ngày kỷ niệm 80 năm thành lập trường sẽ cùng nhau quay lại.
+Anh bỗng nhắc đến Vu Tu Nhiên, nhắc đến lời hẹn cùng nhau trở về trường vào dịp lễ kỷ niệm 80 năm thành lập.
 
-Thẩm Tử Ngôn rất chăm chú lắng nghe.
+Thẩm Tử Ngôn chăm chú lắng nghe.
 
-Đây là lần đầu tiên cô nghe thấy những suy nghĩ nội tâm của Triệu Kim An, lần đầu tiên!!
+Đây là lần đầu tiên cô được nghe thấy những suy nghĩ thầm kín trong nội tâm của Triệu Kim An, lần đầu tiên đấy!
 
-Thẩm Tử Ngôn rất muốn thấu hiểu nội tâm của Triệu Kim An. Người này có chuyện gì cũng không bao giờ biểu lộ ra ngoài. Cô rất nghiêm túc và tự tin nói với hắn: "Mười năm sau, Vu Tu Nhiên xách giày cho cậu cũng không xứng!"
+Thẩm Tử Ngôn khao khát được thấu hiểu thế giới nội tâm của anh. Con người này dường như có tâm sự gì cũng giấu kín trong lòng, chẳng bao giờ bộc lộ ra ngoài. Cô nhìn thẳng vào mắt anh, giọng nói tràn đầy sự quả quyết và tự tin tuyệt đối: "Mười năm sau, Vu Tu Nhiên có xách dép cho cậu cũng không xứng!"
 
-Triệu Kim An cười bảo: "Mình và anh ấy không phải kẻ thù."
+Triệu Kim An bật cười: "Tôi với cậu ấy đâu phải kẻ thù."
 
-Thẩm Tử Ngôn vẫn rất nghiêm túc, nói: "Mình biết!"
+Nhưng Thẩm Tử Ngôn vẫn giữ nguyên nét mặt nghiêm túc: "Tôi biết chứ!"
 
-Thực ra Thẩm Tử Ngôn còn muốn nói, Trần Trạch cũng vậy, Khổng Triết Vũ cũng thế!
+Thực lòng Thẩm Tử Ngôn còn muốn nói thêm: Cả Trần Trạch cũng thế, mà Khổng Triết Vũ cũng chẳng khác gì!
 
-Đây có lẽ chính là Thẩm Tử Ngôn.
+Đó có lẽ chính là nét tính cách kiêu hãnh rất riêng của Thẩm Tử Ngôn.
 
-Cô biết Trần Trạch và Khổng Triết Vũ có gia nghiệp để kế thừa, vậy thì mình sẽ giúp Triệu Kim An làm lớn mạnh, mạnh đến mức bọn họ xách giày cho Triệu Kim An cũng không xứng!
+Cô biết Trần Trạch và Khổng Triết Vũ sinh ra đã ngậm thìa vàng, có sẵn cơ nghiệp gia đình để kế thừa; vậy thì cô sẽ dốc toàn lực giúp Triệu Kim An gầy dựng giang sơn ngày một lớn mạnh, lớn mạnh đến mức khiến lũ công tử thế gia kia có xách dép cho anh cũng không xứng tầm!
 
-Thẩm Tử Ngôn bàn xong công việc với Triệu Kim An lại đi bận rộn tiếp.
+Thảo luận xong công việc, Thẩm Tử Ngôn lại tất bật quay lại với guồng quay bận rộn.
 
-Cô là tổng phụ trách của hoạt động lần này.
+Cô chính là tổng chỉ huy của toàn bộ chiến dịch lần này.
 
 "Bíp ——"
 
-Đường Hiểu Tình bấm còi một cái: "Triệu Kim An, cậu đi đâu? Mình lái xe chở cậu đi."
+Đường Hiểu Tình bấm còi một tiếng: "Triệu Kim An, cậu đi đâu đấy? Lên xe mình chở."
 
-"Mình không có việc gì, đi cùng cậu vậy."
+"Tôi cũng không có việc gì gấp, đi cùng cậu vậy."
 
-Thấy Đường Hiểu Tình lái xe, thò đầu ra ngoài cửa sổ, Triệu Kim An chỉ muốn cười.
+Nhìn dáng vẻ Đường Hiểu Tình lái xe, thò đầu qua khung cửa sổ, Triệu Kim An không nhịn được cười.
 
-Mở cửa xe, ngồi lên ghế phụ, hắn lại càng muốn cười hơn.
+Mở cửa bước lên ghế phụ, anh lại càng buồn cười hơn.
 
-Cũng có chút lo lắng.
+Nhưng đi kèm với đó là chút âu lo thắc thỏm.
 
-Đường Hiểu Tình gần như dùng hai tay ôm lấy vô lăng, không biết thầy dạy lái xe dạy kiểu gì.
+Đường Hiểu Tình gần như ôm trọn cả hai tay vào vô lăng, chẳng hiểu ông thầy dạy lái xe hướng dẫn kiểu gì.
 
-Cô nàng còn xoay vô lăng rất mạnh tay.
+Động tác xoay vô lăng của cô cứ lóng nga lóng ngóng.
 
-"Triệu Kim An, cậu có quần áo phơi ở nhà mình, mẹ mình giặt giúp cậu rồi đấy, khai giảng xong cậu còn qua đó không?"
+"Triệu Kim An, hôm trước cậu có phơi quần áo ở nhà mình, mẹ mình giặt giùm cậu rồi đấy. Khai giảng xong cậu có ghé qua nữa không?"
 
-Đường Hiểu Tình lái xe rất tập trung, hai tay ôm vô lăng, mắt nhìn chằm chằm phía trước không dám phân tâm.
+Đường Hiểu Tình lái xe hết sức tập trung, hai tay ôm khư khư lấy vô lăng, mắt chăm chú nhìn thẳng phía trước không dám lơ là nửa giây.
 
-"Thế này... không bị ép à? Không ảnh hưởng đến việc lái xe sao?"
+"Ngồi sát thế này... có bị cấn không? Có vướng tay lái không đấy?"
 
-Triệu Kim An thực sự tò mò, rất muốn hỏi Đường Hiểu Tình.
+Triệu Kim An thực sự tò mò, chỉ muốn buột miệng hỏi thẳng cô nàng.
 
-Không nghe thấy phản hồi, Đường Hiểu Tình mới liếc nhìn Triệu Kim An một cái, rồi khuôn mặt nhỏ nhắn đỏ bừng lên ngay lập tức.
+Không nghe thấy anh trả lời, Đường Hiểu Tình mới liếc nhìn anh một cái, rồi khuôn mặt nhỏ nhắn bỗng chốc đỏ ửng như gấc chín.
 
-Cô đại khái cũng biết "quy mô" của mình rất lớn.
+Cô có lẽ cũng tự ý thức được vóc dáng của mình đẫy đà đến mức nào.
 
-"Mình vứt vào máy giặt tự giặt mà."
+"Tôi ném vào máy giặt tự giặt rồi mà."
 
-Nghỉ hè Triệu Kim An ngủ ở văn phòng, văn phòng không có chỗ tắm nên hắn thường qua nhà Đường Hiểu Tình tắm nhờ, chủ yếu nhất là quần áo không phải tự tay giặt.
+Suốt kỳ nghỉ hè Triệu Kim An ngủ lại văn phòng, mà văn phòng thì không có chỗ tắm rửa nên anh thường ghé qua nhà Đường Hiểu Tình tắm nhờ. Cái lợi lớn nhất là khỏi phải tự tay vò quần áo.
 
-"Mẹ mình bảo máy giặt giặt không sạch, nên lấy xuống giặt tay lại cho cậu một lượt."
+"Mẹ mình bảo máy giặt không sạch, nên lấy xuống giặt tay lại cho cậu đấy."
 
 Triệu Kim An: "..."
 
-Quần áo thì không sao, vấn đề là quần lót... cũng giặt tay?
+Quần áo bên ngoài thì không sao, nhưng ngặt nỗi... quần lót cũng giặt tay hộ luôn à?
 
-Thế này không ổn lắm nhỉ?
+Thế này thì ngại chết đi được?
 
-Sẽ không đâu, quần lót thì Lưu Mỹ Nga sẽ không giặt lại giúp mình.
+Chắc không đến mức đó đâu, dì Lưu Mỹ Nga làm sao giặt cả đồ lót giùm mình được.
 
-Không có lý do gì cả, Triệu Kim An tắm xong thường sẽ tự giặt luôn quần lót.
+Mà cũng vô lý, mỗi lần tắm xong Triệu Kim An đều tự tay vò sạch đồ lót của mình trước rồi mới ra.
 
-Lưu Mỹ Nga và Đường Hiểu Tình đã mấy lần níu kéo, bảo bọn họ ra ngủ ở căn phòng không có điều hòa kia, nhưng Triệu Kim An đều tắm xong, vắt máy giặt xong là quay về văn phòng ngay.
+Dì Lưu Mỹ Nga và Đường Hiểu Tình từng nhiều lần có ý giữ anh ở lại ngủ qua đêm, bảo hai mẹ con sẽ dọn qua phòng ngủ không có điều hòa, nhưng Triệu Kim An lần nào cũng tắm rửa xong, bấm máy giặt quay là lập tức quay về văn phòng ngủ.
 
-Có vài lần trong phòng tắm thấy đồ thay ra của Lưu Mỹ Nga, chắc là chưa kịp giặt.
+Có đôi lần vào phòng tắm, anh vô tình nhìn thấy đồ thay ra của dì Lưu Mỹ Nga còn treo ở đó, chắc do bận quá chưa kịp giặt.
 
-Lưu Mỹ Nga có nét giống Trịnh Như, nhưng Triệu Kim An không muốn trở thành Triệu Chí Dũng, Đường Hiểu Tình cũng không phải là Triệu Niệm Khả 4 tuổi.
+Hoàn cảnh của dì Lưu Mỹ Nga có chút hao hao giống Trịnh Như. Nhưng Triệu Kim An đâu có muốn biến mình thành một Triệu Chí Dũng thứ hai, mà Đường Hiểu Tình cũng chẳng phải đứa trẻ bốn tuổi như Triệu Niệm Khả.
 
-"Reng reng reng."
+"Reng reng reng..."
 
-Đúng lúc này điện thoại vang lên, Triệu Kim An bắt máy.
+Đúng lúc này chuông điện thoại reo vang, Triệu Kim An bắt máy.
 
-"Alo, ai đấy?"
+"Alo, xin hỏi ai đấy ạ?"
 
-Đầu dây bên kia ngẩn người một hồi: "Tôi, giảng viên hướng dẫn của cậu, Lưu Huy!"
+Đầu dây bên kia ngẩn người ra một lúc: "Tôi đây! Cố vấn học tập của em, Lưu Huy!"
 
-Nhìn điện thoại, tâm trạng của Lưu Huy nói thế nào nhỉ?
+Nhìn màn hình điện thoại, tâm trạng của thầy Lưu Huy lúc này chẳng biết phải diễn tả thế nào cho đượm.
 
-Sinh viên của mình không lưu số điện thoại của mình sao!?
+Học trò cưng của mình mà lại không thèm lưu cả số điện thoại của thầy cố vấn sao?!
 
-Triệu Kim An nói: "Thầy Lưu, có chuyện gì không ạ?"
+Triệu Kim An cất lời: "Thầy Lưu, có chuyện gì không ạ?"
 
 "..."
 
-Lưu Huy cũng nghe nói hoạt động lần này của Trăn Nhiên do một sinh viên trường Trung Nam phụ trách, liền gọi điện hỏi thăm sinh viên của mình. Dù sao sinh viên của mình có chí khí thì mặt mũi mình cũng có chút hào quang.
+Thầy Lưu Huy cũng nghe phong phanh chuyện hoạt động rầm rộ lần này của công ty Trăn Nhiên lại do một nữ sinh bên Đại học Trung Nam đứng đầu phụ trách, nên mới gọi điện hỏi thăm học trò mình đôi câu. Dẫu sao học trò mình mà làm nên chuyện lớn thì bản thân thầy cũng được thơm lây, nở mày nở mặt.
 
-Lần họp viện trước, một lãnh đạo viện còn khen Lưu Huy một câu.
+Hôm trước họp viện, một vị lãnh đạo viện còn vừa buông lời khen ngợi Lưu Huy một câu.
 
-Chẳng ngờ Triệu Kim An có chút không tranh thủ, Lưu Huy cũng không nghĩ tới Đường Hiểu Tình. Đường Hiểu Tình mang lại cảm giác làm tổng phụ trách quả thực còn thiếu sót, hợp làm những việc cụ thể hơn.
+Ai ngờ Triệu Kim An lại có vẻ "nhường sân" thế này. Thầy Lưu Huy cũng chưa từng nghĩ đến Đường Hiểu Tình, bởi phong thái của Đường Hiểu Tình ai nhìn vào cũng thấy còn non nớt để gánh vác vị trí tổng phụ trách, cô nàng chỉ thích hợp làm những công việc thực thi cụ thể mà thôi.
 
-Đường Hiểu Tình vẫn đang hỏi: "Triệu Kim An, thầy hướng dẫn tìm cậu có việc gì không?"
+Đường Hiểu Tình ngồi bên cạnh tò mò hỏi: "Triệu Kim An, thầy cố vấn tìm cậu có việc gì thế?"
 
-"Không có gì."
+"Không có gì đâu."
 
-Triệu Kim An sẽ không nói với Đường Hiểu Tình những chuyện này, nhìn Đường Hiểu Tình hắn như thấy lại chính mình ở kiếp trước.
+Triệu Kim An sẽ không kể những chuyện này với Đường Hiểu Tình. Nhìn cô nàng, anh như thấy lại hình bóng của chính mình ở kiếp trước.
 
-Một lúc sau điện thoại lại reo, lần này là Tô Miền.
+Lát sau, điện thoại lại đổ chuông, lần này là Tô Miến gọi tới.
 
-Tô Miền có chút vui vẻ, nói thím gọi cô về gặt lúa!
+Giọng Tô Miến ríu rít đầy phấn khởi, bảo rằng thím gọi điện rủ cô về quê gặt lúa!
 
 Triệu Kim An: "..."
 
-Không phải chứ, tiểu thư như cô thì gặt lúa kiểu gì?
+Không phải chứ, cái tiểu thư như cô thì biết gặt lúa nỗi gì?
 
-Lại còn phải có người hầu hạ cô nữa cơ đấy!!!
+Về quê khéo người ta còn phải hầu hạ cô mệt nghỉ ấy chứ!!!
 
-Triệu Kim An cầm điện thoại không biết nói gì, thím hoàn toàn phản bội rồi, đúng là có người ném cho tờ séc 5 triệu nhân dân tệ là đi thẳng không ngoảnh đầu lại luôn.
+Triệu Kim An cầm điện thoại mà dở khóc dở cười. Thím của anh đúng là đã "phản bội" toàn tập rồi, quả nhiên là kiểu người nếu ai quẳng cho chiếc thẻ ngân hàng năm triệu tệ thì sẵn sàng quay ngoắt đi không thèm ngoảnh lại.
 
-Bán cháu trai nhanh thật đấy!
+Bán cháu ruột nhanh như chớp!
 
-Đã bảo coi như con trai mà nuôi, còn nói gì mà cháu trai đứng trước cửa, không tính là nhà tuyệt tự.
+Ngày trước rõ ràng bảo coi anh như con đẻ, còn dạy dỗ đạo lý: "Cháu trai đứng trước cửa, chẳng sợ tuyệt tự tuyệt tôn."
 
-Trước mặt KFC, tất cả chả là cái đinh gì!
+Thế mà đứng trước mấy miếng gà rán KFC, tất cả bay sạch sành sanh!
 
-Một lát sau Vương Kim Như lại gọi điện tới, nói những chỗ lúa khác sẽ thu hoạch trước, chỉ để lại mảnh ruộng nuôi cá lúa kia chờ khi nào hắn và Tô Miền có thời gian thì về.
+Lát sau, thím Vương Kim Như cũng gọi điện tới, dặn dò rằng lúa ở các ruộng khác sẽ gặt trước, chỉ để lại riêng thửa ruộng nuôi cá lúa đợi khi nào anh và Tô Miến rảnh rỗi cùng nhau về quê.
 
 "..."
 
-Triệu Kim An liền hỏi một câu: "Thím à, thím không định bán cháu lấy thêm ít tiền sao?"
+Triệu Kim An không nhịn được bèn hỏi một câu: "Thím à, thím không tính bán cháu lấy thêm chút tiền nữa đấy chứ?"
 
-"Bán tiền nong gì? Nói nghe khó lọt tai thế!"
+"Bán chác cái gì? Nói năng khó nghe thế!"
 
-Vương Kim Như cười mắng: "Bà nội mày để dành sẵn gà vịt cả rồi, dưa hấu với nho ngoài đồng ngày nào bà cũng ra xem một lượt, chỉ đợi Tô Miền về thôi."
+Vương Kim Như cười mắng qua điện thoại: "Bà nội mày để dành sẵn mấy con gà ngon với vịt béo rồi đấy, dưa hấu với nho ngoài vườn ngày nào bà cũng ra ngó một bận, chỉ ngóng đợi con bé Tô Miến về thôi đấy."
 
 Triệu Kim An: "..."
 
-Bà nội là người như vậy đấy, tiếc là kiếp trước Trần Thanh Trĩ...
+Người bà đôn hậu, thương cháu như thế, chỉ tiếc kiếp trước Trần Thanh Trĩ...

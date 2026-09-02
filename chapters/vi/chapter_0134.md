@@ -1,199 +1,203 @@
-# Chương 134: Thím Nhỏ Đến Rồi!
+# Chương 134: Thím nhỏ về làng!
 
-Tô Miền hỏi: "Chí Dũng, mùa này trong rừng trúc không mọc măng sao?"
+> **Tiêu đề gốc**: 第134章 小婶婶来了！
 
-Triệu Chí Dũng gãi đầu: "Thím nhỏ ơi, mùa đông có măng đông, mùa xuân có măng xuân, chỉ riêng hai mùa này là không có thôi."
+Tô Miến ngây thơ hỏi: “Trí Dũng, mùa này trong rừng trúc không mọc măng sao anh?”
 
-Tô Miền đặt điện thoại lên bệ điều khiển trung tâm, Du Phỉ quay đầu nhìn ra ngoài cửa sổ xe.
+Triệu Trí Dũng gãi đầu cười xòa: “Thím nhỏ ơi, mùa đông thì có măng đông, mùa xuân thì có măng xuân, riêng hai mùa hè thu này thì đào đâu ra măng hả thím.”
 
-Tâm tư con gái vốn dĩ tinh tế hơn.
+Tô Miến đặt điện thoại lên bệ điều khiển trung tâm, Du Phi ngồi phía sau liền quay đầu đưa mắt nhìn ra ngoài cửa sổ.
 
-Tô Miền có thể giúp Triệu Kim An nghe điện thoại, cuộc gọi đó là do thím gọi đến, thím hỏi Tô Miền muốn ăn gì... Tô Miền chẳng hề khách sáo mà đọc tên món ăn, điều này đại diện cho cái gì?
+Tâm tư con gái vốn dĩ luôn nhạy cảm và tinh tế hơn.
 
-Du Phỉ và Mộc Dao cũng từng đến Triệu Kim An Gia thôn, từng đến nhà Triệu Kim An.
+Tô Miến có thể tự nhiên nghe điện thoại thay cho Triệu Kim An, cuộc gọi là do thím Kim Như gọi tới, thím còn hỏi Tô Miến thích ăn món gì... Tô Miến chẳng thèm khách khí mà hồn nhiên gọi món, điều đó nói lên điều gì chứ?
 
-Bầu trời tiết kim thu cao rộng và trong vắt, nền trời xanh nhạt điểm xuyết vài dải mây mỏng như bông, tựa hồ vừa được gột rửa qua, vô cùng thanh khiết.
+Du Phi và Mộc Dao trước đây cũng từng về thăm làng họ Triệu, từng đặt chân tới ngôi nhà ngói đơn sơ của Triệu Kim An.
 
-Cửa sổ xe mở hé một nửa.
+Bầu trời mùa thu vàng cao vời vợi và trong vắt, nền trời xanh nhạt điểm xuyết vài dải mây mỏng như sợi bông xốp, tựa hồ vừa được gột rửa qua làn nước biếc.
 
-Xe chạy trên đường cao tốc, từng hàng cây lá vàng rực rỡ, thỉnh thoảng lướt qua những cánh đồng, phong cảnh dọc đường đẹp tựa như một bức tranh sơn dầu rực rỡ sắc màu.
+Cửa kính xe hạ xuống một nửa.
 
-Du Phỉ chợt nghĩ, nếu người ngồi ở ghế phụ là Mộc Dao.
+Chiếc xe bon bon lướt trên đường cao tốc, từng rặng cây trút lá vàng rực rỡ, những cánh đồng lúa chín vàng thỉnh thoảng vụt qua tầm mắt, phong cảnh dọc đường đẹp tựa một bức tranh sơn dầu tràn ngập sắc màu rực rỡ.
 
-Bốn người bạn cùng lớp cấp ba... cùng nhau về Quận Sa đi học, cùng nhau về nhà.
+Du Phi bất giác miên man nghĩ ngợi, nếu người ngồi ở ghế phụ phía trước kia là Mộc Dao thì sẽ thế nào nhỉ.
 
-Thay chiếc Mercedes bằng chiếc Audi A6, Mộc Dao chắc chắn sẽ ríu rít suốt chặng đường rất vui vẻ.
+Bốn người bạn học cùng lớp cấp ba năm nào... cùng nhau lên Quận Sa học đại học rồi lại cùng nhau ngồi chung một chuyến xe trở về quê nhà.
 
-Ngồi ở ghế phụ ăn khoai tây chiên, thỉnh thoảng lại đút cho Triệu Kim An một miếng, đôi mắt lấp lánh ánh sáng... Mộc Dao chính là kiểu con gái như vậy.
+Từ chiếc Audi A6 năm ngoái đổi sang chiếc Mercedes sang trọng này, Mộc Dao chắc chắn sẽ líu lo ríu rít suốt dọc đường đi, vui vẻ đến mức nào.
 
-Đến một trạm dừng chân, Triệu Kim An rẽ vào, ôm Tô Miền lên một cách thuần thục.
+Ngồi ở ghế phụ vừa nhai khoai tây chiên giòn rụm, chốc chốc lại đút cho Triệu Kim An một miếng, đôi mắt sáng lấp lánh ngập tràn ý cười... Mộc Dao vốn dĩ là mẫu con gái hồn nhiên và bộc trực như thế.
 
-Triệu Chí Dũng cũng vội vàng xuống xe đi theo, hắn muốn "đứng gác" bên ngoài nhà vệ sinh.
+Đến một trạm dừng nghỉ ven đường, Triệu Kim An đánh lái rẽ vào trong, động tác vô cùng thuần thục nhẹ nhàng bế bổng Tô Miến lên.
 
-Du Phỉ cứ ngồi trên xe quan sát, cô biết Triệu Kim An ôm Tô Miền đi vệ sinh.
+Triệu Trí Dũng cũng vội vã nhảy xuống xe rảo bước theo sau, cậu ta tự giác làm nhiệm vụ “đứng gác cổng” bên ngoài nhà vệ sinh.
 
-"Kim An thật sự không chê bai, bằng lòng hầu hạ cậu ấy như vậy cả đời sao?"
+Du Phi ngồi yên trên xe dõi mắt nhìn theo, cô biết Triệu Kim An bế Tô Miến đi vệ sinh.
 
-"Có tiền thì có thể thuê bảo mẫu, nhưng sống với nhau cả đời..."
+“Kim An thật sự không hề ghét bỏ, thật lòng cam tâm tình nguyện chăm sóc cô ấy như thế này suốt cả cuộc đời sao?”
 
-Không phải Tô Miền không tốt, mà là Du Phỉ cảm thấy Triệu Kim An có rất nhiều lựa chọn.
+“Có tiền thì đúng là có thể thuê người giúp việc thật đấy, nhưng sống chung cả đời cùng nhau...”
 
-Hắn không cần phải sống như thế này.
+Không phải Tô Miến không tốt, mà là Du Phi cảm thấy một người ưu tú như Triệu Kim An hoàn toàn có vô vàn sự lựa chọn tốt hơn.
 
-Dù sao bọn họ còn trẻ như vậy, mới 19 tuổi, quãng đời còn lại còn rất dài, rất dài.
+Anh đâu nhất thiết phải chọn một con đường vất vả, gập ghềnh nhường này để đi.
 
-Du Phỉ không biết rằng, Triệu Kim An từng ngồi xổm dưới đất nói với Tô Miền một câu: "Không đi bộ được cũng tốt."
+Dù sao bọn họ vẫn còn quá trẻ, mới chỉ mười chín tuổi xuân thì, chặng đường đời phía trước vẫn còn dài đằng đẵng biết bao.
 
-Hồi lâu sau, Triệu Kim An mới bế Tô Miền trở ra.
+Nhưng Du Phi đâu thể nào biết được, từng có một ngày Triệu Kim An ngồi xổm dưới sàn nhà, dịu dàng nhìn Tô Miến mà nói một câu tự đáy lòng: “Không biết đi lại... cũng tốt mà.”
 
-Tô Miền một tay ôm chặt cổ Triệu Kim An, cứ thế nhìn hắn, gương mặt trái xoan cổ điển tinh tế treo một nụ cười nhàn nhạt.
+Mãi một hồi lâu sau, Triệu Kim An mới ân cần bế Tô Miến bước trở ra.
 
-Du Phỉ nhìn Tô Miền, nhìn vào đôi mắt ấy, Tô Miền dường như không nhận ra mình đang bị quan sát.
+Một tay Tô Miến vòng qua ôm chặt lấy cổ Triệu Kim An, ánh mắt chan chứa yêu thương dán chặt vào gương mặt anh, trên gương mặt trái xoan thanh tú mang nét đẹp cổ điển thoáng hiện nụ cười nhẹ nhõm, an yên.
 
-"Du Phỉ, cậu không đi vệ sinh sao?"
+Du Phi ngồi trên xe chăm chú ngắm nhìn Tô Miến, nhìn sâu vào đôi mắt trong veo ấy, Tô Miến dường như chẳng hề hay biết có người đang quan sát mình.
 
-Triệu Kim An bế Tô Miền lên xe, lấy nước khoáng đổ ra cho Tô Miền rửa tay, vừa làm vừa nói: "Đến Tư Tinh còn phải đi hai tiếng nữa đấy."
+“Du Phi, cậu không đi vệ sinh à?”
 
-Du Phỉ xuống xe, nói: "Tô Miền, cậu có muốn ăn gì không? Trạm dừng chân có cơm với mì sợi."
+Triệu Kim An nhẹ nhàng đặt Tô Miến ngồi lại vào xe, lấy chai nước khoáng tỉ mỉ dội nước rửa tay cho cô, vừa quay sang nhắc nhở: “Từ đây về tới Tư Tinh còn mất tầm hai tiếng nữa đấy.”
 
-Tô Miền lắc đầu, bảo: "Thôi không cần đâu, bà nội và thím đã nấu cơm rồi."
+Du Phi lúc này mới mở cửa bước xuống xe, khẽ hỏi: “Tô Miến, cậu có muốn ăn gì lót dạ không, ở trạm dừng chân có cơm với mì nóng hổi đấy.”
 
-"..."
+Tô Miến lắc đầu mỉm cười: “Thôi không cần đâu, bà nội với thím ở nhà đã nấu cơm chờ chúng mình rồi.”
 
-Du Phỉ vừa đi vừa ngoái đầu lại ba lần rồi mới vào nhà vệ sinh.
+“...”
 
-Triệu Chí Dũng ra ngoài đứng hút thuốc.
+Du Phi khẽ thở dài, vừa đi vừa ngoái đầu nhìn lại ba lần rồi mới bước vào nhà vệ sinh.
 
-Tô Miền nói: "Chí Dũng, tôi có mang thuốc lá để ở hàng ghế sau, cậu tự lấy đi."
+Triệu Trí Dũng đứng bên ngoài châm một điếu thuốc lá phì phèo.
 
-"Hì hì, thím nhỏ, vậy cháu lấy một cây nhé?"
+Tô Miến cất tiếng: “Trí Dũng, em có mang mấy cây thuốc lá ở hàng ghế sau đấy, anh cứ tự nhiên lấy mà hút.”
 
-Lần trước Triệu Chí Dũng không được hút, hắn biết thuốc lá Tô Miền mang theo chắc chắn là hàng xịn.
+“Hề hề, thím nhỏ hào phóng thế này cho cháu xin một cây nhé?”
 
-Cả đoàn tiếp tục lên đường.
+Lần trước Triệu Trí Dũng không có cơ hội được thưởng thức, cậu ta thừa biết thuốc lá do đích thân Tô Miến mang theo chắc chắn toàn là hàng thượng hạng cống phẩm.
 
-Ngô Hiểu và những người khác vẫn luôn lái xe bám theo phía sau, trái tim treo lơ lửng của hai người cuối cùng cũng được đặt lại vào bụng.
+Chiếc xe tiếp tục lăn bánh hòa vào dòng xe trên cao tốc.
 
-Ngô Hiểu gọi mấy cuộc điện thoại báo cáo với Phùng Nhược Đan.
+Chiếc xe chở Ngô Hiểu vẫn âm thầm bám sát phía sau, tảng đá đè nặng trong lòng hai người rốt cuộc cũng rơi xuống đất.
 
-Họ suốt dọc đường đều cầu nguyện Triệu Kim An đừng lái xe nhanh, đừng vượt ẩu trên cao tốc.
+Ngô Hiểu đã gọi mấy cuộc điện thoại về báo cáo tình hình cho Phùng Nhược Đan.
 
-Tài xế đi theo mấy tiếng đồng hồ nhận xét Triệu Kim An lái xe rất vững vàng.
+Suốt dọc đường, bọn họ chỉ thầm cầu trời khấn phật mong Triệu Kim An đừng nổi máu bốc đồng lái xe phóng nhanh vượt ẩu trên cao tốc.
 
-Triệu Kim An cứ giữ tốc độ ổn định, rất ít khi chuyển làn, cũng không đi vào làn vượt, đây có lẽ chính là tính cách của hắn.
+Bác tài xế kinh nghiệm theo sau mấy tiếng đồng hồ liền tấm tắc khen ngợi, bảo rằng tay lái của Triệu Kim An vô cùng vững vàng, chắc chắn.
 
-Chủ đạo là một chữ: Vững.
+Triệu Kim An luôn duy trì tốc độ ổn định, rất hiếm khi chuyển làn đột ngột và tuyệt đối không bao giờ lấn sang làn vượt tốc độ cao, điều này thể hiện rõ nét tính cách con người anh.
 
-Đến 5 giờ rưỡi chiều, xe mới xuống cao tốc để vào Tư Tinh.
+Tất cả đều đặt chữ “vững” lên hàng đầu.
 
-Lưu Văn Tinh nghe tin con gái về nhà nên đã đứng đợi bên lề đường từ sớm.
+Mãi tới năm giờ rưỡi chiều, chiếc xe mới chính thức rời khỏi cao tốc, rẽ vào địa phận huyện Tư Tinh.
 
-Nhìn thấy con gái bước xuống từ một chiếc xe Mercedes hạng sang, Lưu Văn Tinh ngẩn người hồi lâu.
+Lưu Văn Tinh nghe tin con gái về nhà liền đứng ở ngã ba đường thấp thỏm chờ đợi.
 
-Xe đẹp thế này sao!?
+Nhìn thấy con gái bước xuống từ một chiếc xe bảo mẫu Mercedes sang trọng, Lưu Văn Tinh ngẩn người đứng chết trân mất một lúc lâu.
 
-Du Phỉ gọi điện thoại, Lưu Văn Tinh cứ ngỡ chỉ là một chiếc xe tư gia bình thường thôi.
+Xe xịn đến mức này cơ à?!
 
-"Dì ạ."
+Du Phi gọi điện báo trước, Lưu Văn Tinh cứ ngỡ chỉ là một chiếc xe hơi gia đình bình dân nào đó mà thôi.
 
-"Ơ, chào cháu, là... là Triệu Kim An phải không?"
+“Cháu chào dì ạ.”
 
-Triệu Kim An và Triệu Chí Dũng xuống xe giúp Du Phỉ lấy hành lý. Ngày nhập học ở trấn Vinh Loan, Lưu Văn Tinh từng gặp họ một lần, ấn tượng với Triệu Kim An và Triệu Chí Dũng rất sâu sắc.
+“Ơi, chào cháu... Cháu là, là Triệu Kim An đúng không?”
 
-Nơi đất khách quê người, hôm đó Triệu Kim An đã nhanh tay chặn taxi giúp mẹ con bà, còn Triệu Chí Dũng thì tranh lấy việc xách hành lý.
+Triệu Kim An và Triệu Trí Dũng cùng bước xuống xe phụ dỡ hành lý cho Du Phi. Ngày đầu tiên nhập học năm ngoái, Lưu Văn Tinh từng gặp mặt hai người họ ở bến xe thị trấn Vinh Loan nên vẫn còn ấn tượng vô cùng sâu sắc.
 
-Hiện tại, nhìn thấy Triệu Kim An bước xuống từ ghế lái.
+Khi ấy ở nơi đất khách quê người, chiếc taxi là do Triệu Kim An nhanh nhẹn đón giúp mẹ con bà, còn Triệu Trí Dũng thì xông xáo tranh phần xách hành lý nặng nhọc.
 
-Mới có một năm thôi mà...
+Giờ đây, nhìn Triệu Kim An chững chạc bước xuống từ ghế lái của chiếc xe sang này.
 
-"Dì ạ, cháu chào dì, cháu là Tô Miền." Tô Miền cũng lên tiếng chào hỏi theo.
+Mới chỉ có vỏn vẹn một năm trôi qua thôi mà...
 
-Lưu Văn Tinh lại sững người thêm lần nữa.
+“Cháu chào dì ạ, cháu là Tô Miến.” Tô Miến ngồi trong xe cũng lễ phép cất tiếng chào.
 
-"Ơ, chào cháu."
+Lưu Văn Tinh lại thêm một phen sững sờ kinh ngạc trước dung nhan kiều diễm của cô gái trẻ.
 
-"Dì ơi, bọn cháu đi nhé."
+“Ơi, chào cháu, chào cháu nhé.”
 
-Triệu Kim An cười gật đầu, rồi cùng Triệu Chí Dũng lên xe.
+“Dì ơi, bọn cháu xin phép đi trước cho kịp cơm tối ạ.”
 
-"Du Phỉ, đi nhé!"
+Triệu Kim An mỉm cười gật đầu rồi cùng Triệu Trí Dũng lên xe nổ máy.
 
-"Được."
+“Du Phi, bọn tao về nhé!”
 
-Đợi đến khi chiếc Mercedes biến mất, một lúc sau Lưu Văn Tinh mới kéo vali cùng Du Phỉ đi bộ về khu chung cư.
+“Ừ, đi cẩn thận nhé!”
 
-"Bạn gái của Triệu Kim An à?"
+Mãi cho đến khi chiếc Mercedes màu trắng khuất hẳn sau khúc quanh, Lưu Văn Tinh mới kéo vali cùng Du Phi rảo bước đi về phía khu tập thể.
 
-Du Phỉ gật đầu.
+“Đó là... bạn gái của Triệu Kim An à con?”
 
-Lưu Văn Tinh ngoái đầu nhìn lại lần nữa, suy nghĩ một chút rồi khẽ cười: "Mẹ đã nói Trương Tuệ sau này sẽ hối hận, không ngờ thời gian... lại nhanh đến thế."
+Du Phi khẽ gật đầu.
 
-"Mẹ, sao ngày đó mẹ lại khẳng định chắc chắn như vậy..."
+Lưu Văn Tinh ngoái đầu nhìn lại con đường vắng một lần nữa, ngẫm nghĩ một hồi rồi bật cười tự giễu: “Mẹ đã bảo rồi mà, con mụ Trương Tuệ sau này thể nào cũng có ngày hối hận đứt ruột... Chỉ không ngờ là ngày đó lại đến nhanh đến thế.”
 
-Du Phỉ nhớ lại những lời mẹ nói trên taxi ngày khai giảng.
+“Mẹ, sao ngày trước mẹ lại dám khẳng định chắc nịch như vậy chứ...”
 
-"Trương Tuệ à..."
+Du Phi nhớ lại những lời mẹ mình từng nhận xét trên chuyến taxi hôm nhập học năm ngoái.
 
-Lưu Văn Tinh cười khổ, lắc đầu nhìn con gái: "Đúng rồi, cái cô Tô Miền đó thế nào?"
+“Con mụ Trương Tuệ ấy mà...”
 
-Du Phỉ suy nghĩ một lát rồi trả lời: "Rất tốt ạ."
+Lưu Văn Tinh cười khổ một tiếng, khẽ lắc đầu nhìn con gái: “Mà này, cô bé Tô Miến kia trông thế nào con?”
 
-Phía bên kia.
+Du Phi trầm ngâm suy nghĩ trong giây lát, rồi nghiêm túc trả lời: “Rất tốt mẹ ạ, tốt đến mức không có chỗ nào để chê cả.”
 
-Chiếc Mercedes chậm rãi lăn bánh xuống dốc, Triệu Kim An Gia thôn đã bắt đầu nghi ngút khói bếp.
+***
 
-Đột nhiên có một chiếc xe như thế này đi vào, mọi người đều tò mò không biết ai đến.
+Ở một hướng khác.
 
-"Đệch!"
+Chiếc xe Mercedes từ từ lăn bánh xuống con dốc dẫn vào làng họ Triệu. Khắp xóm thôn, khói bếp chiều tà đã bắt đầu bảng lảng bay lên trên những mái ngói rêu phong.
 
-Triệu Hữu Hằng đột nhiên gào lên một tiếng: "Thím... thím nhỏ, thím đến rồi ạ!?"
+Đột nhiên thấy một chiếc xe sang trọng, bề thế xuất hiện ở đầu làng, bà con lối xóm ai nấy đều dừng tay ngước nhìn, tò mò bàn tán xem khách quý nhà ai về thăm quê.
 
-Tô Miền hạ hết tất cả cửa kính xe xuống, mỉm cười hỏi: "Hữu Hằng, ăn cơm chưa?"
+“Vãi chưởng!!”
 
-"Không phải chứ Kim An, thím nhỏ đến sao mày không báo trước một tiếng!!!"
+Triệu Hữu Hằng đang đứng bên đường bỗng nhiên hét toáng lên một tiếng thất thanh: “Thím... thím nhỏ, thím về chơi đấy à?!”
 
-Triệu Kim An: "..."
+Tô Miến liền bấm nút hạ toàn bộ kính cửa sổ xuống, nở nụ cười tươi tắn hỏi: “Hữu Hằng, ăn cơm tối chưa em?”
 
-Thôi xong.
+“Ơ kìa Kim An, thím nhỏ về mà sao anh không đánh tiếng trước một câu thế hả?!”
 
-Triệu Bác Lan nói đi ra ngoài đồng, Triệu Kim An theo bản năng liếc nhìn xuống cánh đồng lúa phía dưới.
+Triệu Kim An: “...”
 
-Xung quanh có người tụ tập lại, có người còn đang bưng bát ăn cơm.
+Thôi xong đời rồi.
 
-Triệu Hữu Hằng gào to hết cỡ: "Thím nhỏ đến rồi!!!"
+Nhớ lại lời dặn của Triệu Bác Lan bảo phải đi đường ruộng, Triệu Kim An theo bản năng liếc nhìn xuống những thửa ruộng bậc thang phía dưới.
 
-Tô Miền cứ thế mỉm cười.
+Người trong làng nghe tiếng hô hoán liền tò mò kéo lại vây quanh, có người tay vẫn còn đang bưng dở bát cơm chiều.
 
-Triệu Kim An hơi buồn bực: "Cậu cố ý."
+Triệu Hữu Hằng hít một hơi thật sâu, vươn cổ hét tướng lên khắp làng trên xóm dưới: “Thím nhỏ về làng rồi bà con ơi!!!”
 
-Tô Miền vẻ mặt tinh quái: "Cố ý cái gì cơ?"
+Tô Miến ngồi trong xe cười nghiêng ngả.
 
-"Kim An, thím nhỏ đến mà sao cháu không báo trước một tiếng?"
+Triệu Kim An dở khóc dở cười, có chút bất lực: “Em cố tình đúng không?”
 
-Lại có người trách móc Triệu Kim An.
+Tô Miến chớp chớp mắt, vẻ mặt đầy vẻ tinh quái: “Cố tình cái gì cơ chứ?”
 
-"Đúng đấy, thím nhỏ lần trước còn chưa ăn Tết ở đây đã đi rồi!"
+“Kim An này, thím nhỏ về làng mà sao mày không báo trước một tiếng thế hả cháu?”
 
-"Kim An, dì nói thật nhé, sao cháu không giữ Tô Miền lại ăn Tết?"
+Lại có thêm mấy người lớn tiếng trách móc Triệu Kim An.
 
-Điền Thúy Phượng đến rồi, vai vế bà lớn nên không cần gọi thím nhỏ, giọng nói cũng sang sảng nhất vùng.
+“Phải đấy, lần trước thím nhỏ về còn chưa kịp ở lại ăn Tết cùng làng đã vội đi rồi!”
 
-"..."
+“Kim An à, bác nói thật nhé, sao đợt Tết mày không biết đường giữ Tô Miến ở lại ăn Tết hả con?”
 
-Triệu Kim An cảm thấy tức ngực, ở Triệu Kim An Gia thôn này còn ai là người của mình nữa không?
+Bác Điền Thúy Phượng rảo bước tới gần, bác ấy vai vế lớn trong họ nên không cần phải gọi Tô Miến bằng thím nhỏ, giọng nói lại sang sảng như sấm rền.
 
-Tô Miền dặn dò: "Chí Dũng, cậu xuống xe phát thuốc lá đi, mỗi người hai bao."
+“...”
 
-Lại nữa!?
+Lồng ngực Triệu Kim An nghẹn lại, anh tự hỏi trong cái làng họ Triệu này rốt cuộc còn có ai đứng về phe mình nữa không đây?
 
-Triệu Chí Dũng ôm mấy cây thuốc lá rồi đẩy cửa bước xuống xe.
+Tô Miến quay sang dặn dò: “Trí Dũng, anh xuống xe phát thuốc lá cho các bác các chú đi, mỗi người hai bao nhé.”
 
-Quả nhiên bên ngoài lập tức trở nên náo nhiệt hơn hẳn, tiếng cười nói không ngớt, từng người một vây quanh.
+Lại trò này nữa à?!
 
-"Thím nhỏ, thím khách sáo quá, lần nào đến cũng..."
+Triệu Trí Dũng ôm mấy cây thuốc lá thượng hạng lập tức đẩy cửa nhảy xuống xe.
 
-"Tô Miền, cháu xem, đông người thế này, cháu tiêu tốn quá."
+Quả nhiên bên ngoài không khí lập tức trở nên náo nhiệt, rộn rã hẳn lên, tiếng cười nói giòn tan vang vọng khắp đường làng, bà con chòm xóm ai nấy đều hớn hở xúm lại gần xe.
 
-"Bọn dì cũng chẳng có đồ gì tốt cho cháu cả..."
+“Ôi dào thím nhỏ ơi, thím khách khí quá, lần nào về cũng...”
 
-Nói thì nói vậy, nhưng Triệu Chí Dũng cứ thế phát cho những người phụ nữ mỗi người hai bao, họ không hút thì chồng họ hút, chồng không hút thuốc thì còn có họ hàng nội ngoại các thứ.
+“Tô Miến à, cháu xem kìa, người trong làng đông thế này, cháu làm thế tốn kém quá rồi.”
+
+“Dân làng quê mùa bọn bác lại chẳng có món gì quý giá để biếu lại cháu...”
+
+Nói thì ngoài miệng khách sáo vậy thôi, chứ Triệu Trí Dũng phát thuốc cho cả các bà các cô, cứ mỗi người dúi tận tay hai bao. Phụ nữ không hút thì mang về cho chồng hút, chồng không hút thì để dành tiếp khách hay đem biếu họ hàng nội ngoại, ai nấy đều hớn hở nhận lấy không sót một ai.

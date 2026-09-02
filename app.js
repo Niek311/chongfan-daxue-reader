@@ -75,7 +75,7 @@
       }
 
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=2.5`)
+        fetch(`data/chapters/${chapterId}.json?v=3.0`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -102,7 +102,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=2.5`;
+    script.src = `data/chapters/${chapterId}.js?v=3.0`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -123,7 +123,7 @@
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=2.5');
+        const res = await fetch('data/book.json?v=3.0');
         state.bookMeta = await res.json();
       }
 
@@ -163,12 +163,20 @@
       btn.className = `toc-item ${ch.id === state.currentChapter ? 'active' : ''}`;
       btn.dataset.id = ch.id;
 
-      const titlePrimary = state.lang === 'zh' ? (ch.title.zh || ch.title) : (ch.title.vi || ch.title);
-      const titleSecondary = state.lang === 'zh' ? (ch.title.vi || '') : (ch.title.zh || '');
+      let titlePrimary, titleSecondary;
+      const hasVi = ch.title && ch.title.vi;
+
+      if (state.lang === 'zh') {
+        titlePrimary = ch.title.zh || ch.title;
+        titleSecondary = hasVi ? ch.title.vi : '<span style="opacity:0.6;">(Chưa dịch)</span>';
+      } else {
+        titlePrimary = hasVi ? ch.title.vi : (ch.title.zh || `Chương ${ch.id}`);
+        titleSecondary = hasVi ? (ch.title.zh || '') : '<span style="opacity:0.6;">(Đang chờ dịch)</span>';
+      }
 
       btn.innerHTML = `
         <span class="toc-item-title-primary">${titlePrimary}</span>
-        ${titleSecondary ? `<span class="toc-item-title-secondary">${titleSecondary}</span>` : ''}
+        <span class="toc-item-title-secondary">${titleSecondary}</span>
       `;
 
       btn.addEventListener('click', () => {
@@ -294,12 +302,33 @@
     article.appendChild(header);
 
     if (state.lang === 'vi') {
-      contentVi.forEach(p => {
-        const pElem = document.createElement('p');
-        pElem.className = 'chapter-paragraph';
-        pElem.textContent = p;
-        article.appendChild(pElem);
-      });
+      if (contentVi.length === 0) {
+        const notice = document.createElement('div');
+        notice.className = 'untranslated-box';
+        notice.innerHTML = `
+          <div style="font-size: 38px; margin-bottom: 12px;">⏳</div>
+          <h3 style="margin-bottom: 8px; font-size: 1.1em;">Chương này đang chờ cập nhật bản dịch Tiếng Việt</h3>
+          <p style="color: var(--text-muted); font-size: 0.9em; margin-bottom: 20px; line-height: 1.6;">
+            Bản dịch tiếng Việt chất lượng cao cho chương này đang được dịch và sẽ cập nhật sớm.<br>
+            Bạn có thể chuyển sang bản <strong>Tiếng Trung (kèm Pinyin)</strong> để đọc trước.
+          </p>
+          <button id="btn-fallback-zh" class="nav-chapter-btn lang-swap-btn" style="display:inline-flex; width:auto; padding:10px 24px;">
+            🇨🇳 Đọc bản Tiếng Trung (có Pinyin)
+          </button>
+        `;
+        article.appendChild(notice);
+        const fbBtn = notice.querySelector('#btn-fallback-zh');
+        if (fbBtn) {
+          fbBtn.addEventListener('click', () => setLanguage('zh'));
+        }
+      } else {
+        contentVi.forEach(p => {
+          const pElem = document.createElement('p');
+          pElem.className = 'chapter-paragraph';
+          pElem.textContent = p;
+          article.appendChild(pElem);
+        });
+      }
     } else if (state.lang === 'zh') {
       contentZh.forEach(p => {
         const pElem = document.createElement('p');

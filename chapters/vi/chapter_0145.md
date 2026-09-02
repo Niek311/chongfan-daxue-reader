@@ -1,203 +1,205 @@
-# Chương 145: Treo Lơ Lửng Chưa Quyết
+# Chương 145: Treo lơ lửng chưa quyết.
 
-Đêm khuya.
+> **Tiêu đề gốc**: 第145章 悬而未决。
 
-Từ Tắc Đống châm một điếu thuốc, một tay chống nạnh, đi tới đi lui trong phòng ngủ.
+Đêm đã về khuya.
 
-"Mạn Mạn bị làm sao vậy?"
+Từ Tắc Đống châm một điếu thuốc lá, một tay chống hông đi đi lại lại trong phòng ngủ với vẻ đăm chiêu.
 
-Lương Tuệ Trân đẩy cửa sổ ra cho bớt mùi khói, bực bội nói: "Ông từ nhỏ đã quá nghiêm khắc với nó rồi, nhà ai có con gái học năm hai đại học, cuối tuần ngủ nướng một chút còn phải hỏi qua ý kiến của bố không?"
+"Hôm nay con bé Mạn Mạn làm sao thế nhỉ?"
 
-"Nó không bảo ông mang bữa sáng vào tận nơi là tốt lắm rồi đấy."
+Lương Tuệ Trân đẩy rộng cánh cửa sổ để xua bớt làn khói thuốc mù mịt, cằn nhằn lườm chồng: "Ông từ bé đến lớn đối xử với con bé quá khắt khe rồi đấy. Con gái nhà người ta lên đại học năm hai rồi, cuối tuần muốn xin ngủ nướng một buổi lại phải rụt rè hỏi xin phép bố thế à?"
 
-"Còn nữa, nó vừa thấy ông là thần kinh đã căng thẳng hết cả lên!"
+"Nó không bắt ông phải bưng bữa sáng vào tận giường là đã có phúc lắm rồi đấy."
 
-"Không phải chuyện này..."
+"Chưa kể, cứ mỗi lần trông thấy mặt ông là thần kinh con bé lại căng cứng như dây đàn!"
 
-Từ Tắc Đống cũng không nói rõ được, ánh mắt con gái nhìn mình lúc nãy cứ như ẩn chứa một sự phản kháng.
+"Không phải là chuyện đó..."
 
-Nhưng mình cũng có nói gì đâu chứ.
+Từ Tắc Đống cũng không biết phải diễn tả thế nào cho đúng. Ánh mắt con gái nhìn ông ban nãy dường như phảng phất một sự phản kháng ngấm ngầm.
 
-Chỉ bảo sáng mai Trần Trạch sẽ lái xe đến đón con...
+Nhưng bản thân ông đâu có quát mắng hay ép buộc gì con đâu.
 
-Ở phòng bên cạnh, Từ Mạn Mạn ngủ rất ngon, cô tắt điện thoại, chẳng muốn nghĩ ngợi gì.
+Chỉ bảo sáng mai Trần Trạch sẽ lái xe qua đón sớm mà thôi...
 
-Ngày mai là cuối tuần, thị trường chứng khoán cũng không mở cửa.
+Ở căn phòng ngủ kế bên, Từ Mạn Mạn đang ngủ một giấc vô cùng ngon lành. Cô tắt nguồn điện thoại, gạt phăng mọi muộn phiền âu lo ra sau đầu.
 
-Chỉ có Trần Trạch là vẫn đang nghiên cứu thị trường, xem các bình luận trên mạng, xem phân tích của các chuyên gia và tổ chức về xu hướng tiếp theo.
+Ngày mai là cuối tuần, sàn chứng khoán cũng tạm thời đóng cửa nghỉ giao dịch.
 
-Những người chơi chứng khoán đều biết, các chuyên gia và tổ chức lúc nào cũng hô hào thị trường sẽ lên, kinh tế đang tốt dần.
+Chỉ có Trần Trạch ở nhà là vẫn cặm cụi thức trắng đêm nghiên cứu thị trường chứng khoán, miệt mài đọc từng bài phân tích, nhận định của các chuyên gia và các tổ chức tài chính lớn.
 
-Trần Trạch gọi điện cho Từ Mạn Mạn, muốn tìm một viên thuốc an thần từ chỗ cô, nhưng lại phát hiện điện thoại của Từ Mạn Mạn đã tắt máy.
+Những ai từng dấn thân vào chốn cổ trường đều hiểu rõ, các chuyên gia và công ty chứng khoán xưa nay bao giờ cũng ra rả hô hào thị trường sẽ đi lên, triển vọng kinh tế luôn rực rỡ tươi sáng.
 
-Đợt sóng thị trường bò tót này sẽ để lại ấn tượng sâu sắc cho quá nhiều người.
+Trần Trạch bấm số gọi cho Từ Mạn Mạn, tha thiết muốn tìm kiếm từ cô một viên thuốc an thần trợ tim, nhưng đầu dây bên kia chỉ vang lên tiếng tổng đài báo thuê bao đã tắt nguồn.
 
-Tính đến năm 2025, đây là đợt thị trường bò tót lớn nhất trong lịch sử, kéo dài hơn một năm, cũng là đợt có khoảng thời gian dài nhất. Chỉ cần hơi quan tâm đến kinh tế, ngay cả những tay mơ cũng đều mở tài khoản.
+Cơn sốt thị trường bò tót lần này chắc chắn sẽ khắc sâu vào tâm khảm của biết bao nhiêu thế hệ nhà đầu tư.
 
-Chẳng qua có quá nhiều người phản ứng chậm chạp, vào thị trường quá muộn.
+Tính đến tận năm 2025, đây vẫn là đợt sóng tăng trưởng lịch sử có quy mô khủng khiếp nhất, kéo dài ròng rã suốt hơn một năm trời. Những ai chỉ cần quan tâm một chút đến kinh tế, thậm chí ngay cả những tay mơ mới toanh chưa biết gì cũng đua nhau đi mở tài khoản giao dịch.
 
-Hiện tượng này không phải do người thời nay ngây thơ, ba lần thị trường bò tót lớn đều diễn ra như vậy.
+Chỉ tiếc là phần lớn đám đông đều phản ứng quá chậm chạp, nhảy vào thị trường khi bữa tiệc đã sắp sửa tàn canh.
 
-Triệu Kim An không biết thời gian cụ thể, nhưng vào ngày làm việc cuối cùng của tháng Chín, hắn đã bán sạch tất cả.
+Hiện tượng này không phải do người thời này quá ngây thơ, mà cả ba đợt đại sóng bò tót trong lịch sử tài chính đều diễn ra theo đúng một kịch bản nghiệt ngã như vậy.
 
-Và hắn cũng không có ý định quay lại thị trường cổ phiếu hạng A nữa.
+Triệu Kim An không còn nhớ rõ mốc thời gian chi tiết từng ngày, nhưng vào ngày làm việc cuối cùng của tháng 9 là cậu đã dứt khoát tất toán bán sạch danh mục đầu tư của mình.
 
-Cổ phiếu Hong Kong có Tencent, cổ phiếu Mỹ có Apple, Nvidia và nhiều mã khác.
+Hơn nữa, cậu hoàn toàn không có ý định quay trở lại thị trường cổ phiếu trong nước thêm một lần nào nữa.
 
-Chu Sở Hân gọi điện tới, cô nàng ngốc nghếch này nói đi công tác ở Phật Sơn chi phí quá lớn, đòi tăng lương.
+Sàn Hồng Kông có gã khổng lồ Tencent, sàn Mỹ thì có Apple, Nvidia và hàng loạt tên tuổi lẫy lừng khác.
 
-Triệu Kim An không nắm rõ mức lương đãi ngộ của sinh viên tốt nghiệp trường đại học 211 vào cuối năm 2007, bèn đi hỏi Triệu Bác Lan.
+Chu Sở Hân gọi điện tới, cô nàng ngốc nghếch này than thở chi phí sinh hoạt đi công tác dưới Phật Sơn quá đắt đỏ, nằng nặc đòi tăng lương.
 
-Triệu Bác Lan nói còn tùy thuộc vào bằng cấp và khu vực, có mấy anh chị khóa trên ở Thượng Hải nhận được 4, 5 ngàn tệ, hai người bạn cùng phòng của cô đi rải hồ sơ tìm việc cũng có mức lương hơn 2 ngàn.
+Triệu Kim An không nắm rõ mặt bằng lương bổng của sinh viên tốt nghiệp các trường thuộc khối 211 vào cuối năm 2007 ra sao, bèn chạy sang hỏi Triệu Bác Lan.
 
-"Hai ngàn đúng là hơi ít thật."
+Triệu Bác Lan bảo mức lương còn tùy thuộc vào các loại chứng chỉ nghề nghiệp và tùy từng khu vực địa lý. Mấy anh chị khóa trên ra Thượng Hải làm việc thì kiếm được tầm bốn, năm ngàn tệ mỗi tháng; còn hai cô bạn cùng phòng ký túc xá của cô vừa rải hồ sơ xin việc thì nhận được mức lương khởi điểm hơn hai ngàn tệ.
 
-Triệu Kim An gật đầu, hắn nhớ công việc đầu tiên của mình vào năm 2009 là 3.400 tệ.
+"Hai ngàn tệ thì đúng là hơi ít thật."
 
-Triệu Bác Lan vẻ mặt mong đợi: "Kim An, lương của chị cũng chỉ có hai ngàn thôi."
+Triệu Kim An khẽ gật đầu, cậu nhớ lại năm 2009 khi mới ra trường kiếp trước, mức lương cho công việc đầu tiên của mình là ba ngàn bốn trăm tệ.
 
-Triệu Kim An: "..."
+Triệu Bác Lan ngước đôi mắt tròn xoe đầy vẻ mong đợi: "Kim An, lương hàng tháng của em hiện tại cũng chỉ vỏn vẹn có hai ngàn tệ thôi đấy."
 
-"Sau đó em chưa tăng lương cho chị à?"
+Triệu Kim An nghẹn lời: "..."
 
-"Em đúng là chú ruột của chị đấy."
+"Sau đó anh chưa tăng lương cho em lần nào à?"
 
-Triệu Bác Lan nắm rõ tình hình tài chính của công ty, tuy chi phí bỏ ra rất lớn nhưng đã thấy được lợi nhuận, cô nói: "Kim An, lên năm tư tốt nghiệp là bọn chị phải tự tìm nhà ở rồi."
+"... Cậu đúng là chú ruột tốt của cháu gái đấy."
 
-"Vậy thì cho nhiều hơn bạn cùng phòng của các chị một chút, 3 ngàn đi."
+Triệu Bác Lan là người nắm rõ như lòng bàn tay tình hình tài chính của công ty. Dù chi phí đầu tư mở rộng dạo này rất lớn, nhưng dòng tiền lợi nhuận đổ về đã bắt đầu thấy rõ, cô liền thủ thỉ: "Kim An, năm tư bọn em tốt nghiệp ra trường là phải tự dọn ra ngoài thuê phòng trọ rồi đấy."
 
-Triệu Kim An nghĩ bụng, Triệu Bác Lan và Chu Sở Hân đi theo mình, tổng không thể sống tệ hơn bạn cùng phòng của họ được, đây không chỉ là chuyện của hai người họ... mà chính mặt mũi hắn cũng không để đâu cho hết.
+"Thế thì tăng lên cho cao hơn bạn cùng phòng các cô một chút, tròn ba ngàn tệ nhé."
 
-Tâm lý này cũng bình thường thôi.
+Triệu Kim An thầm nghĩ, Triệu Bác Lan và Chu Sở Hân đã chịu khó đi theo phụ tá cho cậu từ những ngày đầu khởi nghiệp, tuyệt đối không thể để hai cô nàng sống chật vật, thua kém bạn bè cùng trang lứa được. Điều đó không chỉ ảnh hưởng đến đời sống của hai cô... mà chính mặt mũi của cậu và công ty cũng chẳng lấy gì làm vẻ vang.
 
-Thực ra bạn cùng phòng của họ từng khuyên Triệu Bác Lan và Chu Sở Hân nên đến các thành phố lớn mà xông pha, ở đó nhiều cơ hội hơn.
+Tâm lý này là lẽ thường tình của một người làm chủ.
 
-Đặc biệt là Chu Sở Hân.
+Thực ra mấy cô bạn cùng phòng từng hết lời khuyên can Triệu Bác Lan và Chu Sở Hân nên khăn gói lên các đại đô thị mà lập nghiệp, vì ở đó có vô vàn cơ hội thăng tiến.
 
-Sư Đại cũng được coi là trường đại học danh tiếng, giá trị bằng cấp của sinh viên thời nay vẫn còn khá cao. Kết quả là Chu Sở Hân không tìm công việc đúng chuyên môn, suốt ngày chạy đôn chạy đáo bên ngoài, chẳng phải phí hoài bốn năm đại học sao?
+Đặc biệt là trường hợp của Chu Sở Hân.
 
-Triệu Bác Lan không nói cho bố mẹ biết mình đang làm việc ở công ty của Triệu Kim An, nhưng đã gọi điện báo cho họ rằng mình được tăng lương.
+Đại học Sư phạm dù sao cũng là trường danh tiếng, bằng cấp đại học thời này vẫn còn nguyên giá trị kim cương. Thế mà Chu Sở Hân lại chẳng chịu tìm công việc đúng chuyên ngành đào tạo, suốt ngày phơi mặt ngoài đường chạy đôn chạy đáo khắp các xưởng sản xuất, chẳng lẽ bốn năm đèn sách trên giảng đường lại đổ sông đổ biển hết hay sao?
 
-Chu Sở Hân lại càng trực tiếp hơn, gọi điện nịnh nọt Triệu Kim An một trận, nói yêu hắn chết đi được.
+Triệu Bác Lan không hề tiết lộ với bố mẹ chuyện mình đang làm việc cho công ty của Triệu Kim An, nhưng cô đã hí hửng gọi điện về nhà khoe rằng mình vừa được sếp tăng lương.
 
-Có lẽ 3 ngàn vào năm 2007 là hơi cao thật, nhưng chỉ hai năm nữa thôi, số tiền này sẽ không đủ để mua nổi một chiếc "điện thoại bán thận" đâu.
+Chu Sở Hân thì khỏi phải nói, cô nàng lập tức bấm máy gọi cho Triệu Kim An, bắn một tràng nịnh nọt dài dằng dặc, còn hét tướng lên trong điện thoại rằng yêu sếp chết đi được.
 
-Bên này Triệu Kim An đang tăng lương cho nhân viên.
+Có lẽ mức lương ba ngàn tệ vào năm 2007 là một con số tương đối cao và đáng mơ ước, dẫu rằng chỉ hai năm sau thôi, ngần ấy tiền cũng chẳng đủ để mua nổi một chiếc iPhone "đổi một quả thận".
 
-Bên kia Dương Thù Mỹ lại không còn cách nào khác, đành phải bán tháo một ít cổ phiếu để trả lương cho công nhân vốn đã bị chậm trễ vài ngày.
+Trong khi bên này Triệu Kim An hào phóng tăng lương cho cấp dưới.
 
-Gia công thường là ngành sản xuất sử dụng nhiều lao động, hàm lượng kỹ thuật thấp, công nhân trong xưởng lại đông.
+Thì ở một diễn biến khác, Dương Thục Mỹ buộc phải cắn răng bán tháo một lượng cổ phiếu chịu lỗ nặng để gom tiền thanh toán khoản lương đang nợ công nhân suốt mấy ngày qua.
 
-Chậm vài ngày thì được, nhưng nếu kéo dài lâu hơn.
+Mô hình gia công sản xuất vốn dĩ là ngành thâm dụng lao động, hàm lượng công nghệ thấp nên số lượng công nhân trong xưởng cực kỳ đông đúc.
 
-Người ta sẽ không làm nữa, rồi đồn ầm lên là xưởng không trả nổi lương.
+Khất nợ vài ba ngày thì còn bấm bụng chịu được, chứ nếu dây dưa kéo dài.
 
-Thời gian này Dương Thù Mỹ tâm lực tiều tụy, cổ phiếu của bà đã bị kẹt cứng.
+Công nhân chắc chắn sẽ đình công làm ầm ĩ lên, rồi tin đồn thất thiệt xưởng sắp vỡ nợ phá sản sẽ lan truyền khắp nơi.
 
-Có lẽ do cơ địa, vóc dáng bà không hề gầy đi mà vẫn rất đầy đặn. Bà đứng dậy, kéo lại ống quần xuống dưới.
+Khoảng thời gian này Dương Thục Mỹ tâm lực hao mòn, tiều tụy đến cùng cực vì toàn bộ khối tài sản bị kẹp cứng trên sàn chứng khoán.
 
-Vòng eo thon, hông hơi rộng, phần mông nhiều thịt.
+Có lẽ do cơ địa trời phú, vóc dáng của bà không hề bị sụt cân gầy gò đi chút nào, thân hình vẫn giữ được nét đẫy đà, quyến rũ. Mỗi lần đứng dậy khỏi ghế làm việc, bà lại phải theo thói quen đưa tay kéo nhẹ ống quần lên.
 
-Không kéo một cái không được, kẽ hở lộ rõ quá.
+Vòng eo thon gọn, bờ hông nở nang, vòng ba nảy nở đẫy đà.
 
-Dương Thù Mỹ từng nghĩ đến việc bán hết cổ phiếu đi, nhưng lại không cam tâm. Bà vốn dĩ từ bỏ công việc ổn định để xuống biển kinh doanh, trong xương tủy đã có sẵn máu liều, nếu không cũng chẳng có dũng khí vứt bỏ "bát cơm sắt".
+Nếu không kéo chỉnh lại một chút thì nếp gấp quần sẽ bó sát lộ liễu.
 
-Có lẽ bây giờ bà cũng đang làm cùng một đơn vị với Lương Tuệ Trân rồi.
+Dương Thục Mỹ đã từng nghĩ đến việc dứt khoát cắt lỗ bán tháo toàn bộ cổ phiếu, nhưng trong lòng lại tiếc nuối không cam tâm. Bản thân bà vốn là người dám từ bỏ biên chế nhà nước để nhảy ra ngoài biển lớn kinh doanh, trong huyết quản luôn có sẵn máu liều lĩnh ăn thua, nếu không có chút máu cờ bạc ấy thì bà đâu đủ dũng khí vứt bỏ bát cơm sắt ổn định.
 
-Người đầu tiên phát hiện ra Trần Trạch có "biến đổi" là Lưu Sấm Phong.
+Nếu không thì giờ này chắc bà vẫn đang ngồi chung một cơ quan nhà nước với Lương Tuệ Trân rồi.
 
-"Trạch ca, sao anh lại hút Hoàng Phù rồi? Chẳng phải ít nhất anh cũng phải hút Thanh Phù sao?"
+Người đầu tiên nhận ra "sự thay đổi" nơi Trần Trạch chính là Lưu Sấm Phong.
 
-Lưu Sấm Phong chỉ là đùa giỡn giữa những người bạn cùng phòng.
+"Trạch ca, sao dạo này cậu lại chuyển sang hút Phù Dung Vàng thế kia? Cỡ công tử như cậu bét nhất cũng phải chơi Phù Dung Lam chứ?"
 
-Trần Trạch lại để tâm.
+Lưu Sấm Phong chỉ buông lời trêu đùa vui vẻ giữa anh em cùng phòng.
 
-Nếu là trước kia, cho dù cầm điếu thuốc Bạch Sa trên tay, Trần Trạch cũng sẽ không để bụng.
+Nhưng Trần Trạch lại để bụng suy nghĩ.
 
-Triệu Kim An đột nhiên phát hiện Lưu Sấm Phong quan sát rất tinh tế, kiếp trước hắn chẳng nhận ra điều gì, có lẽ cũng vì kiếp trước thời đại học hắn không hút thuốc.
+Nếu là trước kia, dẫu trong tay có cầm điếu thuốc lá Bạch Sa giá rẻ đi chăng nữa, Trần Trạch cũng chẳng bao giờ mảy may bận tâm để trong lòng.
 
-Lưu Sấm Phong vẫn đang luyên thuyên: "Kim An cũng đang hút Hoàng Phù này."
+Triệu Kim An chợt nhận ra khả năng quan sát của Lưu Sấm Phong vô cùng tinh tế nhạy bén, ở kiếp trước bản thân cậu chẳng hề nhận ra những tiểu tiết này, âu cũng là do thời đại học kiếp trước cậu không hề biết hút thuốc.
 
-"Mày có lấy không!?"
+Lưu Sấm Phong vẫn hồn nhiên bồi thêm một câu: "Kim An dạo này cũng hút loại Phù Dung Vàng này này."
 
-Giọng điệu Trần Trạch không tốt lắm, ném một điếu qua.
+"Cậu có hút không thì bảo?!"
 
-"Lấy chứ, lấy chứ, hì hì." Lưu Sấm Phong cười hì hì đón lấy.
+Giọng điệu Trần Trạch lộ rõ vẻ bực bội gắt gỏng, cậu ta tiện tay ném mạnh một điếu thuốc qua giường bên kia.
 
-Trần Trạch đột nhiên nhìn Triệu Kim An, có một cảm giác không nói nên lời.
+"Hút chứ, hút chứ, hề hề." Lưu Sấm Phong cười hề hề đưa tay chộp lấy.
 
-Từ lúc báo danh nhập học năm nhất, Triệu Kim An đã cho người ta cảm giác nhà rất có điều kiện, ngay cả sau khi lộ ra là sinh viên nghèo, ảo giác này cũng không hề tan biến.
+Trần Trạch bỗng ngẩng đầu nhìn chằm chằm vào Triệu Kim An, trong lòng trào dâng một cảm giác kỳ lạ khó tả thành lời.
+
+Ngay từ ngày đầu tiên nhập học năm nhất, Triệu Kim An đã luôn toát ra một phong thái tự tin, đĩnh đạc hệt như một thiếu gia xuất thân từ gia đình quyền quý giàu sang. Dù sau này có lộ ra chuyện cậu là sinh viên diện hộ nghèo có hoàn cảnh khó khăn, thì cái ảo giác vương giả ấy dường như cũng chẳng hề bị phai nhạt đi chút nào.
 
 Thậm chí...
 
-Trần Trạch từng có lúc cảm thấy nhà Triệu Kim An còn giàu hơn nhà mình.
+Đã có lúc Trần Trạch từng tin chắc rằng gia thế của Triệu Kim An còn giàu có, môn đăng hộ đối hơn cả nhà mình.
 
-Hắn từng xếp thứ tự, trong hai phòng 303 và 406 thì Thẩm Tử Ngôn đứng nhất, hắn và Triệu Kim An ngang ngửa nhau.
+Cậu ta từng thầm xếp hạng độ giàu có giữa các thành viên của hai phòng: Thẩm Tử Ngôn chắc chắn đứng số một, còn bản thân cậu và Triệu Kim An thì ngang cơ nhau.
 
-Cảm nhận được ánh mắt của Trần Trạch sau lưng, Triệu Kim An cũng quay người nhìn lại.
+Cảm nhận được ánh mắt của Trần Trạch đang dán vào lưng mình, Triệu Kim An cũng thong thả quay người lại nhìn thẳng vào mắt cậu ta.
 
-Trần Trạch quay mặt đi chỗ khác.
+Trần Trạch vội vàng né tránh, quay mặt đi chỗ khác.
 
-Không đúng, có gì đó không đúng...
+Không đúng, có gì đó rất kỳ lạ...
 
-Trần Trạch chợt nhớ ra, dường như chỉ có Triệu Kim An là không gọi hắn là "Trạch ca". Triệu Kim An gọi ai cũng đều bình đẳng bằng tên, chỉ gọi mỗi Lưu Sấm Phong là xá trưởng.
+Trần Trạch chợt nhớ ra một chi tiết, hình như trong phòng này chỉ có duy nhất Triệu Kim An là chưa từng gọi cậu một tiếng "Trạch ca". Cậu ấy đối xử với bất kỳ ai cũng bình đẳng xưng hô bằng tên riêng, duy chỉ gọi Lưu Sấm Phong một tiếng "trưởng phòng".
 
-Thực ra là do nội tâm Trần Trạch quá nhạy cảm thôi, Lưu Sấm Phong và Triệu Kim An chẳng hề thay đổi gì cả.
+Thực chất là do tâm lý của Trần Trạch dạo này trở nên quá đỗi nhạy cảm và tự ti mà thôi, chứ cả Lưu Sấm Phong lẫn Triệu Kim An trước sau vẫn luôn cư xử như vậy.
 
-Đêm khuya.
+Đêm hôm đó.
 
-Thẩm Tử Ngôn đột nhiên nhận được tin nhắn của Trần Trạch.
+Thẩm Tử Ngôn bất ngờ nhận được tin nhắn QQ từ Trần Trạch.
 
-Thiếu gia Trạch: "Thẩm Tử Ngôn, nghe nói nhà cậu cũng mua cổ phiếu, cậu thấy xu hướng sắp tới thế nào?"
+Trạch Thiếu: [Thẩm Tử Ngôn, nghe nói nhà cậu cũng có đầu tư cổ phiếu, cậu đánh giá xu hướng sắp tới sẽ thế nào?]
 
-Thẩm Tử Ngôn nhìn sang giường của Từ Mạn Mạn, cô đại khái đã đoán được, cũng biết Trần Trạch không thực sự đến để nghe mình phân tích, hắn chỉ muốn tìm kiếm một sự đồng điệu.
+Thẩm Tử Ngôn liếc nhìn sang giường của Từ Mạn Mạn, cô đoán được phần nào câu chuyện, và thừa hiểu Trần Trạch nhắn tin cho mình không phải thực lòng muốn nghe phân tích chuyên môn, mà cậu ta chỉ đang khao khát tìm kiếm một sự đồng tình ủng hộ để tự trấn an bản thân mà thôi.
 
-Con người là vậy đấy, chỉ muốn nghe những gì mình muốn nghe.
+Bản tính con người vốn dĩ là như vậy, chỉ thích nghe những điều êm tai mà mình mong muốn.
 
-Thẩm Tử Ngôn: "Nhà tôi bán từ lâu rồi, cá nhân tôi không lạc quan lắm."
+Thẩm Tử Ngôn: [Cổ phiếu nhà mình đã bán sạch từ lâu rồi, cá nhân mình không hề lạc quan về thị trường này.]
 
-Thiếu gia Trạch: "Tại sao? Các chuyên gia đều phân tích là sẽ tăng mà, bảo là các yếu tố cơ bản không hề xấu đi, hiện tại chỉ là điều chỉnh thôi."
+Trạch Thiếu: [Tại sao chứ? Các chuyên gia kinh tế trên mạng đều khẳng định thị trường sẽ sớm bật tăng trở lại mà, họ bảo nền tảng vĩ mô không hề xấu đi, đây chỉ là đợt điều chỉnh kỹ thuật thôi.]
 
-Trần Trạch còn gửi kèm theo mấy cái đường dẫn.
+Trần Trạch còn gửi kèm theo mấy đường link dẫn tới các bài phân tích của chuyên gia.
 
-Thẩm Tử Ngôn biết ngay sẽ như vậy, Trần Trạch chỉ muốn cô đồng ý với hắn.
+Thẩm Tử Ngôn biết ngay mọi chuyện sẽ diễn biến theo chiều hướng này, Trần Trạch chỉ muốn cô hùa theo quan điểm của cậu ta.
 
-Cô cũng không trả lời tin nhắn của Trần Trạch nữa.
+Thế nên cô dứt khoát không buồn trả lời tin nhắn nữa.
 
-Nếu mình thực sự khuyên hắn bán, vạn nhất thị trường chứng khoán tăng giá, mình lại trở thành tội đồ.
+Nếu bản thân mở lời khuyên cậu ta dứt khoát cắt lỗ bán tháo, lỡ như ngày mai thị trường bật tăng trở lại thật thì cô lại vô tình biến thành kẻ tội đồ phá hoại.
 
-Chuyện kiểu này người có chút EQ sẽ không bao giờ làm.
+Những chuyện nhạy cảm như thế này, người có chút chỉ số EQ sẽ chẳng bao giờ dại dột nhúng tay vào.
 
-Mỗi tối Từ Mạn Mạn vẫn theo dõi các thông tin kinh tế, cũng như các bài bình luận chứng khoán, thậm chí còn đeo tai nghe nghe các cuộc phỏng vấn, phân tích của các học giả kinh tế trên kênh tài chính.
+Từ Mạn Mạn mỗi đêm vẫn duy trì thói quen theo dõi các bản tin kinh tế tài chính và các bài bình luận thị trường, thậm chí còn đeo tai nghe lắng nghe các buổi phỏng vấn chuyên sâu của các học giả kinh tế trên kênh truyền hình.
 
-Nhưng cô không thèm bận tâm đến những câu hỏi kiểu này của Trần Trạch nữa.
+Nhưng cô tuyệt nhiên không bao giờ trả lời những câu hỏi mang tính chất tìm kiếm sự an ủi của Trần Trạch nữa.
 
-Thế nên buổi tối Trần Trạch mới lại muốn thảo luận với Thẩm Tử Ngôn.
+Chính vì vậy mà đêm nay Trần Trạch mới chuyển hướng sang muốn tìm Thẩm Tử Ngôn để mổ xẻ thảo luận.
 
-"Tôi nói này Tử Ngôn, Mạn Mạn, hai người các cậu thời gian này rốt cuộc đang làm cái gì thế?"
+"Này Tử Ngôn, Mạn Mạn, hai cậu dạo này rốt cuộc đang bận rộn cái trò gì thế hả?"
 
-Diêu Tân nhịn không nổi nữa: "Ký túc xá của chúng ta sắp thành nơi làm việc rồi, tôi với Dao Dao còn chẳng dám nói to, các cậu có thể trò chuyện một lát không? Ngày nào lên giường cũng ôm khư khư cái máy tính."
+Diêu Tân rốt cuộc không nhịn nổi nữa liền lên tiếng than thở: "Phòng ký túc xá của chúng mình sắp biến thành văn phòng công sở làm việc rồi đấy. Mình với Dao Dao đến nói to một câu cũng thấy ngại. Hai cậu có thể dành chút thời gian buôn chuyện với anh em được không? Ngày nào leo lên giường cũng ôm khư khư chiếc máy tính thế kia."
 
-Mộc Dao ngồi xếp bằng trên giường hút sữa: "Diêu Tân, cậu có uống không? Tự lấy đi."
+Mộc Dao ngồi xếp bằng trên giường vừa mút hộp sữa tươi vừa cười bảo: "Diêu Tân, cậu có uống sữa không? Tự lấy mà uống nhé."
 
-Thẩm Tử Ngôn liếc nhìn Từ Mạn Mạn: "Các cậu không quan tâm đến thị trường chứng khoán à?"
+Thẩm Tử Ngôn liếc nhìn Từ Mạn Mạn một cái: "Mấy cậu không theo dõi thị trường chứng khoán à?"
 
-Diêu Tân trèo xuống giường lấy sữa: "Bọn tôi có tiền đâu mà chơi chứng khoán, xem cái đó làm gì."
+Diêu Tân trèo xuống giường lấy hộp sữa: "Tụi mình lấy đâu ra tiền mà chơi cổ phiếu, xem mấy cái thứ nhức đầu đó làm gì cho mệt xác."
 
-Bốn cô gái phòng 406 đều rất hào phóng, có điều con gái khác với con trai, ở ký túc xá nam ngoại trừ tiền để trên bàn không ai lấy, còn những thứ khác thì không được để lung tung.
+Bốn cô gái trong phòng 406 xưa nay đều rất hào phóng xởi lởi với nhau. Tuy nhiên con gái và con trai hoàn toàn khác biệt, ở ký túc xá nam thì ngoại trừ tiền mặt để trên bàn không ai dám đụng vào ra, còn những thứ đồ đạc khác đều có thể tùy tiện xài chung.
 
-Mộc Dao đã nhìn qua của Thẩm Tử Ngôn, lại so sánh với của mẹ mình, thế nên muốn uống thêm sữa để chóng lớn hơn một chút.
+Mộc Dao từng nhìn ngắm khuôn ngực đầy đặn của Thẩm Tử Ngôn, lại so sánh với vòng một đẫy đà của mẹ mình, nên dạo này tích cực uống thật nhiều sữa tươi để mong cải thiện kích thước.
 
-Quy mô của mẹ lớn như vậy, chứng tỏ không phải vấn đề do gen di truyền.
+Khuôn ngực của mẹ đồ sộ như thế, chứng tỏ đây hoàn toàn không phải do gen di truyền khiếm khuyết.
 
-Còn nữa, của Từ Mạn Mạn dường như cũng rất săn chắc.
+Chưa kể, vòng một của Từ Mạn Mạn dường như cũng rất săn chắc và căng tràn.
 
-Mộc Dao nhìn xuống của mình, có chút khổ tâm.
+Mộc Dao cúi đầu nhìn xuống ngực mình, khẽ thở dài đầy vẻ buồn phiền.
 
-Cô và Diêu Tân đúng là chẳng quan tâm gì đến mấy chuyện kia.
+Cô và Diêu Tân thực sự chẳng hề bận tâm đến mấy chuyện kinh tế vĩ mô làm gì.
 
-Cả Từ Mạn Mạn và Thẩm Tử Ngôn đều có nỗi lòng riêng, một người đang bị thị trường chứng khoán dày vò khổ sở, một người là do chiến lược công ty gia đình phải điều chỉnh, làm sao mà nói chuyện vui vẻ nổi.
+Cả Từ Mạn Mạn lẫn Thẩm Tử Ngôn lúc này đều đang ôm trong lòng những nỗi trăn trở ngổn ngang riêng. Một người thì đang khổ sở giằng xé cùng gia đình bạn trai trong cơn bão sập sàn chứng khoán, một người thì đang đau đầu cân não điều chỉnh lại toàn bộ chiến lược kinh doanh sống còn của gia tộc, tâm trí đâu mà rảnh rang ngồi buôn chuyện phiếm.
 
-Kiểu treo lơ lửng chưa quyết này là giày vò người nhất.
+Cái cảm giác mọi việc cứ lơ lửng, treo lơ lửng chưa ngã ngũ này mới chính là thứ gặm nhấm, giày vò tâm can con người ta kinh khủng nhất.
 
-Thậm chí là Thẩm Tử Ngôn cũng lo lắng mình phán đoán sai lầm, khiến công ty gia đình lỡ mất thời cơ phát triển, còn đẩy khách hàng cũ sang cho người khác.
+Ngay cả một cô gái bản lĩnh như Thẩm Tử Ngôn cũng không khỏi thầm lo sợ rằng phán đoán của mình là sai lầm, sợ rằng công ty của gia đình sẽ bỏ lỡ mất cơ hội ngàn vàng để phát triển, rồi đẩy hết khách hàng ruột vào tay đối thủ cạnh tranh...

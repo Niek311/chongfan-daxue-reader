@@ -1,179 +1,217 @@
-# Chương 60: Sự Thật Phơi Bày
+# Chương 60: Sự thật phơi bày
 
-Nghe vậy, tất cả mọi người đều nhìn về phía Triệu Kim An, vẻ mặt đầy hóng hớt.
+> **Tiêu đề gốc**: 第60章 真相了。
 
-Thẩm Tử Ngôn rất để ý đến các chi tiết, cách Triệu Kim An ăn uống tỏ ra rất có giáo dưỡng, gu ăn mặc cũng không tệ, nhà làm kinh doanh nhỏ sao? Thẩm Tử Ngôn có chút hoài nghi.
+Nghe thấy câu hỏi ấy của Trần Trạch, tất cả mọi người có mặt trong phòng bao đồng loạt dồn ánh mắt về phía Triệu Kim An, gương mặt ai nấy đều tràn ngập vẻ tò mò hóng hớt.
 
-Thấy Triệu Kim An không nói lời nào, Diêu Tân liền trêu chọc: "Triệu Kim An, Mộc Dao nói nhà cậu chỉ làm kinh doanh nhỏ, cậu không phải là công tử của chuỗi cửa hàng toàn quốc nào đó đấy chứ?"
+Thẩm Tử Ngôn vốn là người vô cùng tinh tế, cô luôn để ý từng cử chỉ nhỏ nhặt nhất: Tác phong ăn uống của Triệu Kim An toát lên vẻ có học thức và gia giáo vô cùng sâu sắc, gu ăn mặc cũng rất đỗi nhã nhặn, chỉn chu. Gia đình cậu ấy mà chỉ làm ăn buôn bán nhỏ lẻ thôi ư? Trong lòng Thẩm Tử Ngôn dấy lên vài phần hoài nghi.
 
-"Kiểu như tốt nghiệp đại học xong là về nhà kế thừa gia sản hàng tỷ ấy?"
+Thấy Triệu Kim An chỉ im lặng không đáp, Diêu Tân liền cười hì hì trêu chọc:
 
-Mọi người cười rộ lên, không khí náo nhiệt hơn hẳn.
+— Triệu Kim An này, Mộc Dao bảo nhà cậu chỉ làm ăn nhỏ thôi, chẳng lẽ cậu lại là công tử thế gia của một tập đoàn chuỗi bán lẻ toàn quốc nào đó à? Cái kiểu mà học xong đại học một cái là phải về quê kế thừa khối gia sản trăm tỷ ấy hả?
 
-Triệu Kim An quay đầu nhìn Mộc Dao.
+Cả bàn ăn lập tức rộ lên những tràng cười ròn rã, bầu không khí lại trở nên náo nhiệt hẳn lên.
 
-Quả nhiên giống hệt kiếp trước.
+Triệu Kim An quay đầu lại, khẽ đưa mắt nhìn sang Mộc Dao.
 
-Chuyện đi làm thêm, qua miệng Mộc Dao lại trở thành đi trải nghiệm cuộc sống.
+Quả nhiên... y hệt như kiếp trước.
 
-"Kim An, cậu nhìn Mộc Dao làm gì, mau nói đi, đừng ra vẻ bí mật thế!"
+Nếu sau này anh có đi làm thêm bưng bê, rửa bát kiếm sống, thì qua miệng lưỡi của Mộc Dao, nó cũng sẽ được mỹ miều hóa thành “đi trải nghiệm cuộc sống của giới bình dân”.
 
-"Đúng đấy Kim An, thỏa mãn trí tò mò của chúng tôi chút đi."
+— Kim An này, mày cứ nhìn chằm chằm vào Mộc Dao làm gì thế, mau nói thật cho anh em nghe xem nào, đừng có úp úp mở mở làm bộ bí hiểm nữa!
 
-"Hay thực sự là công tử nhà nào, sợ giàu quá bị người ta để mắt bắt cóc à? Ha ha ha, yên tâm, tụi này làm vệ sĩ cho cậu!"
+— Đúng đấy Kim An, mau thỏa mãn trí tò mò của tụi này đi chứ!
 
-Sự tò mò của mọi người đều bị khơi dậy.
+— Hay là công tử nhà giàu thứ thiệt thật, sợ lộ tẩy gia thế khủng rồi bị người ta nhắm tới bắt cóc tống tiền hả? Hahaha, cứ yên tâm đi, anh em bọn tao tình nguyện làm vệ sĩ không công cho mày!
 
-Lưu Sấm Phong và Cốc Siêu Thừa đã uống chút rượu nên bắt đầu thúc giục.
+Tính hiếu kỳ của đám thanh niên bị khơi gợi lên tới đỉnh điểm.
 
-Mộc Dao nhỏ giọng hỏi: "Kim An, chị họ của anh..."
+Lưu Sùng Phong và Cốc Siêu Thừa sau khi nhấp vài ngụm bia thì bắt đầu hưng phấn lên tiếng giục giã liên hồi.
 
-Triệu Kim An lắc đầu, nói: "Tôi không có chị họ."
+Mộc Dao cắn nhẹ môi dưới, ghé sát tai thì thầm dò hỏi:
 
-Ý của Mộc Dao, Triệu Kim An hiểu, chính là bảo hắn cứ thuận theo chuyện "chị họ" mà nói là được.
+— Kim An à, chuyện chị họ của anh...
 
-Hai người nhìn nhau, Mộc Dao ở dưới gầm bàn lôi kéo Triệu Kim An, lắc đầu, vẻ mặt đầy cầu khẩn, ý bảo hắn cứ nói đại cái gì đó đi, dù sao cũng chẳng ai đi kiểm chứng.
+Triệu Kim An khẽ lắc đầu, cất giọng rành rọt:
 
-Nhìn khuôn mặt nhỏ nhắn xinh đẹp này, Triệu Kim An cảm thấy vừa quen thuộc lại vừa xa lạ.
+— Tớ không có chị họ nào cả.
 
-"Reng reng reng."
+Ý tứ trong mắt Mộc Dao lúc này, Triệu Kim An sao lại không hiểu cho được. Cô nàng chỉ muốn anh thuận nước đẩy thuyền, cứ việc thừa nhận câu chuyện “bà chị họ giàu có lái xe bạc tỷ” là êm xuôi mọi bề.
 
-Đúng lúc này, điện thoại vang lên.
+Hai ánh mắt chạm nhau, Mộc Dao luống cuống thò tay xuống dưới gầm bàn kéo mạnh vạt áo Triệu Kim An, khẽ lắc đầu, ánh mắt ánh lên vẻ van nài tha thiết, ý bảo anh cứ việc bịa đại ra một lý do nào đó cũng được, đằng nào thì ở đây cũng làm gì có ai rảnh rỗi đi truy cứu, xác minh ngọn ngành.
 
-Triệu Kim An rút điện thoại ra nhìn một cái, lập tức đứng dậy nghe máy.
+Nhìn gương mặt thanh tú, kiều diễm trước mắt, trong lòng Triệu Kim An bỗng dâng lên một cảm giác vừa thân quen đến xót xa, lại vừa xa lạ đến lạnh lùng.
 
-Hành động này khiến Thẩm Tử Ngôn và Từ Mạn Mạn rất ngạc nhiên xen lẫn tò mò, Triệu Kim An là người lạnh lùng như thế, cuộc gọi của ai mà hắn lại tích cực vậy chứ?
+“Reng... reng... reng——”
 
-Triệu Kim An đứng dậy đi tới bên cửa sổ, áp điện thoại vào tai khẽ gọi một tiếng: "Bà nội."
+Đúng vào khoảnh khắc ngột ngạt ấy, chuông điện thoại trong túi quần anh bỗng dồn dập reo vang.
 
-"Ơi~"
+Triệu Kim An móc điện thoại ra nhìn lướt qua màn hình, sắc mặt lập tức thay đổi, vội vã đứng phắt dậy chuẩn bị nghe máy.
 
-Đầu dây bên kia, bà nội rất vui vẻ, nói hai con lợn nuôi ở nhà, con lớn hôm nay có người đến thu mua, bán được giá lắm, tận hơn chín trăm tệ cơ.
+Hành động vội vã, khác thường này khiến cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều không khỏi bất ngờ xen lẫn tò mò. Một người trước giờ luôn điềm đạm, lạnh nhạt và thong dong như Triệu Kim An, rốt cuộc là cuộc gọi của nhân vật thần thánh phương nào mà có thể khiến cậu ấy trở nên sốt sắng, cung kính đến nhường này?
 
-Bà còn nói qua hai ngày nữa sẽ đi mua một con nhỏ về, con hiện tại nuôi thêm một thời gian nữa là lại bán được tiền, trong nhà còn có gà vịt, bảo Triệu Kim An đừng lo lắng chuyện nhà, ở trường cứ lo học hành cho tốt, thiếu tiền thì gọi điện về nhà.
+Triệu Kim An rảo bước đi thẳng tới bên khung cửa sổ sát đất, hai tay nâng niu chiếc điện thoại áp vào tai, cất giọng trầm ấm, nghẹn ngào:
 
-Nếu không phải đã có tiền học phí, bà nội vốn định đến kỳ nghỉ hè mới bán hai con lợn, cộng thêm hơn hai nghìn tệ bà "tích cóp" được là vừa đủ tiền học.
+— Bà nội ạ...
 
-Triệu Kim An cầm điện thoại không lên tiếng, chăm chú lắng nghe, nhưng trong lòng lại thấy nghẹn ngào.
+— Ơi, bà đây cháu đích tôn của bà!
 
-"Bà nội, cháu có tiền, bà đừng vất vả như vậy."
+Đầu dây bên kia truyền đến giọng nói run run nhưng tràn ngập niềm hân hoan khôn xiết của bà cụ. Bà mừng rỡ khoe rằng hai con lợn nuôi sau vườn nhà, hôm nay có người lái buôn đến tận chuồng trả giá hỏi mua con lợn lớn, bán được giá hời lắm, thu về tận hơn 900 tệ cơ đấy.
 
-Bà nội ở tuổi này tai hơi lãng, hình như không nghe thấy.
+Bà còn hào hứng bảo dăm bữa nữa bà sẽ sang làng bên mua thêm một con lợn giống nhỏ về nuôi tiếp, con lợn nhỡ còn lại trong chuồng nuôi thêm một thời gian ngắn nữa là cũng có thể xuất chuồng bán lấy tiền. Trong sân nhà vẫn còn cả đàn gà đàn vịt béo múp míp, bà dặn Triệu Kim An ở trên thành phố cứ yên tâm mà chuyên tâm dùi mài kinh sử, đừng có bận lòng lo nghĩ chuyện ở quê nhà, hễ thiếu thốn tiền bạc ăn học thì cứ việc gọi điện về cho bà.
 
-Cuối cùng bà lại hỏi Triệu Kim An có nhớ nhà không.
+Nếu không phải vì Triệu Kim An đã tự lo liệu xong khoản tiền học phí từ trước, thì theo kế hoạch ban đầu của bà nội, bà đã định bán phắt cả đôi lợn ấy từ đợt nghỉ hè, gom góp cùng với số tiền hơn hai nghìn tệ bà dành dụm, chắt chiu dưới đáy hòm bấy lâu nay là vừa vặn gom đủ tiền đóng học phí đại học cho đứa cháu cưng.
 
-Triệu Kim An vốn định nói "nhớ", nhưng mũi đột nhiên cay cay, hắn nói, không nhớ.
+Triệu Kim An hai tay bưng chặt chiếc điện thoại, im lặng không thốt nên lời, chăm chú lắng nghe từng lời dặn dò của bà mà trong lồng ngực bỗng nghẹn đắng, từng đợt xót xa trào dâng quặn thắt.
 
-Bà nội cười nói: "Không nhớ là tốt, ở ngoài phải tự chăm sóc mình, đừng có lúc nào cũng nghĩ đến chuyện kiếm tiền, bà vẫn còn làm ra tiền được, nhất định có thể nuôi cháu học hết đại học..."
+— Bà nội ơi... cháu có tiền mà, bà đừng có làm lụng vất vả cực nhọc thế nữa...
 
-Chất lượng âm thanh của điện thoại thời bấy giờ không tốt lắm, bà nội lại biết cháu trai ít nói nên cứ luôn miệng dặn dò.
+Bà cụ ở cái tuổi này tai đã nghễnh ngãng, dường như chẳng nghe rõ được câu nói nghẹn ngào của đứa cháu trai.
 
-Triệu Kim An rất kiên nhẫn, hắn rất muốn nghe bà nội lải nhải.
+Cuối cùng, bà lại ân cần hỏi Triệu Kim An ở trên ấy có nhớ nhà, nhớ quê hương không.
 
-Kết quả bà nội đang nói nửa chừng, lại bảo tiền cước điện thoại đắt, dặn thêm vài câu rồi cúp máy.
+Triệu Kim An ban đầu định thốt lên một tiếng “nhớ”, nhưng bỗng nhiên sống mũi cay xè, hốc mắt nóng ran, anh đành cắn chặt môi đáp:
 
-Bà nội không biết dùng điện thoại, là sau khi Triệu Kim An lên Quận Sa học đại học, Vương Kim Như đã dạy bà ở nhà.
+— Cháu... không nhớ đâu ạ.
 
-Có lẽ bà nội vẫn chưa biết cách gọi điện, bà không đi học nên không biết chữ, thế nên là Vương Kim Như gọi tới, nhưng phím nào để cúp máy thì bà đã nhớ kỹ.
+Bà cụ ở đầu dây bên kia bật cười móm mém:
 
-Vương Kim Như bảo bà, ấn cái nút màu đỏ là cúp máy, như thế sẽ không bị tính thêm tiền.
+— Không nhớ nhà là tốt rồi cháu ạ, ở ngoài xã hội phải tự biết chăm sóc bản thân cho thật tốt nhé, đừng có tối ngày chỉ mải mê nghĩ đến chuyện đi kiếm tiền. Bà nội vẫn còn khỏe mạnh, vẫn còn làm lụng kiếm tiền được, bà nhất định sẽ nuôi cháu học cho đến ngày tốt nghiệp đại học đàng hoàng...
 
-Trong phòng bao, không gian im phăng phắc, im tới mức có thể nghe thấy tiếng kim rơi.
+Điện thoại thời bấy giờ chất lượng thu âm và loa ngoài không được tốt, lại thêm bà cụ thừa biết tính tình đứa cháu trai vốn ít nói, nên suốt cả cuộc gọi hầu như chỉ có một mình bà thao thao bất tuyệt dặn dò.
 
-Lưu Sấm Phong cũng dừng đũa, không gắp miếng thịt kho tàu Mao thị trên bàn nữa.
+Triệu Kim An kiên nhẫn đứng lắng nghe từng câu từng chữ, anh thực sự khao khát được nghe những lời cằn nhằn, yêu thương mộc mạc ấy của bà nội biết bao.
 
-Nhìn cái bóng lưng đang nghe điện thoại bên cửa sổ kia, vẫn ít lời như vậy.
+Thế nhưng bà cụ nói được một lúc lại tiếc tiền, bảo rằng cước gọi điện thoại di động đắt đỏ tốn kém quá, dặn vội thêm vài câu rồi lập tức ngắt máy.
 
-Nhưng, họ đều nghe rõ mồn một một câu nói.
+Bà nội vốn không biết dùng điện thoại di động, từ sau ngày Triệu Kim An lên Quận Sa nhập học, mợ Vương Kim Như mới kiên nhẫn ở nhà chỉ bảo cho bà từng chút một.
 
-"Bà nội, cháu có tiền, bà đừng vất vả như vậy."
+Bà cụ mù chữ, chưa từng đi học ngày nào nên chắc chắn chưa biết cách tự bấm số gọi đi, cuộc gọi này là do mợ Vương Kim Như bấm máy sẵn rồi đưa cho bà nghe. Nhưng cái nút để cúp máy thì bà đã ghi nhớ nằm lòng trong đầu.
 
-Cái quái gì thế này!?
+Mợ Vương dặn bà rằng: Cứ bấm vào cái nút màu đỏ ấy là tắt máy, nhà mạng sẽ không trừ tiền oan nữa.
 
-Không phải là phú nhị đại sao?
+...
 
-Chẳng lẽ là phú tam đại?
+Bên trong phòng bao lúc này, cả căn phòng chìm vào một sự tĩnh lặng tuyệt đối, tĩnh lặng đến mức một cây kim rơi xuống sàn cũng có thể nghe thấy rõ mồn một.
 
-Cốc Siêu Thừa huých Lưu Sấm Phong, nhỏ giọng nhắc một từ: "Rau khô."
+Ngay cả Lưu Sùng Phong cũng khựng tay đũa lại giữa chừng, không dám thò vào gắp miếng thịt kho Đông Pha béo ngậy trên bàn nữa.
 
-Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Tân nghe vậy liền quay đầu nhìn Cốc Siêu Thừa, Lưu Sấm Phong gật đầu, bồi thêm một câu: "Lúc khai giảng, trong túi của hắn có mang theo một hũ rau khô."
+Tất cả mọi người đều sững sờ dán chặt ánh mắt vào bóng lưng đơn độc của chàng trai đang đứng lặng bên khung cửa sổ. Chàng trai hai tay nâng niu chiếc điện thoại, lời nói thốt ra vẫn kiệm chữ, trầm tĩnh như thường lệ.
 
-Sợ bọn họ không hiểu, Lưu Sấm Phong còn giải thích, nói đó chính là loại dưa muối rau khô mà học sinh nghèo hay mang theo khi đi học.
+Thế nhưng, tất cả bọn họ đều đã nghe thấy rõ mồn một từng câu từng chữ vừa rồi:
 
-Thẩm Tử Ngôn và Từ Mạn Mạn vẫn chưa hiểu lắm.
+“Bà nội ơi... cháu có tiền mà, bà đừng có làm lụng vất vả cực nhọc thế nữa.”
 
-Diêu Tân thì nghe hiểu rồi.
+Cái quái gì thế này?!
 
-Trần Trạch rất bất ngờ, nói vậy thì, không phải là phú nhị đại?
+Chẳng phải là công tử phú nhị đại ngầm hay sao?
 
-Mộc Dao cúi đầu, mặt đỏ bừng, không dám nhìn bạn cùng phòng, nói dối bị bắt quả tang tại trận, nàng cảm giác tất cả mọi người ngồi đây đều đang cười nhạo mình, cười nhạo sự hư vinh của nàng.
+Chẳng lẽ... lại là phú tam đại giấu nghề?
 
-Đặc biệt là lời của Lưu Sấm Phong và Cốc Siêu Thừa, khiến Mộc Dao càng vùi đầu thấp hơn.
+Cốc Siêu Thừa khẽ huých cùi chỏ vào sườn Lưu Sùng Phong, ghé tai thì thào nhắc lại một chi tiết:
 
-Triệu Kim An cất điện thoại, đứng bên cửa sổ một lát, sau đó hít sâu một hơi đi trở lại, đón nhận ánh mắt của mọi người, hắn thản nhiên nói: "Sự thật đúng như những gì các bạn vừa nghe thấy đấy."
+— Hũ dưa muối khô...
 
-"Điện thoại của bà nội tôi, nhà tôi không làm kinh doanh, tôi cũng chẳng phải phú nhị đại gì cả."
+Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Tân nghe thấy thế đồng loạt quay ngoắt sang nhìn Cốc Siêu Thừa. Lưu Sùng Phong khẽ gật đầu, bồi thêm một câu:
 
-Hắn cầm điện thoại, nhìn Lưu Sấm Phong bình thản nói: "Tôi đã bảo nhà tôi còn nghèo hơn nhà cậu rồi mà cậu không tin."
+— Hôm nhập học, trong ba lô của nó có nhét theo một hũ dưa cải muối khô.
 
-"Không phải, Kim An, tôi, tôi..."
+Sợ đám con gái không hiểu, Lưu Sùng Phong còn vội giải thích thêm, bảo đó chính là loại dưa cải muối mặn mà học sinh nghèo ở vùng quê thường hay mang theo lên trường để ăn dần cho đỡ tốn tiền cơm.
 
-Lưu Sấm Phong nhất thời không biết nói gì.
+Thẩm Tử Ngôn và Từ Mạn Mạn vẫn chưa thể lập tức hình dung ra được cuộc sống thiếu thốn ấy.
 
-Hắn và Cốc Siêu Thừa đều rất chấn động.
+Nhưng Diêu Tân thì nghe hiểu ngay tắp lự.
 
-Thực tế là những người ngồi đây, ngoại trừ Mộc Dao ra, ai nấy đều kinh ngạc, Triệu Kim An thực sự trông không giống người nghèo chút nào.
+Trần Trạch tròn mắt ngạc nhiên, nói như vậy có nghĩa là... cậu ta hoàn toàn chẳng phải là phú nhị đại giàu có gì sao?
 
-Từ Mạn Mạn vốn dịu dàng đoan trang nhìn Triệu Kim An, thần sắc cuối cùng cũng thay đổi, nàng há miệng nhưng không biết nên nói gì.
+Mộc Dao lúc này cúi gằm mặt xuống tận ngực, hai má nóng bừng, đỏ ửng lên vì xấu hổ, không còn đủ dũng khí để ngẩng mặt lên nhìn những người bạn cùng phòng nữa. Lời nói dối bị bóc trần trơ trẽn ngay tại trận diện trước mặt bao nhiêu người, cô cảm thấy như tất cả mọi người trên bàn tiệc này đều đang thầm cười nhạo, khinh bỉ tính hư vinh, sĩ diện hão của bản thân mình.
 
-Ngay cả người giỏi kiểm soát cục diện như Thẩm Tử Ngôn cũng nhất thời á khẩu.
+Đặc biệt là khi nghe những lời đối đáp của Lưu Sùng Phong và Cốc Siêu Thừa, đầu Mộc Dao lại càng vùi sâu hơn nữa.
 
-"Không có chị họ, không có xe Land Rover, bà nội vừa gọi điện báo cho tôi biết..."
+Triệu Kim An cất điện thoại vào túi quần, đứng lặng bên khung cửa kính nhìn ngắm dòng xe cộ tấp nập bên bờ sông Tương hồi lâu. Sau đó, anh hít sâu một hơi thật dài rồi thong thả quay trở lại bàn ăn. Đón nhận ánh mắt phức tạp của tất cả mọi người, anh khẽ mỉm cười, cất giọng bình thản:
 
-Nói đến đây, Triệu Kim An như có chút kiêu hãnh, hắn nói: "Bà nội bảo hai con lợn nuôi ở nhà, con lớn hôm nay bán được tiền rồi, bán được chín trăm tệ."
+— Đúng như những gì các cậu vừa nghe thấy đấy.
 
-Lợn!?
+— Cuộc điện thoại của bà nội tớ. Nhà tớ không làm kinh doanh buôn bán gì cả, tớ cũng chẳng phải là phú nhị đại gì cho cam.
 
-Chưa đợi mọi người kịp phản ứng.
+Anh giơ chiếc điện thoại cũ kỹ trên tay lên, nhìn thẳng vào mắt Lưu Sùng Phong, giọng điệu điềm nhiên đến lạ kỳ:
 
-Triệu Kim An tiếp tục nói: "Ở đây, nhà các bạn ai cũng giàu hơn nhà tôi, nhưng tôi có bà nội, bà nội nói nhất định sẽ nuôi tôi học xong đại học."
+— Tớ đã bảo từ đầu là nhà tớ còn nghèo hơn cả nhà cậu rồi, nhưng cậu lại không chịu tin cơ.
 
-Tĩnh lặng!
+— Ơ kìa... Kim An, tao... tao...
 
-Phòng bao chìm vào một mảnh tịch mịch.
+Lưu Sùng Phong ấp a ấp úng, trong phút chốc chẳng biết phải mở miệng giải thích thế nào.
 
-"Kim An..."
+Cả gã lẫn Cốc Siêu Thừa đều bàng hoàng chấn động tột độ.
 
-Mộc Dao ngẩng đầu lên, vành mắt đỏ hoe, nước mắt chực trào, nàng đưa tay nắm lấy tay Triệu Kim An: "Em, em..."
+Trên thực tế, tất cả những người đang ngồi quanh bàn tiệc này, ngoại trừ Mộc Dao ra, ai nấy đều kinh ngạc đến chết lặng. Phong thái, khí chất toát ra từ con người Triệu Kim An... thực sự hoàn toàn không có một nét nào giống với một chàng trai xuất thân từ cảnh nghèo hèn cả.
 
-Kiếp trước, Triệu Kim An đã mặc nhận thân phận mà Mộc Dao thêu dệt cho mình, mãi đến ngày chia tay năm năm thứ ba mới "trút bỏ" xuống, ngày trút bỏ đó hắn chỉ thấy nhẹ nhõm.
+Người con gái vốn luôn đoan trang, dịu dàng như Từ Mạn Mạn lúc này chăm chú nhìn Triệu Kim An, nét mặt rốt cuộc cũng có những biến chuyển sâu sắc. Đôi môi mấp máy như muốn nói điều gì đó nhưng lại nghẹn lại nơi cuống họng.
 
-Còn bây giờ.
+Ngay cả một người vốn cực kỳ bản lĩnh, khéo léo làm chủ mọi tình huống như Thẩm Tử Ngôn, trong khoảnh khắc này cũng phải lặng người đi, không thốt nên lời.
 
-Triệu Kim An cúi người giúp Mộc Dao lau nước mắt, kết quả nước mắt Mộc Dao càng lau càng chảy nhiều.
+— Không có người chị họ nào ở đây cả, cũng chẳng có chiếc xe Range Rover nào hết. Bà nội tớ vừa gọi điện lên bảo...
 
-Giống như Trần Thanh Trĩ đã nói, đêm hôm đó Mộc Dao đã ngồi thụp bên bờ sông Tương khóc rất lâu, rất lâu.
+Nói đến đây, nơi khóe mắt và nụ cười của Triệu Kim An bỗng ánh lên một niềm tự hào, kiêu hãnh khôn xiết:
 
-Không ai lên tiếng.
+— Bà nội bảo với tớ rằng hai con lợn nuôi ở nhà, con lợn lớn hôm nay đã bán được rồi, thu về được 900 tệ.
 
-Mọi người cứ lặng lẽ nhìn Triệu Kim An và Mộc Dao, không có ai cười nhạo nàng cả.
+Nuôi lợn ư?!
 
-Họ đại khái đã hiểu ra, đặc biệt là ba cô gái phòng 406, kết hợp với biểu hiện của Trương Tuệ và Trương Vân Thiến ở ký túc xá ngày nhập học, không khó để lý giải.
+Chưa kịp để mọi người hoàn hồn sau cú sốc.
 
-Nhìn "ánh trăng sáng" của kiếp trước, Triệu Kim An cúi người ghé sát tai Mộc Dao nhỏ giọng nói: "Sau này sẽ không có ai hỏi em câu này nữa, em cũng không cần vất vả nói dối thay anh nữa đâu."
+Triệu Kim An lại tiếp tục cất giọng trầm ấm, từng lời từng chữ ghim sâu vào tâm can người nghe:
 
-"Đừng mà... Kim An đừng mà."
+— Ngồi ở đây, gia cảnh điều kiện của các cậu ai ai cũng giàu có, khá giả hơn nhà tớ gấp vạn lần. Thế nhưng tớ có một người bà nội tuyệt vời, bà bảo nhất định sẽ nuôi tớ ăn học cho đến ngày tốt nghiệp đại học đàng hoàng.
 
-Mộc Dao lại lắc đầu.
+Im lặng!
 
-Triệu Kim An giúp Mộc Dao lau nước mắt, dỗ dành: "Nghe lời mẹ và dì nhỏ của em đi."
+Cả căn phòng bao một lần nữa rơi vào khoảng lặng ngột ngạt.
 
-Mộc Dao vẫn lắc đầu, nước mắt lã chã: "Em không muốn..."
+— Kim An à...
 
-Lời đã nói đến mức này, ở lại mọi người đều không thoải mái.
+Mộc Dao ngẩng đầu lên, viền mắt đỏ hoe ngập tràn nước mắt, những giọt lệ uất ức bắt đầu lăn dài trên má. Cô nàng run rẩy vươn tay nắm chặt lấy bàn tay của Triệu Kim An:
 
-Triệu Kim An rút tay ra, đặt hai tờ một trăm tệ dưới ly nước, mỉm cười với ba cô gái rồi rời đi.
+— Em... em...
 
-Sau khi Triệu Kim An đi khỏi, nhìn hai trăm tệ đè dưới ly, mỗi người lại có một cảm nhận khác nhau, Lưu Sấm Phong há miệng: "Không phải hơn bốn trăm tệ sao? Sao một mình Kim An lại bỏ ra hai trăm?"
+Ở kiếp trước, Triệu Kim An đã từng im lặng dung túng, chấp nhận thân phận “con nhà khá giả” mà Mộc Dao tự tay thêu dệt và đắp lên người anh, cho mãi tới tận ngày hai người chính thức nói lời chia tay vào năm thứ ba đại học, anh mới rũ bỏ được lớp mặt nạ nặng nề ấy xuống. Ngày trút bỏ được gánh nặng hư vinh ấy, trong lòng anh chỉ còn lại cảm giác nhẹ nhõm, thanh thản vô bờ.
 
-Diêu Tân không biết từ lúc nào cũng rút hai trăm tệ ra đè dưới bát, sau đó đứng dậy cười nói: "Mọi người cứ thong thả ăn nhé, tớ cũng về ký túc xá trước đây."
+Còn ở kiếp này.
+
+Triệu Kim An khẽ cúi người xuống, dịu dàng đưa ngón tay gạt đi những giọt nước mắt lăn trên gò má Mộc Dao. Thế nhưng anh càng lau, nước mắt của cô nàng lại càng tuôn rơi lã chã, không tài nào ngăn lại được.
+
+Hệt như lời Trần Thanh Trĩ từng kể lại năm xưa: Đêm hôm ấy, Mộc Dao đã ngồi thụp bên bờ sông Tương mà khóc rất lâu, rất lâu...
+
+Chẳng một ai cất tiếng phá vỡ không gian ấy.
+
+Mọi người chỉ lặng lẽ ngắm nhìn Triệu Kim An và Mộc Dao, trong ánh mắt tuyệt nhiên không có lấy nửa phần khinh khi hay chế giễu Mộc Dao.
+
+Bọn họ phần nào đã hiểu ra mọi chuyện, đặc biệt là ba cô gái của phòng 406. Chắp nối lại với những biểu hiện và lời lẽ sặc mùi vật chất của bà Trương Tuệ và Trương Vân Thiến trong ngày đầu tiên nhập học tại ký túc xá, mọi việc không khó để lý giải.
+
+Nhìn ngắm người con gái từng là “bạch nguyệt quang” khắc cốt ghi tâm trong kiếp trước của mình, Triệu Kim An khẽ nghiêng người, ghé sát vào tai Mộc Dao thì thầm những lời gan ruột:
+
+— Sau này sẽ không còn ai gặng hỏi em về những chuyện này nữa đâu, em cũng không cần phải cảm thấy khó xử mà nói dối thay tớ nữa rồi.
+
+— Đừng mà... Kim An ơi đừng mà...
+
+Mộc Dao nức nở lắc đầu quầy quậy.
+
+Triệu Kim An tiếp tục lau đi giọt nước mắt đọng trên mi cô, cất giọng dỗ dành đầy dịu dàng:
+
+— Nghe lời mẹ và dì ruột của em đi nhé.
+
+Mộc Dao vẫn không ngừng lắc đầu, nước mắt đầm đìa:
+
+— Em không muốn... em không muốn đâu...
+
+Câu chuyện đã phơi bày tới mức này rồi, nếu còn tiếp tục nán lại thì cả đôi bên đều sẽ cảm thấy ngượng ngùng, khó xử khôn nguôi.
+
+Triệu Kim An dứt khoát rút bàn tay mình ra khỏi cái nắm tay run rẩy của Mộc Dao. Anh thò tay vào túi móc ra hai tờ tiền mệnh giá một trăm tệ đặt ngay ngắn dưới đáy ly nước, nở một nụ cười nhã nhặn hướng về phía ba cô gái rồi dứt khoát xoay người cất bước rời khỏi phòng bao.
+
+Sau khi bóng lưng Triệu Kim An khuất hẳn sau cánh cửa, nhìn hai tờ một trăm tệ nằm phẳng phiu dưới đáy ly, tâm trạng của mỗi người trong phòng lúc này đều ngổn ngang trăm mối. Lưu Sùng Phong há hốc mồm lẩm bẩm:
+
+— Chẳng phải bảo tổng cộng hết hơn bốn trăm tệ thôi sao? Cớ sao một mình Kim An lại bỏ ra tận hai trăm tệ thế này?
+
+Diêu Tân từ lúc nào cũng đã lặng lẽ rút từ trong ví ra hai tờ một trăm tệ đặt ngay ngắn dưới đáy chiếc bát của mình. Sau đó, cô nàng đứng dậy, nở một nụ cười gượng gạo nói với mọi người:
+
+— Mọi người cứ thong thả dùng bữa tiếp nhé, tớ... tớ cũng xin phép về ký túc xá trước đây.

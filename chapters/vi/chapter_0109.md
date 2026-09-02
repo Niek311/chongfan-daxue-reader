@@ -1,223 +1,195 @@
-# Chương 109: Tôi Có Bmw, Ông Có Vương Duy Đào Không
+# Chương 109: Tao có BMW, mày có Vương Duy Đào không?
 
-Trọng tài của Cúp Trăn Nhiên chính là các thầy giáo thể dục.
+> **Tiêu đề gốc**: 第109章 我有宝马，你有王维涛吗？
 
-Tuy không chuyên nghiệp lắm, nhưng được cái tiết kiệm tiền.
+Đội ngũ trọng tài của giải đấu Cúp Trăn Nhiên thực chất chính là các thầy giáo dạy thể dục trong trường.
 
-Có vài thầy nói mình có chứng chỉ trọng tài này nọ, nhưng điều đó không quan trọng, dù sao cũng chỉ hai trăm tệ một trận.
+Dẫu không quá chuyên nghiệp theo chuẩn quốc gia, nhưng lại tiết kiệm được một khoản chi phí đáng kể.
 
-Thẩm Tử Ngôn là người đi mời, nếu chỉ đưa một trăm tệ thì quả thực có chút không nỡ ra tay.
+Có vài thầy giáo thể dục giới thiệu rằng mình từng có chứng chỉ trọng tài nọ kia, song điều đó chẳng mấy quan trọng, giá chung cứ tròn trĩnh hai trăm tệ một trận.
 
-Loại chuyện này Đường Hiểu Tình hiện tại đúng là chưa làm nổi, nàng không dám đi thương lượng với giáo viên, bảo thầy tới làm việc lại còn bàn chuyện tiền nong.
+Chính Thẩm Tử Ngôn là người trực tiếp đi liên hệ mời họ, chứ nếu chỉ trả một trăm tệ thì quả thực có phần ngượng miệng, khó bề mở lời. Những việc đối ngoại khéo léo như thế này ở thời điểm hiện tại Đường Hiểu Tình chưa thể nào gánh vác nổi. Cô bé không dám chủ động tìm gặp các thầy cô để đàm phán công việc, gọi thầy cô tới làm lại còn đem chuyện tiền bạc ra ngã giá. Trong tâm khảm mộc mạc của cô, nghề giáo viên luôn là một nghề vô cùng thiêng liêng và đáng kính.
 
-Trong lòng nàng, nghề giáo viên vốn rất thần thánh.
+Thể thức thi đấu bóng rổ 3x3 diễn ra trên nửa sân, không phân chia vị trí cố định, các vai trò trung phong, tiền đạo và hậu vệ có thể tự do hoán đổi linh hoạt cho nhau.
 
-Thể thức thi đấu bóng rổ 3 đấu 3 không phân chia vị trí cố định, các vai trò trung phong, tiền phong, hậu vệ đều có thể tự do chuyển đổi.
+Cúp Trăn Nhiên áp dụng quy tắc: đội nào chạm mốc 21 điểm trước sẽ giành phần thắng.
 
-Cúp Trăn Nhiên áp dụng quy tắc: bên nào chạm mốc 21 điểm trước sẽ thắng.
+Ném bóng thành công trong vạch 3 điểm: tính 1 điểm.
 
-Ghi bàn trong vạch ba điểm: 1 điểm.
+Ném bóng thành công ngoài vạch 3 điểm: tính 2 điểm.
 
-Ghi bàn ngoài vạch ba điểm: 2 điểm.
+Ném phạt thành công: tính 1 điểm.
 
-Ném phạt chuẩn xác: 1 điểm.
+Thời gian quy định cho mỗi đợt tấn công giới hạn trong 12 giây.
 
-Mỗi lượt tấn công giới hạn trong 12 giây.
+Những điều luật này bất cứ ai thường xuyên chơi bóng rổ đều nắm rõ như lòng bàn tay. Chung quy chỉ khác nhau ở mốc điểm phân định thắng bại — có những giải bóng rổ đường phố lấy mốc 15 điểm, có nơi lại tính theo thời lượng trận đấu 10 phút hoặc 15 phút.
 
-Những quy tắc này ai hay chơi bóng rổ đều biết, chẳng qua chỉ khác nhau về hệ thống tính điểm, có vài giải bóng rổ đường phố tính 15 điểm, có nơi lại tính theo thời gian 10 phút hoặc 15 phút.
+Cúp Trăn Nhiên áp dụng thang điểm 21 cốt để các bạn sinh viên được thi đấu nhiều hơn, có thêm đất để phô diễn kỹ năng. Chứ các đội bóng từ trường đại học ở các tỉnh thành khác lặn lội bắt tàu hỏa tới đây thi đấu, bóng chưa kịp sờ ấm tay đã bị loại cuốn gói về trường thì tội nghiệp quá.
 
-Cúp Trăn Nhiên dùng hệ 21 điểm cũng là để mọi người được chơi nhiều hơn, có cơ hội phô diễn bản thân.
+Lưu Sấm Phong bắt cặp lập đội cùng mấy người bạn bên lớp Kế toán 2. Nhờ ưu thế vượt trội về mặt thể hình và chiều cao, vòng thi đấu thứ hai họ cũng dễ dàng giành được phần thắng. Dù sao đôi bên đều không phải dân thể thao chuyên nghiệp, có lợi thế chiều cao đã là nắm chắc phần thắng trong tay.
 
-Chứ để các đội từ đại học ở thành phố khác bắt tàu hỏa tới đây, bóng còn chưa kịp chạm tay đã bị loại về trường thì dở quá.
+Lưu Sấm Phong đắc ý ra mặt, khoe vừa đè bẹp đối thủ với tỷ số áp đảo 21 - 12.
 
-Lưu Sấm Phong cùng mấy người ở lớp Kế toán 2 vách ngăn lập đội, nhờ ưu thế chiều cao mà vòng thứ hai cũng dễ dàng giành chiến thắng.
+Cậu ta lại tiến gần hơn một bước tới giải thưởng tiền mặt. Dẫu sau này có không giật được giải thì đợt này cũng được một phen thỏa sức vẫy vùng trên sân bóng.
 
-Dù sao mọi người đều không phải sinh viên năng khiếu thể thao, có chiều cao vẫn là một ưu thế nhất định.
+Vòng thi đấu thứ ba, đội của cậu đụng độ một đội bóng đến từ Đại học Lâm nghiệp Công nghệ Trung Nam (Lâm Khoa Đại). Với tư cách là bạn cùng phòng ký túc xá, Triệu Kim An bèn tranh thủ chút thời gian rảnh rỗi ghé qua sân cổ vũ cho Lưu Sấm Phong. Hắn chỉ sợ nếu mình không đi chuyến này, khéo anh chàng trưởng phòng ký túc xá lại bị loại mất tăm mất tích.
 
-Lưu Sấm Phong đắc ý vỗ ngực, bảo là vừa đánh một trận 21-12.
+Triệu Kim An căn đúng giờ giấc rồi một mình thong thả đi bộ sang sân thi đấu.
 
-Hắn cảm thấy mình đã tiến thêm một bước tới gần tiền thưởng, mà dù không lấy được tiền thì đánh cũng thấy sướng tay.
+Khi hắn tới nơi thì Cốc Siêu Thừa, Trần Trạch và Từ Mạn Mạn đều đã đứng đợi sẵn ở đó.
 
-Vòng thứ ba gặp một đội nhỏ của Đại học Lâm nghiệp. Với tư cách là bạn cùng phòng, Triệu Kim An tranh thủ thời gian đi cổ vũ cho Lưu Sấm Phong, hắn sợ nếu không đi sớm một chuyến thì vị xá trưởng này sẽ bị loại mất.
+Một vài bạn sinh viên lớp Kế toán 1 cũng rủ nhau tới xem. Nghe đâu trận đấu nào của Lưu Sấm Phong thì Lâm Thanh Tuyết cũng đều đặn có mặt trên khán đài cổ vũ.
 
-Triệu Kim An canh chuẩn thời gian, một mình đi bộ tới sân.
+Lại còn có cả Lý Ngải Lan nữa.
 
-Khi hắn đến nơi, Cốc Siêu Thừa và Trần Trạch đều đã có mặt, còn có cả Từ Mạn Mạn.
-
-Lớp Kế toán 1 cũng có vài bạn học tới xem, nghe nói có trận của Lưu Sấm Phong nên trận nào Lâm Thanh Tuyết cũng đến.
-
-Còn có cả Lý Ngải Lan.
-
-Lý Ngải Lan còn chưa trả tiền mua vé tàu hỏa hồi nghỉ đông cho Lưu Sấm Phong, ước chừng vé tàu về quê đợt nghỉ hè sắp tới lại có nơi trông cậy rồi.
+Tiền vé tàu hỏa về quê đợt nghỉ đông năm ngoái Lý Ngải Lan vẫn chưa thèm trả lại cho Lưu Sấm Phong, xem chừng tiền vé tàu đợt nghỉ hè sắp tới này của cô nàng lại có nơi gánh vác hộ rồi.
 
 "Triệu Kim An!"
 
-Lý Ngải Lan cười vẫy tay.
+Lý Ngải Lan tươi cười vẫy tay chào.
 
-"Mọi người đến rồi à?"
+"Mọi người tới đông đủ cả rồi à?"
 
-Triệu Kim An cười gật đầu với Lý Ngải Lan và Lâm Thanh Tuyết.
+Triệu Kim An khẽ mỉm cười gật đầu chào hỏi Lý Ngải Lan và Lâm Thanh Tuyết.
 
-Có người bảo Lý Ngải Lan và Lâm Thanh Tuyết là trà xanh, nhưng đó có phải trà xanh không?
+Có người bảo Lý Ngải Lan và Lâm Thanh Tuyết là dạng con gái "trà xanh", nhưng đó có thực sự là trà xanh hay không? Bất kể mục đích sâu xa của người ta là gì — một tấm vé tàu hỏa vài đồng, hay vài bữa ăn bánh pizza — nhưng người ta mang lại cho đối phương giá trị cảm xúc trọn vẹn, thế thì trong mắt người trong cuộc, đó chính là một cô em gái ngoan ngoãn. Những kẻ chỉ biết đứng ngoài bĩu môi chê bai người khác là trà xanh, chẳng qua là vì đẳng cấp của bản thân quá thấp kém mà thôi.
 
-Mặc kệ người ta có mục đích gì, một tấm vé tàu, vài cái pizza, nhưng người ta cung cấp được giá trị cảm xúc, vậy thì đó chính là "em gái tốt".
+Trần Trạch cùng Từ Mạn Mạn và Cốc Siêu Thừa đứng bên đường biên sân bóng. Thấy Triệu Kim An bước tới, Từ Mạn Mạn khẽ mỉm cười chào hắn.
 
-Mấy kẻ cứ mở miệng ra là bảo người khác trà xanh chẳng qua là do đẳng cấp của chính mình quá thấp mà thôi.
-
-Trần Trạch cùng Từ Mạn Mạn, Cốc Siêu Thừa đứng bên lề sân, Từ Mạn Mạn mỉm cười với Triệu Kim An.
-
-Triệu Kim An cũng gật đầu cười lại với nàng.
+Triệu Kim An cũng lịch sự gật đầu cười đáp lại.
 
 "Triệu Kim An."
 
-Hầu như ngày nào Thẩm Tử Ngôn cũng ở sân vận động, nàng chỉ tay về phía Lưu Sấm Phong trên sân nói: "Lần này bọn họ đối đầu với mấy sinh viên bên Lâm nghiệp."
+Thẩm Tử Ngôn dạo này gần như ngày nào cũng túc trực tại sân vận động. Cô giơ tay chỉ về phía Lưu Sấm Phong đang lăn xả trên sân: "Trận này đội của họ đối đầu với mấy bạn sinh viên bên Lâm Khoa Đại."
 
-Triệu Kim An nhìn bảng điểm, vẫn là nhóm Lưu Sấm Phong đang dẫn trước.
+Triệu Kim An liếc nhìn bảng điểm, đội của Lưu Sấm Phong quả nhiên lại đang tạm thời dẫn trước.
 
-"Xá trưởng, cố lên!!"
+"Trưởng phòng, cố lên!!"
 
-Nghe thấy giọng của Triệu Kim An, Lưu Sấm Phong nhất thời phân tâm, làm mất bóng.
+Đột ngột nghe thấy tiếng hô quen thuộc của Triệu Kim An, Lưu Sấm Phong thoáng phân tâm một cái, trượt tay làm tuột mất bóng.
 
 "Phụt~"
 
-Thẩm Tử Ngôn nhịn không được, che miệng cười một tiếng.
+Thẩm Tử Ngôn không kìm được bèn đưa tay che miệng bật cười thành tiếng.
 
-"Cái này có gì mà buồn cười?"
+"Có cái quái gì đáng cười đâu chứ?"
 
-Trần Trạch hơi ngẩn ra, nhìn sang Từ Mạn Mạn bên cạnh.
+Trần Trạch ngơ ngác không hiểu mô tê gì, bèn quay sang liếc nhìn Từ Mạn Mạn đứng bên cạnh.
 
-Khóe miệng Từ Mạn Mạn cũng hơi nhếch lên, thoáng hiện một nụ cười.
-
-Trần Trạch: "..."
-
-Không phải chứ, ai nói cho tôi biết xem, cái này có gì buồn cười đâu!?
-
-"Mạn Mạn, các cậu cười cái gì vậy?"
-
-Từ Mạn Mạn đang ở ngay bên cạnh, Trần Trạch cũng không đến mức ghen tuông kiểu đó.
-
-À thì, cũng hơi ghen một chút, Triệu Kim An chỉ mới hô một câu cố lên mà kiểu con gái như Thẩm Tử Ngôn cùng với bạn gái mình đều cười, mình cũng hô cổ vũ Lưu Sấm Phong mà.
-
-Sao bọn họ không cười?
-
-Từ Mạn Mạn nói: "Lúc nãy ông gọi Lưu Sấm Phong là gì?"
+Khóe môi Từ Mạn Mạn lúc này cũng khẽ cong lên, nở một nụ cười rạng rỡ.
 
 Trần Trạch: "..."
 
-Từ Mạn Mạn lại nói: "Triệu Kim An bảo là sẽ đến cổ vũ cho Lưu Sấm Phong, ông ấy cổ vũ xong rồi đấy."
+Không phải chứ, có ai giải thích hộ tao xem chuyện này rốt cuộc có gì đáng cười vậy trời!?
+
+"Mạn Mạn, các cậu cười cái gì thế?"
+
+Dù sao Từ Mạn Mạn cũng đang đứng kề bên mình, Trần Trạch chưa đến mức phải nổi cơn ghen tuông lồng lộn. Được rồi, nói thật lòng thì trong bụng cậu ta cũng có đôi chút ghen tị — Triệu Kim An chỉ cất giọng hô đúng một câu cổ vũ gọn lỏn, vậy mà một cô gái thanh cao như Thẩm Tử Ngôn cùng chính cô bạn gái của mình đều không hẹn mà cùng bật cười. Trong khi ban nãy chính mồm mình cũng gào tướng lên "Lưu Xuyên Phong cố lên" khản cả cổ họng, sao tuyệt nhiên chẳng thấy bóng hồng nào cười lấy một tiếng?
+
+Từ Mạn Mạn hỏi vặn lại: "Cậu vừa gào tên Lưu Sấm Phong là gì đấy?"
 
 Trần Trạch: "..."
 
-Câu này hắn nghe không hiểu lắm.
+Từ Mạn Mạn nói tiếp: "Triệu Kim An từng hứa là sẽ tới cổ vũ cho Lưu Sấm Phong, cậu ấy hô xong một câu coi như là hoàn thành nhiệm vụ cổ vũ rồi đấy."
 
-Từ Mạn Mạn cũng không tiếp tục giải thích quá rõ ràng.
+Trần Trạch: "..." Cậu ta nghe mà chẳng hiểu nổi ngụ ý thâm sâu trong đó.
 
-Triệu Kim An thực sự là đang thông báo cho Lưu Sấm Phong trên sân rằng: Tôi đến cổ vũ cho ông rồi nhé!
+Từ Mạn Mạn cũng chẳng buồn giải thích cặn kẽ thêm. Triệu Kim An thực chất là đang bắn tín hiệu cho Lưu Sấm Phong trên sân biết rằng: Tôi đã có mặt để cổ vũ cho cậu rồi đấy nhé!
 
-Cốc Siêu Thừa trưng ra vẻ mặt như bị táo bón, nhỏ giọng khuyên nhủ: "Trạch ca, bọn mình thôi đi, ông có Vương Duy Đào không?"
+Cốc Siêu Thừa bên cạnh mặt mũi nghệt ra như người bị táo bón kinh niên, ghé tai nhỏ giọng khuyên can: "Anh Trạch, bọn mình dẹp đi cho lành, mày có Vương Duy Đào không?"
 
 "..."
 
-Câu này thì Trần Trạch nghe hiểu, hắn cũng lộ vẻ mặt khó coi: "Lão tử có BMW!"
+Câu này thì Trần Trạch hiểu ngay lập tức. Sắc mặt cậu ta cũng méo xẹo chẳng khác nào bị táo bón: "Bố mày có BMW!"
 
-Cốc Siêu Thừa liếc hắn một cái: "Ông có Vương Duy Đào không?"
+Cốc Siêu Thừa liếc xéo cậu ta một cái: "Thế mày có Vương Duy Đào không?"
 
 Trần Trạch: "..."
 
-Từ Mạn Mạn nhìn trận đấu trên sân, nhưng dư quang vẫn chú ý tới Thẩm Tử Ngôn và Triệu Kim An bên cạnh.
+Từ Mạn Mạn đưa mắt chăm chú theo dõi trận đấu trên sân, nhưng khóe mắt vẫn kín đáo dõi theo Thẩm Tử Ngôn và Triệu Kim An đang đứng bên cạnh.
 
-Nàng biết Thẩm Tử Ngôn và Triệu Kim An đang trao đổi công việc.
+Cô biết rõ Thẩm Tử Ngôn và Triệu Kim An lúc này đang trao đổi về công việc.
 
-Nàng thực sự rất ngưỡng mộ Thẩm Tử Ngôn, cảm giác cùng nhau nỗ lực phấn đấu vì một mục tiêu thật tốt biết bao.
+Cô thực sự vô cùng ngưỡng mộ Thẩm Tử Ngôn. Cảm giác được cùng ai đó kề vai sát cánh, dốc trọn nhiệt huyết phấn đấu vì một mục tiêu chung quả thực tuyệt vời biết bao.
 
-Mấy ngày làm tình nguyện viên, Từ Mạn Mạn làm việc rất vui vẻ và cảm thấy cuộc sống thật sung túc.
+Những ngày tham gia đội ngũ tình nguyện viên trước đây, Từ Mạn Mạn cảm thấy bản thân làm việc vô cùng vui vẻ, cuộc sống tràn ngập ý nghĩa. Cô thực sự không tài nào hiểu nổi suy nghĩ của Mộc Dao. Nếu đổi lại mình là Mộc Dao, cô nhất định sẽ âm thầm gánh vác chu toàn mọi việc thay cho Đường Hiểu Tình, san sẻ bớt gánh nặng trên vai Thẩm Tử Ngôn.
 
-Nàng thật sự không hiểu nổi Mộc Dao, nếu nàng là Mộc Dao, nàng sẽ lẳng lặng làm tốt việc của Đường Hiểu Tình, làm tốt việc của Thẩm Tử Ngôn.
+Triệu Kim An bỗng phát hiện trên sân bóng có một bóng dáng trông khá quen mắt.
 
-Triệu Kim An đột nhiên phát hiện trên sân có một người trông hơi quen mắt.
+"Chân chạy vặt của Âu Cường, Điền Vũ Hạo?"
 
-"Cái đuôi nhỏ của Âu Cường, Điền Vũ Hạo?"
+Hắn nhớ ra rồi, Điền Vũ Hạo chính là sinh viên của trường Lâm Khoa Đại. Triệu Kim An lại đưa mắt bắt gặp Du Phi — mọi người vốn dĩ đều là bạn học cùng lớp thời cấp ba ở quê nhà. Điền Vũ Hạo sang khu Đại học Thành thi đấu, Du Phi bèn chạy qua cổ vũ cho bạn học cũ.
 
-Nhớ ra rồi, Điền Vũ Hạo chính là sinh viên trường Lâm nghiệp, Triệu Kim An lại thấy cả Du Phỉ, mọi người đều học cùng lớp hồi cấp ba, Điền Vũ Hạo đến khu đại học thi đấu, Du Phỉ cũng tới cổ vũ cho bạn học cũ.
+Điền Vũ Hạo trên sân cũng đã sớm phát hiện ra Triệu Kim An đang đứng bên ngoài đường biên.
 
-Điền Vũ Hạo cũng phát hiện ra Triệu Kim An bên rìa sân.
+"Ủa, Triệu Kim An cũng tới đây cổ vũ cho mình đấy à?"
 
-"Hê, Triệu Kim An còn đến cổ vũ cho mình à?"
+"Mà này, hồi cấp ba nó chơi bóng rổ cừ khôi lắm mà, sao đợt này không thấy lập đội tham gia nhỉ?"
 
-"Đúng rồi, hồi cấp ba nó chơi bóng hay thế, sao không lập đội?"
+Thẩm Tử Ngôn nhìn theo hướng mắt của Triệu Kim An, khẽ hỏi: "Người quen à?"
 
-Thẩm Tử Ngôn nhìn theo ánh mắt của Triệu Kim An: "Người quen à?"
+Triệu Kim An đáp: "Bạn học cùng lớp thời cấp ba."
 
-Triệu Kim An đáp: "Bạn học cùng lớp hồi cấp ba."
+Thẩm Tử Ngôn khẽ gật đầu, cô biết rõ Triệu Kim An, Mộc Dao và Du Phi đều là bạn học cùng lớp thời phổ thông.
 
-Thẩm Tử Ngôn gật đầu, nàng biết Triệu Kim An cùng Mộc Dao, Du Phỉ đều là bạn học cũ.
+Trời hè đổ lửa, nắng gắt chang chang.
 
-Nắng gắt như lửa.
+Ba sân bóng cùng lúc diễn ra những màn tranh tài nảy lửa, cả sân vận động chìm trong tiếng hò reo, cổ vũ huyên náo rợp trời.
 
-Ba sân bóng đồng thời tiến hành thi đấu, sân vận động ồn ào náo nhiệt.
-
-Xem một lúc, Triệu Kim An chuẩn bị rời đi, Lưu Sấm Phong biết hắn đã tới là được rồi.
+Đứng quan sát thêm một lát, Triệu Kim An liền chuẩn bị rời đi. Hắn chỉ cần Lưu Sấm Phong biết mình đã có mặt ở đây là đủ trọn vẹn nghĩa khí bạn bè rồi.
 
 "Triệu Kim An!"
 
-Lý Ngải Lan gọi giật lại, nũng nịu nói: "Bọn tôi khát nước rồi, ông dẫn bọn tôi tới trạm tiếp tế được không?"
+Lý Ngải Lan cất giọng gọi giật lại, nũng nịu nói: "Tụi em khát khô cả họng rồi, anh dẫn bọn em qua trạm tiếp tế lấy chút nước uống được không?"
 
 "Được chứ."
 
-Triệu Kim An vẫy tay gọi mấy bạn nữ lớp Kế toán 1.
+Triệu Kim An vẫy tay ra hiệu cho mấy bạn nữ lớp Kế toán 1 cùng đi theo.
 
-Khu đại học đông người như vậy, không thể ngày nào cũng miễn phí vô hạn, trạm tiếp tế không bán, chỉ cung cấp nước khoáng và đồ uống miễn phí cho các vận động viên và nhân viên công tác.
+Khu Đại học Thành đông đúc hàng vạn sinh viên, công ty không thể nào phát nước miễn phí vô tội vạ suốt cả ngày được. Trạm tiếp tế tuyệt đối không bán lẻ ra ngoài, chỉ chuyên phục vụ nước khoáng và đồ uống miễn phí cho các vận động viên tham gia thi đấu cùng đội ngũ ban tổ chức và tình nguyện viên.
 
-Lý Ngải Lan ôm cánh tay Lâm Thanh Tuyết nói: "Thấy chưa, Triệu Kim An lợi hại thật đấy."
+Lý Ngải Lan ôm chặt lấy cánh tay Lâm Thanh Tuyết, thì thào vào tai bạn: "Thấy chưa, Triệu Kim An oách ghê chưa kìa."
 
-Một nữ sinh nhỏ giọng nói: "Đường Hiểu Tình cũng có quyền này, hôm qua tớ hỏi Đường Hiểu Tình, cậu ấy cũng dẫn tớ đi, mấy bạn tình nguyện viên đối với Đường Hiểu Tình cung kính lắm."
+Một bạn nữ đi cạnh khẽ góp lời: "Đường Hiểu Tình cũng có quyền này đấy. Hôm qua tao hỏi xin, Đường Hiểu Tình liền dẫn tao qua lấy ngay, mấy bạn tình nguyện viên bên đó đối xử với Đường Hiểu Tình cung kính lễ phép lắm."
 
-Lâm Thanh Tuyết nói: "Tiền lương mỗi ngày của họ là do Đường Hiểu Tình phát, có thể không cung kính sao?"
+Lâm Thanh Tuyết bĩu môi đáp: "Tiền công mỗi ngày của bọn họ đều do Đường Hiểu Tình trực tiếp phát tận tay, bảo sao người ta không cung kính cho được?"
 
-"Mọi người cứ lấy tự nhiên."
+"Mọi người cứ thoải mái lấy đi."
 
-Triệu Kim An mở một ngăn tủ lạnh: "Không sao đâu, lấy dư một chai cũng không vấn đề gì."
+Triệu Kim An tự tay mở một cánh tủ mát ra: "Không sao đâu, mỗi người lấy thêm một chai mang về uống dần cũng được."
 
-Thẩm Tử Ngôn đứng một bên quan sát.
+Thẩm Tử Ngôn đứng nép một bên lặng lẽ dõi theo từng cử chỉ của hắn.
 
-Lâm Thanh Tuyết nhìn Thẩm Tử Ngôn thêm mấy lần, hôm đó Thẩm Tử Ngôn lên sân khấu phát biểu, các nàng đều nhận ra.
+Lâm Thanh Tuyết không khỏi đưa mắt nhìn Thẩm Tử Ngôn thêm mấy lần. Hôm khai mạc giải đấu, Thẩm Tử Ngôn đường đường chính chính bước lên bục phát biểu trước toàn trường, đám sinh viên bên dưới ai nấy đều nhớ mặt. Thậm chí trong lòng Lâm Thanh Tuyết lúc này còn dấy lên muôn phần hối tiếc. Cô thầm nghĩ, tại sao ngày trước mình không nhanh chân đăng ký tham gia đội tình nguyện viên sớm hơn một bước, nếu làm vậy thì người tỏa sáng rực rỡ trên sân khấu hôm đó đã là chính cô rồi.
 
-Thậm chí còn thấy hối hận.
+Bước chân ra khỏi khuôn viên sân vận động, Triệu Kim An dừng lại trước một quầy bán mì nguội bên lề đường, quay sang hỏi Thẩm Tử Ngôn:
 
-Lâm Thanh Tuyết đang nghĩ, tại sao mình không đi làm tình nguyện viên sớm hơn, nếu vậy người được nổi bật đã là mình rồi.
-
-Rời khỏi sân vận động, Triệu Kim An đứng lại trước một xe mì lạnh, hỏi Thẩm Tử Ngôn.
-
-"Cậu có muốn ăn không?"
+"Cậu có muốn ăn chút không?"
 
 Thẩm Tử Ngôn gật đầu.
 
-Triệu Kim An liền nói: "Ông chủ, cho hai phần mì lạnh, một phần cho thêm một tệ tiền lạc rang và dưa chuột."
+Triệu Kim An liền cất giọng gọi: "Bác ơi, cho hai phần mì nguội, một phần cho thêm một tệ tiền lạc rang và dưa chuột nhé."
 
-Thẩm Tử Ngôn quay sang nhìn Triệu Kim An.
+Thẩm Tử Ngôn liền xoay người lại, đưa mắt ngạc nhiên nhìn Triệu Kim An.
 
-"Sao thế, cậu cũng thích ăn lạc rang à?"
+"Sao thế, cậu cũng thích ăn thêm lạc rang à?"
 
 "Không phải."
 
-Thẩm Tử Ngôn lắc đầu, nghĩ ngợi một chút rồi mỉm cười nói: "Triệu Kim An... con gái bọn tôi thường sẽ bảo ông chủ cho thêm chút lạc, đôi khi còn phải nói khéo vài câu..."
+Thẩm Tử Ngôn khẽ lắc đầu, ngẫm nghĩ trong giây lát rồi bật cười: "Triệu Kim An... con gái bọn tớ thường sẽ nhờ bác chủ quán xởi lởi cho thêm chút lạc, rồi khéo mồm nói vài câu khen ngợi ngọt ngào... Cách xử lý này của cậu... đơn giản hơn, mà lại hiệu quả hơn nhiều."
 
-"Cậu thì... cách này đơn giản hơn, mà cũng hiệu quả hơn."
+Thẩm Tử Ngôn vừa nói vừa khẽ gật gù. Cô nhận ra Triệu Kim An dường như rất ngại lãng phí thời gian vào những cuộc giao tiếp xã giao vô nghĩa với những người không liên quan. Chuyện gì có thể giải quyết nhanh gọn bằng 1 tệ, hắn sẽ dứt khoát giải quyết ngay cho xong.
 
-Thẩm Tử Ngôn vừa nói vừa gật đầu, nàng nhận ra Triệu Kim An dường như không muốn tốn công làm mấy cuộc giao tiếp vô nghĩa với những người không liên quan.
+Triệu Kim An mỉm cười: "Trời nắng chang chang thế này, ngày có ba mươi tệ tiền công bèo bọt, cậu đừng để bị phơi nắng đến mức đen nhẻm đi đấy."
 
-Chuyện gì có thể dùng một tệ để giải quyết thì cứ dùng một tệ.
+Thẩm Tử Ngôn nhìn thẳng vào mắt Triệu Kim An, giọng điệu trở nên vô cùng nghiêm túc: "Triệu Kim An, tớ muốn hỏi cậu một câu thật lòng."
 
-Triệu Kim An cười cười: "Trời nắng thế này, ba mươi tệ một ngày, cậu đừng để mình bị nắng cháy đen đấy."
+"Cậu có cổ phần trong công ty không?"
 
-Thẩm Tử Ngôn nhìn Triệu Kim An, rất nghiêm túc hỏi: "Triệu Kim An, tôi muốn hỏi cậu một câu."
+"Hỏi vậy là có ý gì?"
 
-"Công ty này cậu có cổ phần không?"
+Thẩm Tử Ngôn nhìn sâu vào đôi mắt Triệu Kim An, nét mặt ngập tràn vẻ chân thành: "Nếu công ty này hoàn toàn chỉ là của riêng giám đốc Lạc, sau khi bận rộn xong sự kiện lần này tớ sẽ chủ động rút lui. Còn nếu trong công ty có cổ phần của cậu..."
 
-"Sao lại hỏi vậy?"
+"Tớ muốn được giống như Đường Hiểu Tình, chính thức gia nhập vào công ty của các cậu."
 
-Thẩm Tử Ngôn nhìn thẳng vào mắt Triệu Kim An, gương mặt đầy vẻ thành khẩn: "Nếu công ty chỉ là của Lạc tổng, làm xong hoạt động lần này tôi sẽ rút lui. Còn nếu công ty có cổ phần của cậu..."
-
-"Tôi muốn giống như Đường Hiểu Tình, gia nhập vào công ty của các cậu."
-
-Thẩm Tử Ngôn sẽ không đi làm thuê cho Lạc Cẩn Chi, giống như Trần Trạch đã nói, nàng vốn không sợ sau khi tốt nghiệp không tìm được việc tốt, càng không cần phải đi làm thêm kiếm sống khi còn đang học đại học.
+Thẩm Tử Ngôn tuyệt đối sẽ không bao giờ đi làm thuê cho một mình Lạc Cẩn Chi. Đúng như lời Trần Trạch từng nhận định, một tiểu thư gia thế như cô chẳng bao giờ phải lo lắng chuyện tốt nghiệp ra trường không kiếm được một công việc danh giá, lại càng không có nhu cầu phải đi làm thêm kiếm tiền trang trải thời sinh viên...

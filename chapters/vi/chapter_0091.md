@@ -1,231 +1,235 @@
-# Chương 91: Không Phải Người Một Nhà, Không Vào Cùng Một Cửa
+# Chương 91: Đúng là không phải một nhà, không vào cùng một cửa
 
-Vương Kim Như đứng bên cạnh nghe thấy thế thì bĩu môi.
+> **Tiêu đề gốc**: 第91章 不是一家人不进一家门。
 
-Chao ôi, đúng là tuyệt phối!
+Đứng bên cạnh, Vương Kim Như nghe hai người đối đáp mà bĩu môi một cái thật dài.
 
-Hai người này...
+Chao ôi, đúng là trời sinh một cặp, tuyệt phối không chê vào đâu được!
 
-Vương Kim Như cũng không biết phải hình dung thế nào. Cái giọng điệu nói chuyện của hai đứa nó, một đứa hỏi "Anh có tiền không?", đứa kia đáp "Em có tiền", rồi cái điểm mà hai đứa lo lắng...
+Hai cái đứa này...
 
-Có phải người bình thường không vậy?
+Vương Kim Như nhất thời cũng chẳng biết phải dùng từ ngữ gì để miêu tả cho chuẩn xác. Cái giọng điệu khi nói chuyện của hai đứa nó lạ lùng đến phát sợ: một đứa thì thản nhiên hỏi anh có tiền không, đứa kia lại tỉnh bơ bảo em có tiền. Trọng tâm lo lắng của cả hai đứa...
 
-Đây là tiền đấy!
+Liệu có giống người bình thường chút nào không cơ chứ?
 
-Cứ gọi một tiếng là mất bốn trăm tệ!
+Đây là tiền đấy! Tiền xương máu đấy!
 
-Đây là kiểu sống qua ngày sao?
+Chỉ cần cất tiếng gọi một câu là bay đứt bốn trăm tệ!
 
-Chẳng lẽ các người không thấy xót tiền à? Lo lắng sai chỗ rồi đúng không?
+Có ai sống qua ngày đoạn tháng như thế này bao giờ không?!
 
-Chưa qua Tết Nguyên đán thì vẫn tính là năm 2005, sang năm 2006 lương phổ biến cũng chỉ có hơn một nghìn tệ. Tô Miền ra tay một cái đã là bốn trăm, chỉ cần có hậu bối gọi một tiếng là nàng liền đưa bao lì xì bốn trăm tệ.
+Đáng lẽ hai đứa bây phải xót tiền đến đứt từng khúc ruột mới phải, sao cái điểm cần lo lại lệch lạc đến tận phương trời nào thế này?
 
-Ở Triệu Kim An Gia thôn cũng từng có người kể nhà ai đó cưới được cô vợ gia cảnh rất tốt, rất giàu có.
+Thời điểm này dẫu chưa sang Tết Nguyên đán thì cũng tính là năm 2006. Năm 2006, mức lương phổ biến của người lao động bình thường trong huyện cũng chỉ nhỉnh hơn một nghìn tệ một tháng. Thế mà Tô Miến vừa ra tay đã là bốn trăm tệ, hễ có đứa con cháu nào trong họ mở miệng chào một tiếng là trao ngay một phong bao đỏ chót trị giá bốn trăm tệ.
 
-Nhưng so với Tô Miền thì chẳng thấm thía gì!
+Trong thôn Triệu Gia xưa nay cũng chẳng thiếu những lời bàn tán rằng nhà nọ nhà kia cưới được cô con dâu gia cảnh khá giả, nhiều của ăn của để.
 
-Khoảng sân trước nhà bàn tán xôn xao, ai nấy đều đổ dồn mắt vào Tô Miền.
+Thế nhưng nếu đem ra so bì với Tô Miến thì toàn bộ số đó đều chỉ đáng vứt đi, chẳng bõ dính răng!
 
-Những người trẻ tuổi, vai vế nhỏ, gọi một tiếng cũng chẳng thấy ngại ngùng gì.
+Trước sân, tiếng xì xào bàn tán nổi lên như ong vỡ tổ, bao nhiêu cặp mắt đều đổ dồn về phía Tô Miến.
 
-Tô Miền cứ thế ngồi ngay ngắn trên xe lăn, thẳng lưng chờ bọn họ đến gọi, ai gọi là nàng cho.
+Đám thanh niên trẻ tuổi hay đám nhỏ thuộc hàng vai vế dưới chẳng có gì phải ngượng ngùng, mở miệng cất một tiếng chào cũng đâu có mất miếng thịt nào.
 
-Nàng còn mỉm cười nhàn nhạt, trông hệt như một bậc bề trên thực thụ.
+Tô Miến cứ thế ngồi đoan trang trên xe lăn, lưng thẳng tắp, điềm đạm chờ bọn họ bước tới chào hỏi, hễ ai gọi là nàng trao phong bao.
 
-Bao lì xì chuẩn bị sẵn đã dùng hết, nàng liền rút ra một xấp tiền mặt.
+Trên môi nàng vẫn luôn phảng phất nụ cười nhàn nhạt, ra dáng một bậc trưởng bối đích thực trong gia tộc.
 
-Cứ có một người đến gọi, nàng lại đếm bốn tờ đưa cho đối phương.
+Số phong bao đỏ chuẩn bị sẵn chẳng mấy chốc đã phát hết sạch, nàng liền dứt khoát rút ra một xấp tiền mặt dày cộp.
 
-Nếu là học sinh tiểu học hay trung học, Tô Miền còn quan tâm hỏi han một câu: "Thành tích học tập thế nào rồi?"
+Cứ có một người bước đến chào, nàng lại thong thả đếm bốn tờ một trăm tệ đưa tận tay đối phương.
 
-Bệnh nghề nghiệp sao?
+Nếu gặp đứa nhỏ nào đang học tiểu học hay cấp hai, Tô Miến còn ân cần hỏi thêm một câu: "Việc học hành dạo này thế nào cháu, thành tích có tốt không?"
 
-Triệu Kim An biết Tô Miền làm việc ở Bộ Giáo dục, nhìn bộ dạng này đúng là có chút giống kiểu người thân làm giáo viên.
+Chẳng lẽ đây là bệnh nghề nghiệp sao?
 
-"Thím, cháu còn được nhận nữa không?"
+Triệu Kim An đứng bên thầm nghĩ, anh biết Tô Miến công tác ở Bộ Giáo dục, nhìn cái dáng vẻ này quả thực rất giống mấy cô bác trong họ làm nghề dạy học.
 
-Triệu Chí Dũng mặt dày mày dạn, đưa tay ra xin, hắn thật sự là đưa tay ra xin thật.
+"Thím ơi, phần của cháu còn không ạ?"
 
-Tô Miền mỉm cười, theo lệ đếm bốn tờ đưa cho hắn.
+Triệu Trí Dũng mặt dày không biết xấu hổ là gì, lập tức thò tay ra vòi vĩnh, mà là vòi thật sự.
 
-Mọi người trong sân mắt không rời nửa bước, họ thầm đếm trong lòng: Đã phát bao nhiêu tiền rồi? Đây là người thứ mấy rồi? Tô Miền không hề lộ vẻ do dự, cũng chẳng thấy dấu hiệu xót tiền nào.
+Tô Miến khẽ mỉm cười, theo lệ đếm bốn tờ trăm tệ đặt vào lòng bàn tay nó.
 
-Lúc đầu người ở đây cứ ngỡ Tô Miền không biết Triệu Kim An Gia thôn có bao nhiêu người, không biết vai vế của Triệu Kim An trong thôn cao đến mức nào, tưởng nàng chỉ vì hứng chí nhất thời do nghĩ người không đông...
+Người đứng đầy ngoài sân dán chặt mắt không rời, trong lòng ai nấy đều âm thầm đếm nhẩm: Đã phát ra bao nhiêu tiền rồi nhỉ? Đây là người thứ mấy rồi? Vậy mà trên gương mặt Tô Miến chẳng hề gợn lên một tia đắn đo hay tiếc của nào.
 
-Nhìn thế này thì đúng là thật sự có tiền rồi!
+Ban đầu, người trong thôn cứ ngỡ cô gái này chưa hiểu rõ thôn Triệu Gia đông đúc dường nào, chẳng biết bối phận của Triệu Kim An ở trong làng cao đến mức nào, tưởng rằng cô bé thấy người ít nên mới bốc đồng nổi hứng...
 
-Có người đẩy Chương Ngọc Ni ra, Chương Ngọc Ni nhìn Tô Miền, ấp úng gọi một tiếng: "Bà thúc."
+Nhưng nhìn cái điệu bộ này thì rõ ràng là nhà giàu nứt đố đổ vách thật rồi!
 
-Tô Miền cười cười, đếm bốn tờ tiền.
+Có người đứng sau lưng đẩy Chương Ngọc Ni ra phía trước. Chương Ngọc Ni nhìn Tô Miến, ấp a ấp úng gọi một tiếng: "Bà thím ạ."
 
-Lần này mọi người đều thả lỏng hơn, gọi một tiếng có bốn trăm tệ, không gọi thì phí. Còn có người lén lút gọi điện thoại báo tin.
+Tô Miến mỉm cười gật đầu, đếm đủ bốn tờ đưa qua.
 
-Thực ra chẳng cần gọi điện, chuyện đã truyền khắp thôn rồi.
+Đến nước này thì mọi người chẳng còn ai phải e dè giữ kẽ nữa. Cất miệng gọi một tiếng là có ngay bốn trăm tệ, không gọi thì dại gì, tội gì bỏ phí!
 
-Tốc độ lan truyền của loại chuyện này vượt xa sức tưởng tượng.
+Có kẻ đã bắt đầu lén lút rút điện thoại ra bấm số gọi về nhà.
 
-Tô Miền đang phát tiền!
+Thực ra chẳng cần gọi điện thì tin tức cũng đã lan truyền khắp hang cùng ngõ hẻm trong thôn rồi.
 
-Không quen ư?
+Tốc độ lan truyền của những chuyện như thế này vượt xa sức tưởng tượng của bất kỳ ai.
 
-Bạn gái của Triệu Kim An đang phát tiền cho hậu bối đấy! Mỗi người bốn trăm!
+Tô Miến đang phát tiền kìa!
 
-"Đây là Tô Miền sao?"
+Không biết Tô Miến là ai ư?
 
-Triệu Bác Lan đã đến, nàng từng nghe Triệu Chí Dũng nhắc qua một lần trên xe.
+Chính là bạn gái của Triệu Kim An đấy, đang phát tiền mừng tuổi cho đám con cháu trong họ, mỗi người đứt đuôi bốn trăm tệ!
 
-Triệu Chí Dũng sáp lại gần, cầm bốn tờ một trăm tệ nói: "Chị Bác Lan, mau đi gọi người đi, có bốn trăm tệ đấy."
+"Đây là Tô Miến sao?"
 
-Triệu Bác Lan đảo mắt nhìn một vòng, quả nhiên trong sân có rất nhiều người đang cầm tiền trên tay, một số người đã rời đi cũng đang nắm tiền.
+Triệu Bác Lan vừa đến nơi, lúc nãy trên xe chị đã nghe Triệu Trí Dũng buột miệng nhắc qua một lần.
 
-Doãn Hiểu Lan quan sát một lúc rồi vào bếp giúp đỡ.
+Triệu Trí Dũng liền áp sát lại gần, huơ huơ bốn tờ một trăm tệ trong tay rồi hí hửng giục: "Chị Bác Lan, mau vào chào người ta đi, có bốn trăm tệ đấy."
 
-Doãn Hiểu Lan là "trợ thủ" đắc lực nhất của bà nội, làm việc cũng siêng năng nhất.
+Triệu Bác Lan đưa mắt đảo quanh một vòng, quả nhiên thấy rất nhiều người ngoài sân tay đang cầm tiền, lại có không ít người vừa hớn hở cầm tiền vừa rảo bước đi về.
 
-Triệu Quốc Hoa đứng xem một lát, rồi một mình đi ra xa gọi điện cho hai cô của Triệu Kim An.
+Doãn Hiểu Lan đứng nhìn một lát rồi lẳng lặng quay vào bếp phụ giúp.
 
-Cái sự "có tiền" của Tô Miền đã vượt qua phán đoán ngày hôm qua của Triệu Quốc Hoa về nàng. Triệu Quốc Khánh đã mất, Đoạn Thu Bình lại tái giá nhiều năm, Triệu Quốc Hoa và hai người cô đương nhiên sẽ quan tâm nhiều hơn đến cô "cháu dâu" này.
+Doãn Hiểu Lan chính là cánh tay đắc lực nhất của bà nội, tính tình lại chịu thương chịu khó, làm việc gì cũng nhanh nhẹn tháo vát.
 
-Nhà của Triệu Kim An và Triệu Quốc Hoa đã nhiều năm rồi không náo nhiệt như thế này.
+Triệu Quốc Hoa đứng xem một lúc, sau đó lẳng lặng bước ra chỗ vắng để gọi điện thoại cho hai người cô ruột của Triệu Kim An.
 
-Vương Kim Như có một điểm rất tốt, dù cực kỳ xót tiền nhưng nếu bà nội chưa lên tiếng thì bà ta sẽ không nói leo.
+Mức độ "giàu có" của Tô Miến đã hoàn toàn vượt xa những phán đoán ngày hôm qua của Triệu Quốc Hoa. Triệu Quốc Khánh đã qua đời, Đoàn Thu Bình thì tái giá nhiều năm, chú ruột như Triệu Quốc Hoa cùng hai người cô dĩ nhiên sẽ càng thêm lưu tâm đến chuyện "cháu dâu" tương lai.
 
-Vương Kim Như ghé tai nói nhỏ với Tô Miền vài câu.
+Đã rất nhiều năm rồi, căn nhà của Triệu Kim An và Triệu Quốc Hoa mới lại nhộn nhịp, tưng bừng đến nhường này.
 
-Nhìn cô bé trước mặt, Tô Miền gật đầu, đưa thêm bốn trăm tệ nữa.
+Vương Kim Như có một điểm rất tốt: dẫu trong lòng xót tiền đến mấy, nhưng chừng nào bà nội chưa lên tiếng thì bà thím cũng tuyệt đối không lắm mồm can thiệp.
 
-Cô bé này là cháu nội của Điền Thúy Phượng, Điền Thúy Phượng có vai vế cao trong thôn, trước đây hễ nhà có việc gì bà cũng hay đến giúp đỡ, lúc này không thể đưa ít hơn được.
+Vương Kim Như ghé sát tai Tô Miến, nhỏ to thì thầm vài câu.
 
-"Bà nội!"
+Nhìn đứa bé gái trước mặt, Tô Miến gật đầu, rút thêm bốn trăm tệ nữa đưa cho con bé.
 
-Cô bé cầm tiền chạy về phía Điền Thúy Phượng.
+Đứa nhỏ này là cháu gái của bà Điền Thúy Phượng. Bà Điền Thúy Phượng có vai vế rất cao trong làng, trước kia mỗi khi nhà họ Triệu có việc gì bà cũng thường xuyên sang đỡ đần giúp đỡ, những lúc thế này quyết không thể để phần của nhà bà bị thiệt thòi hay ít hơn người khác.
 
-Vương Kim Như lại cúi đầu nói thêm mấy câu.
+"Bà nội ơi!"
+
+Đứa bé gái cầm chặt xấp tiền hớn hở chạy tót về phía Điền Thúy Phượng.
+
+Vương Kim Như lại cúi đầu thì thầm thêm vài câu bên tai Tô Miến.
 
 "Hữu Hằng!"
 
-Tô Miền gật đầu gọi một tiếng.
+Tô Miến khẽ gật đầu rồi cất tiếng gọi.
 
-"Hả?"
+"Dạ?"
 
-Triệu Hữu Hằng quay người lại, không biết vị thím nhỏ này gọi mình có việc gì.
+Triệu Hữu Hằng giật mình quay người lại, chẳng hiểu vị thím nhỏ này gọi mình có việc gì.
 
-Tô Miền lấy ra hai bao thuốc lá, nở nụ cười nhàn nhạt: "Cho anh này."
+Tô Miến lấy ra hai bao thuốc lá xịn, trên môi nở nụ cười nhạt: "Cho cháu này."
 
-"Ối chà, Hữu Hằng, thím của anh thương anh thật đấy nhé!"
+"Ối chà, Hữu Hằng à, thím nhỏ thương mày quá cơ đấy!"
 
-"Đúng vậy, chỉ mình anh có thôi, ha ha ha."
+"Phải đấy, mỗi mình mày được thuốc xịn thôi nhé, ha ha ha!"
 
-Ngay lập tức có rất nhiều người trêu chọc.
+Người xung quanh lập tức nhao nhao trêu chọc.
 
-Triệu Hữu Hằng đỏ bừng mặt già, dứt khoát làm tới luôn, hắn vội chạy qua nhận thuốc lá, đường hoàng nói một tiếng: "Cảm ơn thím nhỏ."
+Gương mặt Triệu Hữu Hằng đỏ lựng lên như gấc chín, nhưng rồi anh ta dứt khoát buông xuôi sĩ diện, vội vàng chạy lại đỡ lấy hai bao thuốc, đàng hoàng cất giọng: "Cháu cảm ơn thím nhỏ ạ."
 
 "Ha ha ha..."
 
-"Cười cái rắm!"
+"Cười cái rắm ấy!"
 
-Triệu Hữu Hằng nhét thuốc vào túi rồi vỗ vỗ, bình thường hắn toàn hút loại Tương Tư Điểu hai tệ, biết loại thuốc này không rẻ nên phải để dành đến Tết có khách tới nhà mới mang ra hút.
+Triệu Hữu Hằng nhét hai bao thuốc vào túi áo rồi vỗ vỗ mấy cái. Ngày thường anh ta chỉ dám hút loại Tương Tư Điểu hai tệ một bao, nhìn bao thuốc này là biết giá trị không hề rẻ, phải để dành đến dịp Tết nhà có khách quý mới dám bóc ra mời.
 
-Vương Kim Như lại cúi đầu nói chuyện, chỉ tay về phía một người đang làm việc.
+Vương Kim Như lại ghé tai nói nhỏ, tay kín đáo chỉ về phía một người đàn ông đang cắm cúi làm việc cách đó không xa.
 
-Tâm tư của Vương Kim Như rất đơn giản, nếu bà nội đã không ngăn cản thì việc Tô Miền "phát tiền" chắc chắn không được để sót những người trước đây từng đối tốt với nhà mình, những người vẫn còn trong vòng quan hệ họ hàng.
+Toan tính của Vương Kim Như rất đỗi mộc mạc và giản đơn: một khi bà cụ đã không phản đối, thì chuyện Tô Miến "phát tiền" tuyệt đối không được để sót những người trước đây từng đối xử tốt với gia đình mình, những người bà con chưa ra khỏi năm đời.
 
-Loại chuyện này Tô Miền không rành, Triệu Kim An cũng không rõ lắm, hắn đi học nội trú từ hồi cấp hai.
+Những phép tắc xã giao làng xã thế này Tô Miến làm sao rành rẽ được, ngay cả Triệu Kim An cũng chẳng nắm rõ, bởi từ thời cấp hai anh đã đi học nội trú suốt.
 
-Còn Triệu Quốc Hoa thì quanh năm đi làm thuê ở Dương Thành.
+Triệu Quốc Hoa thì quanh năm suốt tháng bươn chải làm thuê tận Dương Thành.
 
-Hai anh em Triệu Hữu Hằng và Triệu Hữu Tài hễ có việc là đến giúp, ví dụ như gặt lúa, không có đàn ông thì máy tuốt lúa cũng chẳng khiêng nổi, hay như khi ruộng hết nước, Triệu Hữu Tài thấy là sẽ tiện tay dẫn nước vào giúp...
+Hai anh em Triệu Hữu Hằng và Triệu Hữu Tài hễ thấy nhà có việc là xắn tay áo vào giúp ngay, chẳng hạn như gặt lúa, không có đàn ông lực lưỡng thì cái máy tuốt lúa nặng trịch làm sao vần nổi; hay như những lúc ruộng khô cạn nước, Triệu Hữu Tài đi ngang qua thấy là tiện tay tháo nước dẫn vào ruộng giùm...
 
-Triệu Hữu Tài đã ngoài năm mươi tuổi, đang vừa hút thuốc vừa dựng giá gỗ chuẩn bị mổ lợn.
+Triệu Hữu Tài năm nay đã ngoài năm mươi tuổi, lúc này đang ngậm điếu thuốc, cắm cúi dựng giàn chuẩn bị mổ lợn.
 
-Bảo một người ngoài năm mươi như hắn đi xin lì xì của một cô gái nhỏ, người thật thà như Triệu Hữu Tài không làm nổi.
+Bảo một người đàn ông hơn năm mươi tuổi đời như ông đi ngửa tay xin phong bao lì xì của một cô gái trẻ măng, người cục mịch, thật thà như Triệu Hữu Tài làm sao kéo nổi da mặt xuống mà làm được chuyện đó.
 
 "Hữu Tài!"
 
-Đúng lúc này Tô Miền gọi một tiếng, nàng gọi là "Hữu Tài" chứ không phải Triệu Hữu Tài.
+Đúng lúc ấy, Tô Miến cất tiếng gọi, nàng gọi thẳng là "Hữu Tài" chứ không gọi họ.
 
 "Ha ha ha..."
 
-Tất cả mọi người đều nhìn về phía Triệu Hữu Tài, mặt hắn đỏ bừng lên. Thấy Tô Miền nhoài người đưa tay đưa tiền tới, Triệu Hữu Tài mới xoa xoa tay đi qua, không gọi người, chỉ cười khì khì ngốc nghếch vài tiếng.
+Mọi ánh mắt lập tức dồn cả về phía Triệu Hữu Tài. Mặt ông già đỏ bừng lên tận mang tai. Tô Miến hơi nghiêng người về phía trước, vươn tay chìa xấp tiền ra, Triệu Hữu Tài lúc bấy giờ mới vừa xoa xoa hai bàn tay thô ráp vừa ngượng ngùng bước lại. Ông không mở miệng gọi người, chỉ biết đứng cười hề hề chất phác vài tiếng.
 
-Tô Miền cũng cười, lại lấy thêm hai bao thuốc cho hắn.
+Tô Miến cũng mỉm cười, lại rút thêm hai bao thuốc lá đưa cho ông.
 
-Khuôn mặt đầy nếp nhăn của Triệu Hữu Tài giãn ra, đôi bàn tay thô ráp đón lấy bao thuốc, hắn còn hơi cúi người chào về phía xe lăn.
+Gương mặt đầy những nếp nhăn sương gió của Triệu Hữu Tài giãn ra, đôi bàn tay chai sần đón lấy thuốc lá, ông còn hướng về phía chiếc xe lăn khẽ khom người cúi đầu một cái.
 
-Cúi người là vì vai vế, không liên quan đến tuổi tác.
+Cái cúi đầu ấy là vì tôn ti vai vế dòng tộc, hoàn toàn không liên quan gì đến tuổi tác lớn nhỏ.
 
-Trong lòng hắn, có lẽ khi nhận bao lì xì này cũng là lúc hắn thừa nhận vị thím nhỏ này.
+Có lẽ trong thâm tâm ông, một khi đã nhận phong bao và thuốc lá này, nghĩa là đã ngầm thừa nhận người thím nhỏ này bước chân vào cánh cửa họ Triệu.
 
-Khoảng sân trước nhà tràn ngập tiếng cười.
+Ngoài sân rộ lên một tràng cười vui vẻ, ấm áp.
 
-Triệu Kim An đứng nhìn cũng mỉm cười theo.
+Triệu Kim An đứng nhìn cảnh tượng đó cũng khẽ nở nụ cười.
 
-Không ai trêu chọc người thật thà như Triệu Hữu Tài, hay hùa vào bắt hắn phải gọi một tiếng "thím".
+Không một ai buông lời trêu chọc người đàn ông thật thà Triệu Hữu Tài, cũng chẳng ai ồn ào ép ông phải cất tiếng gọi "thím".
 
-Triệu Hữu Tài nhận tiền và thuốc xong lại tiếp tục đi làm việc.
+Triệu Hữu Tài cất tiền và thuốc cẩn thận rồi lại lẳng lặng quay về tiếp tục làm việc.
 
-Một lúc sau bà nội lại đi ra ngó một cái, thấy Vương Kim Như đang chỉ bảo cho Tô Miền thì bà mới yên tâm. Bà cũng sợ Tô Miền không hiểu chuyện, khiến những người thật thà từng giúp đỡ nhà mình bị "chịu thiệt".
+Bà nội chốc chốc lại bước ra cửa ngó một cái, thấy Vương Kim Như đang đứng bên chỉ dẫn cho Tô Miến thì bà mới thở phào yên tâm. Bà cũng sợ cô gái trẻ này chẳng hiểu sự đời, để rồi những người thật thà, từng giúp đỡ gia đình mình ngày trước lại phải chịu thiệt thòi.
 
-"Bà nội à, cô cháu dâu này của bà tốt lắm đó, trông lại còn xinh đẹp nữa..."
+"Bà nội ơi, cô cháu dâu này của bà tốt quá chừng, mặt mũi lại xinh đẹp rạng rỡ..."
 
-"Tốt cái gì mà tốt chứ!"
+"Tốt cái gì mà tốt?!"
 
-Vừa hay Vương Kim Như đi vào bếp, chỉ tay ra ngoài nói: "Mẹ xem, mấy quả dưa hấu lớn Kim An mua về, Tô Miền bảo đông người quá nên bổ hết ra rồi!"
+Vừa khéo Vương Kim Như bước vào bếp, đưa tay chỉ ra ngoài sân: "Mẹ nhìn xem, mấy quả dưa hấu to đùng thằng Kim An mua về để dành Tết, con bé Tô Miến bảo đông người thế này đem bổ sạch ra ăn hết rồi!"
 
-Bà nội lườm bà ta một cái: "Mấy quả dưa hấu, bổ thì bổ thôi."
+Bà nội lườm con dâu một cái: "Có mấy quả dưa hấu, bổ thì bổ thôi chứ sao."
 
-Vương Kim Như lầm bầm: "Cháu trai cưng của mẹ... Tô Miền làm gì mẹ cũng không quản, nếu là con... mẹ đã mắng từ lâu rồi."
+Vương Kim Như lẩm bẩm phụng phịu: "Cái thằng cháu cưng của mẹ... Tô Miến làm cái gì mẹ cũng chiều, cũng chẳng thèm quản. Thử là con xem... mẹ chả mắng té tát vào mặt từ lâu rồi ấy chứ."
 
-"Ha ha ha, Vương Kim Như ơi, đó là tại chị keo kiệt đấy."
+"Ha ha ha, Vương Kim Như ơi là Vương Kim Như, đấy là tại thím bủn xỉn quá đấy thôi!"
 
 Vương Kim Như: "..."
 
-"Chao ôi, biết phá của quá, Kim An cũng chẳng thèm quản."
+"Ai dà, đúng là chúa phá gia chi tử, thằng Kim An cũng chẳng biết đường mà răn đe."
 
-Thú thật, bà nội cũng có chút không quen, họ đã tiết kiệm cả đời rồi.
+Nói thật lòng, ngay cả bà nội trong bụng cũng có chút không quen, cả đời các bà đã quen chắt bóp từng đồng từng cắc.
 
-Có câu nói, không phải người một nhà, không vào cùng một cửa.
+Người xưa thường nói: Không phải một nhà, không vào cùng một cửa.
 
-Đột nhiên xuất hiện một người như Tô Miền, tiêu tiền vung tay quá trán thế này, bà nội và Vương Kim Như nhìn mà thấy xót thay.
+Tự dưng xuất hiện một cô gái như Tô Miến, tiêu tiền như nước chảy qua tay, bà nội và Vương Kim Như nhìn vào đều không khỏi xót xa ruột gan.
 
-Triệu Kim An không nói anh trai thứ hai của Tô Miền là Thị trưởng thành phố Quận Sa. Có bộ phim nói rằng, con chó trong làng của vị Cục trưởng còn được cấp biên chế, Triệu Kim An không muốn tự chuốc lấy rắc rối.
+Triệu Kim An không hề hé răng nửa lời về việc nhị ca của Tô Miến đang là Thị trưởng thành phố Quận Sa. Trong một bộ phim truyền hình từng có câu thoại: Đến con chó trong làng của viên Giám đốc Sở còn được xếp biên chế. Triệu Kim An không muốn tự rước những phiền toái rắc rối ấy vào người.
 
-Lỡ như có người cầu cạnh việc gì, bảo là đồng ý hay không đồng ý đây?
+Vạn nhất sau này trong làng có ai đến cậy nhờ việc nọ việc kia, thử hỏi nhận lời hay từ chối thế nào cho đặng?
 
-Thậm chí có người có thể sẽ trực tiếp nhờ Tô Miền giúp đỡ.
+Thậm chí rất có thể sẽ có kẻ trực tiếp tìm đến Tô Miến để cầu xin giúp đỡ.
 
-Triệu Kim An thật sự chẳng quản gì cả, cứ để mặc Tô Miền làm theo ý mình.
+Triệu Kim An thật sự cái gì cũng không can thiệp, cứ để mặc Tô Miến muốn làm gì thì làm theo ý thích.
 
-Vương Kim Như định vào phòng ngủ giấu đồ Tết đi, bà nội cũng bảo cứ mặc kệ nàng, dù sao mua về cũng là để ăn.
+Vương Kim Như toan lẻn vào phòng ngủ giấu bớt đồ Tết đi, nhưng bà nội cũng bảo cứ mặc kệ con bé, dẫu sao đồ mua về cũng là để ăn cả.
 
-Mấy quả dưa hấu đặt ngay giữa sảnh, đám trẻ con nhìn thấy mà chảy nước miếng, Tô Miền vừa mới lên chức thím, chức bà đã bảo bổ hết ra.
+Mấy quả dưa hấu đặt giữa gian nhà chính, lũ trẻ con nhìn thấy cứ nuốt nước miếng ừng ực. Vị "bà nội" và "bà thím" trẻ tuổi Tô Miến vừa mới nhận chức liền khoát tay bảo bổ hết ra chia cho tụi nhỏ.
 
-"Chí Dũng, em đi mua thuốc lá đi."
+"Trí Dũng, em đi mua thuốc lá đi."
 
-Nàng lại đưa tiền bảo Triệu Chí Dũng đi mua thuốc lá.
+Nàng lại rút tiền đưa cho Triệu Trí Dũng, sai nó chạy đi mua thêm thuốc.
 
-Triệu Chí Dũng phóng mô tô rất nhanh.
+Triệu Trí Dũng phóng xe máy như bay.
 
-Loại thuốc đắt nhất trong tiệm tạp hóa là Phù Dung Vương xanh, Triệu Chí Dũng ôm mấy cây về, Tô Miền bảo phát cho mỗi người đàn ông hai bao, thế là Triệu Chí Dũng ôm thuốc đi phát cho từng người một.
+Loại thuốc đắt nhất ở tiệm tạp hóa trong làng là Phù Dung Lam. Triệu Trí Dũng ôm mấy cây Phù Dung Lam về, Tô Miến bảo mỗi người đàn ông phát hai bao, thế là Triệu Trí Dũng cứ ôm từng cây thuốc đi phát lần lượt cho từng người một.
 
-Hắn chạy đi chạy lại tiệm tạp hóa mấy chuyến.
+Nó chạy đi chạy lại tiệm tạp hóa mấy chuyến liền.
 
-Tiệm tạp hóa trong thôn nhập hàng không nhiều, Phù Dung Vương xanh hết thì lấy Phù Dung Vương vàng, Triệu Chí Dũng trở thành công cụ chạy vặt.
+Tiệm tạp hóa trong làng nhập hàng chẳng được bao nhiêu, hết sạch Phù Dung Lam thì chuyển sang Phù Dung Vàng, Triệu Trí Dũng bỗng chốc trở thành chân chạy việc đắc lực.
 
-Cuối cùng đến Phù Dung Vương vàng cũng hết sạch.
+Cuối cùng, đến cả Phù Dung Vàng cũng cháy hàng.
 
-Chủ tiệm tạp hóa liền tiếp thị loại Bạch Sa tinh, Triệu Chí Dũng bảo cái đó sao mà lọt mắt được?
+Chủ tiệm tạp hóa liền đon đả chào mời sang thuốc Tinh Bạch Sa tám tệ, Triệu Trí Dũng bĩu môi bảo loại này mà thím tôi thèm để vào mắt à?
 
-Ông chủ: "..."
+Chủ tiệm: "..."
 
-"Mua Bạch Sa tinh còn tiết kiệm được tiền nữa đấy!"
+"Mua Tinh Bạch Sa còn tiết kiệm được khối tiền đấy chứ đùa à!!"
 
-"Xì, không cần ông phải tiết kiệm hộ, thím tôi bảo ít nhất cũng phải là Hoàng Phù."
+"Xì, không cần ông phải tiết kiệm hộ, thím tôi đã dặn rồi, bèo nhất cũng phải là Phù Dung Vàng."
 
-Triệu Chí Dũng lại cưỡi mô tô phóng ra khỏi thôn.
+Dứt lời, Triệu Trí Dũng lại đạp nổ xe máy, phóng thẳng ra ngoài làng tìm tiệm lớn hơn để mua.
 
-Ông chủ: "..."
+Chủ tiệm đứng ngây như phỗng: "..."
 
-"Tiền nhiều quá hóa rồ rồi."
+"Đúng là tiền nhiều rửng mỡ, đốt cho sướng tay."
 
-Tiệm tạp hóa trong thôn là trung tâm thu thập thông tin, mấy bà vợ nhìn nhau, nhà nào trong thôn có hỷ sự, dù giàu có và khách sáo đến mấy cũng chỉ bày Bạch Sa tinh và Hồng Song Hỷ thôi mà.
+Tiệm tạp hóa trong thôn xưa nay vốn là trung tâm thu phát tin tức nhanh nhạy nhất. Mấy người đàn bà đứng quanh nhìn nhau trân trân, trong làng này mỗi khi có đám cưới đám hỷ, nhà nào giàu có và lịch sự lắm cũng chỉ dám bày thuốc Tinh Bạch Sa với Hồng Song Hỷ mà thôi...

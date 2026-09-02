@@ -1,155 +1,153 @@
-# Chương 188: Ôm đùi.
+# Chương 188: Ôm lấy đùi lớn
 
-Triệu Kim An kêu Triệu Bác lan tới.
+> **Tiêu đề gốc**: 第188章 抱大腿。
 
-"tổng thanh tra Triệu."
+Triệu Kim An gọi Triệu Bác Lan bước vào phòng làm việc.
 
-Sông công việc kỳ đứng dậy hô.
+"Giám đốc Triệu."
 
-"Giang quản lý, chúc mừng a."
+Giang Công Kỳ vội đứng dậy cất tiếng chào.
 
-Triệu Bác lan ở công ty là Triệu Kim An dòng chính của dòng chính, công ty tất cả mọi người biết Triệu Bác lan cùng Triệu Kim An là một cái thôn của, Triệu Bác lan hô Triệu Kim An hô thúc.
+"Giám đốc Giang, chúc mừng anh nhé."
 
-Triệu Bác lan trông coi công ty khoản, tinh tường biết mỗi cái thành thị người phụ trách của nghiệp vụ năng lực.
+Ở công ty, Triệu Bác Lan chính là người thuộc phe cánh thân tín nhất của Triệu Kim An. Toàn thể nhân viên ai nấy đều biết Triệu Bác Lan cùng làng với Triệu Kim An, tính theo vai vế trong dòng tộc thì Triệu Bác Lan còn phải gọi Triệu Kim An một tiếng "chú".
 
-Bây giờ, Triệu Bác lan tiền lương là không cao.
+Triệu Bác Lan nắm giữ toàn bộ sổ sách tài chính của công ty, thế nên cô nắm rất rõ năng lực nghiệp vụ của từng người phụ trách thị trường ở các thành phố.
 
-Chỉ có 3 ngàn, 3 ngàn đảm đương không nổi tài vụ tổng thanh tra của tiền lương.
+Hiện tại mức lương của Triệu Bác Lan quả thực không cao.
 
-Nhưng công ty phát triển rất nhanh, tiền cảnh xem trọng.
+Mỗi tháng chỉ vỏn vẹn ba nghìn tệ, con số ba nghìn tệ ấy hoàn toàn chưa xứng tầm với vị trí Giám đốc Tài chính.
 
-"ngươi gọi chu sở hân trở về, bồi sông công việc kỳ đi nhanh bớt, thuê văn phòng, thuê thương khố, mua máy tính cái gì, đủ loại mua sắm, nhân viên thông báo tuyển dụng quá nhiều chuyện phải làm."
+Thế nhưng công ty đang trên đà phát triển thần tốc, tiền đồ vô cùng xán lạn.
 
-Triệu Kim An phân phó nói.
+"Cháu gọi Chu Sở Hân quay về đi, bảo cô ấy theo Giang Công Kỳ sang tỉnh Thiểm Tây một chuyến. Thuê văn phòng, thuê kho bãi, sắm sửa máy tính thiết bị, rồi mua sắm linh tinh, tuyển dụng nhân sự... Có hàng đống việc đang chờ người xử lý đấy." Triệu Kim An phân phó.
 
-"Kim An, ta liền sợ chu sở hân không muốn trở về."
+"Kim An à, cháu chỉ sợ Chu Sở Hân chẳng muốn về đâu." Triệu Bác Lan không kìm được bật cười.
 
-Triệu Bác lan nhịn không được cười nói.
+"..."
 
-"....."
+Triệu Kim An cũng bật cười theo một tiếng, trong đầu bất giác hiện lên hình ảnh một Chu Sở Hân đầy cá tính ngày đầu tiên đến trường nhập học năm thứ nhất.
 
-Triệu Kim An nhịn cười không được một tiếng, hắn nhớ tới đại nhất khai giảng báo danh chu sở hân.
+Triệu Bác Lan lập tức bấm số gọi cho Chu Sở Hân ngay tại chỗ.
 
-Triệu Bác lan tại chỗ bấm chu sở hân điện thoại.
+Đầu dây bên kia nhanh chóng bắt máy.
 
-Đối phương rất nhanh kết nối.
+"Lan Lan à, có phải Kim An lại đồng ý cho cậu chuyển tiền hàng cho ông chủ Lưu Xuyên rồi đúng không? Cậu chờ chút nhé, hiện tại tớ đang ở Thanh Viễn, ngày mai sẽ sang Phật Sơn, nhất định phải bắt ông chủ Lưu chiêu đãi tớ một bữa ra trò mới được..."
 
-"lan lan, là Kim An lại đồng ý ngươi cho lưu xuyên lão bản chuyển tiền hàng sao? Ngươi chờ một chút a, ta bây giờ tại Thanh Viễn, ngày mai liền đi Phật sơn, muốn Lưu lão bản thật tốt chiêu đãi ta...."
+Triệu Bác Lan trán đầy vạch đen, vội lấy tay bịt ống nghe điện thoại lại.
 
-Triệu Bác lan tức xạm mặt lại, che điện thoại ống nghe.
+"Triệu tổng bảo cậu quay về ngay, theo Giang Công Kỳ sang Thiểm Tây bận rộn một phen đấy..."
 
-"Triệu tổng muốn ngươi trở về, cùng sông công việc kỳ đi nhanh bớt vội vàng một hồi....."
+Giang Công Kỳ ngồi bên cạnh không khỏi thầm ghen tị với Chu Sở Hân. Mối quan hệ máu mủ, họ hàng như Triệu Bác Lan với Triệu Kim An thì người ngoài không dám tị nạnh rồi, nhưng Chu Sở Hân lại có quan hệ thân thiết vô cùng với Triệu Bác Lan, vừa là bạn cùng phòng đại học vừa là chị em chí cốt.
 
-Sông công việc kỳ là hâm mộ chu sở hân của, Triệu Bác lan cùng Triệu Kim An loại quan hệ này hâm mộ không tới, chu sở hân lại cùng Triệu Bác lan quan hệ tốt như vậy, đại học bạn cùng phòng đều bạn thân.
+Đến cả Thẩm Tử Ngôn ở công ty cũng ngọt ngào gọi một tiếng "chị Hân", hai tiếng "chị Hân".
 
-Liền thẩm tử nói đều Hân tỷ Hân tỷ của hô.
+Chu Sở Hân đúng là sở hữu những lợi thế trời ban mà chẳng ai có được: Quen biết Triệu Kim An ngay từ ngày đầu tiên cậu nhập học năm nhất, lại hết mực che chở bênh vực Triệu Kim An, vào công ty thì lại có mối quan hệ thân thiết như ruột thịt với cả ông chủ lớn lẫn Giám đốc Tài chính.
 
-Chu sở hân có chút được trời ưu ái của hương vị, tại Triệu Kim An đại nhất khai giảng báo danh ngày đó liền quen biết, lại bằng mọi cách che chở Triệu Kim An, ở công ty cùng đại lão bản còn có tài vụ tổng thanh tra loại quan hệ này.
+Rơi vào vị trí đó, đổi lại là bất kỳ ai, có nằm mơ cũng phải bật cười tỉnh giấc.
 
-Đổi thành ai, nằm mơ giữa ban ngày đều sẽ cười tỉnh.
+Chu Sở Hân lại chẳng hề hay biết chuyện Triệu Kim An là người trọng sinh quay về, những người khác tuyệt đối không bao giờ có được cơ hội may mắn như thế lần thứ hai.
 
-Chu sở hân lại không biết Triệu Kim An trùng sinh tới, những người khác không có cơ hội như vậy.
+Triệu Bác Lan nói thêm vài câu rồi đưa điện thoại cho Triệu Kim An.
 
-Triệu Bác lan nói sẽ, đưa di động đưa cho Triệu Kim An.
+"Mau thu xếp về đi, dọn dẹp đồ đạc rồi đi Thiểm Tây một chuyến."
 
-"mau trở lại, dọn dẹp một chút đi chuyến nhanh bớt."
+"Kim An à, ước mơ của chị là làm thư ký riêng cho em cơ mà, rốt cuộc ngày nào cũng phải chạy đôn chạy đáo ngoài đường thế này, lỡ bị phơi nắng đen thui thì làm sao? Đen rồi mặc tất lưới đen trông không còn đẹp nữa đâu."
 
-"Kim An, ta là muốn làm ngươi thư ký của, kết quả mỗi ngày chạy ở bên ngoài, rám đen làm sao bây giờ? Xuyên chỉ đen liền khó coi."
+"..."
 
-"....."
+Triệu Kim An thực sự mường tượng ra cảnh tượng Chu Sở Hân mặc tất lưới đen trong đầu, cậu nghiêm túc hỏi: "Dạo này chị tăng mấy cân rồi?"
 
-Triệu Kim An thật muốn giống cuối tuần sở hân xuyên chỉ đen, hắn nghiêm túc vấn đạo:"ngươi mập mấy cân?"
+"Ai tăng cân cơ chứ!?"
 
-"ai mập!?"
+Đầu dây bên kia, Chu Sở Hân giật mình đưa tay nhéo nhéo đùi mình, cúi đầu nhìn xuống rồi tự bóp bóp vài cái, hình như... đúng là có béo lên khoảng năm, sáu, bảy, tám cân thật thì phải?
 
-Đầu bên kia điện thoại chu sở hân nhéo nhéo bắp đùi mình, cúi đầu nhìn thấy chen lấn thoa, tựa như là mập 5, 6, 7, 8 cân?
+Triệu Kim An tuy không biết đọc bản vẽ xây dựng, nhưng ở kiếp trước cậu từng thi đỗ chứng chỉ Kế toán Công chứng (CPA), lại có hơn chục năm kinh nghiệm làm việc dày dạn. Mấy trò ma mãnh vụn vặt của Triệu Bác Lan và Chu Sở Hân, trong lòng cậu đều thấu suốt như lòng bàn tay.
 
-Triệu Kim An sẽ không nhìn kiến trúc bản vẽ, nhưng ở kiếp trước hắn là thi đăng kí kế toán viên cao cấp của người, lại có hơn mười năm kinh nghiệm làm việc, Triệu Bác lan cùng chu sở hân điểm này mèo con chán, trong lòng của hắn hết sức rõ ràng.
+Nói một cách thẳng thắn.
 
-Nói như vậy.
+Dù Triệu Bác Lan có bắt tay với Lạc Cẩn Chi làm sổ sách giả, Triệu Kim An chỉ cần liếc mắt một cái là nhìn ra ngay sơ hở.
 
-Triệu Bác lan muốn cùng lạc cẩn chi hùn vốn làm giả sổ sách, Triệu Kim An một cái liền có thể nhìn ra.
+"Thế còn ông chủ Lưu đâu rồi?"
 
-"Lưu lão bản nhỉ?"
+"Kim An, lão Lưu đã sớm mò sang Thiểm Tây mở xưởng sản xuất từ lâu rồi."
 
-"Kim An, Lưu lão bản đã sớm đi nhanh bớt xử lý nhà máy."
+Chu Sở Hân cười ha hả: "Lão bảo đã đâm lao thì phải theo lao cho trót, đằng nào thì tính mạng cả cơ nghiệp cũng bị công ty mình nắm chặt trong lòng bàn tay rồi."
 
-Chu sở hân cười ha ha:"hắn nói phải chết liền chết hẳn điểm, ngược lại mạng nhỏ bóp tại trong tay chúng ta rồi."
+"Lão ta tính ra cũng nhanh nhạy đấy."
 
-"hắn ngược lại là thông minh."
+Triệu Kim An cười một tiếng: "Vậy thì chị còn không mau sang Thiểm Tây đi? Sang bên đó cũng thế thôi, ông chủ Lưu kiếm được từ công ty mình bao nhiêu tiền, chị cứ việc sang đó ăn uống tẩm bổ cho đã đời."
 
-Triệu Kim An cười một tiếng:"vậy ngươi còn không mau đi nhanh bớt? Đến đó bên cạnh một dạng của, Lưu lão bản kiếm lời chúng ta nhiều tiền như vậy, ngươi ăn nhiều một chút."
+"Kim An, sau này em không chê thư ký của mình quá béo đấy chứ?"
 
-"Kim An, ngươi đến lúc đó sẽ không ghét bỏ ta làm thư ký mập đi?"
+"Béo một chút cũng tốt mà."
 
-"mập chút rất tốt a."
+Trăn Nhiên đã ký hợp đồng với Lưu Xuyên, bên phía Lưu Xuyên được hưởng quyền ưu tiên cung ứng, xem ra Lưu Xuyên đã hạ quyết tâm ôm chặt lấy chiếc đùi lớn mang tên Trăn Nhiên này rồi.
 
-Đạt đến nhiên cùng lưu xuyên ký hợp đồng, lưu xuyên có quyền ưu tiên, xem ra lưu xuyên là dự định ôm lấy đạt đến nhiên căn này đùi rồi.
+Quãng đường vận chuyển từ Phật Sơn sang tận Thiểm Tây xa xôi vạn dặm như thế, Lưu Xuyên dứt khoát sang thẳng Thiểm Tây mở thêm phân xưởng mới.
 
-Từ Phật sơn đến nhanh bớt đường đi như vậy xa xôi, lưu xuyên liền dứt khoát đi nhanh bớt xử lý nhà máy.
+Cúp điện thoại, Triệu Kim An chỉ tay vào mấy chai nước ngọt đặt trên bàn làm việc.
 
-Cúp điện thoại, Triệu Kim An chỉ vào trên bàn công tác mấy bình đồ uống.
+"Giang Công Kỳ, anh qua nếm thử xem."
 
-"sông công việc kỳ, ngươi tới nếm thử."
+"Triệu tổng, đây là dòng sản phẩm trà mới của công ty chúng ta đấy ạ?"
 
-"Triệu tổng, đây chính là chúng ta công ty kiểu mới trà đồ uống sao?"
+"Anh ngày nào cũng lăn lộn ở thị trường tuyến đầu, nếm thử rồi cho tôi xin chút ý kiến đóng góp."
 
-"ngươi mỗi ngày tại một tia thị trường chạy, cho điểm đề nghị."
+Trên bàn có hơn chục chai nước mẫu. Đây là những hương vị mà Triệu Kim An dựa trên cảm hứng từ hai dòng trà đình đám sau này là "Đông Phương Thụ Diệp" và "Trà π", bao gồm nhiều hương vị phong phú như trà đào, trà bưởi mật ong, trà ô long...
 
-Trên bàn có 1 0 hơn bình, là Triệu Kim An suy nghĩ phương đông nhánh cây cùng trà phái hai kiểu trà uống, hai kiểu trà uống còn có mấy loại khẩu vị, cái gì mật đào, mật dữu, trà Ô Long chờ.
+Vỏ bao bì nhãn mác của chai vẫn chưa thiết kế xong, tạm thời đều được chiết vào những chai nước khoáng thông thường.
 
-Chai đóng gói còn không có thiết kế ra được, liền lấy chai nước suối chứa.
+Trước đây Lạc Cẩn Chi từng có lần ba hoa khoác lác rằng: *Kim An à, chỉ cần cậu muốn, kể cả nước ngọt có gas vị coca chúng tôi cũng có thể nghiên cứu chế tạo ra được.*
 
-Lạc cẩn chi thổi qua một cái da trâu, nói Kim An, ngươi muốn Cocacola chúng ta cũng có thể nghiên chế ra được.
+"Nước trà hương vị trái cây."
 
-"Quả vị trà đồ uống."
+Giang Công Kỳ lấy một chiếc cốc giấy dùng một lần, rót ra một ngụm lớn rồi ực một hơi, chép chép miệng: "Triệu tổng, em uống vào chẳng phân biệt nổi mùi vị tinh tế thế nào đâu ạ. Ngài bảo em đánh giá cái này thì em chịu, em chỉ giỏi mỗi việc đi cày xới thị trường thôi."
 
-Sông công việc kỳ một bình cầm duy nhất một lần cái chén đâm một miệng lớn, chép miệng một cái:"Triệu tổng, ta uống không ra mùi vị gì rồi, ngươi muốn ta nói cái này ta không có hiểu, ta liền biết chạy thị trường."
+"Thế nhưng em thấy, chỉ cần chiến lược marketing làm tốt, hương vị nào rồi cũng sẽ có tệp khách hàng riêng của nó."
 
-"bất quá chỉ cần marketing làm tốt, khẩu vị gì cũng có chịu mọi người thể."
+"Nếu bắt em phải chọn một loại, em vẫn thích vị trà đậm đà hơn một chút, chắc là do tuổi tác của em cũng bắt đầu cứng rồi."
 
-"nếu như cứng rắn muốn ta nói, ta thích trà vị nồng điểm của, có thể là ta tuổi hơi lớn nguyên nhân."
+Giang Công Kỳ trong lòng vô cùng khâm phục Triệu Kim An. Toàn bộ định hướng chiến lược và thiết kế sản phẩm của công ty, bao gồm cả các chiến dịch quảng cáo, tiếp thị, quảng bá thương hiệu đều do một tay cậu vạch ra.
 
-Sông công việc kỳ là bội phục Triệu Kim An của, công ty chiến lược cùng sản phẩm thiết kế, bao quát quảng cáo marketing mở rộng cũng là xuất từ tay hắn.
+Đặc biệt là câu slogan quảng cáo của nước khoáng Trăn Nhiên, hiệu ứng phản hồi trên thị trường phải nói là cực kỳ bùng nổ.
 
-Đặc biệt là đạt đến nhiên nước khoáng câu kia lời quảng cáo, ở thành phố tràng phản ứng hiệu quả phi thường tốt.
+Phải biết rằng trước đây khi Lạc Cẩn Chi chật vật ở Tư Tinh suốt mấy năm trời, doanh nghiệp chẳng hề có chút khởi sắc nào. Hồi công ty mới chân ướt chân ráo đến Quận Sa phát triển, mấy chủ tiệm tạp hóa tiện lợi còn xua tay chê bai nước Trăn Nhiên chiếm diện tích quầy kệ của họ.
 
-Phải biết lạc cẩn chi tại tư cách tinh giằng co mấy năm cũng không có khởi sắc, công ty vừa tới quận ghế sô pha giương lúc, cái kia chút cửa hàng giá rẻ lão bản đều ghét bỏ đạt đến nhiên chiếm chính mình chỗ.
+"Triệu tổng, công ty mình có từng tính đến chuyện làm các sản phẩm từ sữa chưa ạ?"
 
-"Triệu tổng, công ty của chúng ta có hay không nghĩ tới làm nãi chế phẩm."
+Ý của Giang Công Kỳ muốn nhắc đến chính là dòng sản phẩm sữa Dinh Dưỡng Khoái Tuyến (Nutri-Express) cực kỳ ăn khách của tập đoàn Oa Cáp Cáp.
 
-Sông công việc kỳ là chỉ oa ha ha của dinh dưỡng khoái tuyến.
+Nhắc đến danh hiệu người giàu nhất, phản xạ đầu tiên của mọi người thường sẽ nghĩ ngay đến mấy vị đại gia sừng sỏ bên mảng Internet.
 
-Nhấc lên nhà giàu nhất, đại gia trước tiên đều sẽ nghĩ tới internet mấy vị kia đại lão.
+Hoặc giả sẽ nghĩ tới mấy ông trùm địa ốc sừng sỏ.
 
-Hay là nghĩ đến địa sản mấy vị kia đại lão.
+Chẳng hạn như vị trí người giàu nhất năm 2007 chính là đại diện của tập đoàn bất động sản Bích Quế Viên (Country Garden).
 
-Tỉ như 2 0 0 7 năm nhà giàu nhất, chính là bất động sản bích quế viên.
+Thậm chí có người còn nghĩ đến ông Chung bên ngành nước khoáng.
 
-Thậm chí nghĩ đến nước suối Chung tổng.
+Thế nhưng ở thời điểm hiện tại, Chủ tịch Tông của Oa Cáp Cáp mới là nhân vật hô mưa gọi gió, còn ông Chung của Nông Phu Sơn Tuyền vẫn còn xếp tít tắp ở phía sau. Ông Chung vinh dự bốn lần bước lên ngôi vị người giàu nhất Trung Quốc là chuyện của giai đoạn năm 2021 đến 2023, còn bây giờ mới chỉ là năm 2008 mà thôi.
 
-Nhưng bây giờ oa ha ha của tông dù sao cũng so so sánh ngưu, Chung tổng sắp xếp Thái hậu mặt đi, Chung tổng vinh đăng 4 lần nhà giàu nhất, thời gian là tại 2 0 2 1 năm - 2 0 2 3 năm, bây giờ mới 2 0 0 8 năm.
+Oa Cáp Cáp ngoài mặt hàng nước khoáng đóng chai ra, sản phẩm lừng lẫy và hái ra tiền nhiều nhất chính là sữa Dinh Dưỡng Khoái Tuyến.
 
-Oa ha ha trừ rồi nước khoáng, nổi danh nhất chính là dinh dưỡng khoái tuyến.
+Thực tế vào lúc này, đối thủ cạnh tranh lớn nhất của Trăn Nhiên chính là Oa Cáp Cáp, còn C'estbon (Di Bảo) hay Nông Phu Sơn Tuyền đều chỉ xếp hàng sau.
 
-Nó thực hiện tại đạt đến nhiên đối thủ cạnh tranh lớn nhất là oa ha ha, di bảo hòa nông hộ sơn tuyền đều xếp tại đằng sau.
+Tất nhiên, Trăn Nhiên ở thời điểm hiện tại còn chưa đủ tư cách để trở thành đối thủ cạnh tranh ngang tầm của những gã khổng lồ ấy.
 
-Đương nhiên, đạt đến nhiên bây giờ còn chưa tư cách làm bọn hắn đối thủ cạnh tranh lớn nhất.
+Mặt khác, ngành sản xuất nước khoáng có tính bao dung thị trường rất lớn, không giống như ngành công nghệ Internet. Mảng Internet luôn là cuộc chiến sinh tử một mất một còn, chẳng hạn như ứng dụng nhắn tin tức thời thì chỉ có duy nhất một bên độc chiếm ngôi vương.
 
-Lại hoặc là nói nước khoáng nghề này có kiêm dung tính, không giống internet, internet là"ngươi chết ta sống"của cục diện, tỉ như tức thời thông tin chỉ có thể một nhà độc quyền.
+Các sàn thương mại điện tử cũng phải đấu đá, chém giết lẫn nhau cho tới khi chỉ còn một kẻ duy nhất xưng bá.
 
-Điện thương bình đài chỉ có thể đấu đến một nhà độc quyền.
+Giang Công Kỳ ngày nào cũng lăn lộn ở các tuyến thị trường cơ sở, thừa hiểu sản phẩm nào của đối thủ đang bán chạy nhất.
 
-Sông công việc kỳ thiên thiên tại một tia thị trường chạy, biết đối thủ cạnh tranh sản phẩm gì bán hảo.
+Anh ta tính ra vẫn còn đủ khôn ngoan khi không hé răng nhắc đến mảng đồ uống có gas.
 
-Hắn coi như thông minh, không có lấy cacbon-axit đồ uống.
+Quy mô của Coca-Cola và Pepsi quá đỗi khổng lồ, suốt mười năm ròng rã bọn họ kiên quyết không tăng giá, chỉ bán đúng hai tệ rưỡi một chai.
 
-Coca Cola cùng Pepsi quy mô quá lớn, bọn hắn mười năm không tăng giá liền bán 2 khối rưỡi một bình.
+Điều đó rõ ràng đã biến phân khúc này thành vùng đất chết, bất kỳ kẻ nào dại dột nhảy vào cuộc đua giá cả đều sẽ cầm chắc cái chết!
 
-Rõ ràng ai cuốn vào ai chết!
+Triệu Kim An không hề có ý định học đòi bắt chước sữa Dinh Dưỡng Khoái Tuyến, hay dòng sữa đậu phộng của Ngân Lộ. Con người ta không thể nào chuyện gì cũng muốn nhúng tay vào thâu tóm cho bằng hết được.
 
-Triệu Kim An không nghĩ bắt chước dinh dưỡng khoái tuyến, còn có ngân lộ của đậu phộng nãi, ngươi không có khả năng cái gì đều nhúng một tay.
+Định hướng cốt lõi của Trăn Nhiên vẫn là tập trung đánh mạnh vào nước khoáng đóng chai. Nước khoáng mới chính là miếng bánh chiếm thị phần lớn nhất trong toàn bộ thị trường giải khát, không có bất kỳ thứ gì có thể thay thế được.
 
-Đạt đến nhiên át chủ bài nước khoáng, nước khoáng mới là thị trường lớn nhất phân ngạch, không có cái thứ hai.
-
-Khác lại có hai ba kiểu bạo phẩm liền có thể
+Bên cạnh đó, chỉ cần sở hữu thêm hai đến ba dòng sản phẩm mang tính bùng nổ, tạo nên cơn sốt là đã quá đủ rồi.

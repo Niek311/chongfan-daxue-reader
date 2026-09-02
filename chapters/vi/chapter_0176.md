@@ -1,269 +1,271 @@
-# Chương 176: 4 cái gian phòng an bài thế nào, 2
+# Chương 176: Sắp xếp bốn gian phòng (2)
 
-Thử nghĩ một cái, Triệu Kim An về sau có tiền như vậy rồi, những thứ này tiểu nữ sinh của tính cách đều tính toán đại khí, suy nghĩ người trong thôn chiếm chút món lời nhỏ liền chiếm chút món lời nhỏ, còn không có chính mình để kiếm tiền nhanh.
+> **Tiêu đề gốc**: 第176章 4个房间怎么安排，2
 
-Đặc biệt là thẩm tử giảng hòa Từ Mạn Mạn, các nàng bây giờ liền biểu hiện ra bất phàm của năng lực làm việc.
+Cứ thử hình dung mà xem, sau này Triệu Kim An sẽ giàu có đến nhường nào. Những cô gái bên cạnh cậu tính tình đều thuộc diện hào sảng, khoáng đạt; họ sẽ chỉ nghĩ rằng người trong làng có chiếm chút lợi lộc cỏn con thì cứ để họ chiếm, so đo làm gì cho mệt, thời gian đó để tự mình kiếm tiền còn nhanh hơn gấp bội.
 
-Các nàng có thể rất tốt phụ tá Triệu Kim An.
+Đặc biệt là Thẩm Tử Ngôn và Từ Mạn Mạn, ngay từ bây giờ cả hai đã bộc lộ năng lực làm việc phi phàm.
 
-Trong lòng các nàng chắc chắn cái gì cũng hiểu, nhưng sẽ không thật sự tính toán, cùng người trong thôn tính toán.
+Họ hoàn toàn có thể trở thành cánh tay đắc lực, phò tá Triệu Kim An trên con đường sự nghiệp.
 
-Đường Hiểu tinh của tính cách thì càng khỏi phải nói, xem xét liền tốt"khi dễ."
+Trong lòng họ ắt hẳn chuyện gì cũng thấu suốt như gương, nhưng tuyệt nhiên sẽ không bao giờ đi so đo, tính toán chi li với bà con lối xóm nơi thôn dã.
 
-Đem chỉ tinh......
+Còn tính cách của Đường Hiểu Tình thì lại càng khỏi phải bàn, nhìn qua là biết mẫu người hiền lành, dễ “bắt nạt”.
 
-Tốt a, nàng có thể thật không có muốn tới đây Triệu gia thôn.
+Tưởng Chỉ Tình ư...
 
-Nhưng tới cũng hẳn là loại tư tưởng này.
+Thôi được rồi, có lẽ cô ấy chưa từng nghĩ tới chuyện sẽ về thôn họ Triệu này.
 
-Cùng kỳ hoa tinh lực ứng phó trong thôn những thứ này thân thích vãn bối, còn không bằng chính mình để kiếm tiền nhanh lại nhẹ nhõm.
+Thế nhưng dẫu có về thật, chắc hẳn cô cũng giữ cùng một suy nghĩ như vậy.
 
-Ngược lại một năm trở về số lần có hạn.
+Thay vì tốn tâm sức đối phó với đám bà con thân thích, cháu chắt trong làng, chẳng thà để thời gian tự mình kiếm tiền vừa nhẹ đầu lại vừa nhanh gọn.
 
-Ngược lại lý Airam có thể.... Không lớn cần vương kim như.
+Dù sao một năm số lần về quê cũng chỉ đếm trên đầu ngón tay.
 
-Đại khái nãi nãi cũng là nghĩ đến cháu trai của tính cách, lại biết cháu trai có cổ phần của công ty mới chỉ chữ không đề cập tới phân gia, liền muốn vương kim như tới"trông coi"cái nhà này.
+Ngược lại, người như Lý Ngải Lan... có khi lại chẳng cần đến một người thím tháo vát, sắc sảo như Vương Kim Như.
 
-Nãi nãi trong lòng sáng như gương, ở phương diện này đoạn thu bình không bằng vương kim như.
+Có lẽ bà nội cũng đã sớm nhìn thấu nét tính cách trầm lặng của đứa cháu trai, lại biết cháu mình nắm giữ cổ phần công ty nên mới chẳng buồn đả động nửa lời đến chuyện phân chia gia sản, chỉ muốn để Vương Kim Như đứng ra quán xuyến, trông coi cơ ngơi này.
 
-Ngược lại đồng dạng gia đình, không tính nghèo, cũng không tính rất có tiền, mới không có dạng này"phiền não", không nhất định cần vương kim như dạng này người tới lo liệu một cái gia.
+Trong lòng bà sáng như gương. Về khoản tề gia nội trợ, đối nhân xử thế nơi làng quê, Đoạn Thu Bình quả thực không thể nào bằng được Vương Kim Như.
 
-Phải biết nãi nãi tại Triệu Kim An bên trên mùng hai thời điểm, liền chỉ một mảnh ruộng lúa nói đó là ngươi nhà thúc thúc của, đó là ngươi cha cùng mẹ ngươi của tên tuổi phân đến của.
+Còn đối với những gia đình bình thường, không quá nghèo cũng chẳng quá giàu, họ mới không có thứ “phiền muộn” kiểu này, cũng chẳng nhất thiết phải cần một người như Vương Kim Như đứng mũi chịu sào để gánh vác cả gia đình.
 
-Lúc kia nãi nãi trong lòng là hi vọng Triệu Kim An"nhô lên"cái nhà này.
+Phải biết rằng năm Triệu Kim An học lớp tám, bà nội từng chỉ tay về phía thửa ruộng bậc thang tít tắp đằng xa mà bảo: Kia là phần của nhà chú mày, còn kia là phần được chia theo đầu người của ba má mày đấy.
 
-Đại nhi tử không có.
+Khi ấy, trong thẳm sâu tâm can, bà nội luôn mong mỏi Triệu Kim An có thể sớm ngày vững vàng đứng lên, cáng đáng lấy mái nhà này.
 
-Đại nhi tử 9 0 niên đại chính là"vạn nguyên nhà", nãi nãi hi vọng cháu trai có thể sớm một chút"nhô lên"cái nhà này.
+Bởi người con trai cả của bà đã mất rồi.
 
-Có ít người có thể không hiểu, nhưng người lớn tuổi rất xem trọng.
+Người con trai cả từ những năm chín mươi đã là “hộ vạn tệ” nức tiếng trong vùng. Bà nội chỉ mong đứa cháu trai nối dõi có thể sớm ngày trưởng thành, trở thành rường cột chống đỡ gia đình.
 
-Bên ngoài mấy nhà người nói chuyện khí thế ngất trời, chậm chạp không chịu tán đi.
+Người ngoài nhìn vào có thể chẳng hiểu nổi, nhưng lớp người già thời trước lại coi trọng điều này hơn bất cứ thứ gì.
 
-Người trong thôn rất kỳ quái.
+***
 
-Tiểu thẩm thẩm lại không tới, các nàng như thế nào đều tại Triệu Kim An nhà?
+Bên ngoài sân trước, mấy nhà túm tụm chuyện trò rôm rả, mãi mà chưa ai chịu ra về.
 
-Tiếc nuối nhất chính là, khâu lệ hà.
+Người trong làng dạo này cũng thấy lạ lùng.
 
-Tô xa thứ nhất, quầy bán quà vặt có chút cấp bậc thuốc lá liền không có.
+Rõ ràng thím hai nhà Kim An có ở nhà đâu, cớ sao tối nào mọi người cũng kéo sang tụ tập đông đủ bên nhà Triệu Kim An thế này?
 
-Doãn Hiểu Lan trở về lại kề sát Triệu Kim An ngồi, lửa than đốt rất vượng.
+Người tiếc nuối nhất có lẽ là Khâu Lệ Hà.
 
-Mãi cho đến ban đêm 1 1 điểm, chương ngọc bé gái của lão công, Triệu Bằng vũ mới cầm đèn pin tới đón lão bà về nhà.
+Từ ngày Tô Miến về đây, mấy bao thuốc lá loại xịn trong tiệm tạp hóa của bà ta đã bị vét sạch bách từ lâu.
 
-"Kim An...."
+Doãn Hiểu Lan sau khi rửa dọn xong xuôi lại bước vào ngồi sát bên cạnh Triệu Kim An, ánh than hồng trong chậu củi đượm bốc lên hơi ấm nồng nàn.
 
-"ân, ngồi."
+Mãi cho đến tận mười một giờ đêm, Triệu Bằng Vũ – chồng của Trương Ngọc Ni – mới cầm đèn pin lẹp xẹp bước sang đón vợ về.
 
-Triệu Kim An khói tan, Triệu Bằng vũ biểu thị chính mình không hút thuốc lá.
+"Kim An..."
 
-"bằng vũ, ngồi, ăn vặt."
+"Dạ, anh vào ngồi đi."
 
-Doãn Hiểu Lan hô.
+Triệu Kim An rút bao thuốc định mời, nhưng Triệu Bằng Vũ xua tay bảo mình không hút.
 
-Triệu Bằng vũ 1 7 2 của kích thước, nhìn thành thật, trong tay mang theo một cái tiểu xà áo da, chất phác cười nói:"Kim An, ngọc bé gái rất tham ăn, cái này, đây là ta hôm nay ở trên núi dug out trúc chuột."
+"Bằng Vũ đấy à, mau vào ngồi ăn miếng bánh uống hớp nước đi em." Doãn Hiểu Lan niềm nở cất tiếng chào.
 
-"không phải, bằng vũ, ta hôm nay buổi sáng cũng đi tìm rồi."
+Triệu Bằng Vũ dáng người chừng một mét bảy mươi hai, nom tướng mạo thật thà chất phác. Tay anh xách một chiếc bao tải dứa nhỏ, nở nụ cười ngượng nghịu: "Kim An này, con bé Ngọc Ni nhà anh nó háu ăn quá... Đây... đây là con chuột nứa anh vừa đào được trên đồi ban ngày."
 
-Triệu Chí Dũng cọ một chút đứng dậy, mở ra túi xách da rắn:"có 3 cân bộ dáng."
+"Ủa Bằng Vũ, sáng nay tao cũng lặn lội lên đồi tìm suốt mà không thấy!"
 
-Doãn Hiểu Lan cũng đứng dậy đi xem:"Kim An, đây là đạo thức ăn ngon."
+Triệu Trí Dũng bật dậy cái vèo, kéo miệng bao dứa ra ngó nghiêng: "Chà, con này phải cỡ ba cân đấy chứ chẳng chơi!"
 
-"....."
+Doãn Hiểu Lan cũng đứng dậy bước lại gần xem: "Kim An, món này nấu giả cầy hay xào lăn thì ngon hết sảy."
 
-Triệu Kim An xem xét mắt:"bằng vũ, cái này ngươi bán lấy tiền, ngọc bé gái đều lấy lươn tới."
+"..."
 
-"Kim An, ngọc bé gái..... Nhà ngươi đồ ăn vặt hoa quả rất đắt."
+Triệu Kim An liếc nhìn một cái rồi bảo: "Anh Bằng Vũ, con này anh đem ra chợ bán lấy tiền đi, ban nãy Ngọc Ni cũng mang cả xâu lươn sang rồi còn gì."
 
-Triệu Bằng vũ gãi đầu có chút ngại ngùng, bây giờ Triệu gia thôn của người đều biết Triệu Kim An có tiền, tô xa càng càng càng có tiền hơn, vậy trong nhà hàng tết có thể đồng dạng sao?
+"Ấy, Kim An... Ngọc Ni nhà anh... Đống bánh trái hoa quả nhà em đắt tiền lắm."
 
-Lần trước tô xa tới, nãi nãi để trong thôn của tân nương tử chương ngọc bé gái mang theo điểm về nhà.
+Triệu Bằng Vũ gãi đầu gãi tai, vẻ mặt đầy bẽn lẽn. Bây giờ khắp thôn họ Triệu ai mà chẳng biết Triệu Kim An đã phát tài, cô bạn gái Tô Miến kia lại càng giàu có nứt đố đổ vách, đồ sắm Tết trong nhà làm sao có thể tầm thường cho được?
 
-Đằng sau chương ngọc bé gái muốn ăn rồi, Triệu Bằng vũ quả thực là không có ở siêu thị tìm được một dạng của.
+Lần trước lúc Tô Miến ghé chơi, bà nội đã bảo cô dâu mới Trương Ngọc Ni gói một ít mang về.
 
-"ngươi ngồi."
+Về sau Trương Ngọc Ni ăn quen miệng lại thèm, Triệu Bằng Vũ lặn lội khắp mấy siêu thị lớn nhỏ trên huyện mà chịu chết, không tài nào tìm mua được loại y hệt.
 
-Triệu Kim An mắt nhìn ỷ lại trên ghế sa lon chương ngọc bé gái, phát giác Triệu Bằng vũ trung thực chất phác, thật đem chương ngọc bé gái làm tiểu nữ sinh dưỡng, chương ngọc bé gái cũng có mấy phần tư sắc.
+"Anh cứ ngồi xuống đi đã."
 
-"ngươi đi lấy chút cho ngọc bé gái mang về."
+Triệu Kim An liếc nhìn Trương Ngọc Ni đang lười biếng nằm ườn trên ghế sô-pha, nhận ra Triệu Bằng Vũ đúng là người đàn ông thuần hậu chất phác, cưng chiều Trương Ngọc Ni chẳng khác nào nuôi một cô con gái nhỏ; mà Trương Ngọc Ni quả thực cũng có vài phần nhan sắc nõn nà.
 
-"hảo."
+"Chị Hiểu Lan, chị vào lấy một ít bánh kẹo cho Ngọc Ni mang về nhé."
 
-Triệu Kim An vỗ vỗ Doãn Hiểu Lan, Doãn Hiểu Lan xách theo trúc chuột đi phòng bếp.
+"Được, để chị lấy."
 
-Cái này gọi là có qua có lại.
+Triệu Kim An khẽ vỗ nhẹ vào vai Doãn Hiểu Lan, cô liền hiểu ý, tay xách bao chuột nứa rảo bước vào gian bếp.
 
-Chưa từng nghĩ chương ngọc bé gái còn không muốn về nhà:"Kim An, ngươi khỏi phải nói, ta ngày mai tới ăn chính là."
+Đó gọi là cái nghĩa qua lại, có qua có lại mới toại lòng nhau.
 
-"......"
+Nào ngờ Trương Ngọc Ni vẫn chưa muốn về: "Kim An, anh đừng đóng gói làm gì cho mắc công, mai em lại tót sang ăn tiếp ấy mà."
 
-Triệu Kim An sửng sốt sẽ:"ngươi người tới ăn xong nhiều chút."
+"..."
 
-"ha ha ha...."
+Triệu Kim An ngớ người mất một thoáng, bật cười: "Cô vác cái miệng sang đây ăn khéo còn tốn hơn đấy."
 
-Chương ngọc bé gái té ở trên ghế sa lon ôm bụng cười.
+"Khúc khích khúc khích..."
 
-Triệu Chí Dũng cũng cười ha ha.
+Trương Ngọc Ni ôm bụng cười lăn lộn trên ghế sô-pha.
 
-Triệu Bằng vũ mắt nhìn trên bàn, lại cúi đầu mắt nhìn thùng rác, nghe lão bà còn không muốn về nhà, liền đóng lại đèn pin kéo cái ghế dựa thành thành thật thật ngồi xuống chờ lão bà.
+Triệu Trí Dũng cũng phụ họa cười ha hả thành tiếng.
 
-"ngươi đêm hôm khuya khoắt đi làm gì rồi?"
+Triệu Bằng Vũ đưa mắt nhìn mặt bàn bày đầy vỏ hạt dưa, lại cúi đầu nhìn thùng rác đầy ắp, nghe vợ bảo chưa muốn về thì liền tắt đèn pin, kéo một chiếc ghế con ngoan ngoãn ngồi xuống bên cạnh đợi vợ.
 
-Triệu Kim An hỏi một câu.
+"Nửa đêm nửa hôm anh còn đi đâu đấy?" Triệu Kim An thuận miệng hỏi một câu.
 
-"đi kẹp lươn rồi."
+"Anh đi soi lươn kẹp lươn ngoài mương."
 
-Triệu Bằng vũ 3 0 tuổi, đối với Triệu Kim An không quá quen, chủ yếu là Triệu Kim An cao trung đọc dừng chân, về nhà cũng rất ít trong thôn lộ diện, đối với cái này tiểu chính mình 1 0 tuổi tiểu thúc công.....
+Triệu Bằng Vũ năm nay ba mươi tuổi, đối với Triệu Kim An vốn không mấy thân thiết. Phần vì Triệu Kim An học cấp ba nội trú, mỗi lần về quê cũng hiếm khi lượn lờ trong thôn, nên đối với người “ông chú họ” kém mình tới mười tuổi này...
 
-Là thi đậu sư lớn trọng điểm bản khoa, lái Audi trở về thôn, tô xa lại tới.
+Cũng chỉ từ dạo cậu đỗ đại học trọng điểm Sư Đại, lái xe sang Audi bóng loáng về làng, rồi lại có cô tiểu thư Tô Miến xinh đẹp ghé thăm...
 
-Nghe người trong thôn thường xuyên nói đến, Triệu Bằng vũ mới phát hiện cái này tiểu thúc công thật sự rất đẹp trai, cười lên nhìn rất đẹp.
+Nghe dân làng bàn tán xôn xao suốt ngày, Triệu Bằng Vũ mới để ý thấy người ông chú họ này quả thực trông rất tuấn tú, nụ cười lúc nào cũng ấm áp, ưa nhìn.
 
-Nhìn lão bà cùng Triệu Chí Dũng cười lớn tiếng như vậy, Triệu Bằng vũ cũng cười theo vài tiếng.
+Thấy vợ và Triệu Trí Dũng cười lớn tiếng như vậy, Triệu Bằng Vũ cũng gượng cười phụ họa vài tiếng theo.
 
-Đại khái tuổi tác chênh lệch có khoảng cách thế hệ.
+Chắc có lẽ do khoảng cách tuổi tác nên có chút ngại ngùng ngăn cách.
 
-Chương ngọc bé gái tiểu hắn 6, 7 tuổi, dáng dấp lại coi như xinh đẹp, Triệu Bằng vũ thương lão bà rất bình thường.
+Trương Ngọc Ni kém anh tới sáu, bảy tuổi, lại thuộc diện xinh xắn có tiếng trong vùng, Triệu Bằng Vũ hết mực cưng chiều vợ âu cũng là lẽ thường tình.
 
-"ngươi đi bên ngoài nghe một chút."
+"Anh ra ngoài hiên nghe ngóng một chút đi."
 
-"hảo."
+"Ừ, được."
 
-Triệu Bằng vũ lúc tiến vào ngay tại bên ngoài nghe xong sẽ, hắn nhìn xem Triệu Kim An.
+Lúc mới bước chân vào cổng, Triệu Bằng Vũ đã nán lại ngoài hiên đứng nghe một lát rồi. Anh nhìn Triệu Kim An với ánh mắt đầy vẻ thăm dò.
 
-Triệu Kim An gật đầu.
+Triệu Kim An khẽ gật đầu.
 
-"cảm tạ."
+"Cảm ơn em nhiều nhé, Kim An."
 
-Triệu Bằng vũ nói lên từ đáy lòng rồi tiếng cám ơn, giống như được một trương"vào trận vé."
+Triệu Bằng Vũ cất lời cảm ơn chân thành tự đáy lòng, cảm giác hệt như vừa nhận được một “tấm vé thông hành” quý giá.
 
-Tại Triệu gia thôn không đi ra đi làm, là thực sự không có gì nguồn kinh tế, nếu như ở nhà trồng cây ăn quả cũng không cần xuôi nam Dương Thành vào xưởng làm việc, loại tốt một năm kiếm lời không thiếu tiền.
+Ở cái thôn họ Triệu hẻo lánh này, nếu không ra ngoài bươn chải làm thuê thì quả thực chẳng kiếm đâu ra nguồn thu nhập khá khẩm. Nếu như có thể ở nhà cùng nhau trồng cây ăn quả theo mô hình mới, anh sẽ không phải cắn răng dứt áo tha hương vào tận Dương Thành làm công nhân trong xưởng nữa, chỉ cần chăm bón tốt thì mỗi năm thu về một món tiền không hề nhỏ.
 
-Triệu Bằng mái nhà không được đem lão bà ném trong nhà, chính mình xuôi nam Dương Thành đi làm.
+Triệu Bằng Vũ sao nỡ vứt cô vợ trẻ đẹp ở nhà một mình mà thân gái dặm trường vào Dương Thành làm lụng cho đặng.
 
-Tại Triệu gia thôn cứ như vậy, lão bà sinh hài tử, ngay tại nhà mang hài tử, nam ra ngoài kiếm tiền.
+Đàn ông làng này xưa nay đều thế: vợ sinh con xong thì ở nhà chăm bẵm con cái, còn đàn ông thì bôn ba tứ xứ kiếm tiền mang về.
 
-Triệu Quốc Hoa chính là ví dụ.
+Triệu Quốc Hoa chính là tấm gương rành rành trước mắt.
 
-Kỳ thực Triệu Kim An cũng kỳ quái, chương ngọc bé gái là thực sự không tim không phổi, tới lâu như vậy liền không có nhớ tới nhà mình, chỉ có biết ăn.
+Thực ra Triệu Kim An cũng thấy lạ, cái cô Trương Ngọc Ni này đúng là vô tâm vô tính đến phát sợ, sang chơi từ chập tối tới giờ chẳng mảy may nhớ gì đến nhà cửa, chỉ biết cắm đầu vào ăn với uống.
 
-Một mực hàn huyên tới 1 2 giờ rưỡi, người bên ngoài mới thỏa mãn tán đi.
+Mọi người rôm rả chuyện trò mãi tới tận mười hai giờ rưỡi khuya, đám đông ngoài sân mới lưu luyến giải tán ra về.
 
-Chương ngọc bé gái còn lưu luyến không rời, bảo ngày mai còn tới.
+Trương Ngọc Ni vẫn còn quyến luyến không nỡ dời bước, miệng bảo mai nhất định sẽ sang tiếp.
 
-Doãn Hiểu Lan cũng trở về nhà mình, ngay trước mặt mọi người.
+Doãn Hiểu Lan cũng chào mọi người rồi trở về nhà mình ngay trước mặt bàn dân thiên hạ.
 
-Triệu Duyệt Thiên sợ bị mụ mụ đánh, ỷ lại ca ca trên giường, muốn cùng ca ca ngủ.
+Con bé Triệu Duyệt Thiên sợ bị mẹ đánh đòn, cứ mè nheo bám chặt lấy giường của anh trai, nằng nặc đòi ngủ chung với anh.
 
-Ngày kế tiếp, giao thừa.
+***
 
-Triệu Duyệt Thiên buổi sáng vẫn là khóc cái, trên mặt mang mấy giọt nước mắt.
+Hôm sau, ba mươi Tết.
 
-Vương kim như nói:"hôm nay không đánh, ngày mai đầu năm mùng một liền không thể đánh người mắng chửi người."
+Sáng sớm, gian nhà đã vang lên tiếng khóc oe hoe của Triệu Duyệt Thiên, trên khóe mắt con bé còn vương mấy giọt nước mắt ngắn dài.
 
-Triệu Kim An ngay tại một bên cười.
+Vương Kim Như vừa cầm roi vừa phân bua: "Hôm nay không đánh thì để sang mùng Một cấm có được đánh mắng con nít nữa đấy."
 
-Sau ba phút, Triệu Duyệt Thiên thì không có sao, còn lặng lẽ nói cho ca ca nói cái mông không đau.
+Triệu Kim An đứng tựa cửa nhìn cảnh ấy mà không nhịn được cười.
 
-Triệu Chí Dũng cùng chương ngọc bé gái buổi sáng lại tới, Triệu Chí Dũng chính mình ra tay, trúc chuột giữa trưa bữa ăn này liền ăn.
+Chỉ ba phút sau, Triệu Duyệt Thiên đã nín bặt như chưa từng có chuyện gì xảy ra, còn len lén chạy lại ghé tai anh trai thì thầm bảo mông em chẳng đau tí nào đâu.
 
-Vương kim như vốn là định hai cái cô cô tới chúc tết mới ăn của, Triệu Chí Dũng một bên bị chửi một bên cười ha hả trừ dưới lông oa.
+Đến tầm trưa, Triệu Trí Dũng cùng Trương Ngọc Ni lại kéo sang. Triệu Trí Dũng đích thân xắn tay áo làm thịt con chuột nứa, nấu luôn cho bữa trưa tất niên.
 
-Phòng bếp, nãi nãi nhỏ giọng thầm thì câu:"tiếc là tô xa không đến."
+Vương Kim Như vốn dĩ tính để dành con chuột nứa này đợi hai người cô ruột sang chúc Tết mới đem ra thết đãi, thế mà Triệu Trí Dũng vừa bị mắng té tát vừa cười hề hề cạo lông, chặt khúc bỏ tọt vào nồi.
 
-"....."
+Trong gian bếp, bà nội khẽ thở dài lẩm bẩm: "Tiếc thật, cái Miến nó lại không sang được."
 
-Vương kim như nhỏ giọng trêu ghẹo:"mẹ, ngươi hai đứa con gái cũng không có cháu dâu trọng yếu?"
+"..."
 
-Lúc xế chiều.
+Vương Kim Như nghe thấy liền nhỏ giọng trêu đùa: "Mẹ này, hai đứa con gái ruột của mẹ về chúc Tết mà xem chừng chẳng quan trọng bằng đứa cháu dâu tương lai đâu nhỉ?"
 
-Triệu Vĩ còn chưa có trở lại, Triệu Quốc Hoa có chút tức giận.
+***
 
-Hắn đánh điện thoại cho Triệu Vĩ, điện thoại tắt máy.
+Buổi chiều buông xuống.
 
-"không lý lẽ! Ai giao thừa đều ở bên ngoài chơi lên không trở về nhà của!?"
+Triệu Vĩ vẫn bặt vô âm tín, Triệu Quốc Hoa bắt đầu nổi cơn tam bành.
 
-Triệu Quốc Hoa là thực sự tức giận, hắn đã nói rất hàm súc.
+Ông móc điện thoại gọi cho Triệu Vĩ, nhưng đầu dây bên kia chỉ báo tắt máy.
 
-Triệu Chí Dũng cũng đánh Triệu Vĩ điện thoại, vẫn là không cách nào kết nối.
+"Đúng là đồ vô tích sự! Ba mươi Tết rồi mà còn la cà cờ bạc ngoài đường không chịu vác mặt về nhà là sao hả!?"
 
-"chó này....."
+Triệu Quốc Hoa thực sự giận tím mặt, câu mắng ấy đã là nén giận nói giảm nói tránh lắm rồi.
 
-Nghĩ nghĩ lại đem cái chữ kia nuốt xuống, cái này không phải là đem Triệu Kim An cũng cùng chửi rồi.
+Triệu Trí Dũng cũng rút máy gọi cho Triệu Vĩ, vẫn là chuỗi âm thanh tút tút vô vọng.
 
-Triệu Kim An cùng Triệu Vĩ là cùng một cái thái gia gia.
+"Cái thằng cẩu..."
 
-Cho nên Triệu Quốc Hoa thật là có tư cách quản Triệu Vĩ.
+Nghĩ ngợi một lát, Trí Dũng đành nuốt ngược nửa câu chửi thề vào bụng, chửi thế chẳng hóa ra chửi lây cả họ nhà Triệu Kim An hay sao.
 
-Chương ngọc bé gái đứng tại khe nước bên cạnh, nhìn xem bên cạnh Triệu Vĩ nhà, Doãn Hiểu Lan ăn cơm trưa xong liền trở về chuẩn bị cơm tất niên rồi.
+Dù sao Triệu Kim An và Triệu Vĩ cũng cùng chung một cụ cố tổ.
 
-Gả cho Triệu Vĩ, cơm tất niên không có ở Triệu Kim An nhà ăn đạo lý.
+Thế nên Triệu Quốc Hoa hoàn toàn có đủ tư cách và vai vế để dạy bảo thằng cháu họ này.
 
-Từng nhà cũng là tại nhà mình ăn.
+Trương Ngọc Ni đứng tựa bên mép rãnh nước, ánh mắt dõi về phía gian nhà của Triệu Vĩ sát vách. Doãn Hiểu Lan ăn xong bữa trưa bên này là đã lẳng lặng trở về nhà chuẩn bị mâm cơm cúng tất niên.
 
-Phòng bếp truyền ra"keng keng"chặt xương âm thanh.
+Đã gả làm dâu nhà Triệu Vĩ, bữa cơm đoàn viên đêm ba mươi Tết tuyệt đối không có đạo lý nào lại đi ăn nhờ ở đậu bên nhà Triệu Kim An.
 
-Doãn Hiểu Lan một người tại phòng bếp bận rộn.
+Nhà nào nhà nấy đều phải quây quần bên mâm cơm cúng của chính gia đình mình.
 
-Triệu Kim An ở phía trước bãi dựa vào hàng rào vấn đạo:"chương ngọc bé gái, ngươi không muốn về nhà chuẩn bị cơm tất niên?"
+Từ gian bếp bên ấy vọng sang tiếng "cộp cộp" của dao thớt chặt xương.
 
-Chương ngọc bé gái cũng là thành thân của người, đầu nàng cũng không trở về nói:"bà bà ta cùng bằng vũ đang làm."
+Một mình Doãn Hiểu Lan cặm cụi tất bật trong gian bếp lạnh lẽo.
 
-Sau một lúc lâu mới quay đầu.
+Triệu Kim An tựa người vào lan can trước hiên nhà, cất tiếng hỏi: "Trương Ngọc Ni, cô không về nhà phụ chuẩn bị cơm tất niên à?"
 
-"Hiểu Lan.... Có chút đáng thương, cơm tất niên đều phải một người ăn."
+Trương Ngọc Ni dẫu sao cũng là người đã có gia đình, cô ta chẳng thèm quay đầu lại, thản nhiên đáp: "Mẹ chồng với anh Bằng Vũ đang làm dưới bếp rồi."
 
-Nghe được câu này, Triệu Quốc Hoa lại đánh Triệu Vĩ điện thoại, sinh khí quải điệu:"ta cưỡi motor đi ra phố tìm xem!"
+Một thoáng im lặng trôi qua, cô mới chầm chậm quay đầu lại, khẽ thở dài:
 
-"ta cũng đi!"
+"Chị Hiểu Lan... trông tội nghiệp quá, bữa cơm tất niên mà cũng phải thui thủi ăn một mình."
 
-Triệu Chí Dũng nảy sinh ác độc:"tìm được nhìn ta đánh không đánh hắn!"
+Nghe câu nói ấy, Triệu Quốc Hoa lại bực bội rút điện thoại bấm số của Triệu Vĩ lần nữa, rồi tức tối dập máy: "Để tao lấy xe máy chạy lên phố huyện tìm nó xem sao!"
 
-"đi nơi nào tìm?"
+"Cháu đi với chú!" Triệu Trí Dũng nghiến răng nghiến lợi: "Lần này mà tóm được nó, xem cháu có dần cho nó một trận nhừ tử không!"
 
-Triệu Kim An sờ soạng hộp thuốc lá lại thả xuống, hắn từ trước tới giờ không làm nãi nãi của mặt hút thuốc:"giao thừa, quán mạt chược đều đóng cửa rồi."
+"Đi đâu mà tìm?"
 
-"vậy hắn đi nơi nào?"
+Triệu Kim An rút bao thuốc lá ra rồi lại chần chừ nhét vào túi áo, cậu tuyệt đối không bao giờ hút thuốc trước mặt bà nội: "Chiều ba mươi Tết, các sòng mạt chược ngoài phố đóng cửa hết cả rồi."
 
-"không chết được, loại người này của mệnh rất mạnh...."
+"Thế rốt cuộc nó chui rúc vào cái xó nào rồi?"
 
-Triệu Quốc Hoa:.......
+"Không chết được đâu, cái hạng người như nó mạng lớn lắm..."
 
-Hắn không nghĩ tới chất tử biết nói như vậy.
+Triệu Quốc Hoa sững sờ: "..."
 
-Triệu Chí Dũng hung dữ mắng câu:"loại người này ở bên ngoài bị người đánh chết mới tốt!"
+Ông thật không ngờ đứa cháu trai điềm đạm thường ngày lại có thể thốt ra những lời lạnh lùng cay nghiệt đến vậy.
 
-Triệu Kim An lại biết, Triệu Vĩ tại tư cách tinh quán mạt chược gian lận danh tiếng xấu, liền chạy nơi khác đi, vẫn là ở kiếp trước Doãn Hiểu Lan cùng Triệu Vĩ sau khi ly dị nghe vương kim như nói.
+Triệu Trí Dũng thì nghiến răng chửi đổng thêm một câu: "Cái ngữ ấy có bị người ta đánh chết tươi ngoài đường mới hả lòng hả dạ!"
 
-Lại qua nửa giờ, Triệu Vĩ còn chưa có trở lại.
+Duy chỉ có Triệu Kim An là biết rõ mọi chuyện. Triệu Vĩ giở trò gian lận bài bạc ở sòng mạt chược Tư Tinh bị người ta lật tẩy, thanh danh thối hoắc không còn đất dung thân nên mới trốn chui trốn lủi biệt xứ. Đó là chuyện mà kiếp trước, mãi sau khi Doãn Hiểu Lan ly hôn với hắn ta, cậu mới nghe thím Vương Kim Như kể lại.
 
-Nãi nãi đi bên cạnh, không bao lâu trở về.
+Lại nửa tiếng nữa trôi qua, bóng dáng Triệu Vĩ vẫn tăm cá bóng chim.
 
-Vương kim như lại đi, nàng yết hầu lớn:"Hiểu Lan, một người đừng làm, liền cùng chúng ta ăn chung!"
+Bà nội lững thững bước sang nhà bên cạnh một lát rồi lại trở về.
 
-Doãn Hiểu Lan không biết nói cái gì, vương kim như khuyên vài câu trở về, nổi giận đùng đùng đi phòng bếp.
+Vương Kim Như sau đó cũng sốt ruột bước sang, giọng bà oang oang vang cả ngõ: "Hiểu Lan ơi, có một mình thì bày vẽ nấu nướng làm chi nữa, sang bên này ăn chung một mâm với cả nhà cho ấm cúng!"
 
-Triệu Kim An mắt nhìn bên cạnh đại môn, không có người dán câu đối.
+Bên trong gian bếp, chẳng rõ Doãn Hiểu Lan đã nói những gì, Vương Kim Như khuyên thêm vài câu bất thành đành lủi thủi quay về, mặt mày hậm hực đi thẳng vào bếp nhà mình.
 
-Câu đối vẫn là năm ngoái của.
+Triệu Kim An đưa mắt nhìn sang cánh cửa chính nhà bên, chẳng có lấy một manh câu đối đỏ nào mới dán.
 
-Triệu Kim An không nhớ rõ ở kiếp trước chính mình đại nhị năm này, Triệu Vĩ có hay không trở về.
+Đôi câu đối dán trên trụ cửa vẫn là nét giấy bạc màu, rách tả tơi từ Tết năm ngoái.
 
-Triệu Chí Dũng cùng chương ngọc bé gái không có trở về, một mực chờ đến trong thôn có người thả pháo, biểu thị ăn cơm tất niên rồi, trong nhà các nàng người cũng gọi điện thoại thúc giục về nhà mới đi.
+Triệu Kim An thực sự không thể nhớ nổi vào năm cậu học năm thứ hai đại học ở kiếp trước, liệu Triệu Vĩ có mò mặt về nhà ăn Tết hay không.
 
-Triệu Kim An vượt qua khe nước hướng đi bên cạnh, tựa ở cửa phòng bếp.
+Triệu Trí Dũng và Trương Ngọc Ni nán lại chơi mãi, cho đến khi trong thôn rải rác vang lên tiếng pháo nổ giòn giã báo hiệu các nhà đã bắt đầu vào mâm cúng tất niên, gia đình hai bên cũng liên tục gọi điện giục giã, họ mới chịu đứng dậy ra về.
 
-Phòng bếp.
+Triệu Kim An sải bước qua con rãnh nước nhỏ ngăn giữa hai mảnh sân, chầm chậm đi sang gian nhà bên cạnh, đứng dựa lưng vào khung cửa bếp.
 
-Doãn Hiểu Lan tay chân lanh lẹ, trong nồi xào đang thái, lại phải khoảng không rửa rau thiết thái, nhóm bếp đã có mấy bát thức ăn.
+Bên trong bếp.
 
-Triệu Kim An liền dựa vào cửa ra vào nhìn xem.
+Doãn Hiểu Lan đôi tay thoăn thoắt, trong chảo xào nấu xèo xèo, lại tranh thủ rửa rau, thái thịt, trên mặt bếp gạch đã bày biện ngay ngắn mấy đĩa thức ăn thơm phức.
 
-Doãn Hiểu Lan cũng trông thấy Triệu Kim An rồi.
+Triệu Kim An cứ thế đứng tựa vào cửa, lặng lẽ dõi theo từng động tác của cô.
 
-"mấy bát thái?"
+Doãn Hiểu Lan cũng đã nhận ra sự hiện diện của cậu.
 
-Triệu Kim An mở miệng, Doãn Hiểu Lan dừng lại, cúi đầu nói:"Kim An, ta gả cho hắn, không quản hắn có trở về hay không tới, cơm tất niên ta muốn cho hắn làm."
+"Mấy món rồi chị?"
 
-Triệu Kim An điểm
+Triệu Kim An cất tiếng phá vỡ bầu không khí tĩnh mịch. Đôi bàn tay thoăn thoắt của Doãn Hiểu Lan bỗng khựng lại, cô cúi gằm mặt xuống, giọng nói nghẹn ngào: "Kim An... Dù sao chị cũng đã gả cho anh ấy rồi. Bất kể anh ấy có về hay không, mâm cơm tất niên này chị vẫn phải làm cho tròn bổn phận."
+
+Triệu Kim An lặng lẽ gật đầu, nhìn bóng lưng gầy guộc đầy nhẫn nhịn của người đàn bà ấy, trong lòng dấy lên một nỗi xót xa khôn tả.

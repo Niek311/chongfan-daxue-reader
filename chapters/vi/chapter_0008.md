@@ -1,217 +1,221 @@
-# Chương 8: Gia Đình
+# Chương 8: Mái ấm...
 
-Doãn Hiểu Lan ngẩn người, không đáp lời.
+> **Tiêu đề gốc**: 第8章 家....
 
-Phải một lúc lâu sau, tiếng của nàng mới truyền ra: "Đâu có đơn giản như vậy."
+Doãn Hiểu Lan ngẩn người ra một lúc lâu, không thốt nên lời.
 
-Sáu chữ ngắn ngủi, u u trầm trầm, tựa như vọng về từ một nơi rất xa xôi.
+Mãi một hồi sau, mới có một tiếng thở dài khe khẽ vang lên giữa màn đêm: "Đâu có đơn giản như em nghĩ."
 
-"Không đơn giản sao?"
+Vỏn vẹn sáu chữ ngắn ngủi, u buồn và xa xăm, tựa như vọng về từ một miền ký ức thăm thẳm nào đó.
 
-Triệu Kim An nhớ lại chuyện mình và Trần Thanh Trĩ ly hôn, không có con cái nên hình như cũng chẳng khó khăn gì.
+"Chẳng lẽ lại phức tạp lắm sao?"
 
-Ngay cả Triệu Chí Dũng còn biết tình cảm giữa Doãn Hiểu Lan và Triệu Kim An Vĩ không tốt, kẻ làm hàng xóm như Triệu Kim An sao có thể không hay. Hắn còn biết cuối cùng Doãn Hiểu Lan và Triệu Kim An Vĩ thật sự đã ly hôn.
+Triệu Kim An bất giác nhớ lại cuộc hôn nhân đổ vỡ giữa mình và Trần Thanh Trĩ ở kiếp trước. Khi hai người chưa có con cái ràng buộc, việc buông tay dường như chẳng có gì quá đỗi khó khăn.
 
-Khi đó, bọn họ đã có với nhau một đứa con gái.
+Ngay cả Triệu Trí Dũng còn nhận ra tình cảm giữa Doãn Hiểu Lan và Triệu Vĩ từ lâu đã rạn nứt nguội lạnh, thì người sống sát vách như Triệu Kim An làm sao không tường tận cho được. Anh còn biết rất rõ rằng, ở kiếp trước, rốt cuộc Doãn Hiểu Lan và Triệu Vĩ cũng đi đến bước đường ly dị.
 
-Con gái được phán cho Triệu Kim An Vĩ, nhưng lại sống cùng Doãn Hiểu Lan.
+Khi ấy, giữa hai người họ đã có chung một cô con gái nhỏ.
 
-Doãn Hiểu Lan dẫn con gái về nhà ngoại, sau này nghe nói nàng đi xuống phía Nam tới Quảng Châu làm thuê, rồi dần dần liên lạc giữa hai bên cũng thưa thớt đi.
+Tòa phán quyết quyền nuôi dưỡng đứa bé thuộc về Triệu Vĩ, nhưng trên thực tế đứa trẻ lại theo Doãn Hiểu Lan sinh sống.
 
-Ở tỉnh Tương Nam này là vậy, một tấm vé tàu hỏa đi xuống phương Nam đến Quảng Châu chính là "điểm đến" cuối cùng.
+Chị dâu dắt con gái về nương náu nhà mẹ đẻ, sau đó nghe đâu chị khăn gói xuôi nam xuống tận Dương Thành làm công nhân trong các khu chế xuất. Năm tháng trôi qua, sợi dây liên lạc giữa hai bên cũng thưa thớt dần rồi đứt hẳn.
 
-Nếu không học đại học, rất nhiều bạn học ở trường Trung học số 1 thành phố cũng chỉ có một tấm vé tàu đi về phía Nam ấy mà thôi.
+Ở dải đất Tương Nam này, cuộc đời của bao số phận cứ thế lặp lại theo một vòng tuần hoàn quen thuộc: một tấm vé tàu hỏa xuôi nam tới Dương Thành chính là "bến đỗ cuối cùng" của thời thanh xuân.
 
-Các bạn nữ không biết rồi sẽ gả đi phương nào.
+Nếu không đỗ đạt vào đại học, rất nhiều bạn học ở trường cấp ba Số 1 thành phố cũng sẽ chọn cách mua một tấm vé tàu hỏa chạy thẳng về phương Nam.
 
-Các bạn nam có lẽ vài năm sau sẽ dắt về một cô vợ "ngoại tỉnh".
+Đám bạn nữ sau này chẳng biết sẽ trôi dạt gả về chốn nào.
 
-Thế vẫn còn là may, chỉ sợ đến vợ cũng chẳng dắt về nổi một người.
+Còn đám bạn nam, may mắn lắm thì dăm ba năm sau dẫn về quê một cô vợ "ngoại tỉnh".
 
-Thời buổi này điện thoại chẳng có gì hay để nghịch, Doãn Hiểu Lan đứng mỏi chân thì tựa vào lan can, dù không nói chuyện thì đứng đây vẫn tốt hơn là ngồi một mình trong phòng ngủ xem tivi.
+Thế vẫn còn là may mắn chán, chỉ sợ đi biền biệt bao năm mà đến một người vợ cũng chẳng rước nổi về làng.
 
-Nhưng cũng cần phải tránh hiềm nghi, nên Doãn Hiểu Lan đã giữ một khoảng cách nhất định với Triệu Kim An.
+Thời buổi này chiếc điện thoại di động chẳng có trò gì để giải trí, Doãn Hiểu Lan đứng mỏi chân bèn dựa lưng vào bờ lan can đá. Dẫu đôi bên chẳng nói với nhau câu nào, nhưng ngồi hóng mát thế này vẫn dễ chịu hơn nhiều so với việc phải giam mình một mình trong phòng ngủ nhìn chằm chằm vào màn hình ti vi.
 
-"Kim An, mấy hôm trước mẹ em tới thăm, có nói gì với em không?"
+Tuy nhiên, phụ nữ ở quê vẫn phải giữ kẽ miệng lưỡi thế gian, thế nên Doãn Hiểu Lan vô thức đứng lùi ra xa một khoảng, giữ khoảng cách chừng mực với Triệu Kim An.
 
-Doãn Hiểu Lan khơi mào câu chuyện, gương mặt lộ vẻ quan tâm.
+"Kim An này, mấy hôm trước mẹ em ghé thăm, có bàn tính gì với em không?"
 
-Triệu Kim An ngẩng đầu lên, hơi ngơ ngác.
+Doãn Hiểu Lan chủ động khơi chuyện, giọng điệu chan chứa vẻ ân cần hỏi han.
 
-Thực ra Doãn Hiểu Lan là muốn hỏi xem tiền học phí của Triệu Kim An đã có chỗ nào lo liệu chưa.
+Triệu Kim An ngước mắt lên, thoáng chút ngơ ngác.
 
-Cha của Triệu Kim An mất từ khi hắn còn học tiểu học vì uống rượu rồi chạy xe mô tô lao từ mặt đường xuống vực.
+Thực ra Doãn Hiểu Lan muốn dò hỏi xem chuyện tiền nong học phí đại học của anh đã thu xếp ổn thỏa hay chưa.
 
-Bốn năm sau, mẹ hắn là Đoạn Thu Bình tái giá, có gia đình mới nên bà cũng khó mà "gửi tiền" cho con trai mình.
+Bố của Triệu Kim An mất từ hồi anh còn học tiểu học — trong một lần ma men dẫn lối, ông say khướt phóng xe máy rồi lao thẳng xuống vực sâu bên sườn núi, mất mạng tại chỗ.
 
-Dẫu sao vài nghìn tệ tiền học phí đại học đối với nhiều gia đình bình thường cũng là một khoản chi lớn.
+Bốn năm sau, người mẹ là Đoàn Thu Bình đi bước nữa. Khi đã có một mái ấm gia đình mới cùng những đứa con riêng, bà cũng khó lòng công khai "tiếp tế tiền bạc" cho đứa con trai lớn này.
 
-Nếu bình thường nhét cho ít tiền tiêu vặt thì còn hiểu được, nên Triệu Chí Dũng mới hỏi một câu như vậy.
+Dẫu sao thì mấy ngàn tệ tiền học phí đại học thời bấy giờ đối với những gia đình bình dân vẫn là một gánh nặng tài chính không hề nhỏ.
 
-Sau khi Doãn Hiểu Lan rời đi, Triệu Kim An đứng dậy về phòng ngủ.
+Nếu ngày thường thỉnh thoảng giấu chồng dúi cho con ít tiền tiêu vặt thì còn dễ hiểu, đó cũng là lý do vì sao lúc chiều Triệu Trí Dũng lại buột miệng hỏi một câu như vậy.
 
-Hắn lôi từ trong gối ra một xấp tiền nhỏ, đếm lại thấy có 880 đồng.
+Sau khi Doãn Hiểu Lan quay về phòng, Triệu Kim An đứng dậy bước vào phòng ngủ của mình.
 
-Đây là tiền sau khi hắn thi đỗ Sư Đại, Đoạn Thu Bình tới thăm đã "lén lút" nhét cho con trai, tròn một nghìn đồng, gối luôn là nơi Triệu Kim An giấu tiền.
+Anh thò tay sâu vào bên trong ruột gối, lôi ra một xấp tiền gấp ngay ngắn, đếm đi đếm lại được tám trăm tám mươi tệ.
 
-"Vốn liếng vẫn còn hơi ít nhỉ."
+Đây là số tiền mẹ Đoàn Thu Bình sau khi hay tin anh thi đỗ vào Đại học Sư phạm đã tranh thủ ghé qua thăm rồi "lén lút" nhét cho anh đúng một ngàn tệ tròn, chiếc gối ngủ xưa nay vẫn luôn là nơi cất giấu tài sản an toàn nhất của anh.
 
-Triệu Kim An đóng cửa phòng, đếm lại số tiền trong tay.
+"Vốn liếng thế này vẫn còn mỏng quá."
 
-Tiền bán cá còn dư 150, Doãn Hiểu Lan đưa 300, cộng với 880 này, tổng cộng là 1330 đồng.
+Triệu Kim An khép hờ cánh cửa phòng, cẩn thận kiểm đếm lại toàn bộ số tiền hiện có trong tay.
 
-World Cup không chờ đợi một ai cả.
+Tiền bán cá còn dư một trăm năm mươi tệ, chị dâu vừa cho ba trăm tệ, cộng thêm tám trăm tám mươi tệ dưới gối này, tổng cộng vừa vặn một ngàn ba trăm ba mươi tệ.
 
-Triệu Kim An nằm trên giường một lát, đột nhiên có chút "hoài niệm" các loại hình vay tín dụng ở đời sau.
+Kỳ World Cup thì đâu có rảnh rỗi mà đứng chờ đợi một ai.
 
-Không có đủ vốn, dù biết trước tỉ số thì có thể làm được gì?
+Triệu Kim An ngả lưng nằm dài trên chiếc giường cót két một lát, trong lòng bỗng dưng dâng lên niềm "hoài niệm" khôn nguôi về đủ loại ứng dụng vay vốn tiện lợi ở thời hậu thế.
 
-Cuối cùng, hắn đứng dậy ra khỏi phòng, đi tới căn bếp sau nhà.
+Nếu không gom đủ một số vốn kha khá, thì dẫu cho bản thân có nắm rõ từng tỷ số trận đấu trong lòng bàn tay thì cũng làm nên trò trống gì?
+
+Nghĩ đoạn, anh bật dậy bước ra khỏi phòng ngủ, lần theo con đường nhỏ đi vòng ra gian bếp cũ kỹ phía sau nhà.
 
 "Bà nội."
 
-Người già rồi không biết có phải là không sợ nóng hay không, giữa mùa hè oi bức mà bà vẫn bưng bát ngồi ăn trong bếp. Bà ngẩng đầu nhìn cháu trai, ánh mắt đầy vẻ hiền từ.
+Người già hình như chẳng mấy khi biết sợ cái nóng nực, giữa trưa hè oi ả hay đêm hè oi nồng, bà nội vẫn lặng lẽ bưng bát cơm ngồi ăn một mình trong xó bếp. Nghe tiếng gọi, bà ngẩng mái đầu bạc phơ lên nhìn đứa cháu trai, ánh mắt tràn ngập vẻ hiền từ, nhân hậu.
 
-"Ăn ở nhà chị dâu cháu có no không?"
+"Bên nhà chị dâu cháu ăn cơm có no bụng không?"
+
+"Dạ, cháu ăn no rồi ạ."
+
+Triệu Kim An bước lại gần liếc nhìn một cái. Rõ ràng trên chạn bếp vẫn còn nguyên một bát thịt heo xào ớt thơm phức, vậy mà trong bát cơm của bà chỉ vỏn vẹn vài cọng rau luộc cùng mấy lát ớt cay xót lại từ đĩa thịt xào.
+
+"Nhà mình... chắc không tổ chức tiệc mừng đỗ đại học đâu cháu nhỉ."
+
+Bà nội bất chợt cất lời.
+
+Triệu Kim An gật đầu ngoan ngoãn: "Vâng, không làm đâu bà."
+
+Bà nội vươn bàn tay gầy guộc đầy những vết đồi mồi nắm lấy tay Triệu Kim An, nở một nụ cười móm mém.
+
+Đứa cháu trai học hành giỏi giang lại ngoan ngoãn, hiểu chuyện khiến lòng bà thấy an ủi vô ngần. Ngắm nhìn cháu một hồi lâu, bà gật gù bảo: "Cháu cứ yên tâm, dẫu mẹ cháu bên ấy có gặp điều khó xử, thì một mình bà nội này cũng đủ sức nuôi cháu ăn học hết mấy năm đại học."
+
+Có lẽ sợ đứa cháu trai phải lo nghĩ bận lòng, bà nội lại cất giọng đầy tự tin: "Hai con lợn bà nuôi trong chuồng chỉ tầm một tháng nữa là xuất chuồng bán được rồi, lại thêm đàn gà đàn vịt ngoài vườn nữa, gom góp lại đều đổi ra tiền được cả."
+
+"Cháu lên trường trên tỉnh thì chỉ việc chuyên tâm dùi mài kinh sử thôi nhé..."
 
 "Vâng ạ."
 
-Triệu Kim An bước tới liếc nhìn, trên bếp rõ ràng có một bát ớt xanh xào thịt, nhưng trong bát của bà chỉ có chút dưa muối, cùng với mấy miếng ớt xanh lọc ra từ bát thịt xào kia.
+Triệu Kim An còn có thể nói gì hơn ngoài việc gật đầu lia lịa, trên đời này chẳng có điều gì hạnh phúc bằng việc được tận mắt nhìn thấy bà nội bằng xương bằng thịt còn sống khỏe mạnh bên mình.
 
-"Nhà mình sẽ không tổ chức tiệc mừng đâu."
+Bà nội hơi ngạc nhiên, chẳng hiểu vì cớ gì mà hôm nay đứa cháu trai lại nhìn mình bằng ánh mắt tha thiết, nghẹn ngào đến thế. Đang nói dở, bà bỗng đảo mắt nhìn ra ngoài sân, rồi buột miệng nói một câu đầy ẩn ý:
 
-Bà nội đột nhiên nói.
+"Chị dâu cháu... nó là một người đàn bà tốt đấy."
 
-Triệu Kim An gật đầu: "Vâng, tốt ạ."
+"Dạ... dạ?!"
 
-Bà nội nắm lấy tay Triệu Kim An, mỉm cười.
+Triệu Kim An nghẹn lời: "..."
 
-Cháu trai học giỏi lại ngoan ngoãn, bà cảm thấy rất an lòng. Nhìn cháu hồi lâu, bà gật đầu nói: "Cháu cứ yên tâm, dù mẹ cháu không tiện thì bà cũng có thể nuôi cháu học hết đại học."
+"Dạ, cháu biết rồi ạ."
 
-Có lẽ sợ cháu trai lo lắng, bà lại rất tự tin bảo: "Hai con lợn bà nuôi chỉ một tháng nữa là có thể xuất chuồng rồi, còn có cả gà vịt nữa, đều bán lấy tiền được."
+Anh thực sự không thể hiểu nổi tại sao bà nội lại đột ngột thốt ra một câu kỳ lạ như vậy.
 
-"Cháu đi học thì cứ lo mà học cho tốt..."
+Thế hệ ông bà vốn dĩ khác hẳn với thế hệ cha mẹ. Cha mẹ thì luôn canh cánh nỗi lo con cái yêu sớm thời cấp ba sẽ xao nhãng việc học hành, còn những người già ở bậc ông bà thì đâu có nghĩ ngợi sâu xa đến thế.
 
-"Vâng."
+Có khi trong thâm tâm, các cụ chỉ mong mỏi sớm ngày nào được bế đứa chắt nội ngày ấy mà thôi.
 
-Triệu Kim An còn có thể nói gì đây, chỉ biết gật đầu, không có gì tốt hơn việc được gặp lại bà.
+Ở kiếp trước, mãi cho đến tận lúc nhắm mắt xuôi tay bà nội vẫn chưa một lần được ẵm đứa chắt trên tay. Nỗi niềm ấy khiến Triệu Kim An bao năm ròng luôn mang nặng cảm giác tội lỗi khôn nguôi. Khi đó anh đã bước sang tuổi ba mươi hai, ba mươi ba, bà nội ngày nào cũng nhắc đi nhắc lại chuyện con cái.
 
-Bà nội thấy hơi lạ, sao hôm nay cháu trai cứ nhìn mình như vậy. Đang nói, bà lại liếc nhìn ra ngoài, bỗng nhiên buông một câu không đầu không cuối.
+Ngay trước lúc lâm chung, bà vẫn nắm chặt lấy bàn tay Triệu Kim An, đôi mắt đục ngầu đượm vẻ tiếc nuối vô bờ: "Thanh Trĩ là một đứa bé ngoan... là tại bà nội không có phúc phần, chẳng sống được đến ngày nhìn thấy mụn con của cháu và Thanh Trĩ..."
 
-"Chị dâu cháu là một người phụ nữ tốt."
+Năm ấy, Trần Thanh Trĩ đến rất muộn. Mãi đến khi Triệu Kim An gọi điện báo tin bà nội đã trút hơi thở cuối cùng, Trần Thanh Trĩ mới vội vã bắt chuyến bay gấp trở về.
 
-"Dạ... hả!?"
+Vừa kịp trước giờ đóng nắp quan tài, cô đã quỳ sụp trước linh cữu của bà mà nức nở khóc suốt một hồi lâu.
 
-Triệu Kim An: "..."
+"Bà nội ơi, bà có tiền mặt ở đây không ạ?"
 
-"Vâng, cháu biết mà."
+Triệu Kim An rốt cuộc vẫn phải mở lời: "Mấy hôm nữa cháu sẽ gửi lại bà ngay. Cháu với thằng Dũng đi bắt cá bán..."
 
-Hắn thật sự không hiểu tại sao bà nội tự dưng lại nói một câu như thế.
+Bà nội nhìn cháu trai đăm đăm, chẳng hỏi han thêm lấy nửa lời, lập tức đặt bát cơm xuống rồi lật đật bước ra khỏi gian bếp, chắc hẳn là đi lấy tiền tích góp.
 
-Thế hệ của bà khác với thế hệ cha mẹ, cha mẹ lo lắng con cái yêu sớm thời trung học sẽ ảnh hưởng đến học tập, còn người già như bà thì không nghĩ nhiều vậy.
+Việc tổ chức tiệc mừng đỗ đại học đúng là có thể thu về một khoản tiền mừng phong bì. Thế nhưng kể từ ngày bố của Triệu Kim An qua đời, trong làng hễ có nhà ai dựng rạp cưới xin, ma chay hay mừng thọ, thì phần lễ nghĩa qua lại bên nhà anh chẳng còn ai đứng ra gánh vác nữa.
 
-Có lẽ bà còn mong sớm được bế chắt nữa cơ.
+Xưa nay tình làng nghĩa xóm vốn là chuyện bánh ít đi bánh quy lại.
 
-Kiếp trước bà nội đến tận lúc mất cũng chưa được bế chắt, Triệu Kim An trong lòng rất áy náy. Lúc đó Triệu Kim An đã ba mươi hai, ba mươi ba tuổi rồi, bà nội không ít lần nhắc nhở.
+Nhà mình không đi lễ người ta, thì thử hỏi làm sao người ta có thể cam tâm tình nguyện mang phong bì đến "mừng" cho mình được?
 
-Mãi đến trước khi lâm chung, bà vẫn nắm tay Triệu Kim An, tiếc nuối nói: "Thanh Trĩ là một đứa trẻ ngoan, là bà không có phúc rồi, không đợi được thấy con của cháu và Thanh Trĩ..."
+Nói một câu khó nghe, gia đình vốn không làm ăn buôn bán, họ hàng thân thích cũng chẳng có ai giàu sang khá giả, dẫu có cố gượng mở tiệc linh đình thì số tiền mừng thu về cũng chẳng được là bao.
 
-Trần Thanh Trĩ đến muộn, là khi Triệu Kim An gọi điện báo tin bà qua đời, cô mới vội vã chạy về.
+Trừ đi chi phí cỗ bàn, rượu chè, thuê mướn phông bạt, may ra chỉ còn sót lại vài ba ngàn tệ ít ỏi.
 
-Ngay trước lúc đóng nắp quan tài, cô đã quỳ trước giường bà khóc rất lâu.
+Đã vậy thì thà dứt khoát không tổ chức còn hơn, vừa không đẩy bà con lối xóm vào thế khó xử, lại vừa không tạo cơ hội cho thiên hạ có cớ để đàm tiếu, gièm pha sau lưng.
 
-"Bà ơi, bà có tiền không ạ?"
+Một lát sau bà nội quay trở lại bếp. Bà cẩn thận móc từ trong túi quần ra một chiếc túi ni lông màu đỏ, tỉ mỉ gỡ từng nút thắt. Bên trong là một cọc tiền dày cộm, đủ mọi mệnh giá chắp vá lại với nhau.
 
-Triệu Kim An cuối cùng cũng mở lời: "Mấy hôm nữa cháu sẽ trả lại cho bà ngay, cháu và Chí Dũng đi bán cá..."
+Thậm chí bên trong còn lẫn cả những tờ tiền lẻ một, hai tệ nhàu nát, cũ kỹ.
 
-Bà nội nhìn cháu trai, không nói một lời nào liền buông bát đũa đi ra khỏi bếp, chắc là đi lấy tiền.
+"Hai ngàn ba trăm năm mươi sáu tệ. Bà nội chỉ dành dụm được ngần này thôi, cháu cứ cầm lấy hết đi. Muốn đi chơi bời với bạn bè thì cứ đi, muốn mua sắm quần áo sách vở gì thì cứ việc mua."
 
-Tổ chức tiệc mừng đỗ đạt thì có thể thu được ít phong bì, nhưng sau khi cha Triệu Kim An qua đời, trong làng ai có đám xá gì thì phần nhân tình của nhà hắn cũng không còn ai qua lại nữa.
-
-Đời là bánh ít đi bánh quy lại mà.
-
-Cháu không đi nhân tình cho người ta, lúc cháu có việc, ai mà cam tâm tình nguyện "tặng quà" cho được?
-
-Nói thẳng ra là nhà không làm kinh doanh, chẳng có mấy họ hàng giàu có, dù có bày tiệc cũng chẳng thu được bao nhiêu tiền lễ.
-
-Trừ đi chi phí cỗ bàn, có khi chỉ còn dư lại vài nghìn lẻ.
-
-Thay vì thế, thà rằng không tổ chức cho xong, vừa không làm khó người khác, vừa không cho kẻ khác cơ hội đàm tiếu.
-
-Lát sau bà nội quay lại, bà lôi từ túi quần ra một cái túi nilon màu đỏ, cẩn thận mở ra, bên trong là một xấp tiền rất dày, có cả tiền chẵn lẫn tiền lẻ.
-
-Thậm chí còn có cả những tờ tiền lẻ mệnh giá thấp "nhăn nhúm".
-
-"2356 đồng, bà chỉ có bấy nhiêu thôi, cháu cầm lấy. Muốn đi chơi với bạn bè thì cứ đi, muốn mua gì thì mua."
-
-Chỗ tiền này chắc hẳn bà đã đếm qua rất nhiều lần rồi, là một phần tiền bà chuẩn bị cho học phí của Triệu Kim An, nhưng hôm nay cháu trai đã mở miệng, bà không chút do dự mà đem hết ra.
+Số tiền này chắc hẳn bà nội đã lôi ra đếm đi đếm lại không biết bao nhiêu lần trong đêm. Đây vốn là khoản tiền bà chắt chiu từng đồng để chuẩn bị đóng học phí cho Triệu Kim An, thế nhưng hôm nay vừa nghe cháu trai mở miệng cần đến, bà không chút đắn đo mà dốc sạch toàn bộ ruột gan trao hết cho anh.
 
 "Anh ơi~"
 
-Đúng lúc này, một bé gái tầm năm tuổi bước qua bậc cửa đi vào.
+Đúng lúc ấy, một bé gái tầm chừng năm tuổi lon ton bước qua bậu cửa đi vào.
 
-Bà nội vội vàng nhét túi nilon vào túi quần, khẽ dặn dò: "Mau cất tiền đi, đừng để người ta nhìn thấy!"
+Bà nội vội vàng nhét tọt chiếc túi ni lông vào sâu trong túi quần, hạ thấp giọng dặn dò kỹ lưỡng: "Mau cất kỹ tiền đi cháu, đừng để người ngoài nhìn thấy!"
 
-"Anh ơi~"
+"Anh Kim An ơi~"
 
-Người gọi là Triệu Duyệt Thiên, con gái của chú út.
+Đứa bé vừa cất tiếng gọi là Triệu Duyệt Thiên, con gái của chú út.
 
-Bà nội sống cùng nhà với chú út, Triệu Duyệt Thiên ngồi bệt xuống bậc cửa lấm lem bụi đất, nuôi trẻ ở nông thôn thời này không cầu kỳ như vậy.
+Bà nội hiện đang sống chung một mái nhà với gia đình chú út. Bé Triệu Duyệt Thiên ngồi bệt xuống bậu cửa gỗ lấm lem bụi đất, con nít ở vùng nông thôn thời này nuôi dạy xuề xòa, chẳng mấy ai câu nệ sạch bẩn.
 
-"Ơi."
+"Ơi, anh đây."
 
-Nhìn cái bóng nhỏ xíu trên bậc cửa, Triệu Kim An hơi ngẩn người.
+Nhìn sinh linh bé bỏng ngây thơ ngồi nơi bậu cửa, Triệu Kim An thoáng chốc ngẩn ngơ cả người.
 
-"Anh ơi, có cá."
+"Anh ơi, có cá ăn không?"
 
-"Ha, mai anh mang cá cho em ăn nhé."
+"Hì, ngày mai anh bắt cá to về cho bé Thiên ăn nhé."
 
-"Cá to, to chừng này này!"
+"Cá to đùng luôn, to chừng này này!"
 
-Triệu Duyệt Thiên ngồi trên bậc cửa giơ tay ra sức khoa tay múa chân, chiếc váy nhỏ bẩn bẩn, khuôn mặt rạng rỡ nụ cười.
+Triệu Duyệt Thiên ngồi bệt trên bậu cửa, hai cánh tay mũm mĩm giang rộng ra hết cỡ để làm điệu bộ miêu tả, chiếc váy nhỏ lấm lem vài vệt bùn, nụ cười rạng rỡ nở bừng trên gương mặt bầu bĩnh, ngây thơ.
 
-Triệu Kim An ngồi xổm xuống véo má con bé: "Được, mai anh ra sông kiếm con cá thật to cho Thiên Thiên, sau này anh còn dẫn em đi Quận Sa chơi nữa."
+Triệu Kim An ngồi xổm xuống khẽ véo nhẹ vào đôi má phúng phính của cô bé: "Được rồi, ngày mai anh ra sông bắt một con cá thật bự về cho Thiên Thiên nhé. Sau này lớn lên, anh sẽ dẫn Thiên Thiên lên thành phố Quận Sa chơi, chịu không nào?"
 
-Bà nội đứng bên cạnh cười hiền hậu.
+Bà nội đứng bên cạnh nhìn hai đứa cháu, nụ cười hiền hậu nở trên môi.
 
-Ngay lúc đó, từ bên ngoài có một giọng nói không mấy thiện cảm vọng vào.
+Đúng lúc ấy, từ ngoài sân bỗng vọng vào một giọng nói the thé, có phần chát chúa và không đúng lúc chút nào:
 
-"Đừng có học đại học rồi có bạn gái là quên mất chúng ta đấy nhé, sau này kết hôn rồi cái gì cũng nghe lời vợ, còn mong gì được hưởng phúc của cháu..."
+"Gớm, sau này lên đại học rồi có bạn gái thành phố lại chẳng quên tiệt cái ngữ nhà quê này ấy chứ! Đến lúc cưới vợ rồi thì nhất nhất nghe lời vợ răm rắp, ở đấy mà mong nhờ vả hưởng phúc..."
 
-Lời nói mang theo gai góc, có chút khó nghe.
+Lời lẽ móc mỉa, cay nghiệt xen lẫn chút ghen tị nghe thật chối tai.
 
-Nhưng suy cho cùng cũng có vài phần lý lẽ, hạng người như vậy quá nhiều rồi, chẳng phải có câu "cưới vợ quên mẹ" đó sao.
+Thế nhưng ngẫm kỹ lại thì lời ấy cũng có vài phần thực tế trần trụi. Trên đời này chuyện tương tự diễn ra thiếu gì, dân gian chẳng có câu "lấy vợ quên mẹ" đó sao.
 
-Chú út Triệu Quốc Hoa đã đi xuống Quảng Châu làm việc trong công xưởng, người vừa nói là thím Vương Kim Như.
+Chú út Triệu Quốc Hoa quanh năm suốt tháng xuôi nam vào các khu công nghiệp ở Dương Thành làm công nhân đầu tắt mặt tối, người vừa cất giọng xéo xắt kia chính là thím út Vương Kim Như.
 
-Vương Kim Như bản tính không xấu, chỉ có điều lời lẽ hơi khó lọt tai.
+Thím Vương Kim Như bản chất con người không xấu, chỉ có điều cái nết ăn nói thì vô cùng đanh đá và chua ngoa.
 
-Mỗi lần Triệu Kim An đi học nội trú về nhà, Vương Kim Như cũng hay nhét cho hắn ít tiền tiêu vặt, khi thì năm mươi, khi thì một trăm, chỉ là cái miệng hơi lắm lời.
+Hồi Triệu Kim An còn học nội trú trên huyện, mỗi lần anh về thăm nhà, thím út thỉnh thoảng vẫn lén dúi vào tay anh ít tiền tiêu vặt, khi thì năm mươi, lúc thì một trăm tệ, duy chỉ có cái mồm là hay bới móc, lắm điều.
 
-Kiếp trước, người thím mà mẹ của Trần Thanh Trĩ nhắc tới chính là Vương Kim Như.
+Ở kiếp trước, người thím đanh đá mà mẹ của Trần Thanh Trĩ từng nhắc tới với vẻ e dè chính là thím Vương Kim Như này.
 
-Vương Kim Như thật sự là người dám đối đầu chan chát với mẹ vợ của Triệu Kim An, cãi nhau chưa bao giờ thua cuộc!
+Năm xưa, thím út từng một mình đứng ra đấu khẩu tay đôi nảy lửa với bà mẹ vợ kênh kiệu của Triệu Kim An, trong các cuộc cãi vã chưa từng chịu lép vế hay nhận phần thua bao giờ!
 
-"Thiên Thiên, anh cháu nói sau này sẽ dẫn cháu đi thành phố lớn đấy."
+"Thiên Thiên à, anh cháu bảo sau này dẫn cháu lên thành phố lớn đấy nhé."
 
-Vương Kim Như bưng bát ngồi xổm xuống đút cơm cho Triệu Duyệt Thiên, trong bát có rất nhiều thịt.
+Thím Vương Kim Như bưng một bát cơm đầy ắp thịt bước vào, ngồi xổm xuống đút từng thìa cho bé Triệu Duyệt Thiên.
 
-Bà nội không nỡ gắp thịt, đều để dành cho Triệu Kim An và Triệu Duyệt Thiên cả.
+Bà nội ngày thường không nỡ gắp thịt ăn, chính là để dành toàn bộ phần ngon ấy cho Triệu Kim An và bé Thiên Thiên.
 
-Trong lòng Vương Kim Như, cháu trai có thể đỗ Sư Đại đã là rất lợi hại rồi.
+Trong suy nghĩ của thím Vương Kim Như, đứa cháu trai này có thể thi đỗ vào trường Đại học Sư phạm danh giá đã là một chuyện vô cùng ghê gớm, làm rạng danh cả dòng họ rồi.
 
-Dạo gần đây thím đi loanh quanh trong làng cũng chẳng hiểu nổi đại học 985 hay 211 là cái gì, tóm lại chỉ biết đó là trường trọng điểm, thế là oách lắm rồi.
+Dạo gần đây thím đi buôn chuyện khắp hang cùng ngõ hẻm trong làng, dẫu chẳng thể hiểu nổi mấy cái khái niệm "Đại học 985" hay "Đại học 211" là cái giống gì, nhưng thím chỉ biết chắc chắn đó là trường đại học trọng điểm của cả nước, thế là đủ để thím vênh mặt tự hào.
 
-"Mẹ, Kim An không tổ chức tiệc mừng đỗ đại học sao?"
+"Mẹ ơi, thằng Kim An không làm cỗ khao đỗ đại học thật đấy à?"
 
-"Không tổ chức nữa."
+"Không làm nữa con ạ."
 
-"Ầy, tiếc thật, cơ hội tốt như vậy."
+"Haizz, tiếc thật đấy, cơ hội tốt thế này mà bỏ phí."
 
-Triệu Quốc Hoa cả năm trời mới về nhà được hai ba chuyến, những người đi làm thuê trong xưởng ở miền Nam hầu như đều như vậy.
+Chú Triệu Quốc Hoa cả năm trời may ra mới về quê được hai ba bận, những người tha hương vào nhà máy làm thuê hầu như ai cũng chung một cảnh ngộ như vậy.
 
-Một là xưởng không có nhiều ngày nghỉ; hai là đi lại tốn kém không ít tiền xe cộ.
+Thứ nhất là nhà xưởng chẳng có nhiều ngày nghỉ phép;
 
-Vương Kim Như ở nhà thỉnh thoảng cũng hay cãi cọ với bà nội, nhưng nhìn chung chung sống với nhau cũng khá ổn.
+Thứ hai là mỗi chuyến đi về tốn kém không biết bao nhiêu tiền vé tàu xe dọc đường.
 
-Bà nội vừa rồi chính là phòng hờ Vương Kim Như, bà đưa tiền cho Triệu Kim An, nếu để Vương Kim Như biết được, chắc chắn thím ấy lại nói mấy câu mỉa mai khó nghe kiểu như cháu trai cháu gái này nọ.
+Thím Vương Kim Như ở nhà thỉnh thoảng vẫn hay cằn nhằn, va chạm lời qua tiếng lại với mẹ chồng, nhưng nhìn chung mối quan hệ trong gia đình vẫn tương đối hòa thuận.
+
+Vừa nãy bà nội vội vã giấu tiền đi chính là để phòng ngừa thím Vương Kim Như nhìn thấy. Nếu thím mà biết bà dốc sạch số tiền dưỡng già đưa hết cho Triệu Kim An, thể nào thím cũng lại buông ra dăm ba câu cạnh khóe khó nghe, nào là cháu trai cháu gái bên trọng bên khinh...

@@ -1,297 +1,303 @@
-# Chương 55: Quang Minh Chính Đại
+# Chương 55: Đường hoàng đàng hoàng
+
+> **Tiêu đề gốc**: 第55章 光明正大。
 
 Sáng sớm hôm sau.
 
-Triệu Kim An ngủ dậy, Lưu Sấm Phong và Cốc Siêu Thừa cũng thức giấc theo. Cốc Siêu Thừa hỏi: "Kim An, hôm nay cậu lại đi đâu thế?"
+Triệu Kim An vừa trở dậy, Lưu Sấm Phong và Cốc Siêu Thừa cũng vội vàng lồm cồm bò dậy theo. Cốc Siêu Thừa vừa xỏ giày vừa hỏi: "Kim An, hôm nay cậu lại đi đâu thế?"
 
-Triệu Kim An bảo đi leo núi.
+Triệu Kim An đáp: "Leo núi."
 
 "Núi Nhạc Lộc à?"
 
-"Ừm."
+"Ừ."
 
-"Chờ tôi với, tôi cũng đi!"
+"Đợi tớ với, tớ cũng đi!"
 
-Cốc Siêu Thừa tăng tốc độ. Hắn biết Triệu Kim An sẽ không chờ mình, càng không muốn ở lại bồi tiếp Lưu Sấm Phong, ăn pizza chẳng no bụng chút nào.
+Cốc Siêu Thừa thoăn thoắt đẩy nhanh tốc độ. Cậu biết thừa Triệu Kim An sẽ chẳng rảnh rỗi đứng chờ, mà bản thân cậu lại càng không muốn ở phòng chịu trận cùng Lưu Sấm Phong để rồi đi ăn pizza đến bụng đói meo.
 
-Cũng không hẳn là ghét bỏ Lưu Sấm Phong keo kiệt, pizza đúng là hơi đắt thật, chỉ là cái cảm giác đó quá tệ. Hôm ấy Cốc Siêu Thừa rất muốn tự mình gọi một cái pizza.
+Cũng không hẳn là chê bai Lưu Sấm Phong bủn xỉn, tính toán, bởi bánh pizza quả thực có phần đắt đỏ so với túi tiền sinh viên, chỉ là cái cảm giác ấm ức hôm đó quá đỗi khó chịu. Hôm ấy Cốc Siêu Thừa chỉ ước gì có thể tự bỏ tiền túi ra gọi riêng cho mình một chiếc bánh.
 
-Chẳng phải vì pizza ngon đến mức nào, đơn giản là muốn tự gọi một cái để ăn cho riêng mình thôi.
+Chẳng phải vì món pizza ngon lành gì cho cam, mà đơn giản là được tự do gọi một cái để ăn cho thỏa thích một mình.
 
-Cổng chính của núi Nhạc Lộc nằm ở trấn Vinh Loan, nhưng phía sau trường học có một con đường Đăng Cao, sinh viên trong thành phố đại học hầu như đều lên núi từ lối này.
+...
 
-Hai bên đường Đăng Cao là các hộ kinh doanh, những cửa hàng đồ ăn sáng đều đã mở cửa.
+Cổng chính của núi Nhạc Lộc nằm ở mạn trấn Vinh Loan, thế nhưng ngay phía sau khuôn viên trường học lại có một con đường mang tên đường Đăng Cao. Hầu hết sinh viên trong khu Đại học thành đều chọn lối này để bắt đầu hành trình leo núi.
 
-Cốc Siêu Thừa và Lưu Sấm Phong suốt quãng đường đều rất hưng phấn, đây là lần đầu tiên hai người leo núi Nhạc Lộc. Trước một gian hàng, Lưu Sấm Phong kéo Cốc Siêu Thừa lại, nói nhỏ: "Lão Cốc, cậu trả tiền hộ tôi với, tôi ra ngoài quên mang theo tiền rồi."
+Hai bên đường Đăng Cao san sát các hàng quán kinh doanh, các tiệm điểm tâm sáng đã sớm mở cửa đón khách từ tờ mờ sương.
+
+Cốc Siêu Thừa và Lưu Sấm Phong dọc đường đi vô cùng phấn khích, đây là lần đầu tiên hai người đặt chân tới núi Nhạc Lộc. Đứng trước một quầy bán đồ ăn sáng, Lưu Sấm Phong kéo giật tay áo Cốc Siêu Thừa, thì thầm to nhỏ: "Lão Cốc, cậu trả tiền hộ tớ trước với, lúc nãy vội ra khỏi phòng tớ quên mang theo ví rồi."
 
 Cốc Siêu Thừa: "..."
 
-Thật sự muốn chửi thề.
+Trong bụng chỉ muốn chửi thề một câu.
 
-Sinh viên đại học nào ra ngoài mà lại quên mang tiền, chẳng lẽ cậu để tiền ở ký túc xá à?
+Thời buổi này làm gì có sinh viên nào bước chân ra đường mà lại quên mang theo tiền, chẳng lẽ lại vứt ví tiền tênh hênh ở ký túc xá chắc?
 
-Lưu Sấm Phong đã mời Cốc Siêu Thừa ăn pizza, hôm nay muốn "gỡ" lại một chút nên mới tìm cái cớ vụng chèo khéo chống này, có lẽ cũng vì hôm kia tiêu quá nhiều tiền nên xót ruột.
+Chẳng qua là vì hôm trước Lưu Sấm Phong cắn răng chiêu đãi Cốc Siêu Thừa một bữa pizza, hôm nay muốn tìm cách gỡ gạc lại chút ít, nên mới viện ra cái cớ vụng về, nực cười đến thế. Phần nhiều âu cũng là do trận "vung tay quá trán" hôm nọ khiến hắn xót ruột không thôi.
 
-Năm 2006 đi học đại học, một tháng có bao nhiêu tiền sinh hoạt phí?
+Năm 2006, sinh viên đi học đại học một tháng có được bao nhiêu tiền sinh hoạt phí chứ?
 
-Lưu Sấm Phong chắc chắn không có nhiều, ba bốn trăm tệ?
+Gia cảnh như Lưu Sấm Phong chắc cũng chỉ tầm ba, bốn trăm tệ là cùng.
 
-Mà chỉ trong một ngày hắn đã tiêu hết 120 tệ rồi.
+Vậy mà riêng bữa hôm nọ hắn đã nướng toi mất một trăm hai mươi tệ rồi.
 
-Triệu Kim An đang móc tiền chuẩn bị thanh toán, liền nói với chủ quán: "Ông chủ, tính chung luôn đi, lấy thêm ba cốc sữa đậu nành nữa."
+Triệu Kim An đang móc ví chuẩn bị thanh toán, bèn quay sang bảo với chủ quán: "Bác ơi, tính tiền chung luôn cho cháu, lấy thêm ba cốc sữa đậu nành nữa nhé."
 
-Triệu Kim An không phải vì thương hại Lưu Sấm Phong, muốn theo đuổi con gái thì phải có giác ngộ này. Hắn cũng chẳng phải đại gia gì, chỉ cảm thấy cùng nhau đi ra ngoài, chuyện có mấy đồng bạc không đáng để tính toán.
+Triệu Kim An làm vậy không phải vì thương hại Lưu Sấm Phong. Muốn theo đuổi con gái nhà người ta thì phải có cái giác ngộ tự gánh chịu hậu quả đó. Anh cũng chẳng phải kẻ thích phô trương hào phóng, chỉ đơn giản nghĩ rằng anh em cùng phòng rủ nhau đi chơi chung, vài ba đồng bạc lẻ chẳng đáng để so đo tính toán làm gì.
 
-Bánh xếp áp chảo không rẻ, bánh bao nhỏ mới có 5 tệ một xửng, mua ít thì ăn không no, nên Triệu Kim An mua cho mỗi người 6 tệ bánh xếp, cộng thêm sữa đậu nành là 21 tệ, tính ra mỗi người 7 tệ.
+Món bánh bao chiên áp chảo này giá không hề rẻ, trong khi một xửng bánh bao hấp nhỏ chỉ có năm tệ, mua ít thì chẳng bõ dính răng với sức ăn của mấy cậu thanh niên. Triệu Kim An bèn hào phóng gọi cho mỗi người sáu tệ bánh bao chiên, cộng thêm ba cốc sữa đậu nành, tổng cộng hết hai mươi mốt tệ, tính ra mỗi người tròn trĩnh bảy tệ.
 
-Lưu Sấm Phong ăn rất nhanh, miệng không ngớt lời khen bánh xếp ngon.
+Lưu Sấm Phong ăn lấy ăn để, miệng nhai nhồm nhoàm không ngớt lời tấm tắc khen bánh bao chiên giòn rụm, thơm ngon.
 
-Triệu Kim An mỉm cười, cảm thấy 7 tệ này tiêu không uổng. Hắn vốn ghét nhất kiểu mình bỏ tiền ra rồi mà người khác còn chê vị không ra gì, chỗ này chỗ kia ngon hơn.
+Triệu Kim An khẽ mỉm cười, cảm thấy bảy tệ này bỏ ra không hề uổng phí chút nào. Anh vốn ghét nhất cái thói đời người ta bỏ tiền ra bao ăn, kẻ ăn chực lại vừa nhai vừa chê ỏng chê eo rằng mùi vị chẳng ra làm sao, rồi so sánh chỗ này chỗ nọ ngon hơn.
 
-Về điểm này thì Lưu Sấm Phong rất được.
+Về điểm này thì Lưu Sấm Phong ăn đứt khối người.
 
-Cốc Siêu Thừa nói: "Kim An, buổi trưa tôi mời cậu."
+Cốc Siêu Thừa áy náy bảo: "Kim An, bữa trưa nay để tớ bao cậu nhé."
 
-Triệu Kim An bảo không sao.
+Triệu Kim An cười đáp: "Không sao đâu."
 
-Sau đó, ba người bắt đầu leo núi.
+Sau đó, cả ba bắt đầu sải bước leo núi.
 
-Thực chất chỉ là đi dạo.
+Thực chất gọi là tản bộ ngắm cảnh thì đúng hơn.
 
-Đường lên núi Nhạc Lộc rất rộng rãi, đủ cho hai làn xe chạy, độ dốc thoai thoải, uốn lượn theo sườn núi. Có rất nhiều người thích đến đây chạy bộ buổi sáng, còn có người đạp xe đạp lên núi.
+Con đường uốn lượn quanh sườn núi Nhạc Lộc rất rộng rãi, đủ hai làn xe chạy êm ru, độ dốc thoai thoải men theo triền núi xanh mướt. Nơi đây là điểm đến lý tưởng của rất nhiều người có thói quen chạy bộ buổi sớm, cũng có không ít người đạp xe thể thao lên đỉnh núi.
 
-Thành phố đại học Quận Sa có hai nơi rất thích hợp để chạy bộ, một là núi Nhạc Lộc, hai là dải phong quang dọc sông Tương, sân vận động trường học chỉ xếp hàng thứ ba.
+Ở khu Đại học thành quận Sa có hai địa điểm chạy bộ buổi sáng tuyệt vời nhất: một là đường núi Nhạc Lộc, hai là dải công viên cảnh quan ven sông Tương, còn sân vận động của trường thì chỉ xếp hàng thứ ba mà thôi.
 
-Nhìn thấy nhiều người đạp xe lên núi như vậy, Lưu Sấm Phong rất ngưỡng mộ, nói rằng hắn cũng muốn mua một chiếc xe đạp.
+Nhìn từng đoàn người hăm hở đạp xe lên dốc, Lưu Sấm Phong nhìn theo đầy vẻ thèm thuồng, bảo sau này nhất định cũng phải tậu một chiếc xe đạp.
 
-Cốc Siêu Thừa liền bảo: "Mấy chiếc xe đạp này không phải loại bình thường đâu, gọi là xe đạp địa hình, không rẻ chút nào. Cậu tưởng là loại xe Phượng Hoàng cũ ở nhà cậu chắc? Loại này phải một hai nghìn tệ, cái đắt còn lên đến cả vạn, cậu mua nổi không?"
+Cốc Siêu Thừa liền bồi vào một gáo nước lạnh: "Mấy cái xe này không phải xe đạp cà tàng thông thường đâu, người ta gọi là xe đạp địa hình leo núi đấy, đắt lòi mắt ra. Cậu tưởng là cái xe đạp Phượng Hoàng khung sườn 28 cổ lỗ sĩ ở quê cậu chắc? Loại này bèo nhất cũng phải một, hai nghìn tệ, chiếc xịn lên tới cả vạn tệ, cậu có bán cả người đi cũng chẳng mua nổi đâu!"
 
-"Đắt thế cơ à?"
+"Đắt dữ vậy sao?"
 
-Lưu Sấm Phong không tin lời Cốc Siêu Thừa lắm, bèn nhìn sang Triệu Kim An.
+Lưu Sấm Phong bán tín bán nghi, quay sang nhìn Triệu Kim An để tìm kiếm sự xác nhận.
 
-Triệu Kim An nói: "Cũng không cần mua loại đắt thế đâu, mấy trăm tệ là dùng được rồi."
+Triệu Kim An điềm đạm nói: "Cũng không nhất thiết phải mua loại đắt tiền làm gì, loại vài trăm tệ đi cũng tốt chán rồi."
 
-Hắn thầm nghĩ không biết mình có quá xa xỉ không khi đi xe Audi A6 lại còn có tài xế riêng.
+Trong đầu anh bất giác tự hỏi, bản thân vừa sắm hẳn một chiếc Audi A6 lại còn thuê cả tài xế riêng kiêm vệ sĩ thế này, liệu có phải là quá mức xa xỉ đối với một tân sinh viên hay không.
 
 "Xì!"
 
-Lưu Sấm Phong nhìn đám sinh viên thể dục đang đạp xe lên núi, dõng dạc: "Tôi mà cưỡi con xe Phượng Hoàng cũng có thể lên đến đỉnh núi, tốc độ còn nhanh hơn bọn họ!"
+Lưu Sấm Phong bĩu môi, nhìn theo đám sinh viên thể thao đang đạp xe băng băng lên dốc: "Tao mà cưỡi con xe Phượng Hoàng khung 28 thì cũng lên đỉnh núi ngon ơ, khéo tốc độ còn phóng qua mặt tụi nó ấy chứ!"
 
-"Bốc phét! Xe của người ta giúp tiết kiệm sức, còn có bộ biến tốc nữa đấy."
+"Lại bốc phét! Xe của người ta có bộ đề chuyển số, đạp trợ lực nhẹ tênh, cậu so thế quái nào được!"
 
-Cốc Siêu Thừa và Lưu Sấm Phong suốt dọc đường cứ đấu khẩu, chẳng ai chịu nhường ai.
+Cốc Siêu Thừa và Lưu Sấm Phong suốt cả quãng đường cứ cãi qua cãi lại, chẳng ai chịu nhường ai nửa lời.
 
-Cuối cùng bọn họ bảo nếu có bản lĩnh thì thi thố một phen xem ai nhanh hơn.
+Cuối cùng cả hai thách đố nhau nếu có xe thì làm một trận đua xem ai chạm đỉnh trước.
 
-Đáng tiếc là không có hai chiếc xe đạp, nên cũng chỉ là nói mồm cho sướng.
+Đáng tiếc là trong tay chẳng có chiếc xe đạp nào, chung quy cũng chỉ là đấu võ mồm cho vui miệng mà thôi.
 
-Sinh viên đại học đôi khi chính là như vậy, rảnh rỗi là thích tranh luận vài câu. Triệu Kim An nghe thấy thế lại cảm thấy có thêm một loại thú vui.
+Sinh viên đại học đôi khi là thế, rảnh rỗi không có việc gì làm là thích đem dăm ba câu chuyện vụn vặt ra tranh cãi nảy lửa. Triệu Kim An đi bên cạnh lắng nghe, bất giác tìm thấy một niềm vui giản dị, mộc mạc của tuổi trẻ.
 
-Thực ra trong xương tủy Cốc Siêu Thừa có chút bướng bỉnh, ngược lại Triệu Kim An thấy lời Lưu Sấm Phong nói cũng có lý: "Tôi cưỡi xe Phượng Hoàng cũng có thể lên đến đỉnh núi."
+Thực lòng mà nói, tận sâu trong xương tủy Cốc Siêu Thừa có nét bướng bỉnh, cứng đầu; trái lại Triệu Kim An lại thấy câu nói buột miệng của Lưu Sấm Phong có phần triết lý sâu sắc: "Cưỡi con xe Phượng Hoàng khung 28 thì cũng lên tới đỉnh núi ngon ơ."
 
-Lên đến đỉnh núi, thấy khát nước, Triệu Kim An đi mua nước khoáng, chủ động đưa cho Lưu Sấm Phong một chai, nói: "Lớp trưởng, thưởng cho cậu đấy."
+Lên tới đỉnh núi, cổ họng bắt đầu khô rát, Triệu Kim An liền rảo bước tới quầy tạp hóa mua nước khoáng. Anh chủ động đưa một chai cho Lưu Sấm Phong, cười bảo: "Xá trưởng, phần thưởng dành cho cậu đấy."
 
-"Lớp trưởng!?"
+"Xá trưởng!?"
 
-"Thưởng!?"
+"Phần thưởng!?"
 
-Hắn có đức có tài gì mà lại được người ta gọi một tiếng lớp trưởng? Lưu Sấm Phong cảm động đến muốn khóc, cái chức lớp trưởng phòng 303 này có phải dành cho người làm không? Một hai kẻ đều là phú nhị đại!
+Bản thân có tài đức gì đâu mà được người ta cung kính gọi một tiếng xá trưởng thế này, Lưu Sấm Phong xúc động đến suýt rơi nước mắt. Cái chức xá trưởng phòng 303 này có phải dành cho người bình thường làm đâu chứ? Trong phòng toàn những công tử con nhà giàu nứt đố đổ vách!
 
-Cái chức này đúng là một cái hố!
+Cái ghế xá trưởng này rõ ràng là một cái hố chôn người!
 
-Bảng phân công trực nhật dán trên tường, gọi không nổi Trần Trạch, Lưu Sấm Phong chỉ có thể tự mình làm vệ sinh, giờ đây mặt hắn tươi cười như hoa.
+Bảng phân công trực nhật dán lù lù trên tường, Trần Trạch thì hắn không dám ho he sai bảo nửa lời, đành phải ngậm đắng nuốt cay tự mình còng lưng quét dọn. Giờ đây nghe một câu xá trưởng, mặt hắn nở hoa toe toét.
 
-Cái miệng của Kim An sao mà ngọt thế? Nói chuyện nghe lọt tai làm sao.
+Cái miệng của thằng Kim An này sao mà ngọt ngào, ăn nói dễ nghe đến thế không biết?
 
-Chỉ là "thưởng" cái quỷ gì cơ?
+Chỉ có điều, "phần thưởng" rốt cuộc là cái quái gì thế nhỉ?
 
-"Kim An, cậu thưởng cho tôi cái gì thế?" Lưu Sấm Phong ngơ ngác hỏi.
+"Kim An, cậu thưởng cho tớ vì cái gì thế?" Lưu Sấm Phong ngơ ngác gãi đầu hỏi.
 
-Triệu Kim An mỉm cười không nói, lại lấy một chai nước khoáng đưa cho Cốc Siêu Thừa bên cạnh.
+Triệu Kim An chỉ mỉm cười không đáp, rồi lại lấy thêm một chai nước khoáng đưa sang cho Cốc Siêu Thừa đứng bên cạnh.
 
-"Vậy tôi đổi sang chai Coca được không?" Lưu Sấm Phong thử hỏi.
+"Thế... tớ đổi sang chai Coca được không?" Lưu Sấm Phong rụt rè ướm hỏi.
 
-"Được."
+"Được chứ."
 
-Nước khoáng trên đỉnh núi bán 3 tệ, Coca bán 4 tệ, Triệu Kim An không để tâm.
+Nước khoáng trên đỉnh núi bán ba tệ một chai, còn Coca thì bốn tệ một chai, Triệu Kim An chẳng mảy may bận tâm đến sự chênh lệch một đồng bạc lẻ ấy.
 
-"Hì hì, 120 tệ lại kiếm về được 4 tệ."
+"Hê hê, một trăm hai mươi tệ hôm nọ vừa gỡ lại được bốn tệ rồi."
 
-Lưu Sấm Phong thầm nghĩ trong lòng, nguyên lý kinh tế học này thật độc đáo.
+Lưu Sấm Phong thầm tính toán trong bụng, nguyên lý kinh tế học đường phố này quả thực vô cùng độc đáo.
 
-Triệu Kim An cầm chai nước khoáng đi một mình đến chỗ lan can, có chút cảm giác "đứng trên đỉnh cao nhìn xuống", sông Tương như một dải lụa xanh biếc chia Quận Sa thành hai bờ đông tây.
+Triệu Kim An cầm chai nước khoáng, một mình bước lại gần lan can ngắm cảnh. Đứng từ vị trí này phóng tầm mắt ra xa, quả thực có cảm giác "thu trọn non sông vào tầm mắt". Dòng sông Tương như một dải lụa xanh biếc uốn lượn, chia đôi thành phố quận Sa thành hai bờ Đông - Tây rõ rệt.
 
-Giữa dòng sông có đảo Quýt điểm xuyết.
+Ngay giữa lòng sông, cù lao Quất Tử Châu tựa như một viên ngọc lục bảo điểm xuyết thêm nét hữu tình cho bức tranh thủy mặc.
 
-Cách đó không xa có người đang cầm sách tiếng Anh, mặc kệ người xung quanh mà lớn tiếng luyện nói, có những nhóm bạn ba năm người rủ nhau leo núi, nhưng nhiều nhất vẫn là những cặp tình nhân trẻ tuổi.
+Cách đó không xa, có vài bạn sinh viên đang cầm cuốn sách tiếng Anh, chẳng màng đến ánh nhìn của người xung quanh mà say sưa luyện phát âm thật to. Có những nhóm bạn ba năm người rôm rả rủ nhau leo núi, nhưng đông đảo nhất vẫn là những cặp tình nhân trẻ dập dìu bên nhau.
 
-Triệu Kim An không nghĩ đến những lời hào hùng gì, chỉ muốn đẩy nhanh nhịp độ một chút, để bà nội và thím sớm không còn nỗi lo "tiết kiệm tiền" nữa.
+Triệu Kim An không nghĩ đến những lời thề non hẹn biển hay hoài bão đao to búa lớn, anh chỉ muốn tăng tốc bước chân của mình nhanh hơn nữa, để bà nội và thím sớm ngày thoát khỏi nỗi âu lo, trăn trở về chuyện "tiết kiệm từng đồng bạc lẻ".
 
-Điện thoại "đinh" một tiếng.
+Điện thoại trong túi bỗng "ting" một tiếng.
 
-Đơn Vĩ: "Ông chủ, tôi thuê xong nhà rồi, ngay gần thành phố đại học, hôm nay sẽ chuyển nhà."
+Tin nhắn từ Đan Vĩ: *Ông chủ, tôi đã thuê xong nhà ở gần khu Đại học thành rồi, hôm nay hai bố con dọn đồ qua luôn.*
 
-Đây là gợi ý của Đơn Na Tề, nhằm đảm bảo Đơn Vĩ có thể có mặt ngay khi được gọi.
+Đây là ý kiến do Đan Na Tề gợi ý, nhằm đảm bảo mỗi khi ông chủ cần gọi là Đan Vĩ có thể có mặt ngay tức khắc.
 
-Không có con gái đi cùng, leo núi chỉ thuần túy là leo núi, chẳng mấy chốc ba gã độc thân đã xuống núi.
+Không có bạn nữ đi cùng nên chuyến leo núi đơn thuần chỉ là vận động thể lực. Chẳng mấy chốc, ba chàng trai độc thân đã rảo bước xuống núi.
 
-Đến chân núi, bọn họ nhìn thấy một bóng dáng quen thuộc: Thẩm Tử Ngôn.
+Vừa xuống tới chân núi, một bóng hình quen thuộc bỗng lọt vào tầm mắt: Thẩm Tử Ngôn.
 
 "Thẩm Tử Ngôn!"
 
-Trông thấy nữ thần, Lưu Sấm Phong hét lớn rồi chạy tới: "Cậu đến chạy bộ à?"
+Vừa thấy bóng dáng nữ thần, Lưu Sấm Phong đã gào to một tiếng rồi ba chân bốn cẳng chạy ào tới: "Cậu cũng tới đây chạy bộ à?"
 
-Thẩm Tử Ngôn mặc trang phục chạy bộ chuyên nghiệp, một bộ đồ thể thao bó sát màu đen làm nổi bật chiều cao 1m70, đường cong cơ thể mang một vẻ đẹp đầy sức sống. Trên trán và chóp mũi nàng lấm tấm những giọt mồ hôi mịn.
+Thẩm Tử Ngôn chuẩn bị trang phục chạy bộ vô cùng chuyên nghiệp: một bộ đồ thể thao bó sát màu đen làm tôn lên trọn vẹn chiều cao một mét bảy mươi cùng những đường cong cơ thể khỏe khoắn, tràn đầy sức sống. Trên vầng trán thanh tú và sống mũi cao thẳng của cô lấm tấm những giọt mồ hôi mịn màng.
 
-Nàng buộc tóc đuôi ngựa cao, vài lọn tóc xanh dính sát vào gò má.
+Mái tóc dài được buộc cao theo kiểu đuôi ngựa gọn gàng, vài sợi tóc mai ướt đẫm mồ hôi dính hờ hững bên gò má ửng hồng.
 
-Không giống như đám Triệu Kim An, họ chỉ là những sinh viên đại học bình thường, không quá cầu kỳ, đại khái đều chưa từng nghĩ leo núi còn phải mua trang bị hay thay đồ thể thao.
+Khác hẳn với nhóm ba người Triệu Kim An, họ chỉ là những cậu sinh viên ăn mặc giản dị, không câu nệ hình thức, chắc hẳn chưa từng nghĩ đến chuyện đi leo núi mà cũng phải sắm sửa trang phục thể thao chuyên dụng làm gì.
 
-Thẩm Tử Ngôn vén vài lọn tóc, vừa thở dốc vừa hỏi: "Các cậu cũng đi leo núi à?"
+Thẩm Tử Ngôn đưa tay vén gọn mấy lọn tóc mai ra sau tai, vừa thở dốc vừa hỏi: "Các cậu cũng đi leo núi à?"
 
-"Đúng thế!"
+"Đúng rồi!"
 
-Lưu Sấm Phong nhiệt tình hỏi Thẩm Tử Ngôn: "Cậu chạy xong rồi hay là mới đến?"
+Lưu Sấm Phong vồ vập hỏi han: "Cậu chạy xong rồi hay là mới tới thế?"
 
-Thẩm Tử Ngôn nhìn Triệu Kim An ở phía sau, đáp: "Chạy xong rồi."
+Thẩm Tử Ngôn đưa mắt nhìn về phía Triệu Kim An đang lững thững bước tới phía sau, khẽ đáp: "Tớ chạy xong rồi."
 
-Nàng không ngờ hôm nay lại gặp được Triệu Kim An. Người này có chút lạnh lùng, sau khi kết bạn QQ xong vậy mà đến một lời chào cũng không có. Thẩm Tử Ngôn cũng không chủ động tìm hắn trò chuyện, nhưng lại tò mò xem không gian QQ của hắn.
+Cô không ngờ hôm nay lại tình cờ chạm mặt Triệu Kim An ở đây. Chàng trai này tính tình có phần lạnh lùng, sau khi đồng ý kết bạn trên QQ thì tuyệt nhiên không thèm gửi lấy một lời chào hỏi nào. Thẩm Tử Ngôn cũng không chủ động bắt chuyện, nhưng vì tò mò nên cô đã ghé vào xem không gian cá nhân Qzone của anh.
 
-Bên trong chẳng có gì cả!
+Bên trong hoàn toàn trống trơn!
 
-Đừng nói là album ảnh hay nhật ký, ngay cả một dòng trạng thái cũng không có.
+Đừng nói đến album ảnh hay nhật ký, ngay cả một dòng trạng thái ngắn ngủi cũng chẳng có lấy một chữ.
 
-Lưu Sấm Phong nhiệt tình mời: "Vậy chúng ta cùng đi đi."
+Lưu Sấm Phong nhiệt tình mời mọc: "Thế thì bọn mình cùng đi về chung luôn nhé."
 
 Thẩm Tử Ngôn mỉm cười: "Được thôi."
 
-Thế là với sự gia nhập của cô gái, Lưu Sấm Phong đi sát bên cạnh Thẩm Tử Ngôn, hắn hỏi nàng ngày mai có đến nữa không, nói là có thể hẹn giờ tập trung ở đầu đường.
+Thế là có thêm một bóng hồng nhập hội, Lưu Sấm Phong bám sát sạt bên cạnh Thẩm Tử Ngôn. Hắn ân cần hỏi ngày mai cô có đi chạy bộ tiếp không, bảo có thể hẹn giờ cùng tập trung ở đầu đường.
 
-Thẩm Tử Ngôn không trả lời ngay, nàng nghiêng người nhìn về phía Triệu Kim An hỏi: "Triệu Kim An, ngày mai các cậu còn đi leo núi không?"
+Thẩm Tử Ngôn không vội trả lời ngay, cô hơi nghiêng người nhìn về phía Triệu Kim An, cất tiếng hỏi: "Triệu Kim An, ngày mai các cậu có đi leo núi nữa không?"
 
-Triệu Kim An bảo không biết, thích thì đi thôi.
+Triệu Kim An đáp: "Tớ cũng chưa biết, lúc nào thích thì đi thôi."
 
-Sương mù dần tan, ánh nắng rạng rỡ, có rất nhiều sinh viên đại học đặc biệt chạy đến đường Đăng Cao để ăn sáng. Họ cầm những phần đồ ăn nóng hổi, tràn đầy sức sống và hơi thở thanh xuân.
+Màn sương sớm đã dần tan biến, ánh nắng ban mai rực rỡ chan hòa khắp nẻo đường. Rất nhiều sinh viên rủ nhau ra đường Đăng Cao để thưởng thức điểm tâm sáng, tay bưng những phần đồ ăn nóng hổi bốc khói nghi ngút, toát lên nguồn sinh khí dồi dào và hơi thở thanh xuân rạng rỡ.
 
-Triệu Kim An hít hà mùi thơm, lại đi mua một chiếc bánh hành.
+Triệu Kim An hít hà mùi thơm quyến rũ trong không khí, liền rẽ vào một quầy hàng mua một chiếc bánh kếp hành chiên giòn.
 
-Lần này hắn không hỏi Lưu Sấm Phong và Cốc Siêu Thừa, cũng không hỏi Thẩm Tử Ngôn đã ăn sáng chưa.
+Lần này anh không hỏi Lưu Sấm Phong và Cốc Siêu Thừa, cũng chẳng buồn hỏi Thẩm Tử Ngôn xem đã ăn sáng hay chưa.
 
-"Kim An, chẳng phải cậu đã ăn sáng rồi sao?"
+"Kim An, chẳng phải lúc nãy cậu vừa ăn sáng rồi sao?"
 
-Cốc Siêu Thừa rất ngạc nhiên, người có sức ăn lớn phải là Lưu Sấm Phong mới đúng chứ.
+Cốc Siêu Thừa lấy làm lạ, kẻ có sức ăn như hạm là Lưu Sấm Phong kia mà.
 
-Bên lề đường, Triệu Kim An cầm bánh hành, nói cái này ngon, nụ cười rất rạng rỡ. Cốc Siêu Thừa há hốc mồm, một cậu con trai như hắn mà lại ngẩn ngơ một lúc.
+Bên lề đường, Triệu Kim An hai tay bưng chiếc bánh kếp hành nóng hổi, vừa cắn một miếng vừa tấm tắc khen ngon. Nụ cười trên môi anh rạng rỡ, bừng sáng dưới ánh nắng sớm mai. Cốc Siêu Thừa há hốc mồm nhìn, một đứa con trai như cậu mà bất giác ngẩn ngơ mất mấy giây.
 
-Đột nhiên giật mình.
+Đột nhiên giật mình bừng tỉnh.
 
-Không đúng, là kinh hãi!
+Không đúng, phải gọi là giật thót mình kinh hãi!
 
-Mẹ kiếp, mình không giống như Vương Duy Đào đấy chứ?
+Mẹ kiếp, chẳng lẽ mình lại có xu hướng giống thằng Vương Duy Đào dạo nọ sao?
 
-Thẩm Tử Ngôn lặng lẽ nhìn Triệu Kim An, bất chợt lắc đầu cười khẽ một tiếng.
+Thẩm Tử Ngôn lặng lẽ dõi theo từng cử chỉ của Triệu Kim An, bất giác lắc đầu bật cười thành tiếng.
 
-Lưu Sấm Phong dáo dác nhìn xung quanh, ở lối vào có một quầy KFC, chỉ bán kem kiểu kem ly thôi.
+Lưu Sấm Phong đảo mắt nhìn quanh quất, thấy ở góc đường có một ô cửa sổ nhỏ của quán KFC chuyên phục vụ kem tươi.
 
-KFC ấy à, đồ ở thành phố lớn đấy.
+KFC đấy nhé, thương hiệu đồ ăn nhanh xịn sò của các thành phố lớn!
 
-"Thẩm Tử Ngôn, tôi đi mua kem cho cậu!"
+"Thẩm Tử Ngôn, để tớ đi mua kem cho cậu nhé!"
 
-Trước mặt nữ thần, Lưu Sấm Phong đi ra ngoài lại có tiền rồi, 3 tệ một chiếc, không đắt, lại còn là KFC nữa.
+Trước mặt nữ thần, Lưu Sấm Phong bỗng nhiên "nhớ ra" là mình có mang theo tiền. Ba tệ một cây kem ốc quế, giá quá hời, lại còn mang mác KFC sang chảnh nữa chứ.
 
-"Đồ chó đẻ..."
+"Tiên sư cái thằng dại gái..."
 
-Cốc Siêu Thừa trợn mắt há mồm, bám theo sau nghiến răng nghiến lợi: "Tôi cũng muốn một cái!"
+Cốc Siêu Thừa trố mắt nhìn, vội vàng bám theo sau nghiến răng nghiến lợi: "Tao cũng muốn một cây!"
 
-"Tự trả tiền đi, cậu còn nợ tôi một bữa linh đình đấy."
+"Tự bỏ tiền túi ra mà mua, mày còn nợ tao một bữa thịnh soạn đấy nhé."
 
-Lưu Sấm Phong nhỏ giọng, còn định đẩy Cốc Siêu Thừa ra, chỉ thấy Thẩm Tử Ngôn đã đi tới, hắn lại tỏ vẻ đại gia, giơ tay ra hiệu với người bán hàng: "4 cái."
+Lưu Sấm Phong hạ giọng làu bàu, định chen lấn hất Cốc Siêu Thừa ra. Nhưng vừa thấy Thẩm Tử Ngôn thong thả bước lại gần, hắn liền ưỡn ngực tỏ vẻ đại gia, giơ bốn ngón tay nói với nhân viên bên trong: "Cho bốn cây!"
 
-"Người đẹp, cho 4 ly Sundae socola!"
-
-Thẩm Tử Ngôn bước tới nói.
+"Chị ơi, cho bốn ly kem Sundae socola ạ!" Thẩm Tử Ngôn bước tới cất giọng gọi món.
 
 "..."
 
-Lưu Sấm Phong ngẩng đầu lên, hình ảnh quảng cáo phía trên cho thấy, một ly Sundae socola giá 10 tệ, 4 ly là 40 tệ.
+Lưu Sấm Phong ngẩng phắt đầu lên nhìn bảng menu quảng cáo. Trên đó hiển thị rõ mồn một: kem Sundae socola giá mười tệ một ly, bốn ly là bốn mươi tệ đứt đuôi.
 
-Vào năm 2006, Sundae socola vốn dĩ bán 8 tệ một ly, nhưng vì vị trí địa lý đắc địa ở đây nên mới đắt hơn.
+Năm 2006, kem Sundae socola bình thường vốn chỉ có giá tám tệ một ly, nhưng do vị trí đắc địa ở khu du lịch nên giá bị đội lên mười tệ.
 
-"Lại mất 40 tệ rồi, mấy đứa con gái này sao mà tiêu tiền kinh thế nhỉ?"
+"Lại toi mất bốn mươi tệ nữa rồi, sao mấy đứa con gái này tiêu tiền như nước thế không biết?"
 
-Lưu Sấm Phong xót ruột vô cùng, lúc này chỉ có thể cắn răng trả tiền, chẳng lẽ lại nói chỉ mua một cái cho Thẩm Tử Ngôn thôi sao? Như thế thì trước mặt nữ thần quá mất mặt rồi.
+Lưu Sấm Phong xót tiền đến thắt cả ruột gan. Giờ phút này hắn chỉ còn nước cắn răng bấm bụng rút ví, chẳng lẽ lại bẽ mặt bảo chỉ mua duy nhất một ly cho Thẩm Tử Ngôn? Làm thế trước mặt nữ thần thì còn ra cái thể thống gì nữa!
 
-Ai ngờ Thẩm Tử Ngôn rút ra 4 tờ 10 tệ, nhanh tay thanh toán tiền trước.
+Ai ngờ Thẩm Tử Ngôn đã nhanh tay rút ra bốn tờ mười tệ, đưa cho nhân viên thanh toán trước một bước.
 
-"Thẩm Tử Ngôn, sao lại để cậu trả tiền? Sao có thể để con gái trả tiền được?"
+"Thẩm Tử Ngôn, sao cậu lại trả tiền thế? Bọn tớ là con trai, ai lại để con gái trả tiền bao giờ!"
 
-Lưu Sấm Phong lắp bắp, hắn đúng là không cố ý dây dưa để câu giờ.
+Lưu Sấm Phong lắp ba lắp bắp phân trần, lần này hắn thề là mình không hề cố tình lề mề câu giờ.
 
-Thẩm Tử Ngôn mỉm cười nói: "Không sao, tôi mời các cậu cũng như nhau mà."
+Thẩm Tử Ngôn mỉm cười duyên dáng: "Không sao đâu mà, tớ mời các cậu cũng như nhau cả thôi."
 
-Lưu Sấm Phong cũng không giả bộ tranh trả tiền nữa, nói vậy lần sau tôi mời cậu.
+Lưu Sấm Phong thấy thế cũng chẳng buồn làm bộ làm tịch tranh giành trả tiền nữa, bèn bảo vậy lần sau tớ sẽ mời lại cậu.
 
-Cốc Siêu Thừa cũng nói lần sau hắn mời khách.
+Cốc Siêu Thừa cũng vội chen vào bảo lần tới sẽ đến lượt mình khao.
 
-Thẩm Tử Ngôn liền mỉm cười gật đầu, rất phóng khoáng đúng mực. Nàng lấy hai ly đi trước, đưa một ly cho Triệu Kim An, hỏi: "Lát nữa các cậu đi đâu?"
+Thẩm Tử Ngôn mỉm cười gật đầu nhận lời, phong thái vô cùng nhã nhặn, đoan trang và đúng mực. Cô cầm hai ly kem bước lại gần, đưa một ly cho Triệu Kim An rồi hỏi: "Lát nữa các cậu định đi đâu?"
 
-Triệu Kim An bảo về ký túc xá.
+Triệu Kim An đáp: "Về ký túc xá."
 
-Thẩm Tử Ngôn suy nghĩ vài giây, nói tôi cũng về ký túc xá.
+Thẩm Tử Ngôn suy nghĩ vài giây rồi bảo: "Tớ cũng về ký túc xá."
 
-Nhìn Triệu Kim An, Thẩm Tử Ngôn có chút kiếm chuyện để nói, hỏi: "Cậu ăn kem được chứ?"
+Nhìn Triệu Kim An, Thẩm Tử Ngôn dường như đang cố tìm chủ đề để bắt chuyện: "Kem lạnh thế này cậu ăn được chứ?"
 
-Nàng nhớ lại hôm ở nhà ăn Triệu Kim An mua Coca cho đám con trai, bản thân chỉ lấy một chai nước khoáng, Diêu Tân rất lạ lùng liền hỏi, Triệu Kim An bảo mình không uống đồ uống có ga.
+Cô nhớ lại hôm ở nhà ăn, Triệu Kim An mua Coca cho đám con trai, còn bản thân chỉ cầm một chai nước khoáng. Khi Diêu Tân tò mò gặng hỏi, Triệu Kim An bảo mình không có thói quen uống nước ngọt có ga.
 
-Hai người đứng bên đường, một người 1m81, một người 1m70, Lưu Sấm Phong và Cốc Siêu Thừa vẫn còn đang chờ ở quầy bán kem. Triệu Kim An nhìn sang bên kia đường, Thẩm Tử Ngôn nghiêng người nhìn Triệu Kim An.
+Hai người đứng sóng đôi bên lề đường, một người cao một mét tám mươi mốt, một người cao một mét bảy mươi. Lưu Sấm Phong và Cốc Siêu Thừa vẫn đang đứng đợi lấy kem bên ô cửa sổ. Triệu Kim An phóng tầm mắt nhìn sang dòng xe cộ bên kia đường, còn Thẩm Tử Ngôn thì nghiêng nửa người, đưa mắt ngắm nhìn Triệu Kim An.
 
-Nàng nhìn một cách quang minh chính đại.
+Ánh mắt cô nhìn anh rất thẳng thắn, đường hoàng, đàng hoàng, không hề e dè hay lén lút.
 
-Lát sau Thẩm Tử Ngôn lại hỏi: "Bánh hành thực sự ngon đến thế sao?"
+Lặng yên một lúc, Thẩm Tử Ngôn lại cất tiếng hỏi: "Bánh kếp hành chiên thực sự ngon đến thế sao?"
 
-Triệu Kim An gật đầu: "Ừm."
+Triệu Kim An khẽ gật đầu: "Ừm."
 
-Hết chuyện để nói, Thẩm Tử Ngôn bảo vậy tôi cũng đi mua một cái, lúc tôi chạy bộ buổi sáng, Diêu Tân còn đang ngủ trong ký túc xá.
+Hết chuyện để nói, Thẩm Tử Ngôn liền bảo: "Vậy để tớ cũng mua một cái ăn thử xem sao. Lúc tớ ra ngoài chạy bộ thì Diêu Tân vẫn còn đang ngủ nướng ở phòng."
 
-Mua xong bánh hành, Thẩm Tử Ngôn không nán lại nữa, chào ba người rồi đi trước một bước.
+Mua xong chiếc bánh kếp hành, Thẩm Tử Ngôn không nán lại lâu nữa, cô cất tiếng chào tạm biệt ba người rồi rảo bước về trước một bước.
 
-Trên đường về ký túc xá, Cốc Siêu Thừa khen Thẩm Tử Ngôn thực sự rất xinh đẹp, bảo Lưu Sấm Phong là kẻ thấy sắc quên bạn, còn cố ý trêu chọc Lưu Sấm Phong, xem Thẩm Tử Ngôn có phải là cô gái tốt không.
+...
 
-Lưu Sấm Phong bỗng nhiên im lặng một cách lạ thường.
+Trên đường cuốc bộ về lại ký túc xá, Cốc Siêu Thừa tấm tắc khen Thẩm Tử Ngôn xinh đẹp ngút ngàn, tiện mồm mắng Lưu Sấm Phong là đồ trọng sắc khinh bạn, lại còn cố tình trêu chọc hỏi xem trong mắt hắn thì Thẩm Tử Ngôn có phải là một "cô gái ngoan" hay không.
 
-Tối qua hắn mới hỏi trong ký túc xá: "Lâm Thanh Tuyết có phải là cô gái tốt không."
+Lưu Sấm Phong lần này lại bất ngờ rơi vào trầm mặc.
 
-Lâm Thanh Tuyết và Thẩm Tử Ngôn khác nhau quá nhiều, Lưu Sấm Phong cũng không nói được ai tốt ai không tốt, chỉ là cảm giác khi tiếp xúc với hai người hoàn toàn khác biệt.
+Đêm qua hắn vừa trằn trọc hỏi cả phòng xem Lâm Thanh Tuyết có phải là gái ngoan hay không.
 
-Cốc Siêu Thừa rõ ràng là cho rằng Thẩm Tử Ngôn tốt.
+Lâm Thanh Tuyết và Thẩm Tử Ngôn là hai thái cực hoàn toàn khác biệt. Lưu Sấm Phong cũng chẳng thể nói rõ ai tốt ai xấu hơn, chỉ là cái cảm giác khi tiếp xúc với hai người họ mang lại hoàn toàn không giống nhau.
 
-Lưu Sấm Phong lại có chút không diễn tả được, ở cùng Lâm Thanh Tuyết là áp lực về kinh tế, còn ở cùng Thẩm Tử Ngôn dường như lại có áp lực về tâm lý, một loại tâm lý rất tinh tế.
+Cốc Siêu Thừa rõ ràng đang có ý khen ngợi Thẩm Tử Ngôn.
 
-Lưu Sấm Phong tâm trạng có chút trùng xuống, hỏi: "Lão Cốc, nhà Thẩm Tử Ngôn chắc hẳn rất giàu nhỉ?"
+Còn Lưu Sấm Phong thì chẳng biết phải diễn tả thế nào cho trúng: ở bên cạnh Lâm Thanh Tuyết là áp lực nặng nề về mặt kinh tế, còn đứng trước mặt Thẩm Tử Ngôn dường như lại là một thứ áp lực vô hình đè nặng lên tâm lý, một trạng thái tâm lý vô cùng vi diệu và tự ti.
 
-Cốc Siêu Thừa ngẫm nghĩ một hồi rồi bảo: "Chắc thế, chắc chắn không tệ đâu."
+Lưu Sấm Phong mang tâm trạng có phần ủ rũ, khẽ hỏi: "Lão Cốc này, nhà Thẩm Tử Ngôn chắc là giàu lắm nhỉ?"
 
-Lưu Sấm Phong lại hỏi Triệu Kim An, Triệu Kim An bảo không biết.
+Cốc Siêu Thừa ngẫm nghĩ một hồi rồi đáp: "Chắc là vậy rồi, nhìn phong thái thế kia thì điều kiện gia đình chắc chắn không phải dạng vừa đâu."
 
-"Kim An, cho tôi xin điếu thuốc, hì hì." Lưu Sấm Phong xòe tay ra.
+Lưu Sấm Phong lại quay sang hỏi Triệu Kim An, Triệu Kim An chỉ lắc đầu bảo không rõ.
 
-Cốc Siêu Thừa nhìn không nổi nữa, bảo: "Lão Lưu, cậu không thể tự mua lấy một bao thuốc à?"
+"Kim An, cho tớ xin điếu thuốc lá với, hê hê." Lưu Sấm Phong chìa tay ra.
 
-"Hì hì, lát nữa mua, lát nữa mua ngay."
+Cốc Siêu Thừa nhìn không nổi nữa, cằn nhằn: "Lão Lưu, cậu không thể tự bỏ tiền ra mua lấy một bao thuốc lá đàng hoàng được à?"
 
-Lưu Sấm Phong cười hì hì rút bật lửa ra châm thuốc, xem ra tâm trạng đã bình thường trở lại rồi.
+"Hê hê, lát nữa mua, lát về tớ mua liền."
 
-Phía bên kia, Thẩm Tử Ngôn xách đồ ăn sáng về ký túc xá, Diêu Tân nằm sấp bên cạnh giường reo lên: "Oa, Tử Ngôn cậu tốt quá đi mất!"
+Lưu Sấm Phong cười hề hề rút bật lửa châm thuốc, xem chừng tâm trạng đã nhanh chóng khôi phục lại trạng thái bình thường.
 
-Ở ký túc xá nam, ai mang đồ ăn sáng về thì người đó là cha.
+...
 
-Chỉ là thấy Thẩm Tử Ngôn cũng mới bắt đầu ăn, Diêu Tân có chút lạ lùng, chạy bộ buổi sáng mà không ăn sáng sao?
+Ở một diễn biến khác, Thẩm Tử Ngôn xách theo túi đồ ăn sáng bước chân vào phòng 406. Diêu Tân đang nằm nhoài người bên mép giường tầng liền reo lên kinh ngạc: "Oa, Tử Ngôn ơi cậu tuyệt vời quá đi mất!"
 
-"Tử Ngôn, cậu cũng mới ăn sáng à?" Diêu Tân nằm trên giường hỏi.
+Ở ký túc xá nam, đứa nào sáng sớm chịu khó xách đồ ăn sáng về phòng thì đứa đó nghiễm nhiên được phong làm "cha nuôi".
+
+Chỉ có điều thấy Thẩm Tử Ngôn lúc này mới bắt đầu ngồi ăn, Diêu Tân có chút lấy làm lạ, chạy bộ cả buổi sáng mà giờ mới ăn sao?
+
+"Tử Ngôn, giờ cậu mới ăn sáng đấy à?" Diêu Tân ngỏng đầu hỏi.
 
 "Ừm."
 
-Thẩm Tử Ngôn mua hai cái bánh hành, nàng muốn biết bánh hành thực sự ngon đến thế sao?
+Thẩm Tử Ngôn mua hai chiếc bánh kếp hành, cô chỉ tò mò muốn biết chiếc bánh này rốt cuộc ngon đến mức độ nào.
 
-Hình như cũng bình thường thôi mà, sao hắn lại có thể ăn ngon lành đến thế nhỉ?
+Thế nhưng khi cắn một miếng, cô thấy hương vị cũng chỉ ở mức bình thường thôi mà. Tại sao lúc nãy anh ấy lại có thể ăn một cách ngon lành, say sưa đến như vậy chứ?

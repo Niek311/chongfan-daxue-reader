@@ -1,173 +1,183 @@
-# Chương 197: Còn kém 9 5 vạn.
+# Chương 197: Vẫn còn thiếu chín mươi lăm vạn
 
-Đẹp cỗ kéo dài ngã xuống.
+> **Tiêu đề gốc**: 第197章 还差95万。
 
-Kỳ thực tính cảnh giác cao người là có khứu giác, Rehmann ngân hàng là 1 0 tháng tuyên bố phá sản, không biết khủng hoảng cho vay của, ngươi tưởng tượng phía dưới nếu như trong nước có ngân hàng tuyên bố phá sản lại là cảnh tượng gì?
+Thị trường chứng khoán Mỹ tiếp tục chuỗi ngày lao dốc không phanh.
 
-Không có ai lật tẩy.
+Thực tế, những người có độ nhạy bén cao về kinh tế đều đã ngửi thấy mùi giông bão từ sớm. Đến tháng mười, ngân hàng khổng lồ Lehman Brothers chính thức tuyên bố phá sản. Nếu ai chưa hình dung được mức độ tàn khốc của cuộc khủng hoảng nợ dưới chuẩn, hãy thử tưởng tượng cảnh tượng một ngân hàng quốc nội hàng đầu sụp đổ sẽ kinh hoàng đến nhường nào.
 
-Triệu Kim An vui thích, hắn mấy cái đẹp cỗ trương mục tài chính đi tới 8 6 2 vạn đô la mỹ.
+Hoàn toàn không có ai đứng ra gánh đỡ hay cứu vãn.
 
-Lặng lẽ, hắn không muốn chính mình tài chính bị quốc gia kia đóng băng rồi.
+Triệu Kim An thì âm thầm hưởng trọn niềm vui. Tổng số tiền trong mấy tài khoản chứng khoán Mỹ của cậu lúc này đã cán mốc 8,62 triệu USD.
 
-Thẩm tử nói nhận được điện thoại, thẩm vĩnh đàm thổn thức nói có thể thật muốn bắt đầu.
+Cậu thao tác hết sức kín đáo và thận trọng, bởi lẽ cậu tuyệt đối không muốn dòng vốn khổng lồ của mình bị phong tỏa bởi các định chế tài chính nước sở tại.
 
-Công ty có cái mối khách cũ xuống đơn đặt hàng, lại gửi email tới hủy bỏ rồi.
+Thẩm Tử Ngôn nhận được một cuộc điện thoại. Đầu dây bên kia, Thẩm Vĩnh Đàm thở dài cảm thán, bảo rằng có lẽ cơn bão kinh tế sắp sửa ập đến thật rồi.
 
-Đẹp cỗ không giống A cỗ, đẹp cỗ là toàn cầu kinh tế Tình Vũ bày tỏ.
+Một khách hàng đối tác lâu năm vừa mới đặt đơn hàng lớn, chưa ráo mực đã vội gửi email xin hủy đơn.
 
-Thẩm tử nói ngược lại nở nụ cười:"cha, vậy chúng ta nhà muốn phát tài."
+Thị trường chứng khoán Mỹ không giống như chứng khoán Trung Quốc, nó là hàn thử biểu phản ánh chân thực sức khỏe của cả nền kinh tế toàn cầu.
 
-Đầu bên kia điện thoại thẩm vĩnh đàm trầm mặc sẽ, càng thêm thổn thức:"cha già thật rồi.... Hắn nói cuối năm liền cuối năm, tin tưởng hắn."
+Thẩm Tử Ngôn nghe xong lại bật cười giòn giã: "Bố ơi, thế thì nhà mình sắp phát tài to rồi còn gì."
 
-"cha ngươi cùng mẹ ngươi kinh doanh công ty chắc chắn rồi như vậy mấy năm, nhìn lần này có thể hay không phát bút hoành tài."
+Đầu dây bên kia, Thẩm Vĩnh Đàm im lặng một lát, giọng nói càng thêm muôn phần cảm khái: "Bố già thật rồi con ạ... Cậu ta bảo cuối năm là chuẩn xác đến cuối năm, cứ tin tưởng cậu ta vậy."
 
-"đúng, Kim An tưởng thu cấu cái gì nhà máy sao? Ngươi hỏi thăm hắn, ta và mẹ của ngươi thuận đường liền giúp hắn ngắm tốt, hắn nếu không thì hiểu, ta đi giúp hắn đàm luận đều được...."
+"Bố và mẹ con kinh doanh công ty bao nhiêu năm nay luôn chọn lối đi an toàn chắc chắn, để xem lần này có vớ được một món hời thế kỷ hay không."
 
-"cha, Kim An không nhìn trúng nhà máy thay thế của, hắn không kiếm lời làm thay điểm này tiền khổ cực."
+"À phải rồi, Kim An có ý định thâu tóm nhà máy nào không? Con thử hỏi cậu ta xem, bố với mẹ tiện đường sẽ nhắm trước cho vài mối. Nếu cậu ta chưa rành, bố đích thân đi đàm phán giúp cũng được..."
 
-Thẩm vĩnh đàm:......
+"Bố à, Kim An không thèm mấy cái xưởng gia công đâu, cậu ấy chẳng hứng thú kiếm mấy đồng bạc cắc vất vả từ nghề gia công đâu bố."
 
-"treo, về sau đừng đánh điện thoại ta, thiếu tiền tìm ngươi mẹ."
+Thẩm Vĩnh Đàm: "..."
 
-"không đúng, ngươi bây giờ có tiền lương, cũng đừng tìm ngươi mẹ, chính ngươi nuôi sống chính mình, ngược lại ta và mẹ của ngươi là kiếm lời tiền khổ cực."
+"Thôi cúp máy đây! Sau này đừng có gọi cho bố nữa, thiếu tiền thì tìm mẹ con mà xin."
 
-"cha, ngươi chờ một chút!"
+"À không đúng, bây giờ con có lương rồi, cũng đừng hòng tìm mẹ con xin xỏ. Con tự đi mà nuôi sống bản thân, dù sao bố mẹ cũng chỉ là dân lao động kiếm đồng tiền mồ hôi nước mắt thôi."
 
-"ngươi cho ta thật dễ nói chuyện, biệt hàn sầm cha ngươi!"
+"Bố ơi, bố khoan đã!"
 
-"tốt tốt tốt, Kim An nghĩ thoáng đại siêu thị."
+"Con nói chuyện cho đàng hoàng, đừng có mà chọc quê bố!"
 
-Nói đến chính sự, thẩm vĩnh đàm nghiêm chỉnh lại rồi:"là ốc nhĩ mã loại kia sao?"
+"Được rồi, được rồi mà. Kim An đang có kế hoạch mở một chuỗi siêu thị lớn."
 
-"không rõ ràng, hắn đang tại làm kế hoạch, tại trong kế hoạch."
+Nhắc đến chuyện chính sự, giọng điệu Thẩm Vĩnh Đàm lập tức trở nên nghiêm túc: "Là kiểu đại siêu thị như Walmart à?"
 
-"làm xong là kiếm tiền, chính là lợi nhuận tỷ lệ không cao, không giống bán thủy như vậy bạo lợi, bán thủy thật giống hắn câu kia quảng cáo từ, chúng ta không sinh sản thủy, chỉ là một cái công nhân bốc vác."
+"Con cũng chưa rõ lắm, cậu ấy đang lên phương án chi tiết, vẫn còn nằm trong giai đoạn hoạch định."
 
-"đúng, công ty nhà chúng ta có mấy kiểu sản phẩm có thể tiến siêu thị."
+"Mở siêu thị nếu làm tốt thì kiếm được tiền đấy, chỉ có điều tỷ suất lợi nhuận không cao, không thể siêu lợi nhuận như ngành kinh doanh nước đóng chai được. Bán nước đúng là y như câu slogan quảng cáo của cậu ta: 'Chúng tôi không sản xuất nước, chúng tôi chỉ là người vận chuyển nước thiên nhiên'."
 
-"ân, ta cũng là muốn như vậy."
+"Đúng rồi, công ty nhà mình có mấy dòng sản phẩm rất thích hợp để đưa vào kệ siêu thị đấy."
 
-Thẩm tử nói nâng điện thoại gật đầu:"Kim An tại kế hoạch, phải cùng ốc nhĩ mã những thứ này siêu thị có chút không tầm thường."
+"Vâng, con cũng nghĩ y như bố."
 
-"khoan đã, tử nói, ngươi nói là siêu thị sinh ý sẽ rất hảo?"
+Thẩm Tử Ngôn ôm điện thoại gật đầu lia lịa: "Kim An vẫn đang nghiên cứu mô hình, nghe đâu sẽ có nhiều điểm rất khác biệt so với những siêu thị như Walmart."
 
-Thẩm vĩnh đàm hiểu rõ nữ nhi, phổ thông thương siêu nữ nhi sẽ không giảng nhiều như vậy, công ty nhà mình của sản phẩm nhiều mấy cái siêu thị bán đối với công ty buôn bán ngạch không ảnh hưởng nhiều lắm.
+"Khoan đã, Tử Ngôn, ý con là siêu thị này kinh doanh sẽ cực kỳ đắt khách?"
 
-"cha, ngươi biết hứa xẻng của béo tây tới sao?"
+Thẩm Vĩnh Đàm quá hiểu tính cách con gái mình. Nếu chỉ là một siêu thị bách hóa thông thường, con gái ông sẽ chẳng bao giờ tốn hơi tốn công nói nhiều đến thế. Việc sản phẩm của công ty gia đình có thêm vài điểm bán lẻ cũng chẳng tạo ra biến động đáng kể nào cho tổng doanh thu.
 
-Thẩm tử nói ăn ngay nói thật:"ta đối với nó không hiểu rõ lắm, Kim An cũng không xác định, nhưng mà phái người đi thực địa quan sát rồi."
+"Bố, bố có biết chuỗi siêu thị Bàn Đông Lai ở Hứa Xương không?"
 
-Bây giờ của béo tây tới người biết không nhiều, còn không có ra giới.
+Thẩm Tử Ngôn nói thật: "Bản thân con cũng chưa tìm hiểu sâu về nó, Kim An cũng chưa chốt phương án cuối cùng, nhưng cậu ấy đã cử người đến tận nơi khảo sát thực tế rồi."
 
-Thẩm tử giảng hòa thẩm vĩnh đàm đánh 1 giờ điện thoại, cha con bình đẳng giao lưu, ngẫu nhiên chỉ đùa một chút, thẩm vĩnh đàm rất tình nguyện cũng thích cùng nữ nhi câu thông công việc.
+Vào thời điểm này, Bàn Đông Lai vẫn là một cái tên khá xa lạ với đại chúng, chưa hề tạo nên làn sóng nổi tiếng rầm rộ trên toàn quốc.
 
-Cái gì cũng không xác định dưới tình huống, hai cha con gái liền đã định nhà mình công ty sản phẩm tiến Triệu Kim An của siêu thị, nếu có ra trận phí cùng trưng bày phí tùy tiện mở.
+Hai cha con Thẩm Tử Ngôn và Thẩm Vĩnh Đàm trò chuyện điện thoại suốt một tiếng đồng hồ. Cuộc trao đổi diễn ra trên tinh thần bình đẳng, thỉnh thoảng điểm xuyết vài câu đùa vui. Thẩm Vĩnh Đàm luôn rất sẵn lòng và yêu thích việc trao đổi công việc cùng con gái cưng.
 
-Siêu thị tính tiền của sổ sách kỳ không quan trọng.
+Trong khi mọi thứ vẫn còn chưa ngã ngũ, hai cha con đã nhanh chóng thống nhất: toàn bộ sản phẩm thế mạnh của công ty gia đình sẽ được ưu tiên đưa vào kệ siêu thị của Triệu Kim An. Nếu có phí vào cổng hay phí trưng bày quầy kệ, cậu ta cứ tùy ý ra giá.
 
-Thẩm vĩnh đàm cùng từ tắc thì tòa nhà tạo thành chênh lệch rõ ràng.
+Còn về kỳ hạn thanh toán công nợ của siêu thị, nhà họ Thẩm hoàn toàn không bận tâm.
 
-Dương thù đẹp tại quận cát không tiếp tục chờ được nữa rồi, vội vội vàng vàng trở về Dương Thành.
+Thái độ của Thẩm Vĩnh Đàm và Từ Tắc Đống thực sự tạo nên một sự tương phản sâu sắc, một trời một vực.
 
-Trở về Dương Thành phía trước, Dương thù đẹp cho Từ Mạn Mạn gọi điện thoại, nói xin lỗi nói rất thật tốt lời nói, hi vọng cuối cùng Từ Mạn Mạn có thời gian liền đi tinh sa của nhà máy giúp đỡ chút.
+...
 
-Dương thù đẹp là không có nghe Từ Mạn Mạn của đề nghị, nhưng trước học kỳ có Từ Mạn Mạn tại nhà máy, Dương thù đẹp bớt đi quá đa tâm.
+Dương Thù Mỹ không thể nán lại Quận Sa thêm được nữa, vội vã thu xếp hành lý quay về Dương Thành.
 
-Từ Mạn Mạn điện thoại cầm lái ngoại phóng, toàn trình không nói chuyện
+Trước khi rời đi, bà ta gọi cho Từ Mạn Mạn một cuộc điện thoại, vừa nói lời xin lỗi vừa ngọt nhạt dỗ dành đủ điều, cuối cùng ngỏ ý mong Từ Mạn Mạn khi nào rảnh rỗi thì ghé qua nhà máy ở Tinh Sa hỗ trợ trông nom giúp.
 
-Không có đáp ứng, không có cự tuyệt, cũng không đi nhà máy.
+Dương Thù Mỹ tuy không nghe theo lời khuyên chiến lược của Từ Mạn Mạn, nhưng trong suốt học kỳ trước, có Từ Mạn Mạn quán xuyến công việc tại nhà xưởng, bà ta đã bớt đi biết bao nỗi lo toan, nhàn nhã hơn rất nhiều.
 
-Trần trạch về trước trường học rồi, chính thức đối mặt Lâm Thanh Tuyết, lấy ra 5 vạn khối tiền đối với Lâm Thanh Tuyết nói, phòng bi da cũng cho ngươi.
+Từ Mạn Mạn bật loa ngoài điện thoại, suốt cả cuộc gọi cô không hề cất lấy một lời.
 
-Lâm Thanh Tuyết không có nhận tiền, cười lạnh nói:"trần trạch, ta liền đáng giá 5 vạn khối tiền?"
+Không nhận lời, không từ chối, và cũng tuyệt nhiên không bước chân đến nhà máy nửa bước.
 
-Trần trạch rất khó chịu, chính hắn đều không tốt cầm ra, không dám cùng Lâm Thanh Tuyết đối mặt.
+...
 
-"Tiểu Tuyết, có lỗi với, ta...."
+Trần Trạch đã quay trở lại trường học trước. Cậu ta chính thức đối mặt với Lâm Thanh Tuyết, móc ra cọc tiền năm vạn tệ đặt trước mặt cô nàng và nói: "Phòng bida này anh cũng nhượng lại toàn bộ cho em."
 
-Lâm Thanh Tuyết bỏ lại một câu nói:"trần trạch, ngươi muốn vứt bỏ ta cùng Từ Mạn Mạn hòa hảo? Ta có thể ra khỏi thành toàn ngươi, ta cũng không tham, cầm một trăm vạn đi ra!"
+Lâm Thanh Tuyết không thèm đón lấy cọc tiền, khóe môi nhếch lên một nụ cười lạnh lẽo: "Trần Trạch, tôi trong mắt anh chỉ đáng giá năm vạn tệ thôi sao?"
 
-"bằng không ngươi mơ tưởng cùng Từ Mạn Mạn hòa hảo!"
+Trần Trạch cảm thấy vô cùng bẽ bàng, chính cậu ta cũng thấy số tiền này thật khó mở lời, không dám ngẩng lên nhìn thẳng vào mắt Lâm Thanh Tuyết.
 
-Nói Lâm Thanh Tuyết lại quăng ra trần trạch trong tay 5 vạn, cười lạnh nói:"còn kém 9 5 vạn!"
+"Tiểu Tuyết, anh xin lỗi, anh..."
 
-"Tiểu Tuyết, là mẹ ta, không phải ta!"
+Lâm Thanh Tuyết lạnh lùng buông một câu dứt khoát: "Trần Trạch, anh muốn đá văng tôi để quay lại làm lành với Từ Mạn Mạn chứ gì? Tôi có thể chủ động rút lui để tác thành cho hai người, tôi cũng chẳng tham lam làm gì, anh đưa một triệu tệ ra đây!"
 
-Muốn nói trần trạch đối với Lâm Thanh Tuyết không có điểm cảm tình vậy không có thể, ngủ nhiều như vậy buổi tối ngủ đều ngủ ra tình cảm.
+"Bằng không, anh đừng hòng mong quay lại với Từ Mạn Mạn!"
 
-Lâm Thanh Tuyết dù sao cũng mới 2 0 tuổi, đàng hoàng 2 1 1 sinh viên, own"lần thứ nhất"cho trần trạch.
+Nói đoạn, Lâm Thanh Tuyết thẳng tay giật lấy cọc tiền năm vạn trên tay Trần Trạch, cười khẩy: "Vẫn còn thiếu chín trăm năm mươi nghìn nữa đấy!"
 
-Ở cái này mạng lưới thông tin không phát đạt niên đại, Lâm Thanh Tuyết liền xem như trà xanh vớt nữ, cũng là dần dần lột xác.
+"Tiểu Tuyết, đây là ý của mẹ anh, không phải ý của anh!"
 
-"trần trạch, ta thật xem thường ngươi!"
+Nếu bảo Trần Trạch không có chút tình cảm nào với Lâm Thanh Tuyết thì hoàn toàn là nói dối. Cùng nhau chung chăn gối bao nhiêu đêm say đắm, ngủ cùng nhau riết rồi cũng nảy sinh quyến luyến.
 
-Lâm Thanh Tuyết một mặt khinh bỉ:"nghe ngươi mẹ nó, vậy được, liền kêu mẹ ngươi lấy thêm 9 5 vạn đi ra, ngươi nói cho nàng, có ta ở đây, ngươi mơ tưởng cùng Từ Mạn Mạn hòa hảo."
+Huống chi Lâm Thanh Tuyết dẫu sao cũng chỉ mới hai mươi tuổi, đường đường là sinh viên của một trường đại học trọng điểm thuộc Đề án 211, lại còn trao "lần đầu tiên" quý giá cho Trần Trạch.
 
-"Tiểu Tuyết....."
+Vào cái thời đại mà công nghệ thông tin và mạng xã hội chưa phát triển bùng nổ, Lâm Thanh Tuyết dẫu có sẵn máu "trà xanh" hay tâm lý đào mỏ thì đó cũng là cả một quá trình tha hóa dần dần.
 
-Trần trạch muốn nói lại thôi, nhìn xem Lâm Thanh Tuyết còn có chút đau lòng.
+"Trần Trạch, tôi thực sự coi thường anh!"
 
-Lâm Thanh Tuyết bao hàm nước mắt:"trần trạch, ta không có quá phận, lớp chúng ta đồng học đều nói ta có thể cầm tới 5 trăm vạn, ta chỉ cần 1 trăm vạn, là ngươi làm của quá mức."
+Gương mặt Lâm Thanh Tuyết tràn ngập vẻ khinh miệt: "Nghe lời mẹ anh chứ gì? Được thôi, vậy thì bảo mẹ anh móc thêm chín trăm năm mươi nghìn nữa ra đây. Anh về nói với bà ta rằng: chừng nào còn có tôi ở đây, anh đừng bao giờ mơ tưởng đến chuyện quay lại với Từ Mạn Mạn!"
 
-"ngươi ngay cả che giấu đều không che giấu, trực tiếp liền nâng hoa hồng đi Từ Mạn Mạn túc xá lầu dưới."
+"Tiểu Tuyết..."
 
-"những ngày này lại mỗi ngày trốn tránh ta, ngươi có nghĩ qua ta tại lớp học làm người như thế nào sao?"
+Trần Trạch ngập ngừng muốn nói lại thôi, nhìn Lâm Thanh Tuyết với ánh mắt còn vương chút xót xa.
 
-Lâm Thanh Tuyết là không biến thành vớt nữ, nhưng trời sinh mang trà xanh thuộc tính, biết rõ làm sao nắm trần trạch loại này nam sinh.
+Đôi mắt Lâm Thanh Tuyết ngấn lệ, giọng nghẹn ngào uất ức: "Trần Trạch, tôi không hề quá đáng đâu. Mấy đứa bạn cùng lớp tôi ai cũng bảo tôi dư sức đòi được năm triệu, tôi chỉ đòi có một triệu thôi. Chính anh mới là kẻ quá đáng!"
 
-Ngược lại một nửa một nửa đi.
+"Anh thậm chí chẳng thèm che giấu hay kiêng nể gì tôi, cứ thế ngang nhiên ôm bó hoa hồng lớn đứng dưới chân tòa ký túc xá của Từ Mạn Mạn."
 
-Lâm Thanh Tuyết chắc chắn càng muốn cùng hơn trần trạch thật tốt sinh hoạt, làm giàu thái thái, 4 nhà nhà máy cùng một trăm vạn ai cũng biết như thế nào tuyển.
+"Mấy ngày nay anh lại năm lần bảy lượt trốn tránh tôi, anh có từng nghĩ tôi phải ngẩng mặt làm người thế nào trước mắt bạn bè trong lớp không?"
 
-Chuyện này không biết làm sao lại truyền ra.
+Lâm Thanh Tuyết tuy chưa biến chất hoàn toàn thành một kẻ đào mỏ chuyên nghiệp, nhưng bản tính trời sinh đã mang đậm nét "trà xanh", rất biết cách nắm thóp và thao túng tâm lý những công tử non nớt như Trần Trạch.
 
-Có người nói Lâm Thanh Tuyết đáng giá, có người nói Lâm Thanh Tuyết không đáng giá.
+Nói chung cũng là nửa nọ nửa kia.
 
-Nói không đáng giá, đơn giản là 5 Vạn Tướng đối với trần trạch nhà tới nói quá ít.
+Trong thâm tâm, Lâm Thanh Tuyết chắc chắn muốn cùng Trần Trạch êm ấm sống những ngày tháng giàu sang, ngồi vững chiếc ghế phu nhân hào môn. Giữa một triệu tệ tiền mặt và bốn nhà máy gia tài đồ sộ, ai có đầu óc cũng đều biết phải lựa chọn thế nào.
 
-Đáng giá thì không cần nói, có mấy cái sinh viên yêu đương có phần tay phí của, liền xem như nữ sinh của lần thứ nhất, còn không phải chia tay liền chia tay, lần thứ nhất vẫn là tại 3 0 một đêm quán trọ nhỏ.
+Chuyện này chẳng hiểu sao lại nhanh chóng lan truyền khắp trường.
 
-Lâm Thanh Tuyết lên mã vẫn là tại biệt thự.
+Có người bảo Lâm Thanh Tuyết đòi thế là xứng đáng, cũng có người bảo cô nàng không xứng.
 
-Lưu xông phong tại ký túc xá có chút buồn bực, hút một điếu thuốc lại một điếu thuốc.
+Kẻ bảo không xứng chẳng qua là vì năm vạn tệ đối với gia thế nhà Trần Trạch quả thực quá bèo bọt.
 
-Triệu Kim An vỗ vai hắn một cái:"bỏ dài, là ta sai rồi."
+Còn việc xứng đáng thì khỏi phải bàn. Thử hỏi có mấy cặp sinh viên yêu nhau mà khi chia tay lại được nhận tiền bồi thường thanh xuân? Dù có là lần đầu tiên của đời con gái thì chia tay cũng là chia tay trắng tay, mà cái lần đầu tiên ấy thường diễn ra trong những nhà nghỉ tồi tàn giá ba mươi tệ một đêm.
 
-"Kim An, ngươi đang nói cái gì?"
+Ít nhất thì Lâm Thanh Tuyết cũng trao thân trong căn biệt thự sang trọng.
 
-"ngươi khi đó hỏi ta như thế nào truy Lâm Thanh Tuyết, ta nói tiễn đưa một đài trần trạch như thế của BMW, là ta đánh giá thấp Lâm Thanh Tuyết, Lâm Thanh Tuyết muốn một trăm vạn."
+...
 
-Triệu Kim An nội tâm có chút tự giễu.
+Ở ký túc xá nam, Lưu Sấm Phong buồn bực ra mặt, hết rít điếu thuốc này lại châm tiếp điếu khác.
 
-Lưu xông phong:......
+Triệu Kim An bước tới, vỗ nhẹ lên vai cậu ta: "Trưởng phòng, là tôi sai rồi."
 
-"Kim An, cái kia lý Airam nhỉ?"
+"Kim An, mày đang nói nhảm cái gì thế?"
 
-Triệu Kim An nhìn hắn mắt, không muốn nói chuyện.
+"Hồi trước cậu hỏi tôi cách tán đổ Lâm Thanh Tuyết, tôi bảo cậu phải tặng một chiếc BMW giống như của Trần Trạch. Là tôi đã đánh giá quá thấp Lâm Thanh Tuyết rồi, cô nàng mở miệng đòi tận một triệu tệ cơ."
 
-Nghe được tin tức này, Triệu Kim An còn có cái gì không hiểu, tại người khác cửa tiểu khu dừng lại 2 0 phút....
+Triệu Kim An trong lòng thoáng dâng lên cảm giác tự giễu.
 
-4 0 6 của ba nữ sinh cũng minh bạch.
+Lưu Sấm Phong: "..."
 
-"ai — —"
+"Kim An, thế... thế còn Lý Ngải Lan thì sao?"
 
-Diêu tân thở dài:"Mạn Mạn như vậy thì tha thứ trần trạch rồi?"
+Triệu Kim An liếc nhìn cậu bạn cùng phòng một cái, cạn lời chẳng buồn đáp.
 
-Thẩm tử nói là trước hết nhất biết đến, lưu xông phong trước hết nhất cho nàng phát tin tức.
+Nghe được tin tức này, Triệu Kim An làm sao không hiểu sự tình? Hóa ra cậu lại ngây ngốc đứng chờ ở cổng khu chung cư nhà người ta suốt hai mươi phút...
 
-Mộc Dao gặm quả táo:"ta có chút xem không hiểu Mạn Mạn rồi."
+Ba cô gái phòng 406 cũng đã nắm được câu chuyện.
 
-"ta cũng có chút xem không hiểu."
+"Haizz—"
 
-Diêu tân phụ hoạ, ở trong lòng phủ định chính mình:"trần trạch nhà là có tiền, có 4 nhà nhà máy, nhưng Mạn Mạn không phải loại người như vậy, chúng ta ở chung có một năm rưỡi....."
+Diêu Sân buông tiếng thở dài thườn thượt: "Mạn Mạn dễ dàng tha thứ cho Trần Trạch như thế thật sao?"
 
-Tối hôm đó từ văn phòng trở về, Triệu Kim An một người đi phòng bi da.
+Thẩm Tử Ngôn là người biết chuyện đầu tiên, bởi vì Lưu Sấm Phong đã nhắn tin cho cô sớm nhất.
 
-Trần trạch không tại.
+Mộc Dao vừa gặm táo vừa làu bàu: "Tớ bắt đầu thấy không hiểu nổi Mạn Mạn nữa rồi."
 
-"Triệu Kim An, ngươi đã đến?"
+"Tớ cũng chẳng hiểu nổi."
 
-Lâm Thanh Tuyết chạy tới rất nhiệt tình, hốc mắt không phải đỏ rồi.
+Diêu Sân phụ họa, nhưng trong lòng lại tự phủ nhận suy đoán ấy: "Nhà Trần Trạch tuy có tiền, có tận bốn cái nhà máy, nhưng Mạn Mạn tuyệt đối không phải loại người hám tiền như thế. Chúng mình đã sống chung với nhau một năm rưỡi rồi, tính nết cậu ấy thế nào chẳng lẽ không rõ..."
 
-Triệu Kim An mỉm cười gật đầu:"ngươi tốt
+...
+
+Tối hôm ấy, sau khi rời văn phòng công ty trở về, Triệu Kim An một mình tản bộ đến phòng bida.
+
+Trần Trạch không có ở đây.
+
+"Triệu Kim An, cậu đến chơi đấy à?"
+
+Lâm Thanh Tuyết đon đả chạy tới đón tiếp, vành mắt lúc này đã không còn ửng đỏ nữa.
+
+Triệu Kim An mỉm cười gật đầu: "Chào cậu."

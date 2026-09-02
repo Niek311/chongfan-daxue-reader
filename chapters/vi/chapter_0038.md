@@ -1,243 +1,241 @@
-# Chương 38: Triệu Bác Lan Theo Vai Vế Tôi Phải Gọi Nó Là Chú
+# Chương 38: Triệu Bác Lan: Tính theo vai vế em phải gọi nó là chú!
 
-"Kim An, tao đói bụng rồi."
+> **Tiêu đề gốc**: 第38章 赵博兰：按字辈我要喊他叔。
 
-"Lại đói?"
+"Kim An, tao lại đói bụng rồi."
 
-Sắp đến Quận Sa, có người đẩy xe cơm băng qua đám đông chật chội để rao bán, chỉ là giá từ 12 tệ giảm xuống còn 5 tệ, Triệu Chí Dũng mới nỡ bỏ tiền ra mua.
+"Lại đói nữa à?"
 
-"Cái bạn nam tên Kim An này đẹp trai quá đi mất!"
+Khi tàu sắp đến Quận Sa, có nhân viên đẩy xe cơm hộp lách qua dòng người chật chội rao bán. Mãi đến khi giá cơm hạ từ mười hai tệ xuống còn năm tệ một suất, Triệu Trí Dũng mới dám bấm bụng móc tiền ra mua.
 
-Ở phía đối diện có một cô gái đã liếc nhìn suốt dọc đường, cô lấy hết can đảm để tìm cách bắt chuyện với Triệu Kim An.
+"Cái bạn nam tên Kim An kia đẹp trai xỉu luôn á!"
 
-Triệu Kim An chỉ mỉm cười với cô một cái, hoặc là nhìn ra ngoài cửa sổ xe, nhắm mắt giả vờ ngủ.
+Một cô bạn gái ngồi ở hàng ghế đối diện đã lén ngắm Triệu Kim An suốt cả dọc đường. Lấy hết can đảm, cô nàng chủ động bắt chuyện làm quen.
 
-"Đừng gấp, ăn chậm thôi."
+Thế nhưng Triệu Kim An chỉ khẽ mỉm cười đáp lễ một cách lịch sự, sau đó nếu không nhìn ra ngoài cửa sổ thì cũng nhắm nghiền mắt vờ như đang ngủ say.
 
-Triệu Kim An chỉ ăn vài miếng cơm, rồi gắp một cái đùi gà cho Triệu Chí Dũng.
+"Ăn từ từ thôi, đừng vội."
+
+Triệu Kim An chỉ và vài miếng cơm lót dạ, rồi gắp chiếc đùi gà trong phần cơm của mình bỏ sang hộp của Triệu Trí Dũng.
 
 "Hì hì."
 
-Triệu Chí Dũng ngẩng đầu cười ngây ngô vài tiếng: "Kim An, mày cũng không ăn đùi gà à?"
+Triệu Trí Dũng ngẩng đầu cười ngây ngô: "Kim An, đùi gà ngon thế này mà mày cũng không ăn à?"
 
 "Cho mày đấy."
 
-Triệu Kim An nói: "Tao là chú mày mà, thương cháu là chuyện đương nhiên."
+Triệu Kim An thủng thẳng đáp: "Dù sao tao cũng là chú mày, thương cháu ruột thịt là chuyện đương nhiên mà."
 
-Cái đùi gà bỗng không còn thơm nữa.
+Chiếc đùi gà bỗng nhiên mất hết vị ngon.
 
-Triệu Chí Dũng bảo đây đâu phải ở trong thôn, vai vế thấp, đôi khi thật sự có chút bực mình.
+Triệu Trí Dũng làu bàu bảo đây có phải ở trong làng đâu, cái vai vế thấp tè này nhiều lúc nghĩ mà ức chế thật sự.
 
-Cô gái: ...
+Cô gái ngồi đối diện: "..."
 
-Cô xách đồ đứng ở lối đi chuẩn bị xuống xe, chẳng hiểu sao rùng mình một cái, nổi hết cả da gà.
+Đang đứng xách hành lý ở lối đi chuẩn bị xuống tàu, cô nàng bỗng rùng mình một cái, nổi hết cả da gà da vịt.
 
-Eo ôi — đối với con trai mà tốt thế, dịu dàng thế, thật buồn nôn.
+*Eo ôi... Con trai với con trai mà đối xử với nhau tốt thế, dịu dàng săn sóc thế, ghê quá đi mất.*
 
-Hóa ra không thèm đoái hoài đến mình là vì...
+*Hèn chi nãy giờ không thèm ngó ngàng gì đến mình, hóa ra hai người này là...*
 
-Cô gái xách đồ chen về phía trước, quá buồn nôn, quá đáng sợ.
+Cô nàng vội vàng ôm chặt đồ đạc chen lấn lách vội lên phía trước. Thật là đáng sợ quá đi mà!
 
-Triệu Chí Dũng ngẩng đầu nhìn nhìn: "Kim An, mày là muốn đợi bọn Mộc Dao đi trước đúng không."
+Triệu Trí Dũng ngẩng đầu nhìn quanh: "Kim An, mày muốn đợi bọn Mộc Dao xuống tàu trước đúng không?"
 
-"4 giờ rồi."
+"Bốn giờ chiều rồi."
 
-Triệu Kim An xem giờ: "Tao đưa mày đến trường báo danh trước, nộp học phí đã."
+Triệu Kim An liếc nhìn đồng hồ: "Tao đưa mày sang trường làm thủ tục nhập học trước, nộp xong học phí cho yên tâm."
 
-"Thím còn dặn tao phải để mắt đến mày đấy."
+"Thím dặn tao là phải trông chừng mày cẩn thận đấy nhé."
 
-Có lẽ trong lòng Vương Kim Như, Triệu Chí Dũng ở trong thôn nghịch ngợm quen rồi, nói theo cách của Triệu Kim An Gia thôn là ra ngoài xã hội còn lanh lợi một chút, còn Triệu Kim An không quá biết cách giao lưu với người khác.
+Có lẽ trong suy nghĩ của bà Vương Kim Như, Triệu Trí Dũng từ nhỏ đã chạy nhảy lông bông quen thói, theo cách nói của dân làng Triệu Gia là "dạn dĩ biết ăn biết nói", còn Triệu Kim An thì quá đỗi trầm tính, ít khi chịu mở miệng giao tiếp với người ngoài.
 
-Chẳng may mà bị lạc đường ở thủ phủ tỉnh, lại không chịu mở miệng hỏi đường, thì một mình đáng thương biết bao.
+Lỡ đâu lên thành phố lớn bị lạc đường mà không chịu mở mồm hỏi thăm người ta, một thân một mình bơ vơ thì tội nghiệp biết mấy.
 
 ...
 
-Ga tàu hỏa nằm ở Hà Đông, khu đại học ở Hà Tây, trường Tài chuyên cũng ở Hà Tây.
+Ga tàu hỏa nằm ở khu vực Hà Đông, còn làng đại học và Trường Cao đẳng Tài chính Chuyên khoa (Tài Chuyên) lại nằm bên bờ Hà Tây.
 
-Xuất phát từ ga tàu hỏa, đi qua đại lộ Ngũ Nhất, đến trạm cửa phố Thái Bình thì lên cầu Tương Giang số 1, qua sông là đến trấn Vinh Loan, lúc này bến xe khách trấn Vinh Loan vẫn chưa bị dỡ bỏ.
+Xuất phát từ ga tàu, đi dọc theo đại lộ Ngũ Nhất đến trạm Thái Bình Nhai Khẩu rồi lên cầu Tương Giang Số 1, qua bên kia bờ sông là đến bến xe Vinh Loan Trấn. Vào năm 2006, bến xe Vinh Loan Trấn vẫn chưa bị giải tỏa.
 
-Trời nắng chang chang, ở bến xe có rất nhiều phụ huynh và sinh viên tay xách nách mang vali, túi lớn túi nhỏ đang chuyển xe, tiếng ồn ào, tiếng ô tô, tiếng vali kéo dưới đất vang lên không dứt.
+Dưới cái nắng hè gay gắt như thiêu như đốt, trước cổng bến xe chật ních các bậc phụ huynh và tân sinh viên tay xách nách mang, túi lớn bao nhỏ nối đuôi nhau chuyển tuyến xe. Tiếng ồn ào huyên náo, tiếng còi xe inh ỏi cùng âm thanh bánh xe vali kéo lê trên mặt đường tạo nên một khung cảnh vô cùng hỗn loạn.
 
-Năm 2006, những người có xe riêng dù sao cũng là thiểu số, thuộc về gia đình giàu có, như nhà Du Phỉ cũng không có xe riêng.
+Năm 2006, số người sở hữu ô tô con riêng vẫn chỉ là thiểu số, thuộc về những gia đình thực sự có điều kiện kinh tế khá giả, còn những gia đình như nhà Du Phỉ thì làm gì có xe hơi.
 
-Mùa khai giảng, ở ga tàu rất khó bắt được taxi, Triệu Kim An tùy ý lên một chiếc xe buýt đi qua sông.
+Vào mùa tựu trường, đón được một chiếc taxi ở khu vực ga tàu khó khăn chẳng khác nào lên trời, nên Triệu Kim An liền dắt bạn leo đại lên một tuyến xe buýt chạy qua bên kia sông.
 
-Xuống xe tại bến Vinh Loan, nhìn đám đông đông nghịt như kiến, Triệu Chí Dũng ngây người.
+Vừa bước xuống trạm dừng ở bến xe Vinh Loan Trấn, nhìn biển người đông nghịt đen đặc trước mắt, Triệu Trí Dũng há hốc mồm chết lặng.
 
-Cái mịa gì thế này, còn khủng khiếp hơn cả xuân vận!
+Mẹ kiếp, cảnh tượng này còn kinh hoàng hơn cả dòng người hồi hương đợt Xuân vận!
 
-"Kim An, hay là mình đi taxi đi, không tiếc vài đồng bạc đó đâu."
+"Kim An à, hay là mình bắt taxi đi cho rồi, chẳng tiếc gì mấy đồng bạc lẻ đâu."
 
-Triệu Chí Dũng vất vả lắm mới xách được vali chen xuống xe, trạm dừng chật kín người, tay họ cầm giấy báo nhập học gì đó, ngẩng đầu lên đối chiếu lộ trình xe buýt.
+Triệu Trí Dũng trầy trật xách chiếc rương gỗ chen chúc mãi mới xuống được xe. Trạm dừng xe buýt đông nghẹt người, các tân sinh viên tay cầm giấy báo trúng tuyển, ngửa cổ nhìn bảng hướng dẫn lộ trình xe buýt để dò đường.
 
-Chắc hẳn trước khi đến Quận Sa báo danh đã làm sẵn bản hướng dẫn rồi.
+Chắc hẳn trước khi lên Quận Sa nhập học, họ đều đã lên mạng tìm hiểu kỹ lưỡng đường đi nước bước.
 
-Triệu Chí Dũng cũng đã tra cứu trên mạng, thuộc lòng cả lộ trình xe buýt.
+Triệu Trí Dũng cũng từng ra quán net tra cứu, thậm chí còn học thuộc làu làu các tuyến xe buýt rồi.
 
-"Phải chi có cái xe máy thì tốt biết mấy."
+"Giá mà có con xe máy ở đây thì tốt biết mấy." Nó lại lẩm bẩm tiếc nuối.
 
-Hắn lại lầm bầm một câu.
+Ở Tư Tinh, chỉ cần có một chiếc xe máy là muốn phóng đi đâu thì đi, vừa tự do lại vừa tiện lợi.
 
-Ở Tư Tinh có cái xe máy thì đi đâu cũng được, tự do lại thuận tiện.
+"Triệu Kim An, bên này này!"
 
-"Triệu Kim An, ở đây!"
+Từ phía bên kia đường vọng lại tiếng gọi của Du Phỉ. Cô nàng đang kiễng chân, vẫy tay rối rít gọi lớn.
 
-Phía đối diện đường truyền đến giọng của Du Phỉ, nàng kiễng chân vẫy tay gọi to.
+Triệu Kim An và Triệu Trí Dũng kéo hành lý băng qua đường. Trông thấy bà Lưu Văn Tinh đang đứng bên lề đường, cả hai đứa liền cất tiếng chào lễ phép: "Cháu chào dì ạ."
 
-Triệu Kim An và Triệu Chí Dũng kéo vali băng qua đường, thấy Lưu Văn Tinh đứng bên lề đường liền chào một tiếng dì ạ.
+Du Phỉ thè lưỡi thở dài: "Đông người quá chừng, chen mãi mà chẳng tài nào lên nổi xe buýt."
 
-Du Phỉ thè lưỡi: "Đông người quá, không chen lên nổi xe buýt."
+Triệu Trí Dũng tò mò hỏi: "Du Phỉ ơi, Mộc Dao đâu rồi? Chẳng phải cậu ấy có người dì ruột ở Quận Sa này sao?"
 
-Triệu Chí Dũng tò mò hỏi: "Du Phỉ, Mộc Dao đâu, không phải nàng có một người dì nhỏ ở Quận Sa sao?"
+"Mộc Dao sang nhà dì nó rồi, còn bọn tớ thì..."
 
-"Đến nhà dì nàng rồi, bọn tớ thì..."
+Du Phỉ thật sự không muốn ngồi chiếc xe BMW của Trương Vân Thiến, thậm chí cô bé cũng chẳng mấy hào hứng với việc đi nhờ xe của Mộc Nhân Cường. Ngồi xe của người khác lúc nào cũng gò bó, ngột ngạt không thoải mái, thà bỏ ra mấy đồng bạc đi xe khách tuyến cho xong.
 
-Du Phỉ thật lòng không muốn ngồi chiếc BMW của Trương Vân Thiến, thậm chí cũng không quá muốn đi nhờ xe của Mộc Nhân Cường, ngồi xe nhà người khác quá gò bó, thà bỏ ra mấy đồng ngồi xe khách còn hơn.
+Lưu Văn Tinh tò mò đưa mắt đánh giá Triệu Kim An, còn Triệu Trí Dũng da dẻ đen nhẻm đứng bên cạnh thì hoàn toàn bị bà phớt lờ.
 
-Lưu Văn Tinh tò mò quan sát Triệu Kim An, còn Triệu Chí Dũng đen nhẻm thì bị ngó lơ.
+Chẳng cần bàn tới con bé Mộc Dao, chỉ riêng cái tính kiêu kỳ của bà Trương Tuệ thôi thì loại con trai như Triệu Trí Dũng vĩnh viễn không bao giờ lọt nổi vào mắt xanh.
 
-Đừng nói là con bé Mộc Dao, ngay cả con mắt nhìn người của Trương Tuệ, hạng như Triệu Chí Dũng quả thật không lọt nổi vào mắt xanh.
+Du Phỉ và Mộc Dao là bạn học cùng lớp, lại là bạn thân thiết của nhau. Lưu Văn Tinh đã từng tiếp xúc với Trương Tuệ vài lần, tính khí của người phụ nữ ấy thế nào trong lòng bà nắm rất rõ.
 
-Du Phỉ và Mộc Dao là bạn cùng lớp, lại là bạn thân, Lưu Văn Tinh cũng từng tiếp xúc với Trương Tuệ vài lần, Trương Tuệ là loại người thế nào, trong lòng bà vẫn có chút hiểu rõ.
+"Triệu Kim An, hay là chúng ta bắt chung một chuyến taxi đi, taxi giờ này cũng khó đón lắm." Du Phỉ đề xuất.
 
-"Triệu Kim An, bọn mình cùng bắt taxi đi, taxi cũng khó đợi quá."
+Từ bến xe Vinh Loan Trấn rẽ sang trái là hướng đi vào làng đại học — nơi có Đại học Sư phạm và Đại học Công nghiệp Trung Nam.
 
-Du Phỉ đề nghị.
+Còn rẽ sang phải là hướng đi trường Tài Chuyên, về phía Bến xe phía Tây.
 
-Trấn Vinh Loan rẽ trái là khu đại học, Sư Đại và Trung Nam Công Đại đều ở khu đại học.
+Triệu Kim An lắc đầu bảo cậu phải đưa Triệu Trí Dũng đến trường làm thủ tục nhập học trước.
 
-Rẽ phải là trường Tài chuyên, hướng về bến xe phía Tây.
-
-Triệu Kim An nói hắn phải đưa Triệu Chí Dũng đi báo danh ở trường trước.
-
-Du Phỉ có chút tiếc nuối, thấy Triệu Kim An chỉ có một chiếc ba lô, lại hỏi: "Kim An, cậu chỉ có một cái túi này thôi sao?"
+Du Phỉ hơi tiếc nuối. Thấy trên người Triệu Kim An chỉ có duy nhất một chiếc ba lô đeo chéo, cô bé lại ngạc nhiên hỏi: "Kim An, cậu chỉ mang theo mỗi một cái ba lô này thôi à?"
 
 "Ừ."
 
-Triệu Kim An đáp một tiếng, không giải thích quá nhiều.
+Triệu Kim An khẽ ừ một tiếng, không giải thích gì thêm.
 
-Thấy có một chiếc taxi đang bật đèn đỏ (xe trống) đi tới, hắn vội vàng tiến lên nắm lấy tay nắm cửa, nhìn Lưu Văn Tinh nói: "Dì ơi, dì và Du Phỉ đi trước đi ạ."
+Trông thấy một chiếc taxi sáng đèn đỏ báo hiệu xe trống đang trờ tới, cậu vội vàng rảo bước tới giữ lấy tay nắm cửa xe, rồi quay sang nói với Lưu Văn Tinh: "Dì ơi, hai mẹ con dì lên xe đi trước đi ạ."
 
-"Được, cảm ơn cháu nhé."
+"Được rồi, cảm ơn cháu nhiều nhé."
 
-Quận Sa là một trong bốn "lò bát quái", mùa hè quá nóng và nắng, hai chiếc vali lớn hai cái ba lô, Lưu Văn Tinh và Du Phỉ không chen lên nổi xe buýt là chuyện bình thường.
+Quận Sa vốn được mệnh danh là một trong "bốn lò lửa lớn" của Trung Quốc, mùa hè ở đây vừa oi bức vừa nắng gắt như đổ lửa. Hai chiếc vali lớn cùng hai chiếc túi xách cồng kềnh, việc hai mẹ con Lưu Văn Tinh không chen chúc nổi lên xe buýt cũng là điều dễ hiểu.
 
-Còn về cái gọi là xếp hàng chờ xe, vào năm 2006 mà nói thì đúng là chuyện cười.
+Còn chuyện xếp hàng văn minh chờ xe buýt ư? Vào năm 2006, khái niệm đó chẳng khác nào một câu chuyện cười viển vông.
 
-Thậm chí 10 năm sau, trong tình cảnh này tố chất cũng vẫn cần được nâng cao.
+Dẫu có là mười năm sau đi chăng nữa, trong những hoàn cảnh hỗn loạn thế này thì ý thức người ta cũng chẳng khá hơn là bao.
 
-Triệu Chí Dũng giúp đỡ cất vali, mọi người đều đến từ cùng một nơi, đến thủ phủ tỉnh lại càng cảm thấy thân thiết hơn.
+Triệu Trí Dũng xắn tay áo giúp khiêng hai chiếc vali bỏ vào cốp xe. Dù sao cùng là người từ một vùng quê bước ra, lên đến thành phố tỉnh lỵ tự nhiên lại càng thấy gắn bó thân thương hơn gấp bội.
 
-Trên đường đi đến khu đại học, Lưu Văn Tinh ngồi ở ghế sau, nhìn sang con gái bên cạnh.
+Trên đường đi về phía làng đại học, Lưu Văn Tinh ngồi ở hàng ghế sau, quay sang nhìn con gái:
 
-"Bạn trai của Mộc Dao à?"
+"Bạn trai của Mộc Dao đấy à?"
 
-"Vâng."
+"Dạ."
 
-Du Phỉ gật đầu, không nói rằng bọn họ đang đòi chia tay.
+Du Phỉ gật đầu xác nhận, không hé răng nửa lời về chuyện hai người họ đang làm ầm ĩ đòi chia tay.
 
-"Hừ."
+"Hừm."
 
-Lưu Văn Tinh cười một tiếng, không hỏi thêm, không hỏi cũng đoán được đôi chút, tại sao lúc trên tàu hỏa về Mộc Dao lại đỏ hoe mắt.
+Lưu Văn Tinh khẽ cười một tiếng, không gặng hỏi thêm. Chẳng cần hỏi thì bà cũng đoán ra được vài phần lý do vì sao lúc nãy trên tàu hỏa Mộc Dao lại trở về chỗ với đôi mắt đỏ hoe như thế.
 
-"Cậu bạn đó của con khá tốt đấy chứ."
+"Hai cậu bạn cùng lớp của con trông được đấy chứ."
 
-Cuối cùng, bà lại cười bổ sung một câu: "Cả hai đều khá tốt."
+Nói đoạn, bà mỉm cười bổ sung thêm một câu: "Cả hai đứa đều rất khá."
 
-"Mẹ, mẹ nói ai cơ?"
+"Mẹ nói ai cơ?"
 
-"Hai cậu bạn của con ấy... biết giúp đỡ lẫn nhau, một đứa ít nói, một đứa làm việc nhanh nhẹn, nhưng cả hai đều là người biết nhìn việc mà làm, hừ, phối hợp ăn ý đấy."
+"Hai cậu bạn nam của con ấy... Biết bảo bọc nương tựa lẫn nhau, một đứa thì ít nói trầm tính, một đứa thì nhanh nhẹn xốc vác, nhưng quan trọng là đứa nào nhìn vào cũng thấy có việc là làm, hừm, phối hợp vô cùng ăn ý."
 
 ...
 
-Bên này Triệu Kim An nhìn chằm chằm Triệu Chí Dũng nộp xong học phí, lại đi nhận chăn đệm, đưa đến tận dưới lầu ký túc xá thì chuẩn bị rời đi.
+Ở bên này, Triệu Kim An đứng trông chừng cho Triệu Trí Dũng đóng xong tiền học phí, rồi cùng nó đi nhận chăn màn chiếu gối, đưa tận chân cầu thang ký túc xá rồi mới chuẩn bị rời đi.
 
-"Kim An, mày không nói gì với tao à?"
+"Kim An, mày không dặn dò tao câu gì à?"
 
-"Nói gì cơ?"
+"Dặn dò cái gì cơ?"
 
-Nhìn bộ dạng không nỡ rời xa của Triệu Chí Dũng, Triệu Kim An cũng nổi cả da gà, có cảm giác muốn nhấc chân chạy ngay lập tức.
+Nhìn vẻ mặt đầy vẻ lưu luyến không nỡ rời xa của Triệu Trí Dũng, Triệu Kim An bỗng nổi hết cả da gà, trong lòng chỉ muốn co giò chạy biến cho xong.
 
-"Mỗi lần khai giảng mày đều nói với tao điều gì đó mà."
+"Mỗi lần khai giảng mày đều dặn dò tao vài câu mà."
 
-Triệu Chí Dũng nhắc nhở, hắn và Triệu Kim An thật sự chưa bao giờ xa nhau quá lâu, suốt từ tiểu học đến trung học đều chung một lớp.
+Triệu Trí Dũng nhắc nhở. Từ nhỏ đến lớn hai đứa nó gần như chưa từng tách rời nhau, từ cấp một lên đến cấp ba lúc nào cũng học chung một lớp.
 
-Triệu Kim An suy nghĩ một chút, thử nói: "Học tập thật tốt, mỗi ngày đều tiến bộ?"
+Triệu Kim An ngẫm nghĩ một lát rồi ướm lời thử hỏi: "Chăm chỉ học tập, ngày ngày tiến bộ?"
 
-"Không phải mỗi ngày tiến bộ, mà là phấn đấu trở thành người có ích."
+"Không phải ngày ngày tiến bộ, mà là 'cố gắng phấn đấu trở thành người có ích cho xã hội' cơ."
 
-Có lẽ Triệu Chí Dũng cũng cảm thấy quá ngây ngô, hắn gãi đầu: "Thực ra chẳng có gì đâu, chỉ là khai giảng mà mày không nói gì thì tao thấy không yên tâm, cứ cảm thấy thiếu thiếu cái gì đó..."
+Có lẽ chính Triệu Trí Dũng cũng tự thấy lời nói đó quá đỗi ngây ngô, con nít, nó liền gãi gãi đầu: "Thực ra cũng chẳng có gì to tát đâu, chỉ là mỗi dịp khai giảng mà không nghe mày dặn dò câu gì thì lòng tao cứ thấy bồn chồn bất an, cứ như thiếu thốn mất một thứ gì đó..."
 
-Triệu Kim An: ...
+Triệu Kim An: "..."
 
-"Tao đi đây, bảo trọng!"
+"Tao đi đây, bảo trọng nhé!"
 
-Hắn không ngờ bản thân trước đây lại tràn đầy năng lượng tích cực như vậy, phấn đấu trở thành người có ích, có ích cho ai chứ?
+Cậu thực sự không ngờ kiếp trước mình lại tràn trề năng lượng tích cực đến thế. Cố gắng phấn đấu trở thành người có ích ư? Có ích cho ai cơ chứ?
 
-Từ trường Tài chuyên đi ra, sát vách chính là cơ sở phía Bắc của Hồ Đại, Viện Tài chính.
+Bước ra khỏi cổng trường Cao đẳng Tài Chuyên, ngay sát vách bên cạnh chính là khu học xá phía Bắc của Đại học Hồ Nam (Hồ Đại) — Học viện Tài chính.
 
-"Reng reng reng."
+"Reng... reng... reng..."
 
-Lúc này điện thoại vang lên, là một số lạ.
+Đúng lúc này, chuông điện thoại trong túi reo vang, màn hình hiển thị một dãy số lạ.
 
-"Triệu Kim An, em đang ở đâu đấy? Sao vẫn chưa đến trường?"
+"Triệu Kim An, em đang ở đâu đấy? Sao giờ này vẫn chưa tới trường báo danh?"
 
-Triệu Kim An sửng sốt: "Chị là?"
+Triệu Kim An ngơ ngác mất vài giây: "Chị là...?"
 
-"Giọng của chị mà cũng không nhận ra à? Triệu Bác Lan đây."
+"Đến giọng của chị mà em cũng không nhận ra à? Triệu Bác Lan đây."
 
-Hóa ra là Vương Kim Như lo lắng cho Triệu Kim An, nên lại chạy sang nhà Triệu Bác Lan, nhờ Triệu Bác Lan chăm sóc đôi chút cho Triệu Kim An lần đầu đến Quận Sa.
+Hóa ra là thím Vương Kim Như ở quê lo lắng cho Triệu Kim An, nên lại chạy sang tận nhà Triệu Bác Lan, nhờ cậy cô sinh viên đại học này để mắt chăm sóc thằng cháu họ vừa chân ướt chân ráo đặt chân lên đất Quận Sa.
 
-Điều này ở nông thôn là rất bình thường.
+Chuyện này ở chốn thôn quê là lẽ thường tình.
 
-Mọi người đều họ Triệu Kim An, lắt léo kiểu gì cũng quàng ra được quan hệ họ hàng.
+Cùng mang họ Triệu trong một làng, lắt léo quẹo vòng vài nhánh là kiểu gì cũng lần ra được quan hệ họ hàng thân thích.
 
-Triệu Bác Lan đã là sinh viên năm ba của Sư Đại, vừa khéo "đúng chuyên môn", có nàng dẫn dắt Triệu Kim An, Vương Kim Như và bà nội ở nhà mới thực sự yên tâm.
+Triệu Bác Lan đã là sinh viên năm ba của Đại học Sư phạm rồi, lại học đúng cái trường mà Triệu Kim An chuẩn bị nhập học. Có cô nàng dẫn đường chỉ lối cho Kim An, Vương Kim Như và bà nội ở quê mới thực sự trút bỏ được gánh nặng trong lòng.
 
-Nửa giờ sau, Triệu Kim An gặp được Triệu Bác Lan ở Học viện Thương mại.
+Nửa tiếng sau, Triệu Kim An đã có mặt tại Học viện Thương mại của Đại học Sư phạm để gặp Triệu Bác Lan.
 
-Triệu Bác Lan ở trong thôn và ở trường học có chút khác biệt, quần short bò, lộ ra đôi chân dài trắng nõn, Triệu Bác Lan năm ba còn trang điểm nhẹ một chút.
+Triệu Bác Lan ở trường đại học trông khác hẳn so với hồi ở quê: chiếc quần soóc bò ngắn cũn cỡn khoe trọn đôi chân dài trắng nõn nà, trên khuôn mặt của cô nữ sinh năm ba cũng đã điểm xuyết một lớp trang điểm nhẹ nhàng.
 
-Bên cạnh nàng có một người bạn, chắc là bạn cùng phòng.
+Bên cạnh cô có một người bạn gái đi cùng, chắc là bạn cùng phòng ký túc xá.
 
-Cũng là quần siêu ngắn, xỏ đôi dép lê có chút gót, cách ăn mặc này nhìn qua là biết sinh viên khóa trên.
+Cũng diện chiếc quần đùi siêu ngắn, chân xỏ đôi dép lê cao gót điệu đà, phong cách ăn mặc này liếc qua một cái là nhận ra ngay sinh viên khóa trên dày dạn kinh nghiệm.
 
-"Này, Lan Lan, đây chính là cậu em đồng hương của cậu à?"
+"Này Lan Lan, cậu em đồng hương khóa dưới của cậu đấy à?"
 
-Thấy Triệu Kim An đi tới, mắt cô gái sáng lên: "Chao ôi, đẹp trai đấy chứ, thật luôn, thật luôn!"
+Nhìn thấy Triệu Kim An rảo bước đi tới, đôi mắt cô bạn gái bỗng sáng rực lên: "Chao ôi... Đẹp trai phết đấy chứ, thật đấy, chuẩn luôn!"
 
-"Chỉ là hơi đẹp trai thôi sao?"
+"Chỉ là 'hơi đẹp trai' thôi à?"
 
-Triệu Bác Lan liếc mắt một cái, có chút tự hào: "Bảo cậu đi cùng mình mà cứ không tình không nguyện."
+Triệu Bác Lan đảo tròn mắt, vẻ mặt đầy tự hào: "Ban nãy rủ cậu đi cùng thì cứ giãy nảy lên không chịu."
 
-"Hì hì, Lan Lan, tớ sai rồi, tớ yêu cậu nhất!"
+"Hì hì, Lan Lan ơi tớ sai rồi, tớ yêu cậu nhất trên đời luôn!"
 
-"Cậu bình thường lại hộ cái, thế này mất mặt lắm, chúng tớ cùng một thôn, theo vai vế tớ còn phải gọi nó là chú đấy."
+"Cậu làm ơn giữ chuẩn mực lại hộ tớ cái, làm thế mất mặt chết đi được! Người cùng làng với tớ đấy, tính theo vai vế thì tớ còn phải gọi cậu ấy một tiếng bằng chú đấy nhé."
 
-"Chú?"
+"Chú á?"
 
-"Chào chú ạ."
+"Chú ơi cháu chào chú ạ!"
 
-Ở Triệu Kim An Gia thôn, vai vế của nhánh Triệu Kim An quả thật rất cao, thậm chí có người 40 tuổi theo vai vế còn phải gọi Triệu Kim An 18 tuổi là ông.
+Ở làng Triệu Gia, chi họ của Triệu Kim An có vai vế rất cao, thậm chí có những ông bác ngoài bốn mươi tuổi gặp Triệu Kim An mười tám tuổi này tính theo gia phả vẫn phải cất tiếng gọi bằng ông nội.
 
-Như Triệu Chí Dũng và Triệu Bác Lan gọi là chú đã là còn may.
+Cỡ như Triệu Trí Dũng hay Triệu Bác Lan gọi bằng chú đã là phận bề trên gần gũi lắm rồi.
 
-"Chu Sở Hân, mình lạy cậu, giữ kẽ chút đi, đừng có như thấy mồi thế chứ, cậu thế này... sau này mình về thôn làm sao nhìn mặt người ta được nữa?"
+"Chu Sở Hân, tớ lạy cậu đấy, giữ chút rụt rè của con gái đi được không? Đừng có như con thú đói vồ mồi thế, cậu làm trò này... sau này tớ còn mặt mũi nào mà về làng gặp mặt họ hàng nữa?"
 
-Cũng đâu phải năm nhất, năm ba rồi, chẳng còn mấy ai giữ kẽ nữa.
+Có phải sinh viên năm nhất ngây thơ nữa đâu, năm ba rồi thì việc gì phải giữ kẽ e thẹn.
 
-Đừng tưởng chỉ có các nam sinh khóa trên nhìn thấy các em khóa dưới xinh đẹp mới chảy nước miếng, các chị khóa trên còn có phần hơn thế nữa kìa.
+Đừng tưởng chỉ có các nam sinh khóa trên mới nhìn thấy mấy em gái khóa dưới xinh tươi mà nuốt nước bọt ừng ực, các chị đại khóa trên một khi đã mê trai đẹp thì độ bạo dạn còn ghê gớm hơn gấp bội.
 
-Chu Sở Hân nắm chặt cánh tay Triệu Bác Lan lắc lắc, mắt sáng rỡ.
+Chu Sở Hân túm chặt lấy cánh tay Triệu Bác Lan lắc lấy lắc để, hai mắt phát ra những tia sáng long lanh.
 
-"Đừng lắc nữa!"
+"Đừng có lắc nữa!"
 
-Triệu Bác Lan hạ thấp giọng, cười một cách đầy giữ ý.
+Triệu Bác Lan hạ thấp giọng, cố gắng nặn ra một nụ cười thục nữ đoan trang nhất có thể.
 
-Triệu Kim An đeo ba lô đi tới, đứng lại trước mặt hai người, giọng nói ôn hòa: "Triệu Bác Lan, phiền chị rồi."
+Triệu Kim An đeo ba lô bước tới, đứng lại trước mặt hai người, cất giọng trầm ấm, ôn hòa: "Triệu Bác Lan, làm phiền cậu rồi."
 
-Hắn không giống như Triệu Chí Dũng gọi "chị Bác Lan", nếu gọi thế chẳng phải loạn hết vai vế sao?
+Cậu không gọi "chị Bác Lan" như Triệu Trí Dũng, gọi thế chẳng phải tự hạ thấp vai vế trong họ hay sao?
 
-Triệu Bác Lan sững sờ trong chốc lát.
+Triệu Bác Lan ngẩn người ra mất vài giây.
 
-Nhìn thoáng qua, Triệu Kim An quả thật có chút uy nghiêm của bậc bề trên.
+Nhìn thoáng qua, Triệu Kim An lúc này trông quả thực cũng có vài phần uy nghiêm, chững chạc của một người bề trên thật sự.

@@ -1,201 +1,205 @@
-# Chương 9: Chàng Trai Đuổi Theo Gió Năm Ấy
+# Chương 9: Chàng trai đuổi theo ngọn gió năm ấy
 
-Đêm.
+> **Tiêu đề gốc**: 第9章 那年的追风少年。
 
-Triệu Kim An nằm trên giường, nhìn mạng nhện nơi góc tường và trần nhà loang lổ vàng vọt mà ngẩn người.
+Đêm đã về khuya.
 
-Đã lâu rồi hắn không ngủ trên chiếc giường này, cảm giác có chút lạ chỗ.
+Triệu Kim An nằm dài trên chiếc giường gỗ cũ kỹ, mắt lơ đãng nhìn lên mạng nhện bám nơi góc tường và những mảng vôi vữa ố vàng, loang lổ trên trần nhà mà ngẩn ngơ xuất thần.
 
-Hay nói cách khác, hắn vẫn còn đang tiêu hóa chuyện "trùng sinh" này.
+Đã quá lâu rồi anh không nằm lại trên chiếc giường này, cơ thể thoáng chút cảm giác lạ lẫm, khó ngủ.
 
-Một lát sau, hắn rút bộ sạc đa năng ở đầu giường ra, lắp pin vào điện thoại.
+Hoặc giả, sâu thẳm trong tiềm thức, anh vẫn đang từng bước chậm rãi đón nhận và tiêu hóa sự thật chấn động: mình đã thực sự trùng sinh quay về quá khứ.
 
-Mở máy.
+Một lát sau, anh với tay rút chiếc sạc kẹp đa năng cắm nơi đầu giường ra, lắp thỏi pin vuông vức vào lưng máy điện thoại.
 
-Quả nhiên, trong hòm thư đến có mấy tin nhắn thông báo cuộc gọi lỡ từ Mộc Dao.
+Bấm nút nguồn khởi động máy.
 
-Còn có một thông báo cuộc gọi lỡ từ Du Phỉ.
+Quả nhiên, hòm thư tin nhắn lập tức hiện lên vài thông báo cuộc gọi nhỡ từ số của Mộc Dao.
 
-Tìm đến biểu tượng quen thuộc mà thô kệch kia, hắn nhấn mở nhóm QQ trung học. Nhìn cái tên QQ của mình, Triệu Kim An há hốc miệng, nhận ra bản thân cũng chẳng có tư cách gì để cười nhạo Triệu Chí Dũng.
+Ngoài ra còn có thêm một thông báo cuộc gọi nhỡ khác đến từ Du Phỉ.
 
-—— Chàng trai đuổi theo gió.
+Anh rê ngón tay tìm kiếm biểu tượng chú chim cánh cụt quen thuộc mà vụng về trên màn hình, mở ứng dụng QQ dành cho học sinh cấp ba ra. Vừa nhìn thấy biệt danh hiển thị trên tài khoản của chính mình, Triệu Kim An bỗng cứng họng, nhận ra bản thân chẳng có tư cách gì để chê cười Triệu Trí Dũng nữa rồi.
 
-Cái tên mạng mới "trung nhị" làm sao, xem chừng cũng chẳng khá khẩm hơn "Dũng Thiếu" là bao.
+— Chàng Trai Đuổi Theo Ngọn Gió.
 
-Triệu Chí Dũng đang tán gẫu rôm rả với bạn học trong nhóm, Triệu Kim An âm thầm đổi tên mạng lại thành tên thật của mình, không tham gia vào cuộc trò chuyện. Thực tế là hắn cũng chẳng còn nhớ rõ ai với ai nữa.
+Một cái tên mạng đậm chất "trẻ trâu" ngông cuồng của tuổi mới lớn, xét về độ sến sẩm thì có khi chẳng thua kém gì cái danh xưng "Dũng Thiếu" của thằng bạn thân là bao.
 
-Ở tỉnh Tương Nam, nếu thành tích thi đại học không đặc biệt xuất sắc, hầu hết mọi người đều chọn các trường đại học ở thủ phủ Quận Sa.
+Trong nhóm chat lớp, Triệu Trí Dũng vẫn đang hào hứng chém gió tưng bừng với các bạn học. Triệu Kim An lẳng lặng đổi biệt danh QQ về đúng họ tên thật của mình, không hề tham gia vào cuộc tán gẫu rôm rả ấy, phần vì trải qua mấy chục năm sương gió, anh căn bản đã chẳng thể nhớ nổi ai với ai qua những cái nick ảo này nữa rồi.
 
-Kiểu thi đỗ vào Đại học Phục Đán như Âu Cường chỉ thuộc dạng đếm trên đầu ngón tay, người bình thường sẽ không chọn đi tỉnh ngoài.
+Ở dải đất Tương Nam này, nếu điểm thi đại học không thuộc hàng xuất sắc vượt trội, thì hầu hết lựa chọn của các sĩ tử đều đổ dồn về các trường đại học tại thủ phủ Quận Sa.
 
-Đặc biệt là những người thành tích không quá tốt thì càng không việc gì phải đi xa.
+Những trường hợp đỗ đạt vào các trường tốp đầu cả nước như Đại học Phục Đán của Âu Cường chỉ hiếm hoi như lông phượng sừng lân, người bình thường rất ít khi mạo hiểm đăng ký ra ngoài tỉnh học.
 
-Các bạn nữ đang bàn tán về phố đi bộ ở Quận Sa, Kim Mãn Địa, Kim Thái Dương, phố Hạ Hà, đó đều là những nơi bán quần áo ở Quận Sa. Họ hẹn nhau khi đến Quận Sa sẽ cùng đi mua sắm.
+Huống chi đối với những học sinh có học lực tầm trung, việc rời khỏi tỉnh lại càng không phải là phương án khôn ngoan.
 
-Có vẻ như ai nấy đều đang háo hức chờ ngày nhập học, mong chờ một cuộc sống đại học tốt đẹp.
+Mấy cô bạn nữ trong nhóm đang tíu tít bàn luận về các tụ điểm mua sắm nổi tiếng ở Quận Sa như Phố Đi Bộ, chợ Kim Mãn Địa, trung tâm Kim Thái Dương hay phố ngõ Hạ Hà Nhai — toàn là những thiên đường quần áo, phụ kiện giá rẻ dành cho sinh viên. Họ ríu rít hẹn nhau sau khi nhập học ở Quận Sa sẽ cùng rủ nhau đi lượn lờ dạo phố.
 
-Thật ra đồ bán ở những nơi này đều rất rẻ.
+Xem chừng ai nấy đều đang nóng lòng, háo hức chờ đợi ngày tựu trường, ôm ấp biết bao mộng tưởng tươi đẹp về cuộc sống sinh viên đầy sắc màu phía trước.
 
-Ngoại trừ phố đi bộ, những chỗ khác đều phải dựa vào công lực mặc cả của mỗi người.
+Thực chất, hàng hóa bày bán ở những khu chợ ấy đều thuộc loại bình dân, giá rẻ.
 
-Lúc này trong nhóm đột nhiên có người hỏi: "Triệu Chí Dũng, mày với Triệu Kim An không đi tụ tập à?"
+Ngoại trừ Phố Đi Bộ niêm yết giá sẵn, các khu chợ còn lại đều là thương trường thử thách bản lĩnh mặc cả trả giá của từng người.
 
-Những người đang nhắn tin trong nhóm hiện giờ đều không đi tụ tập, bởi vì đi một chuyến lên thành phố quá xa. Thế nhưng Triệu Chí Dũng và Triệu Kim An đi xe máy lên thành phố chỉ mất nửa tiếng đồng hồ.
+Đúng lúc này, trong nhóm chat bỗng có người cất tiếng hỏi: "Này Triệu Trí Dũng, cậu với Triệu Kim An hôm nay không đi tụ tập liên hoan cùng mọi người à?"
 
-Nếu phóng nhanh thì 20 phút là đến nơi.
+Hiện tại những người đang online trò chuyện trong nhóm đều là những bạn không thể tham gia buổi họp lớp trên thành phố, bởi lẽ đường sá từ các vùng quê xa xôi đi lên trung tâm huyện thị khá cách trở. Tuy nhiên, Triệu Trí Dũng và Triệu Kim An nếu phóng xe máy lên thị trấn thì chỉ mất chừng nửa tiếng đồng hồ.
 
-Dũng Thiếu: "Không đi."
+Nếu vít ga chạy nhanh, hai mươi phút là đã có mặt.
 
-"Nghe nói hôm nay mày với Triệu Kim An ra chợ bán cá à?"
+Dũng Thiếu: "Không đi, bận rồi."
 
-Lại có người hỏi.
+"Nghe đồn hôm nay cậu với Triệu Kim An kéo nhau ra chợ ngồi bán cá đấy à?"
 
-Cũng có người hỏi tiếp: "Triệu Chí Dũng, hôm nay bọn mày kiếm được bao nhiêu tiền?"
+Lại có người tò mò gặng hỏi.
 
-Lần này Triệu Chí Dũng không lập tức trả lời, có lẽ chuyện này trong lòng cậu ta vẫn thấy hơi mất mặt. Thật ra người khác chưa chắc đã có ý chế giễu, thuần túy chỉ là tò mò.
+Một người khác cũng chen vào hóng hớt: "Triệu Trí Dũng, hai đứa hôm nay kiếm chác được bao nhiêu tiền thế?"
 
-Bởi vì có rất nhiều bạn học ở nhà cũng phải làm nông, giúp đỡ bố mẹ làm việc vặt.
+Lần này Triệu Trí Dũng không lập tức gõ phím trả lời ngay. Có lẽ trong thâm tâm cậu ta, việc này vẫn mang lại cảm giác ngượng ngùng, mất mặt đôi chút. Kỳ thực người hỏi chưa chắc đã mang ác ý chê bai giễu cợt, phần nhiều chỉ xuất phát từ tính hiếu kỳ thuần túy của lứa tuổi học trò mà thôi.
 
-Thế nhưng ngay sau đó, có một người bạn học lại hơi cố ý.
+Bởi lẽ có rất nhiều bạn học sinh nông thôn trong kỳ nghỉ hè cũng phải phụ giúp cha mẹ làm ruộng, làm nương vất vả.
 
-"Triệu Chí Dũng, nghe nói hôm nay lớp trưởng Âu vì chiếu cố chuyện làm ăn của mày và Triệu Kim An mà mua tận một trăm tệ tiền cá cơ à?"
+Thế nhưng, tin nhắn tiếp theo của một cậu bạn khác thì rõ ràng là có chủ đích châm chọc:
 
-"Một trăm tệ? Đúng là lớp trưởng có nghĩa khí!"
+"Triệu Trí Dũng ơi, nghe nói hôm nay lớp trưởng Âu Cường vì muốn ủng hộ việc làm ăn của cậu với Triệu Kim An nên đã hào phóng mua đứt một mớ cá tận một trăm tệ lận hả?"
 
-"Phải đấy, nghe nói tối nay đi hát cũng là lớp trưởng mời khách."
+"Một trăm tệ cơ á? Vẫn là lớp trưởng trượng nghĩa nhất!"
 
-Người vô tình đấu kẻ hữu ý, trong nhóm vô cùng náo nhiệt.
+"Chuẩn luôn, nghe bảo tối nay tiền hát karaoke cũng là do lớp trưởng bao trọn gói đấy."
 
-Chuyện này chắc chắn là do những người có mặt hôm nay tung ra, nếu không sẽ không truyền nhanh đến thế. Triệu Kim An nhìn tin nhắn trong nhóm mà không nói gì, trái lại còn cảm thấy hơi buồn cười.
+Kẻ có tâm tính toán kẻ vô tình, nhóm chat bỗng chốc trở nên ồn ào náo nhiệt hẳn lên.
 
-"Học sinh cấp ba, thật là đáng yêu."
+Chuyện này chắc chắn là do những kẻ có mặt tại hiện trường lúc chiều tung tin ra ngoài, nếu không thì tin tức đâu thể lan truyền với tốc độ chóng mặt đến thế. Triệu Kim An nằm trên giường nhìn những dòng tin nhắn nhảy liên hồi trên màn hình nhỏ, tuyệt nhiên không buồn đáp lại nửa lời, trong lòng chỉ cảm thấy có chút buồn cười và trẻ con.
 
-Trên thành phố.
+"Lũ học sinh cấp ba này, đúng là ngây ngô và dễ thương thật."
 
-KTV Kim Quỹ Kim Cương, nghe nói là chuỗi hệ thống toàn quốc, có thương hiệu.
+...
 
-Trong một phòng bao cỡ vừa, có khoảng hơn 10 nam nữ đang ngồi.
+Trên trung tâm thị trấn.
 
-Trên bàn trà bày đầy những chai bia nhỏ và một đĩa hoa quả, còn có mấy gói đồ ăn vặt.
+Tại quán karaoke Kim Quỹ Kim Cương — nghe đồn là một thương hiệu chuỗi phòng hát nổi tiếng sang trọng bậc nhất thời bấy giờ.
 
-Ánh đèn mờ ảo, Lý Lị cầm điện thoại đi tới: "Mộc Dao, cậu xem này, bọn họ đang bàn tán chuyện bán cá kìa."
+Bên trong một căn phòng hát tầm trung, có khoảng hơn mười cô cậu học sinh cả nam lẫn nữ đang ngồi quây quần tụ tập.
 
-Mộc Dao liếc nhìn một cái rồi ngoảnh mặt đi.
+Trên mặt bàn kính bày la liệt những chai bia nhỏ, một đĩa hoa quả lớn cùng vài gói bim bim, đồ ăn vặt.
 
-Lý Lị cười một tiếng rồi rời đi.
+Ánh đèn màu trong phòng lờ mờ nhấp nháy, Lý Lợi cầm chiếc điện thoại đi lướt qua ghế sofa, ghé sát vào tai Mộc Dao: "Mộc Dao, cậu xem kìa, bọn họ đang rôm rả bàn tán chuyện bán cá của Triệu Kim An trong nhóm chat đấy."
 
-Sau khi Lý Lị đi khỏi, Mộc Dao lấy điện thoại ra xem bạn học bàn tán trong nhóm, nàng cũng không lên tiếng.
+Mộc Dao liếc mắt nhìn màn hình điện thoại một cái rồi dứt khoát quay mặt đi hướng khác.
 
-"Hừ, chắc chắn là Âu Cường cố ý tung tin!"
+Lý Lợi nhếch mép cười khẽ một tiếng đầy ẩn ý rồi quay người bước ra chỗ khác.
 
-Du Phỉ hừ lạnh một tiếng, chỉ vào một nam sinh đang chơi điện thoại cách đó không xa: "Điền Vũ Hạo với hắn ta đúng là cùng một giuộc!"
+Đợi Lý Lợi đi khuất, Mộc Dao mới lặng lẽ rút chiếc điện thoại của mình ra, lướt đọc từng dòng bàn tán xôn xao của các bạn học trong nhóm. Cô cũng không hề lên tiếng can thiệp hay thanh minh lấy nửa lời.
 
-Mộc Dao nhìn Điền Vũ Hạo, nàng thấy hơi hối hận. Hối hận vì lúc đó không giành trả tiền sớm hơn, để bây giờ bọn họ cứ vô ý hay cố tình mà "mỉa mai" bạn trai nàng như vậy.
+"Hừ, đích thị là do thằng cha Âu Cường cố tình tung tin ra ngoài chứ ai vào đây nữa!"
 
-Hơn nữa.
+Du Phỉ ngồi bên cạnh hừ lạnh một tiếng đầy vẻ khinh bỉ, đưa ngón tay chỉ về phía một nam sinh đang cắm cúi bấm điện thoại cách đó không xa: "Cái thằng Điền Vũ Hạo kia lúc nào cũng mặc chung một cái quần với hắn ta!"
 
-Mộc Dao còn phát hiện Âu Cường cứ cầm micro không ngừng nhìn về phía mình, giống như đang muốn nói: "Cậu xem, bạn trai cậu chọn đến tiền học phí còn phải đi bán rau, cuối cùng vẫn là tôi chiếu cố việc làm ăn của hắn."
+Mộc Dao liếc nhìn Điền Vũ Hạo, trong lòng dâng lên một nỗi hối hận muộn màng. Cô hối hận vì lúc chiều đã không nhanh tay tranh trả tiền trước cho xong chuyện, để giờ đây bạn trai mình phải chịu cảnh bị người ta cố tình đem ra làm trò cười, gièm pha bóng gió thế này.
 
-"Du Phỉ, sao bọn họ lại như vậy?" Mộc Dao có chút tức giận.
+Không những thế.
 
-"Như vậy là như thế nào?" Du Phỉ chưa hiểu rõ lắm.
+Mộc Dao còn tinh ý nhận ra Âu Cường mỗi lần cầm micro hát lại liên tục hướng ánh mắt đắc thắng về phía cô, tựa như muốn ngầm nhắn nhủ: "Cậu nhìn xem, bạn trai mà cậu chọn đến tiền học phí còn phải tự đi bán cá ngoài chợ kiếm từng đồng, cuối cùng vẫn phải nhờ tôi ra tay giúp đỡ việc làm ăn đấy thôi."
 
-"Không có gì."
+"Du Phỉ à, sao bọn họ lại có thể hành xử như thế được chứ?" Mộc Dao bắt đầu thấy ấm ức và giận dỗi.
 
-Mộc Dao lắc đầu rồi lại hỏi: "Cậu bảo Kim An có nhìn thấy không? Chắc trong lòng cậu ấy sẽ buồn lắm nhỉ?"
+"Hành xử thế nào cơ?" Du Phỉ chưa hiểu hết ngọn ngành.
 
-"Không biết nữa."
+"Không có gì đâu..."
 
-"Cả ngày hôm nay cậu ấy không nói câu nào trong nhóm cả."
+Mộc Dao khẽ lắc đầu, rồi lại ngập ngừng hỏi tiếp: "Cậu bảo... Kim An có đọc được những tin nhắn này không? Liệu trong lòng cậu ấy có thấy buồn tủi lắm không?"
 
-Trong phòng bao có mấy nữ sinh cứ không ngừng nhìn về phía Mộc Dao. Mộc Dao cúi đầu nắm chặt điện thoại, nàng cảm thấy chắc là Triệu Kim An xấu hổ không dám lên tiếng trong nhóm nữa rồi.
+"Ai mà biết được chứ."
 
-Bởi vì mới một ngày trước, thỉnh thoảng Triệu Kim An vẫn còn tán gẫu vài câu với bạn học trong nhóm.
+"Cả ngày hôm nay cậu ấy chẳng thèm nói câu nào trong nhóm cả."
 
-Du Phỉ vừa định mở miệng nói chuyện.
+Trong phòng hát, vài bạn nữ thỉnh thoảng lại đưa mắt lén nhìn về phía Mộc Dao. Cô chỉ biết cúi gằm mặt, hai bàn tay nắm chặt lấy chiếc điện thoại. Cô đinh ninh rằng Triệu Kim An vì mặc cảm, xấu hổ với bạn bè nên mới không dám lộ diện trong nhóm chat.
 
-Lúc này điện thoại vang lên hai tiếng "tinh tinh".
+Bởi lẽ chỉ mới ngày hôm qua thôi, Triệu Kim An thỉnh thoảng vẫn còn hào hứng trò chuyện dăm ba câu với mọi người.
 
-Triệu Kim An: "Cậu có thể cho tôi mượn ít tiền không?"
+Du Phỉ vừa định mở miệng an ủi cô bạn thân.
 
-Triệu Kim An: "Không cho mượn cũng không sao, giữ bí mật giúp tôi."
+Đúng lúc này, chiếc điện thoại trong túi xách của Du Phỉ bỗng rung lên hai tiếng "ting ting" báo hiệu tin nhắn mới.
 
-Du Phỉ bây giờ chắc chắn rằng Triệu Kim An đã nhìn thấy những gì bạn học bàn tán trong nhóm. Nàng nhìn sang Mộc Dao bên cạnh, điện thoại của Mộc Dao dường như không có động tĩnh gì.
+Triệu Kim An: [Cậu có thể cho tớ mượn một ít tiền được không?]
 
-Du Phỉ vẻ mặt đầy nghi hoặc.
+Triệu Kim An: [Nếu không tiện cho mượn thì cũng không sao đâu nhé, nhưng nhớ giữ bí mật giúp tớ.]
 
-"Tại sao Kim An không tìm Mộc Dao mượn tiền?"
+Đọc xong tin nhắn, Du Phỉ lúc này càng thêm chắc chắn rằng Triệu Kim An đã nhìn thấy toàn bộ những lời bàn tán khó nghe trong nhóm. Cô ngước mắt nhìn sang Mộc Dao đang ngồi thẫn thờ bên cạnh, chiếc điện thoại của Mộc Dao tuyệt nhiên không hề có động tĩnh gì.
 
-Du Phỉ: "Mượn bao nhiêu?"
+Trên gương mặt Du Phỉ hiện rõ vẻ ngỡ ngàng, khó hiểu.
 
-Triệu Kim An: "Càng nhiều càng tốt, vài ngày nữa tôi sẽ trả lại cho cậu."
+"Tại sao Kim An lại không đi mượn tiền Mộc Dao mà lại tìm đến mình chứ?"
 
-Du Phỉ: "Khi nào cậu cần?"
+Du Phỉ: [Cậu muốn mượn bao nhiêu?]
 
-Triệu Kim An: "Ngày mai."
+Triệu Kim An: [Càng nhiều càng tốt, vài hôm nữa tớ sẽ gửi lại cậu ngay.]
 
-Du Phỉ: "Được, tôi sẽ cố gắng."
+Du Phỉ: [Khi nào cậu cần lấy tiền?]
 
-. . . . . .
+Triệu Kim An: [Sáng mai.]
 
-Sáng sớm ngày hôm sau, Triệu Kim An khoác một chiếc ba lô hai quai rẻ tiền ra khỏi nhà, mặc áo thun trắng, quần đùi sẫm màu, đi đôi dép tông.
+Du Phỉ: [Được rồi, để tớ cố gắng xoay xở xem sao.]
 
-Tuy từng tham gia giải bóng rổ của lớp, nhưng hắn chưa bao giờ mua "trang bị".
+...
 
-Ví dụ như Adidas hay Nike.
+Sáng sớm ngày hôm sau, khi những tia nắng đầu ngày vừa ló rạng, Triệu Kim An đã khoác chiếc ba lô vải dù rẻ tiền bước ra khỏi nhà. Anh mặc một chiếc áo phông cộc tay màu trắng đơn giản, chiếc quần đùi tối màu ngang gối cùng đôi dép xỏ ngón lẹp xẹp dưới chân.
 
-Cũng chẳng phải giải bóng rổ toàn trường, chỉ là thi đấu giữa các lớp với nhau, không cần thiết.
+Dẫu từng là trụ cột của đội bóng rổ lớp, nhưng anh chưa bao giờ có cơ hội sắm sửa cho mình những bộ "trang bị hàng hiệu".
 
-Nhà trường cũng sẽ không chuẩn bị cho.
+Chẳng hạn như giày Adidas hay Nike.
 
-Nói thẳng ra là không có tiền mua.
+Dù sao đó cũng chỉ là những trận đấu giao hữu giữa các lớp với nhau chứ đâu phải giải đấu quy mô toàn trường, chẳng việc gì phải câu nệ hình thức.
 
-Một đôi giày bóng rổ cộng với quần áo cũng phải lên đến hàng nghìn tệ, vào những năm trước 2006, đó thực sự không phải là một số tiền nhỏ, rất nhiều gia đình không nỡ mua đồ đắt tiền như vậy cho con cái.
+Phía nhà trường đương nhiên lại càng không phát trang phục thi đấu.
 
-Những hãng như Anta, Li-Ning, Baleno, Xtep đã được coi là đồ hiệu rồi, phải là những gia đình có điều kiện kinh tế khá giả mới dám mua cho con.
+Nói một cách trần trụi, thẳng thắn thì là do nhà nghèo không có tiền mua.
 
-Mặt trời mọc từ đằng đông, ánh nắng vàng rực rỡ tỏa khắp mặt đất.
+Một đôi giày thể thao chính hãng cộng thêm một bộ quần áo bóng rổ xịn thời đó ngót nghét cả ngàn tệ, vào những năm trước 2006 thì đây quả thực là một số tiền khổng lồ, hầu hết các gia đình bình dân ở quê chẳng ai dám vung tay mua cho con cái những thứ xa xỉ phẩm ấy.
 
-Triệu Kim An đi bộ ra khỏi làng, đi lên một đoạn dốc cao rồi vẫy tay chặn một chiếc xe khách chạy ngang qua.
+Thời đó, những thương hiệu nội địa như Anta, Li-Ning, Baleno hay Xtep đã được coi là hàng hiệu sang chảnh lắm rồi, chỉ những gia đình có điều kiện kinh tế khá giả mới dám sắm sửa cho con em mình.
 
-"Soái ca, ba tệ."
+Ánh dương ban mai bừng sáng, dát một màu vàng rực rỡ lên khắp không gian làng quê thanh bình.
 
-Người bán vé tựa vào cửa xe lắc lư theo nhịp chuyển động, nhận lấy tờ 5 tệ từ tay Triệu Kim An rồi cúi đầu tìm tiền lẻ.
+Triệu Kim An rảo bước đi bộ ra khỏi làng, leo lên một con dốc thoải rồi đứng bên vệ đường cái lớn giơ tay vẫy một chiếc xe khách chạy tuyến liên huyện đi ngang qua.
 
-Cộng với 2356 tệ bà nội đưa tối qua, hiện giờ Triệu Kim An đang sở hữu một khoản "tiền khổng lồ" là 3686 tệ.
+"Soái ca ơi, ba tệ một vé nhé."
 
-Ngoài ra, thứ đáng giá nhất trên người hắn là chiếc điện thoại trị giá 500 tệ.
+Chị phụ xe đứng tựa lưng vào mép cửa xe đu đưa theo từng nhịp xóc, nhận lấy tờ năm tệ từ tay Triệu Kim An rồi cúi đầu tìm tiền lẻ thối lại.
 
-Nếu điện thoại có thể đem cầm đồ, hắn sẽ không ngần ngại chọn đổi lấy tiền ngay.
+Cộng thêm khoản hai ngàn ba trăm năm mươi sáu tệ bà nội trao cho đêm qua, trong tay Triệu Kim An lúc này đang nắm giữ một "khoản tiền khổng lồ" lên tới ba ngàn sáu trăm tám mươi sáu tệ.
 
-Dù sao cũng chẳng có cuộc gọi của ai đáng để chờ đợi cả.
+Ngoài số tiền mặt này ra, thứ giá trị nhất trên người anh lúc này chính là chiếc điện thoại cũ kỹ trị giá khoảng năm trăm tệ.
 
-Còn về lý do tại sao lại tìm Du Phỉ mượn tiền?
+Nếu như chiếc điện thoại này có thể mang đi cầm đồ lấy tiền ngay, anh cũng sẽ không ngần ngại đem đi cắm lấy tiền mặt.
 
-Tối qua Triệu Kim An mới nhớ ra mình và Du Phỉ từng ngồi cùng bàn. Thời cấp ba là như vậy, thường xuyên đổi chỗ, có nhóm hai người, có nhóm ba người.
+Dù sao thì thời điểm này cũng chẳng có cuộc gọi nào đáng để anh phải mòn mỏi chờ đợi.
 
-Trong ấn tượng của hắn, điều kiện gia đình Du Phỉ khá ổn. Còn như Triệu Chí Dũng thì trừ khi đi trộm tiền của bố mẹ.
+Còn về lý do tại sao lại chọn mượn tiền của Du Phỉ?
 
-Mà có "trộm" thì cũng chẳng được bao nhiêu.
+Tối qua Triệu Kim An mới sực nhớ ra rằng thời cấp ba mình từng có một thời gian ngồi cùng bàn với cô bạn này. Quãng đời học sinh là thế, chuyện đổi chỗ ngồi diễn ra như cơm bữa, lúc thì ghép bàn đôi, khi thì xếp cụm bàn ba.
 
-Dù sao thì nhà ai mà để quá nhiều tiền mặt, bà nội chắc chắn là sẽ không đem tiền đi gửi ngân hàng rồi.
+Trong ký ức của anh, điều kiện kinh tế gia đình Du Phỉ thuộc diện khá giả trong lớp. Còn như Triệu Trí Dũng, muốn có một số tiền lớn thì trừ phi đi ăn trộm tiền của bố mẹ.
 
-"Bác tài ơi, cho con xuống đây!"
+Mà dẫu có "trộm" thì cũng chẳng bới đâu ra nhiều tiền mặt đến thế.
 
-Theo như tin nhắn của Du Phỉ, Triệu Kim An xuống xe trước một khu dân cư không quá cao cấp, sau đó đứng bên đường gọi điện cho Du Phỉ.
+Bởi lẽ ở nông thôn thời nay chẳng mấy ai để quá nhiều tiền mặt trong nhà, bà nội anh chắc chắn là thuộc tuýp người già không bao giờ biết đến việc mang tiền ra ngân hàng gửi tiết kiệm.
 
-Một lúc sau, Du Phỉ mặc một chiếc váy liền màu trắng, đi đôi giày vải trắng chạy nhỏ bước ra.
+"Bác tài ơi, cho cháu xuống ở góc ngã tư phía trước với ạ!"
+
+Theo đúng địa chỉ ghi trong tin nhắn của Du Phỉ, Triệu Kim An chủ động xuống xe trước cổng một khu chung cư tầm trung, sau đó đứng bên lề đường bấm số gọi cho cô bạn.
+
+Chỉ một thoáng sau, bóng dáng Du Phỉ trong chiếc váy liền thân màu trắng tinh khôi, chân đi đôi giày vải mềm mại màu trắng đã lon ton chạy từ trong khu nhà ra.
 
 "Triệu Kim An!"
 
-Nàng mỉm cười vẫy tay, quan sát dòng xe cộ qua lại rồi chạy nhanh qua đường.
+Cô gái nhỏ nở nụ cười rạng rỡ vẫy tay từ xa, cẩn thận ngó nghiêng dòng xe cộ qua lại rồi thoăn thoắt băng qua bên kia đường.
 
-Du Phỉ dáng người không cao, chỉ tầm một mét sáu, tóc ngắn ngang vai. Nghe nói nàng cắt tóc dài đi là để tiết kiệm thời gian gội đầu, hồi cấp ba có rất nhiều bạn nữ làm như vậy.
+Du Phỉ có vóc dáng nhỏ nhắn, chiều cao chỉ tầm một mét sáu mươi, mái tóc cắt ngắn ngang vai năng động. Nghe đâu cô cắt phăng mái tóc dài thướt tha năm xưa chỉ vì muốn tiết kiệm thời gian gội đầu sấy tóc để tập trung cho việc ôn thi, thời cấp ba có không ít bạn nữ đã chọn cách hy sinh mái tóc như thế.
 
-Nhìn gương mặt thanh tú, tràn đầy sức sống thanh xuân của Du Phỉ, Triệu Kim An cũng mỉm cười giơ tay vẫy chào.
+Nhìn gương mặt thanh tú, còn vương nét ngây thơ cùng dáng vẻ tràn đầy nhựa sống thanh xuân của Du Phỉ, Triệu Kim An cũng bất giác mỉm cười, đưa tay lên vẫy chào đáp lại.
 
-Du Phỉ hơi ngẩn ra, nụ cười càng thêm rạng rỡ.
+Du Phỉ thoáng ngơ ngẩn trong tích tắc, rồi nụ cười trên môi cô càng thêm rạng rỡ, tươi tắn hơn.
 
-Nàng thuộc phái coi trọng ngoại hình.
+Cô vốn dĩ là một tín đồ của cái đẹp.
 
-Bây giờ người ta vẫn hiếm khi dùng từ "nhan trị", mà nên gọi là người của "hiệp hội ngoại hình" mới đúng.
+Thời điểm năm 2006 người ta còn chưa phổ biến cụm từ "nhan sắc cực phẩm" hay "visual đỉnh cao", mà người ta hay dùng cụm từ dân dã hơn: "thành viên Hiệp hội Chuộng Ngoại Hình".

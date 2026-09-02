@@ -1,217 +1,273 @@
-# Chương 59: Mỗi người một vẻ.
+# Chương 59: Chúng sinh tướng
 
-Đi vào đại sảnh đáy vực siêu nhận cùng lưu xông phong có chút mắt trợn tròn, bọn hắn ý nghĩ cùng diêu tân một dạng.
+> **Tiêu đề gốc**: 第59章 众生相。
 
-Tiêu phí sẽ hay không có chút cao a.
+Vừa bước chân vào đại sảnh lộng lẫy, Cốc Siêu Thừa và Lưu Sùng Phong lập tức đờ đẫn cả người. Nỗi lo lắng trong lòng hai gã lúc này cũng chẳng khác gì tâm trạng của Diêu Tân lúc nãy:
 
-Triệu Kim An hỏi phục vụ viên phù dung phòng tại lầu mấy, phục vụ viên đưa tay chỉ cái phương hướng, nói 3 lầu, đáy vực siêu nhận cùng lưu xông phong nhìn chung quanh đi lên lầu ba.
+Mức tiêu dùng ở cái chốn xa hoa này liệu có cao quá tầm với hay không?
 
-Triệu Kim An theo ở phía sau, cầm điện thoại di động lên dây cót tin nhắn để đơn vĩ đi về trước.
+Triệu Kim An bước tới hỏi nhân viên phục vụ xem phòng bao Phù Dung nằm ở tầng mấy. Nữ phục vụ khẽ giơ tay hướng dẫn, bảo rằng ở trên tầng ba. Cốc Siêu Thừa và Lưu Sùng Phong vừa đi vừa ngó nghiêng dáo dác, bồn chồn rảo bước lên cầu thang.
 
-Đẩy cửa ra liền nghe được trần trạch của âm thanh, nói các ngươi như thế nào không đón xe tới?
+Triệu Kim An điềm đạm theo sau, tiện tay rút điện thoại nhắn một dòng tin bảo Đơn Vĩ cứ lái xe về trước.
 
-"Kim An nhỉ!?"
+Vừa đẩy cánh cửa phòng bao bước vào, mọi người đã nghe thấy tiếng Trần Trạch cất lên:
 
-Đây là Mộc Dao của âm thanh, còn có cái ghế di động âm thanh.
+— Sao mấy cậu không bắt taxi mà đi cho nhanh?
 
-Lưu xông phong cùng đáy vực siêu nhận bĩu môi nhanh chóng tìm cái ghế ngồi xuống, tất cả mọi người đình chỉ giao lưu, diêu tân từ trên bàn của một cái đĩa bắt đem hạt dưa.
+— Kim An đâu rồi?!
 
-"gặm!"
+Đó là giọng nói thanh thót của Mộc Dao, kèm theo tiếng ghế gỗ bị kéo lê vội vã trên sàn.
 
-Trần trạch cũng đưa tay bắt đem.
+Lưu Sùng Phong và Cốc Siêu Thừa bĩu môi một cái rồi mau chóng tìm một góc ghế trống ngồi xuống. Mọi cuộc trò chuyện trong phòng bỗng chốc ngưng bặt. Diêu Tân tiện tay bốc một nắm hạt dưa từ chiếc đĩa trên bàn:
 
-Không có, không có?
+“Tách!”
 
-Lưu xông phong cầm đĩa, phục vụ viên lại đến điểm, chúng ta muốn nhìn vai diễn.
+Trần Trạch thấy vậy cũng thò tay nhón lấy một vốc.
 
-"Kim An....."
+Hết... hết hạt dưa rồi à?
 
-Triệu Kim An vừa xuất hiện, Mộc Dao liền chạy chậm đi lên ôm lấy Triệu Kim An cánh tay, âm thanh làm nũng để cho tại chỗ tất cả mọi người cả người nổi da gà lên.
+Lưu Sùng Phong cầm chiếc đĩa rỗng huơ huơ lên:
 
-Chậc chậc chậc....
+— Phục vụ ơi, cho thêm đĩa hạt dưa nữa nào, bọn tôi chuẩn bị xem kịch hay đây!
 
-Mộc Dao ngẩng đầu nhìn Triệu Kim An, béo mập cánh môi mím thành một đường, khóe miệng nhàn nhạt phía dưới liếc, sáng tỏ trong suốt cặp mắt đào hoa bịt kín một tầng hơi nước, giống như dáng vẻ rất ủy khuất.
+— Kim An à...
 
-"cmn! Trạch ca, ta không có muốn ăn rồi."
+Vừa thấy bóng dáng Triệu Kim An xuất hiện ở ngưỡng cửa, Mộc Dao liền chạy thoăn thoắt tới ôm chầm lấy cánh tay anh. Giọng điệu nũng nịu, ngọt ngào đến chảy nước của cô nàng khiến tất cả những người có mặt trong phòng bao đồng loạt nổi da gà rần rần.
 
-"ta cũng là, no rồi!"
+Chậc chậc chậc...
 
-Lưu xông phong cùng đáy vực siêu chịu không được rồi, nhỏ giọng chửi bậy.
+Mộc Dao ngước khuôn mặt kiều diễm lên nhìn Triệu Kim An, đôi môi hồng đào chúm chím mím chặt thành một đường thẳng tắp, khóe môi khẽ trĩu xuống, đôi mắt hoa đào trong veo ngập tràn một màn sương nước mỏng manh, trông vừa uất ức lại vừa đáng thương đến nao lòng.
 
-Triệu Kim An hướng trên bàn ăn ba nữ sinh mỉm cười gật đầu nói:"các ngươi tốt."
+— Đệt mợ! Anh Trạch ơi, tao nuốt không trôi cơm nữa rồi.
 
-Lại là các ngươi hảo?
+— Tao cũng thế, no ứ hự rồi này!
 
-Cái này chào hỏi phương thức giống như lại là lần thứ nhất gặp mặt.
+Lưu Sùng Phong và Cốc Siêu Thừa chịu không nổi màn ân ái này, bèn ghé tai nhau thì thào trêu chọc.
 
-"ngươi tốt."
+Triệu Kim An khẽ mỉm cười, hướng về phía ba cô gái đang ngồi quanh bàn ăn gật đầu chào hỏi:
 
-Thẩm tử nói hào phóng lên tiếng, nói nhanh ngồi đi, liền chờ các ngươi.
+— Chào các cậu.
 
-Từ Mạn Mạn cũng mỉm cười gật đầu.
+Lại là câu “Chào các cậu”?
 
-Triệu Kim An nhìn nhiều mắt Từ Mạn Mạn, Từ Mạn Mạn liền cùng đêm đó tại quán bar một dạng, ngồi ngay ngắn dáng người, lễ phép lại đoan trang hào phóng.
+Cái cách chào hỏi nhã nhặn, xa cách này cứ như thể đây mới là lần đầu tiên bọn họ gặp mặt nhau vậy.
 
-Mộc Dao lôi Triệu Kim An cánh tay không thả, kéo một cái ghế ra nói Kim An ngươi ngồi ở đây, tiếp đó chính mình thật vui vẻ ngồi ở Triệu Kim An bên cạnh.
+— Chào cậu.
 
-Trần trạch mở ra chủ đề, hỏi uống rượu làm gì, trắng của vẫn là bia của, nói rượu đỏ cũng có thể.
+Thẩm Tử Ngôn hào phóng đáp lại một tiếng, rồi tươi cười mời mọc:
 
-Triệu Kim An nói các ngươi uống là được, ta không có uống rượu.
+— Mau ngồi xuống đi, mọi người đều đang đợi các cậu đấy.
 
-"không thể nào, Kim An, ngươi một người nam không uống rượu?"
+Từ Mạn Mạn cũng khẽ mỉm cười gật đầu chào.
 
-Lưu xông phong phản ứng lại nói lớn tiếng nhất thiết phải làm trắng của.
+Triệu Kim An đưa mắt nhìn Từ Mạn Mạn thêm một thoáng. Cô nàng lúc này cũng hệt như đêm hôm trước ở quán bar, ngồi thẳng lưng ngay ngắn, toát lên phong thái đoan trang, lịch thiệp và vô cùng nhã nhặn.
 
-Bên cạnh phục vụ viên nghe vậy lập tức tới nâng menu báo giá, từ mao đài 6 trăm nhiều, rượu ngũ lương 6 trăm nhiều, quốc hầm 7 trăm nhiều, 3 trăm Kiếm Nam xuân, 5 trăm giếng nước phường, hỏi lưu xông phong muốn loại nào rượu đế?
+Mộc Dao nhất quyết không chịu buông tay, cô kéo chiếc ghế bên cạnh ra đon đả bảo:
 
-"· · · · · ·"
+— Kim An, anh ngồi chỗ này này!
 
-Lưu xông phong chưa thấy qua điệu bộ này, đây cũng quá nhiệt tình đi, liền không có rượu xái?
+Nói rồi, cô nàng vui vẻ, hớn hở ngồi sát ngay bên cạnh Triệu Kim An.
 
-6, 7 trăm một bình, một bình rượu A A xuống liền 1 trăm rồi!
+Trần Trạch chủ động mở lời khơi mào không khí, gã hỏi mọi người muốn uống loại rượu gì, rượu trắng hay bia, nếu thích thì gọi rượu vang cũng được.
 
-Nếu là nữ sinh không uống, A A chính là gần tới một người hai trăm!
+Triệu Kim An lên tiếng:
 
-2 0 0 6 năm mao đài chưa mở ra"xa xỉ phẩm hóa"tiến trình, quốc hầm 1 5 7 3 của giá cả còn cao hơn một chút cỏ tranh đài, mao đài của đầu cuối giá bán lẻ tại 3 0 0 - 4 0 0.
+— Các cậu cứ uống tự nhiên, tớ không uống rượu.
 
-Bất quá tiệm cơm khẳng định muốn tăng giá bán ra, phục vụ viên có trích phần trăm, cho nên đối với lưu xông phong phá lệ nhiệt huyết.
+— Đùa nhau đấy à Kim An? Đàn ông con trai ai lại không biết uống rượu cơ chứ!
 
-Nàng liền đứng tại lưu xông phong bên cạnh thân, vẻ mặt tươi cười, ánh mắt sáng quắc nhìn xem lưu xông phong.
+Lưu Sùng Phong bắt được sóng liền lớn tiếng tuyên bố hôm nay nhất định phải uống rượu trắng mới đã.
 
-Lưu xông phong nháo cái mặt đỏ ửng, hắn thật không có nghĩ tới ở đây một bình rượu đế bán đắt như vậy, phục vụ viên nhiệt tình như vậy, lại có nữ sinh tại, hắn khó mà nói uống không dậy nổi, lúng túng ngón chân móc ra ba phòng ngủ hai phòng khách.
+Cô nhân viên phục vụ đứng bên cạnh nghe thấy thế lập tức đon đả bước tới, tay nâng cuốn thực đơn nhanh nhảu báo giá: Từ Mao Đài hơn 600 tệ, Ngũ Lương Dịch hơn 600 tệ, Quốc Kiều 1573 hơn 700 tệ, Kiếm Nam Xuân 300 tệ, cho đến Thủy Tỉnh Phường 500 tệ... rồi niềm nở hỏi Lưu Sùng Phong muốn chọn loại rượu trắng nào?
 
-Nhìn ra lưu xông phong quẫn bách, thẩm tử nói mắt nhìn Triệu Kim An, Triệu Kim An rất bình thản, tựa hồ không quan tâm giá tiền, nàng đối với phục vụ viên nói:"rượu đế coi như xong, tới vài chai bia, lấy thêm chai nước uống."
+— ...
 
-Thẩm tử nói lên tiếng, trần trạch mới mở miệng nói vậy thì tới bia!
+Lưu Sùng Phong nào đã từng thấy qua cái trận thế xa xỉ này bao giờ? Nhiệt tình thái quá thế này thì đỡ sao nổi, ở đây bộ không bán loại rượu Nhị Oa Đầu bình dân mấy đồng một bình hay sao?
 
-Phục vụ viên có hơi thất vọng rời đi.
+Sáu, bảy trăm tệ một chai rượu! Nếu chia đều ra thì riêng tiền rượu mỗi người đã bay đứt một trăm tệ rồi!
 
-Lưu xông phong hướng thẩm tử nói flounce ánh mắt cảm kích, hắn vừa mới thực sự quá lúng túng, chỉ có thẩm tử nói ra nói giải vây, đáy vực siêu nhận tên chó chết này còn ở trên bàn phía dưới kéo chính mình!
+Còn nếu đám con gái không uống, thì cánh con trai chia nhau ngót nghét mỗi đứa gánh hai trăm tệ!
 
-"biết quý, ngươi T M sẽ không giống thẩm tử nói nói như vậy sao!"
+Vào năm 2006, thương hiệu Mao Đài vẫn chưa chính thức bước vào kỷ nguyên “hàng xa xỉ phẩm”, giá của dòng rượu Quốc Kiều 1573 bấy giờ thậm chí còn nhỉnh hơn Mao Đài đôi chút, còn giá bán lẻ ngoài thị trường của Mao Đài dao động trong khoảng từ 300 đến 400 tệ.
 
-Lưu xông phong không biết lời giống vậy từ đáy vực siêu nhận trong miệng nói ra chính là một phen khác hương vị rồi, cho nên nói có chút vòng tròn đừng cứng rắn tan.
+Thế nhưng các nhà hàng lớn chắc chắn sẽ đội giá lên gấp đôi để kiếm lời, nhân viên phục vụ lại có phần trăm hoa hồng từ tiền rượu nên mới đặc biệt vồn vã, săn đón Lưu Sùng Phong đến thế.
 
-Không nghĩ tới thẩm tử nói ngoài định mức hỏi một câu:"Triệu Kim An, ngươi uống đồ uống sao?"
+Cô phục vụ đứng ngay sát cạnh sườn Lưu Sùng Phong, nụ cười nở rộ như hoa mùa xuân, ánh mắt lấp lánh rực lửa nhìn chằm chằm vào gã.
 
-Triệu Kim An nói uống.
+Mặt Lưu Sùng Phong đỏ bừng lên như gấc chín. Gã thực sự không thể ngờ một chai rượu trắng ở chốn này lại chém giá trên trời như vậy. Nhân viên thì săn đón nhiệt tình, lại có bao nhiêu bạn nữ ngồi xung quanh, gã ngượng chín mặt chẳng dám mở mồm bảo mình không đủ tiền uống, xấu hổ đến mức chỉ muốn dùng ngón chân đào ngay một căn hộ ba phòng ngủ một phòng khách để chui xuống trốn.
 
-Thẩm tử nói vừa cười hỏi:"cái kia cacbon-axit đồ uống nhỉ?"
+Nhận thấy rõ sự lúng túng cùng cực của Lưu Sùng Phong, Thẩm Tử Ngôn liếc mắt nhìn sang Triệu Kim An. Thấy anh vẫn giữ vẻ mặt thản nhiên như nước, dường như chẳng hề bận tâm đến chuyện giá cả đắt rẻ, cô liền lên tiếng bảo với nhân viên phục vụ:
 
-"các ngươi không uống nước trái cây sao?"Triệu Kim An hỏi ngược lại.
+— Thôi, rượu trắng thì bỏ qua đi nhé. Mang cho chúng tôi mấy chai bia, với lại lấy thêm một chai nước ngọt nữa.
 
-Thẩm tử nói cười rồi cười, đối với phục vụ viên nói:"vậy thì cầm nước trái cây."
+Thẩm Tử Ngôn vừa lên tiếng mở lời, Trần Trạch bấy giờ mới vội vã phụ họa theo:
 
-Hai người ngươi một câu ta một câu, lưu xông phong phản ứng lại hỏi:"Kim An, ngươi bia cũng không uống sao?"
+— Đúng đấy, lấy bia đi cho nhẹ nhàng!
 
-Mộc Dao cũng kịp phản ứng, chỉ bất quá cùng lưu xông phong không tầm thường, nàng một mặt cảnh giác nhìn xem thẩm tử nói:"ngươi vì cái gì biết Kim An không uống cacbon-axit đồ uống?"
+Cô nhân viên phục vụ thoáng chút hụt hẫng, miễn cưỡng quay người rời đi.
 
-"ngươi không biết sao?"
+Lưu Sùng Phong liền ném về phía Thẩm Tử Ngôn một ánh mắt tràn đầy biết ơn. Tình huống ban nãy thực sự khiến gã ngượng ngùng muốn độn thổ, may mà có Thẩm Tử Ngôn tinh tế lên tiếng giải vây giúp gã, chứ cái thằng Cốc Siêu Thừa chết tiệt kia thì chỉ biết thò tay dưới gầm bàn kéo áo gã liên hồi!
 
-Thẩm tử nói thuận miệng hỏi ngược lại câu.
+“Biết là đắt đỏ rồi, nhưng mẹ kiếp mày không biết học cách ăn nói khéo léo như Thẩm Tử Ngôn hay sao!” — Lưu Sùng Phong thầm mắng trong bụng.
 
-"ta · · · ·"
+Thế nhưng Lưu Sùng Phong đâu hiểu rằng, cùng một câu nói ấy nếu thốt ra từ miệng Cốc Siêu Thừa thì hương vị nó sẽ trở nên hoàn toàn khác biệt. Thế nên người ta mới bảo, có những tầng lớp, có những hội nhóm đừng bao giờ cố ép mình hòa nhập vào làm gì.
 
-Một thế này của Mộc Dao thật đúng là không biết, nàng quay đầu nhìn về phía bên cạnh Triệu Kim An, giống như là chứng thực.
+Chẳng ngờ, Thẩm Tử Ngôn lại quay sang hỏi thêm một câu:
 
-Một cử động kia để thẩm tử nói thật bất ngờ, Từ Mạn Mạn cũng ngẩng đầu nhìn về phía Mộc Dao, các ngươi cao trung ba năm, ngươi lại là bạn gái hắn chẳng lẽ không biết sao?
+— Triệu Kim An, cậu có uống nước ngọt không?
 
-Thẩm tử nói nói:"bọn hắn túc xá đều biết a, ta cũng là ngày đó tại nhà ăn nghe hắn chính mình nói của."
+Triệu Kim An đáp:
 
-Đáy vực siêu nhận rất phối hợp nhấc tay, nói có thiên hắn mua 4 lon cola, Kim An không uống, lão Lưu uống cạn.
+— Có chứ.
 
-Mộc Dao dưới bàn lôi kéo Triệu Kim An của tay, rất kỳ quái hỏi:"lớp chúng ta tổ chức chơi xuân nấu cơm dã ngoại, các ngươi nam sinh không phải đều là uống côca tuyết bích sao?"
+Thẩm Tử Ngôn mỉm cười hỏi tiếp:
 
-Triệu Kim An mỉm cười, không có trả lời.
+— Thế còn đồ uống có ga thì sao?
 
-"Kim An...."
+— Các cậu không uống nước ép hoa quả à? — Triệu Kim An hỏi ngược lại.
 
-Mộc Dao lại lung lay Triệu Kim An cánh tay, Triệu Kim An mới mở miệng:"ta không uống, cho Triệu Chí Dũng rồi."
+Thẩm Tử Ngôn nở nụ cười rạng rỡ, quay sang dặn phục vụ:
 
-"ta..... Kim An, ta về sau sẽ thêm chú ý ngươi."
+— Vậy lấy nước ép hoa quả nhé.
 
-Hai người rất nhỏ giọng.
+Hai người kẻ đối người đáp vô cùng tự nhiên, Lưu Sùng Phong bấy giờ mới ngớ người ra hỏi:
 
-Mộc Dao không hiểu có chút áy náy, có chút hoảng, người nơi này chỉ nàng người bạn gái này không biết, hết lần này tới lần khác cẩn thận nhớ lại, không có một chút ấn tượng.
+— Kim An, ngay cả bia mày cũng không uống giọt nào luôn à?
 
-"chẳng lẽ ta thật sự không có chút nào chú ý Kim An sao?"
+Mộc Dao cũng lập tức nhận ra điều bất thường. Nhưng khác với vẻ vô tư của Lưu Sùng Phong, cô nàng nhìn Thẩm Tử Ngôn bằng ánh mắt đầy cảnh giác và nghi hoặc:
 
-Triệu Kim An trên mặt mang mỉm cười, không có mừng rỡ.
+— Sao cậu lại biết Kim An không uống đồ ngọt có ga?
 
-Không có bởi vì Mộc Dao nói"ta về sau sẽ thêm chú ý ngươi"biểu hiện ra mừng rỡ, cũng không có sinh khí.
+— Cậu không biết chuyện đó à?
 
-Hắn còn vỗ vỗ Mộc Dao của tay, Mộc Dao trong lòng càng khổ sở hơn rồi.
+Thẩm Tử Ngôn buột miệng hỏi ngược lại một câu hết sức tự nhiên.
 
-"Kim An giống như không quan tâm ta rồi."
+— Tớ...
 
-Bàn tròn lớn, 8 cá nhân rất rộng rãi, Mộc Dao xê dịch ghế và Triệu Kim An kề một điểm, những người khác câu có câu không trò chuyện, lưu xông phong đối với thẩm tử nói rất nhiệt tình.
+Mộc Dao của kiếp này thực sự hoàn toàn không hề hay biết chuyện đó. Cô ngơ ngác quay sang nhìn người bạn trai ngồi cạnh mình như muốn tìm kiếm sự xác nhận.
 
-Thẩm tử nói tiếp theo lời nói, lực chú ý lại tại Triệu Kim An bên này.
+Hành động này của Mộc Dao khiến Thẩm Tử Ngôn vô cùng kinh ngạc. Ngay cả Từ Mạn Mạn cũng ngẩng đầu lên nhìn Mộc Dao đầy khó hiểu: Hai người các cậu yêu nhau suốt ba năm cấp ba, cậu lại là bạn gái danh chính ngôn thuận của người ta, chẳng lẽ một thói quen nhỏ nhặt như thế mà cũng không biết hay sao?
 
-Từ Mạn Mạn có chút không yên lòng, trần trạch cùng nàng nói vài câu, cũng gia nhập vào lưu xông phong cùng thẩm tử nói của nói chuyện phiếm.
+Thẩm Tử Ngôn điềm tĩnh phân trần:
 
-Rất nhanh bắt đầu dọn thức ăn lên.
+— Cả phòng ký túc xá bên các cậu ấy đều biết cả mà, tớ cũng là hôm ngồi ở nhà ăn nghe chính miệng cậu ấy nói ra thôi.
 
-Phục vụ viên bưng một đạo cá đi lên đang muốn mở miệng giới thiệu.
+Cốc Siêu Thừa rất phối hợp giơ tay làm chứng, bảo rằng có hôm cậu ta mua bốn lon Coca về phòng, Kim An nhất quyết không uống, cuối cùng để lão Lưu nốc sạch.
 
-Thẩm tử nói liền nói không cần giới thiệu, phục vụ viên trắng trợn nói khoác một phen cảm giác cũng sẽ không tiện nghi.
+Mộc Dao khẽ thò tay xuống dưới gầm bàn kéo nhẹ vạt áo Triệu Kim An, gặng hỏi bằng giọng kỳ quặc:
 
-Cứ việc không giới thiệu cũng có người sẽ hoài nghi, bất quá không trọng yếu, chỉ cần không nói ra, đại gia trên mặt mũi.... Ngầm hiểu lẫn nhau là được rồi.
+— Hồi lớp mình tổ chức đi dã ngoại cắm trại mùa xuân, cánh con trai các anh chẳng phải toàn tranh nhau uống Coca với Sprite hay sao?
 
-Bất quá lưu xông phong vẫn là lặng lẽ hỏi miệng:"trạch ca, một bàn này bao nhiêu tiền?"
+Triệu Kim An mỉm cười nhẹ nhàng, không đáp lời.
 
-Trần trạch mắt nhìn thẩm tử nói nói:"3 trăm nhiều, châm rượu thủy đồ uống 4 trăm nhiều một chút đi."
+— Kim An à...
 
-"ha ha, đó cũng không phải là rất đắt."
+Mộc Dao lại lay lay cánh tay anh nũng nịu. Bấy giờ Triệu Kim An mới cất giọng điềm đạm:
 
-Nhìn xem đầy bàn thái, thịt cá, còn có tôm cua, lưu xông phong cười nói:"dạng này liên hoan hai chúng ta ký túc xá về sau muốn một tháng qua một lần, coi như cải thiện cơm nước."
+— Hôm đó tớ không uống, nhường hết cho Triệu Trí Dũng rồi.
 
-Trần trạch:......
+— Em... Kim An ơi, sau này em nhất định sẽ quan tâm, để ý đến anh nhiều hơn mà.
 
-Những người khác cười cười không có lên tiếng.
+Giọng hai người thì thầm rất nhỏ.
 
-Mộc Dao tiếp nhận lưu xông phong mà nói, nói được a.
+Trong lòng Mộc Dao bỗng dâng lên một cảm giác áy náy khôn nguôi, lại pha chút hoảng loạn, bất an. Cả bàn ăn này ai nấy đều biết, duy chỉ có người làm bạn gái như cô là mù tịt, ngặt một nỗi cố vắt óc nhớ lại quá khứ, cô thực sự chẳng đọng lại chút ký ức nào về chuyện này.
 
-Nàng đứng dậy cho Triệu Kim An gắp thức ăn.
+“Chẳng lẽ từ trước đến nay... mình thực sự chưa từng quan tâm đến Kim An lấy nửa phần hay sao?”
 
-Nói thực ra, trần trạch có chút hâm mộ, Từ Mạn Mạn cũng sẽ không giống Mộc Dao một dạng cho bạn trai gắp thức ăn.
+Nụ cười trên gương mặt Triệu Kim An vẫn bình thản như nước, không hề có lấy một tia vui mừng.
 
-Diêu tân đột nhiên liền không nói lời nói rồi, nàng biết một bàn này khẳng định không chỉ 4 trăm nhiều, chỉ là không biết thẩm tử nói ra rồi tiền, tưởng rằng trần trạch một người lấy ra của.
+Anh không hề tỏ ra hân hoan trước lời hứa hẹn “sau này em sẽ quan tâm anh nhiều hơn” của Mộc Dao, nhưng cũng chẳng hề lộ vẻ giận hờn, trách móc.
 
-Trần trạch giơ bia lên hỏi thẩm tử nói uống rượu không?
+Anh thậm chí còn đưa tay vỗ nhẹ lên mu bàn tay Mộc Dao một cái, hành động ấy lại càng khiến lòng Mộc Dao thêm phần chua xót, ngột ngạt.
 
-Thẩm tử nói liền lấy bia đụng phải một ly.
+“Kim An dường như... đã không còn bận lòng vì mình nữa rồi.”
 
-Gặp trần trạch cùng thẩm tử nói uống rượu, lưu xông phong cũng cầm bia lên đụng lên tới, thẩm tử nói lại cùng lưu xông phong đụng phải một ly, nói liền một người một ly!
+Chiếc bàn tròn lớn tám người ngồi vô cùng rộng rãi, thoải mái. Mộc Dao nhích chiếc ghế gỗ xích lại gần Triệu Kim An hơn một chút. Những người còn lại vừa ăn vừa rôm rả trò chuyện trên trời dưới biển, Lưu Sùng Phong tỏ ra vô cùng nhiệt tình, săn đón Thẩm Tử Ngôn.
 
-Đáy vực siêu nhận rất câu thúc, hai tay bưng chén lên.
+Thẩm Tử Ngôn khéo léo tiếp lời, nhưng toàn bộ sự chú ý của cô lại dồn cả về phía Triệu Kim An.
 
-Thẩm tử nói rất hào phóng chủ động đưa tay cùng đáy vực siêu nhận chạm cốc, lưu xông phong liền chê cười Triệu Kim An, nói Kim An ngươi một người nam đều không uống rượu, người khác thẩm tử nói một người nữ sinh đều so ngươi sảng khoái.
+Từ Mạn Mạn có vẻ hơi lơ đãng, mất tập trung. Trần Trạch bắt chuyện với cô vài câu không thấy mặn mà, bèn quay sang nhập hội chém gió cùng Lưu Sùng Phong và Thẩm Tử Ngôn.
 
-Không nghĩ tới Mộc Dao đứng dậy cầm bia lên đối với lưu xông phong nói:"ta và ngươi uống!"
+Chẳng mấy chốc, các món ăn thịnh soạn bắt đầu được dọn lên bàn.
 
-"ha ha."
+Nhân viên phục vụ bưng một đĩa cá hấp thơm phức bước vào, đang định mở miệng thuyết minh, giới thiệu về độ tươi ngon quý hiếm của món ăn.
 
-Người không liên quan đều cười.
+Thẩm Tử Ngôn liền nhanh chóng lên tiếng bảo không cần phải giới thiệu rườm rà làm gì. Bởi lẽ nếu để nhân viên thao thao bất tuyệt thổi phồng món ăn lên tận mây xanh, thì ai nấy đều sẽ cảm nhận được ngay món này chắc chắn có giá đắt đỏ đến mức nào.
 
-Lưu xông phong lúng túng gãi gãi đầu, ngươi cũng là nữ sinh.
+Dù không giới thiệu thì người tinh ý vẫn sẽ thầm đoán ra, nhưng điều đó không quan trọng. Miễn là không ai vạch trần ra trước mặt, thì thể diện của mọi người... ngầm hiểu với nhau là được rồi.
 
-Lúc này Từ Mạn Mạn mở miệng, nàng đối với trần trạch nói:"trần trạch ngươi phải lái xe, ít uống rượu một chút."
+Dẫu vậy, Lưu Sùng Phong vẫn tò mò ghé tai hỏi nhỏ:
 
-Uống rượu không lái xe!
+— Anh Trạch ơi, cả bàn tiệc này tính ra hết bao nhiêu tiền thế?
 
-Bất quá 2 0 0 6 năm say rượu lái xe tra được không nghiêm, Triệu Kim An ngẩng đầu nhìn một chút Từ Mạn Mạn, hắn biết Từ Mạn Mạn là có ý định giúp mình giải vây.
+Trần Trạch liếc nhìn Thẩm Tử Ngôn một cái rồi đáp:
 
-Trong bữa tiệc an tĩnh điểm.
+— Tầm hơn ba trăm tệ thôi, cộng cả tiền rượu bia nước ngọt vào thì chắc hơn bốn trăm một chút.
 
-Kỳ thực lưu xông phong nói chuyện là không giữ mồm giữ miệng một chút, nhưng có rồi dạng này người rất hoạt động mạnh bầu không khí, trần trạch cũng rất hoạt động mạnh, nhưng hơi có vẻ non nớt, chưởng khống toàn cục chính là thẩm tử nói.
+— Haha, thế thì cũng đâu có đắt lắm nhỉ!
 
-Ăn trò chuyện, trần trạch đột nhiên hỏi:"Kim An, ngươi biểu tỷ là tại quận cát làm ăn sao? Buôn bán gì?"
+Nhìn mâm cơm đầy ắp sơn hào hải vị, thịt cá ê hề, lại có cả tôm cua tươi rói, Lưu Sùng Phong cười toe toét hào hứng bảo:
 
-Trần trạch đã đem Triệu Kim An liệt vào phú nhị đại rồi, quy nạp vì cùng mình là một loại người.
+— Những buổi liên hoan xôm tụ thế này sau này hai phòng ký túc xá chúng mình cứ mỗi tháng phải tổ chức một lần mới được, xem như là dịp để anh em cải thiện bữa ăn!
 
-Người nơi này còn có thẩm tử nói, trần trạch trong lòng là ít ỏi.
+Trần Trạch: “...”
 
-Hắn tại trong lòng đẩy tự, ba người hẳn là không sai biệt lắm!
+Những người khác chỉ khẽ cười trừ, không ai lên tiếng hưởng ứng.
 
-Có khả năng thẩm tử nói còn tốt
+Mộc Dao bắt lấy lời của Lưu Sùng Phong, tươi cười bảo:
+
+— Được đấy chứ!
+
+Nói rồi, cô nàng đứng dậy gắp thức ăn bỏ vào bát cho Triệu Kim An.
+
+Thú thật, nhìn cảnh tượng ấy, Trần Trạch thầm dâng lên đôi chút ghen tị trong lòng. Từ Mạn Mạn trước giờ chưa bao giờ chủ động đứng lên gắp thức ăn chăm sóc cho bạn trai chu đáo như Mộc Dao cả.
+
+Diêu Tân bỗng nhiên im bặt không nói thêm lời nào. Cô thừa hiểu mâm tiệc này tuyệt đối không thể nào có cái giá bốn trăm tệ, chỉ là cô không biết Thẩm Tử Ngôn đã âm thầm bỏ tiền túi ra bù vào, mà cứ ngỡ Trần Trạch một mình đứng ra bao trọn gói.
+
+Trần Trạch nâng ly bia lên hỏi Thẩm Tử Ngôn có uống được không.
+
+Thẩm Tử Ngôn liền hào sảng cầm ly bia lên cụng một ly.
+
+Thấy Trần Trạch và Thẩm Tử Ngôn đã uống, Lưu Sùng Phong cũng hăm hở cầm ly bia sán lại gần. Thẩm Tử Ngôn lại tiếp tục cụng ly với Lưu Sùng Phong, cười bảo mỗi người chỉ được uống đúng một ly thôi đấy nhé!
+
+Cốc Siêu Thừa là người câu nệ, rụt rè nhất, hai tay bưng chén bia lên đầy cung kính.
+
+Thẩm Tử Ngôn vô cùng phóng khoáng, chủ động đưa tay sang cụng ly với Cốc Siêu Thừa. Lưu Sùng Phong thấy vậy liền quay sang trêu chọc Triệu Kim An:
+
+— Kim An à, mày là đàn ông con trai mà một giọt rượu cũng không dám nhấp, nhìn xem, người ta là con gái như Thẩm Tử Ngôn mà còn sảng khoái, chịu chơi hơn mày gấp vạn lần đấy!
+
+Chẳng ngờ, Mộc Dao lập tức đứng phắt dậy, cầm ly bia lên dõng dạc nói với Lưu Sùng Phong:
+
+— Để tôi uống thay cho anh ấy!
+
+— Haha...
+
+Những người không liên quan trên bàn đều bật cười thành tiếng.
+
+Lưu Sùng Phong ngượng ngùng gãi gãi đầu:
+
+— Ơ kìa, em cũng là con gái mà...
+
+Đúng lúc này, Từ Mạn Mạn khẽ cất tiếng, cô quay sang nhắc nhở Trần Trạch:
+
+— Trần Trạch, lát nữa anh còn phải lái xe chở mọi người về đấy, uống ít rượu thôi kẻo nguy hiểm.
+
+Đã uống rượu thì không lái xe!
+
+Mặc dù vào năm 2006 việc kiểm tra nồng độ cồn chưa gắt gao như sau này, Triệu Kim An vẫn ngẩng đầu lên nhìn Từ Mạn Mạn một cái. Anh hiểu rất rõ, Từ Mạn Mạn mở lời lúc này là đang có ý muốn khéo léo giải vây giúp anh.
+
+Không khí trên bàn tiệc bỗng chốc lắng xuống đôi chút.
+
+Thực ra, tính cách của Lưu Sùng Phong tuy có phần bộc trực, ăn nói bạt mạng thiếu kiêng nể, nhưng chính nhờ có những người như gã mà bầu không khí mới trở nên sôi nổi, náo nhiệt. Trần Trạch cũng rất năng nổ nhưng tính tình vẫn còn đôi nét non nớt của tuổi trẻ, người thực sự nắm giữ và điều phối toàn bộ cục diện của buổi tiệc chính là Thẩm Tử Ngôn.
+
+Vừa ăn vừa chuyện trò rôm rả một hồi, Trần Trạch bỗng tò mò cất tiếng hỏi:
+
+— Này Kim An, chị họ của cậu đang làm kinh doanh buôn bán ở Quận Sa à? Cụ thể là làm bên mảng ngành nghề gì thế?
+
+Trong mắt Trần Trạch, gã đã mặc định xếp Triệu Kim An vào hàng ngũ “phú nhị đại” danh giá, cùng một đẳng cấp thế gia với chính bản thân mình.
+
+Những người cùng mâm ở đây, tính thêm cả Thẩm Tử Ngôn nữa, trong lòng Trần Trạch đều đã có những toan tính, phân định ngầm.
+
+Gã thậm chí còn thầm xếp thứ hạng trong đầu: Cả ba người bọn họ chắc hẳn gia thế cũng một chín một mười, không chênh lệch là bao!
+
+Thậm chí gia cảnh của Thẩm Tử Ngôn có khi còn nhỉnh hơn một bậc...

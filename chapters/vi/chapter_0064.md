@@ -1,239 +1,243 @@
-# Chương 64: Sự Dịu Dàng Của Cậu Đều Dành Cho Người Nhà
+# Chương 64: Cậu đã dành trọn sự dịu dàng cho người nhà
 
-"Chậc, lại cãi nhau rồi."
+> **Tiêu đề gốc**: 第64章 你的温柔全给了你家里人。
 
-Những người đứng ngoài cửa đưa mắt nhìn nhau, Hồ Thần vểnh tai lên nghe ngóng, thầm nghĩ chẳng lẽ mình sắp phải đổi ông chủ rồi sao? Còn nữa, câu "vô ích chơi với anh ba năm" là có ý gì?
+"Haizz, lại cãi nhau ầm ĩ lên rồi kìa."
 
-Lạc tổng à, cho dù phải sống thọ ít đi mười năm thì cũng đáng giá mà.
+Những người đứng bên ngoài nhìn nhau đầy ái ngại. Hồ Thần rướn dài cổ dỏng tai nghe ngóng, bụng thầm nghĩ chẳng lẽ công ty sắp đổi ông chủ mới thật rồi sao? Còn cái câu "hầu cậu chơi không công suốt ba năm trời" rốt cuộc là có ý tứ gì chứ?
 
-Một tiếng sau, Triệu Kim An và Lạc Cẩn Chi bước ra khỏi văn phòng, quần áo cả hai đều chỉnh tề.
+Người đẹp cỡ Lạc tổng kia kìa, cho dù có bắt anh ta phải giảm thọ mười năm tuổi thọ thì cũng đáng giá nghìn vàng chứ chẳng chơi.
 
-Đơn Vĩ canh giữ ở cửa, gọi một tiếng: "Ông chủ."
+Một tiếng đồng hồ sau, Triệu Kim An và Lạc Cẩn Chi cùng nhau bước ra khỏi phòng làm việc, quần áo hai người đều phẳng phiu, chỉnh tề.
 
-Lạc Cẩn Chi liếc nhìn Đơn Vĩ, lại nghiêng người nhìn xuống chiếc Audi A6 dưới lầu, nói: "Triệu tổng, bắt đầu có dáng dấp ông chủ rồi đấy, tôi còn chưa có tài xế riêng đâu."
+Đan Vĩ vẫn đứng nghiêm trang canh gác trước cửa, thấy anh bước ra liền cúi đầu chào: "Ông chủ."
 
-Cô nhớ lại lần đầu tiên Triệu Kim An đến đây vẫn còn phải bắt xe buýt mà về.
+Lạc Cẩn Chi liếc nhìn Đan Vĩ, rồi lại nghé mắt nhìn xuống chiếc Audi A6 dưới sân, mỉm cười trêu: "Triệu tổng ra dáng một ông chủ lớn rồi đấy nhỉ, đến giờ tôi còn chưa có nổi một tài xế riêng đây này."
 
-Mặt trời đã lên cao.
+Cô chợt nhớ lại lần đầu tiên Triệu Kim An tìm đến đây, lúc ra về anh còn phải lóc cóc đi bộ ra trạm bắt xe buýt.
 
-Bầu trời trong vắt như được gột rửa, thỉnh thoảng có vài mảnh lá rụng xoay vần rơi xuống.
+Ánh mặt trời đã bắt đầu ló rạng.
 
-Xuống lầu bước lên chiếc Range Rover, nhìn Đơn Vĩ mở cửa xe cho Triệu Kim An ngồi vào hàng ghế sau, Lạc Cẩn Chi thẩn thờ mất một lúc.
+Bầu trời trong veo như được gột rửa, thi thoảng vài chiếc lá vàng khô khẽ xoay tròn rồi nhẹ nhàng đáp xuống mặt đất.
 
-Cái khí thế này...
+Xuống dưới sảnh rồi ngồi vào trong chiếc Land Rover, nhìn thấy Đan Vĩ cung kính kéo cửa xe để Triệu Kim An ngồi vào hàng ghế sau, Lạc Cẩn Chi bất giác ngẩn người ra một lúc.
 
-Triệu Kim An ngồi ở ghế sau nói: "Đi theo chiếc Range Rover phía trước."
+Cái phong thái uy nghi này...
 
-Lạc Cẩn Chi nhận một cuộc điện thoại ở văn phòng rồi đi ra ngoài, chỉ nói một câu: "Cậu đi theo tôi."
+Triệu Kim An ngồi ngay ngắn ở ghế sau, cất giọng bảo: "Bám sát chiếc Land Rover phía trước."
 
-Mười lăm phút sau, xe dừng lại ở một ngã tư, Lạc Cẩn Chi xuống xe, Triệu Kim An cũng bước xuống theo.
+Ban nãy ở trong phòng làm việc, Lạc Cẩn Chi vừa nghe xong một cuộc điện thoại liền vội vã ra ngoài, chỉ ngoái lại bảo anh đi theo cùng.
 
-Chẳng mấy chốc bọn Hồ Thần cũng đã đuổi tới nơi.
+Mười lăm phút sau, xe dừng lại ở một ngã tư đường. Lạc Cẩn Chi bước xuống, Triệu Kim An cũng mở cửa bước xuống theo.
 
-Lạc Cẩn Chi giơ tay, chỉ vào hai nhóm người đang tranh chấp gay gắt phía trước, nói: "Kim An, đó chính là đối thủ cạnh tranh của chúng ta ở Tư Tinh, cậu nói xem nên xử lý thế nào?"
+Chẳng mấy chốc, nhóm người Hồ Thần cũng vội vã chạy xe máy tới nơi.
 
-"Báo cảnh sát?"
+Lạc Cẩn Chi khẽ vẫy tay, chỉ về phía hai nhóm người đang giằng co, cãi vã kịch liệt ở phía trước, bảo: "Kim An, đằng kia chính là đối thủ cạnh tranh gay gắt nhất của chúng ta ở Tư Hưng này đấy. Cậu bảo xem chuyện này nên xử lý thế nào?
 
-"Hay là lên đó giảng đạo lý với bọn họ?"
+"Báo cảnh sát?
 
-Triệu Kim An không nói gì, hắn biết Lạc Cẩn Chi đang thử thách mình.
+"Hay là bước lên đàng hoàng nói lý lẽ với bọn họ?"
 
-Lạc Cẩn Chi liếc nhìn Triệu Kim An rồi bảo: "Ở những thành phố nhỏ như chúng ta... cậu đã nghe qua 'sa bá' chưa? Có biết kinh doanh đất cát ở Tư Tinh đều do ai làm không?"
+Triệu Kim An im lặng không đáp. Anh thừa hiểu Lạc Cẩn Chi đang cố tình thử thách và muốn nhìn xem bản lĩnh thực sự của mình.
 
-"Chúng ta làm nước khoáng còn tốt chán, bọn họ mới thật sự là hạ thủ đen tối."
+Lạc Cẩn Chi liếc nhìn anh rồi thong thả nói: "Ở những huyện thị nhỏ như thế này của chúng ta... cậu đã từng nghe đến mấy tay 'trùm cát sỏi' bao giờ chưa? Cậu có biết toàn bộ những công trình san lấp mặt bằng ở Tư Hưng này đều do bàn tay ai thâu tóm không?
 
-"Kim An, xã hội không chỉ có mặt tươi sáng, mà còn có mặt tối tăm... chỉ là các cậu không thấy được mà thôi."
+"Bên ngành nước khoáng của chúng ta vẫn còn văn minh chán đấy, bọn làm ăn bên kia mới thực sự là những kẻ ra tay tàn độc, ngầm hạ thủ sau lưng.
 
-Lạc Cẩn Chi cảm thấy tính cách của Triệu Kim An không thích hợp để làm kinh doanh, cũng khó trách kiếp trước Mộc Dao chia tay lại nói ra những lời đó, có lẽ Mộc Dao biểu đạt không quá chính xác.
+"Kim An à, xã hội này không chỉ toàn những mảng màu rực rỡ dưới ánh mặt trời đâu, nó còn có cả những góc khuất tăm tối, nhơ nhuốc nữa... Chẳng qua là người trẻ như các cậu chưa từng va vấp để nhìn thấy mà thôi."
 
-Chính là không thấy được "tính xâm lược" trên người Triệu Kim An.
+Lạc Cẩn Chi vẫn luôn có cảm giác rằng tính cách của Triệu Kim An không hề phù hợp để lăn lộn trên chốn thương trường gió tanh mưa máu. Chẳng trách ở kiếp trước lúc Mộc Dao nói lời chia tay đã buông ra những lời lẽ như thế. Có thể khi ấy Mộc Dao chưa tìm được từ ngữ diễn đạt thật chuẩn xác mà thôi.
 
-"Tính xâm lược" có lẽ chính xác hơn từ "không có dã tâm" mà Mộc Dao đã nói.
+Chính là từ trên người Triệu Kim An, người ta không nhìn thấy được "tính xâm lược", sự hung hăng hiếu chiến.
 
-Triệu Kim An nhìn hai nhóm người đang tranh cãi, không lấy gì làm ngạc nhiên.
+Từ "tính xâm lược" có lẽ diễn tả đúng bản chất hơn rất nhiều so với cụm từ "không có dã tâm" mà Mộc Dao đã nói.
 
-Hai nhóm người của nền tảng giao đồ ăn còn từng đánh nhau cơ mà, ở Quận Sa đám nhân viên kinh doanh trầu cau cũng từng ẩu đả, nói bây giờ là thời đại phát triển hoang dã thì chắc chắn không phải.
+Triệu Kim An đưa mắt nhìn hai nhóm người đang chửi bới, xô đẩy nhau đằng kia, nét mặt không hề tỏ ra chút bất ngờ nào.
 
-Nhưng trong ngành chuyển phát nhanh hiện nay, mấy ông chủ lớn đang dẫn người đi đánh chiếm địa bàn là sự thật.
+Sau này các nhân viên giao hàng của hai nền tảng gọi đồ ăn trực tuyến còn lao vào ẩu đả đẫm máu cơ mà, ngay tại đất Quận Sa các nhân viên tiếp thị giữa các hãng trầu cau cũng từng vác gậy choảng nhau túi bụi. Thời buổi này bảo là thời kỳ man hoang đao búa thì chưa tới mức, nhưng hiện tại trong ngành chuyển phát nhanh, mấy ông trùm lớn đang dẫn theo đàn em trực tiếp tranh giành cướp đoạt địa bàn là chuyện có thật mười mươi.
 
-Nhóm Hồ Thần thấy Lạc Cẩn Chi giơ tay thì đứng yên phía sau không nhúc nhích.
+Nhóm người Hồ Thần thấy Lạc Cẩn Chi giơ tay ra hiệu thì đều ngoan ngoãn đứng im phía sau, không dám manh động.
 
-Triệu Kim An biết, nếu mình tiến lên giảng đạo lý với bọn họ, Lạc Cẩn Chi nhất định sẽ nghĩ, hạng người như cậu thôi thì đi tìm việc gì đó mà làm đi, ở trong văn phòng mà gõ bàn phím.
+Triệu Kim An hiểu rất rõ, nếu bây giờ mình khờ khạo bước lên phía trước nói chuyện đạo lý phải trái với bọn họ, Lạc Cẩn Chi chắc chắn sẽ thầm nghĩ trong bụng rằng: Loại người thư sinh trói gà không chặt như cậu, tốt nhất là nên an phận tìm một công việc văn phòng mà làm, suốt ngày ngồi gõ bàn phím cho xong chuyện.
 
-Lạc Cẩn Chi quay người chăm chú nhìn Triệu Kim An, bọn Hồ Thần cũng nhìn hắn.
+Lạc Cẩn Chi quay người lại, chăm chú quan sát từng cử chỉ của Triệu Kim An. Hồ Thần cùng đám nhân viên cũng đều dồn mọi ánh mắt về phía anh.
 
-Triệu Kim An chỉ nhìn Đơn Vĩ.
+Triệu Kim An chỉ lẳng lặng đưa mắt nhìn sang Đan Vĩ.
 
-Đơn Vĩ hiểu ý, lúc này không thể để tuột xích được.
+Đan Vĩ lập tức hiểu ngay. Những thời khắc then chốt như thế này, tuyệt đối không được phép để tuột xích.
 
-Nhưng hai người ở chung chưa lâu, bốn ngàn tệ tiền lương mà thật sự phải bán mạng sao?
+Thế nhưng hai người quen biết và làm việc cùng nhau chưa được bao lâu, liệu với mức lương bốn nghìn tệ một tháng có đáng để liều mạng bán mạng thế này không?
 
-Lạc Cẩn Chi thử thách Triệu Kim An, Triệu Kim An cũng đang thử thách Đơn Vĩ.
+Lạc Cẩn Chi đang thử thách Triệu Kim An, mà Triệu Kim An cũng đang thử thách lòng trung thành và bản lĩnh của Đan Vĩ.
 
-"Ông chủ, Na Tề..."
+"Ông chủ, Na Tề nhà tôi..."
 
-Triệu Kim An gật đầu.
+Triệu Kim An khẽ gật đầu dứt khoát.
 
-Đơn Vĩ nhìn quanh bốn phía, đi về phía chiếc xe ba gác nhỏ đang chạy tới phía sau.
+Đan Vĩ đảo mắt nhìn quanh bốn phía, rồi bước thẳng về phía chiếc xe ba gác chở nước của công ty vừa chạy tới.
 
-Triệu Kim An còn lùi lại một bước.
+Triệu Kim An thậm chí còn lùi lại phía sau một bước.
 
-Lạc Cẩn Chi nói: "Tôi cứ ngỡ cậu sẽ tự mình xắn tay áo lên xông vào chứ."
+Lạc Cẩn Chi nhướng mày bảo: "Tôi cứ tưởng cậu sẽ đích thân xắn tay áo lao lên chứ."
 
-Triệu Kim An đáp: "Tôi là ông chủ."
+Triệu Kim An thản nhiên đáp: "Tôi là ông chủ."
 
-Nhìn Triệu Kim An lùi lại một bước, Lạc Cẩn Chi im lặng một hồi rồi nói: "Nếu tôi đoán không lầm, cậu và Đơn Vĩ chưa ký hợp đồng, vừa nãy cậu lại không hề lên tiếng."
+Nhìn Triệu Kim An thong thả lùi lại một bước né tránh, Lạc Cẩn Chi ngẫm nghĩ một lúc lâu rồi cười khẩy: "Nếu tôi đoán không lầm, cậu và Đan Vĩ chưa hề ký kết bất kỳ hợp đồng lao động nào, ban nãy cậu lại không hề mở miệng ra lệnh một lời.
 
-"Nếu xảy ra chuyện ngoài ý muốn, đó đều là hành vi cá nhân của Đơn Vĩ, cậu không hề sai khiến anh ta, còn chúng tôi chính là nhân chứng cho cậu."
+"Nếu có chuyện gì bất trắc xảy ra, toàn bộ sẽ quy thành hành vi bột phát cá nhân của riêng Đan Vĩ. Cậu không hề xúi giục hay chỉ đạo ông ta, còn chúng tôi đây sẽ nghiễm nhiên trở thành nhân chứng hoàn hảo làm chứng cho sự vô can của cậu."
 
-Triệu Kim An nói: "Kỹ thuật của Đơn Vĩ rất tốt, sẽ không có chuyện ngoài ý muốn đâu."
+Triệu Kim An bình thản nói: "Tay lái của Đan Vĩ rất vững vàng, sẽ không có chuyện ngoài ý muốn xảy ra đâu."
 
-Lạc Cẩn Chi lườm Triệu Kim An một cái, bảo: "Kim An, không ngờ vẻ ngoài cậu thư sinh như vậy... bên trong lại bụng dạ đen tối đến thế."
+Lạc Cẩn Chi lườm Triệu Kim An một cái thật sâu, khẽ cảm thán: "Kim An, thật không ngờ bề ngoài cậu trông thư sinh, nhã nhặn như thế... mà bên trong lòng dạ lại thâm sâu, cơ mưu đến mức này."
 
-Trong lúc nói chuyện, Đơn Vĩ lái chiếc xe ba gác nhấn mạnh ga tông thẳng vào, một tiếng "ầm" vang dội, những bình nước khoáng trên xe lăn xuống đất, hai nhóm người đang tranh cãi từ sớm đã né ra xa.
+Trong lúc hai người đang nói chuyện, Đan Vĩ đã nhảy lên chiếc xe ba gác, nhấn hết ga lao thẳng về phía trước. Kèm theo một tiếng "rầm" chát chúa vang dội, toàn bộ những bình nước khoáng chất trên xe đổ ụp xuống đường lăn lông lốc. Hai nhóm người đang giằng co đằng kia sợ khiếp vía, đã sớm hoảng loạn nhảy dạt sang hai bên lề đường.
 
-"Mẹ kiếp, dũng sĩ ở đâu ra thế này? Mày thật sự liều mạng à!"
+"Đờ mờ! Thằng điên dũng cảm ở đâu chui ra thế này? Mày muốn tìm cái chết thật đấy à?!"
 
-Nhìn thấy logo của Đông Giang Ấn Tượng, người của Mãng Sâm Lâm sợ rồi.
+Nhìn thấy logo thương hiệu Đông Giang Ấn Tượng in trên sườn xe, đám người của bên công ty Mãng Sâm Lâm sợ xanh cả mặt.
 
-Chút tiền lương đó mà mày dám liều mạng sao!?
+Lương bèo bọt mấy đồng bạc mà dám đem cả tính mạng ra đùa thế này ư?!
 
-Đơn Vĩ lúc không cười trông thật sự rất hung dữ, chiếc xe ba gác anh ta lái cũng suýt chút nữa thì lật nghiêng.
+Đan Vĩ những lúc không cười trông khuôn mặt vô cùng dữ tợn và hung hãn. Chiếc xe ba gác do ông điều khiển vừa rồi suýt chút nữa cũng bị lật nghiêng sang một bên.
 
-Bọn Hồ Thần thấy vậy cũng chạy tới, đừng để xảy ra chuyện thật.
+Hồ Thần cùng mấy anh em thấy thế liền hớt hải chạy ùa tới can thiệp, sợ có chuyện đổ máu xảy ra thật thì nguy to.
 
-Triệu Kim An nhìn Lạc Cẩn Chi, hỏi: "Hài lòng chưa?"
+Triệu Kim An quay sang nhìn Lạc Cẩn Chi, nhàn nhạt hỏi: "Chị đã vừa lòng chưa?"
 
-"Cậu giận cái gì chứ!?"
+"Cậu việc gì phải bực bội thế?!"
 
-Lạc Cẩn Chi nói: "Cậu tự soi gương đi, đang yên đang lành không làm tiểu bạch kiểm..."
+Lạc Cẩn Chi nói: "Cậu tự soi gương lại xem, đang yên đang lành làm một chàng trai khôi ngô tuấn tú không muốn, lại cứ thích..."
 
-Triệu Kim An cũng không biết mình đang giận cái gì, là sự phủ định đối với kiếp trước của mình? Hay là một sự giải tỏa sau khi nhìn thấy Tống Siêu Văn đêm qua, hay là nhớ tới đánh giá của Mộc Dao khi chia tay...
+Chính Triệu Kim An cũng không rõ mình đang bực bội vì điều gì. Là sự phủ nhận cay đắng đối với kiếp trước nhu nhược của bản thân? Hay là một sự giải tỏa ẩn ức sau khi nhìn thấy bóng dáng Tống Siêu Văn đêm qua? Hay là do chợt nhớ lại những lời phán xét phũ phàng của Mộc Dao trong ngày hai người chia tay...
 
-Cảnh sát giao thông đã đến.
+Cảnh sát giao thông nhanh chóng có mặt tại hiện trường.
 
-Không có thương vong về người, Đơn Vĩ nói mình đạp nhầm chân phanh, người của Mãng Sâm Lâm thì cứ bám lấy không buông.
+Rất may không có thương vong nào về người. Đan Vĩ khai với biên bản rằng mình đạp nhầm chân phanh, nhưng phía công ty Mãng Sâm Lâm vẫn nhất quyết túm lấy không chịu buông tha.
 
-Triệu Kim An nói: "Chị Cẩn Chi, chẳng lẽ chị ở Tư Tinh này không có chút quan hệ nào sao?"
+Triệu Kim An nghiêng đầu hỏi: "Cẩn Chi tỷ, ở mảnh đất Tư Hưng này chị không đến mức chẳng có chút quan hệ nào đấy chứ?"
 
-"Giờ mới biết gọi là chị Cẩn Chi à?"
+"Bây giờ mới biết ngọt nhạt gọi Cẩn Chi tỷ à?"
 
-Lạc Cẩn Chi rút điện thoại ra gọi vài cuộc.
+Lạc Cẩn Chi rút điện thoại ra bấm gọi vài cuộc.
 
-Đơn Vĩ bồi thường một ít tiền, đến buổi chiều đã quay về.
+Đan Vĩ chỉ phải bồi thường một khoản tiền nhỏ rồi đến buổi chiều đã được giải quyết cho về.
 
-Chuyện này có thể lớn cũng có thể nhỏ, có thể là tai nạn giao thông, cũng có thể là cố ý giết người. Triệu Kim An gọi mấy món ở quán cơm dưới lầu, Đơn Vĩ hỏi: "Ông chủ, bọn họ hài lòng chưa?"
+Loại chuyện va chạm này nói lớn thì lớn, có thể quy thành tai nạn giao thông thông thường mà cũng có thể khép vào tội cố ý gây thương tích. Triệu Kim An đưa ông vào một quán ăn dưới chân tòa nhà gọi vài món tươm tất. Đan Vĩ vừa ngồi xuống vừa rụt rè hỏi: "Ông chủ, bọn họ đã vừa lòng chưa ạ?"
 
-Triệu Kim An định mở lời nói gì đó.
+Triệu Kim An vốn định mở lời nói điều gì đó an ủi.
 
-Đơn Vĩ lại nói tiếp: "Ông chủ, tôi tính toán cả rồi, bọn họ chạy ra rồi tôi mới tông vào. Với lại, ông chủ, tôi chỉ có mỗi mình Na Tề là con gái thôi..."
+Đan Vĩ lại thật thà bộc bạch: "Sếp ơi, tôi có tính toán kỹ lưỡng cả rồi đấy chứ, đợi bọn họ hoảng loạn tản ra hết tôi mới đâm xe vào. Với lại... sếp ơi, cả đời này tôi chỉ có độc mỗi một mụn con gái là Na Tề...
 
-"Tôi vừa ra ngoài gọi điện cho Na Tề, Na Tề nói có thể tin tưởng cậu."
+"Lúc nãy vừa ra khỏi đó tôi đã gọi điện cho Na Tề rồi, con bé bảo tôi hoàn toàn có thể tin tưởng nơi sếp."
 
-Triệu Kim An nói: "Cuồng con gái sao?"
+Triệu Kim An khẽ cười: "Anh đúng là người cha cuồng con gái nhỉ?"
 
-Đơn Vĩ cười, nụ cười có chút chất phác: "Vì con gái, chuyện gì tôi cũng sẵn lòng làm."
+Đan Vĩ mỉm cười, nét mặt lộ rõ vẻ chất phác, đôn hậu: "Vì con gái, chuyện gì tôi cũng sẵn sàng làm hết."
 
-Triệu Kim An vốn định đưa cho Đơn Vĩ một số tiền rồi "vui vẻ đường ai nấy đi", chẳng ai ngu ngốc cả, hắn sợ Đơn Vĩ nảy sinh hiềm khích, lòng phòng người không thể không có...
+Ban đầu Triệu Kim An đã dự tính sẽ chi cho Đan Vĩ một khoản tiền lớn rồi "chia tay trong êm đẹp", bởi trên đời chẳng ai là kẻ ngốc cả, anh sợ Đan Vĩ sẽ sinh lòng oán hận, phòng người hơn phòng hỏa hoạn... Nhưng nghe những lời gan ruột này, anh đã thay đổi ý định.
 
-Cùng Đơn Vĩ ăn cơm xong, buổi chiều đi một chuyến đến nhà máy nước, Lạc Cẩn Chi và Hồ Thần đi cùng.
+Cùng Đan Vĩ ăn xong bữa cơm trưa, buổi chiều Triệu Kim An đi một chuyến xuống nhà máy nước, Lạc Cẩn Chi và Hồ Thần đích thân tháp tùng.
 
-Trong thời gian đó, Lưu Sấm Phong gọi điện tới hỏi Triệu Kim An đi đâu rồi.
+Trong lúc đó, Lưu Sấm Phong có gọi điện tới hỏi Triệu Kim An đang ở đâu.
 
-Thẩm Tử Ngôn chắc hẳn đã biết từ chỗ Lưu Sấm Phong rằng Triệu Kim An rời khỏi Hiên Tụ Đức là biến mất luôn, hơn nữa cả đêm không về ký túc xá, cô cũng gửi cho Triệu Kim An một tin nhắn.
+Thẩm Tử Ngôn chắc hẳn đã nghe Lưu Sấm Phong kể lại chuyện Triệu Kim An biến mất sau khi rời khỏi Hiên Tụ Đức và không về phòng suốt cả đêm, cô cũng gửi cho anh một tin nhắn hỏi thăm.
 
-Thẩm Tử Ngôn và Từ Mạn Mạn đều rất thông minh, không hề nói những câu kiểu như "Hai trăm tệ đó tôi trả cho cậu rồi".
+Thẩm Tử Ngôn và Từ Mạn Mạn đều là những cô gái vô cùng thông minh, tinh tế, họ tuyệt nhiên không hề nhắc đến những câu tế nhị như "hai trăm tệ kia tôi đã trả hộ cậu rồi".
 
-Rời khỏi khu du lịch, Triệu Kim An nhìn thời gian rồi rút điện thoại gọi cho Vương Kim Như.
+***
 
-Điện thoại nhanh chóng được kết nối.
+Từ khu thắng cảnh suối khoáng bước ra, Triệu Kim An liếc nhìn đồng hồ rồi rút điện thoại bấm số gọi cho thím Vương Kim Như.
 
-"Thím, Tiểu Duyệt Thiên đã đi học về chưa?"
+Đầu dây bên kia nhanh chóng nhấc máy.
 
-Tại Triệu Kim An Gia thôn, Vương Kim Như nói vài câu rồi đưa điện thoại cho Triệu Duyệt Thiên. Triệu Duyệt Thiên đang ngồi trên chiếc ghế thấp ở cổng lớn, ôm điện thoại vô cùng phấn khích hét lên: "Anh ơi!!"
+"Thím à, bé Duyệt Thiên đã đi học về chưa thím?"
 
-"Cầm cho chắc điện thoại vào!"
+Ở Triệu Gia Thôn, Vương Kim Như nói được đôi câu liền vội vã đưa điện thoại cho con gái Triệu Duyệt Thiên. Bé Duyệt Thiên đang ngồi trên chiếc ghế đẩu thấp trước cửa nhà, hai tay ôm khư khư lấy chiếc điện thoại, reo lên mừng rỡ: "Anh hai!!"
 
-Vương Kim Như dặn thêm một câu rồi vội vội vàng vàng rời đi.
+"Cầm cho chắc tay vào đấy!"
 
-"Tiểu Duyệt Thiên, bà nội và mẹ đi làm gì rồi?"
+Vương Kim Như dặn với lại một câu rồi vội vã quay người đi làm việc.
 
-Triệu Duyệt Thiên ôm điện thoại nói: "Bà nội lại nuôi một con lợn con, mẹ và bà nội đi cho lợn ăn rồi ạ."
+"Bé Duyệt Thiên ngoan, bà nội với mẹ đang làm gì thế em?"
+
+Triệu Duyệt Thiên ôm điện thoại líu lo: "Bà nội lại mới bắt thêm một con lợn giống nữa rồi anh, mẹ với bà đang ra chuồng cho lợn ăn đấy ạ."
 
 "Thế còn em?"
 
-"Anh ơi, em đang viết bài tập."
+"Anh ơi, em đang ngồi làm bài tập về nhà."
 
-Triệu Duyệt Thiên không có phòng học hay bàn học tử tế, lúc Triệu Kim An còn nhỏ cũng vậy, đi học về là ngồi ở cổng lớn trên một chiếc ghế thấp, dùng một chiếc ghế khác làm bàn để tận dụng ánh sáng mà viết bài.
+Triệu Duyệt Thiên không có phòng đọc sách riêng, cũng chẳng có chiếc bàn học đàng hoàng. Hồi nhỏ Triệu Kim An cũng y như vậy, cứ mỗi buổi chiều tan học về nhà là lại mang một chiếc ghế đẩu thấp và một chiếc ghế gỗ ra ngồi ngay trước bậc cửa lớn, tranh thủ ánh sáng hoàng hôn le lói để cặm cụi viết bài.
 
-"Tiểu Duyệt Thiên đi học có khóc nhè không?"
+"Bé Duyệt Thiên đi học ở trường có khóc nhè không đấy?"
 
-"Không có ạ."
+"Dạ không có đâu anh."
 
-Triệu Duyệt Thiên rất hiểu chuyện, có lẽ có khóc cũng sợ anh cười nên không thừa nhận, con bé ôm điện thoại đột nhiên hỏi: "Anh ơi, khi nào anh về nhà?"
+Triệu Duyệt Thiên rất hiểu chuyện, có lẽ cũng có lúc khóc nhè nhưng sợ anh hai cười chê nên nhất quyết không chịu thừa nhận. Con bé ôm chặt điện thoại, chợt cất giọng nũng nịu hỏi: "Anh ơi, bao giờ anh mới về nhà thăm em?"
 
-Triệu Kim An im lặng một lát rồi bảo: "Anh sắp về đến nhà rồi đây."
+Triệu Kim An im lặng mất vài giây, rồi khẽ đáp: "Anh hai sắp về tới nhà rồi đây."
 
-Không ngờ Triệu Duyệt Thiên vui mừng nhảy cẫng lên, hét lớn với bà nội và mẹ đang cho lợn ăn không xa: "Bà nội ơi, mẹ ơi, anh bảo sắp về đến nhà rồi kìa!!!"
+Không ngờ Triệu Duyệt Thiên mừng rỡ nhảy cẫng lên, hướng về phía chuồng lợn đằng xa nơi bà nội và mẹ đang lúi húi làm việc mà hét toáng lên: "Bà nội ơi, mẹ ơi! Anh hai bảo anh ấy sắp về tới nhà mình rồi này!!!"
 
-Trong điện thoại còn nghe thấy tiếng cười của Vương Kim Như.
+Qua ống nghe điện thoại vẫn có thể nghe thấy tiếng cười giòn giã của Vương Kim Như vọng lại.
 
-"Cái con bé ngốc này, anh con đang đi học ở Quận Sa mà!"
+"Cái con bé ngốc này, anh hai mày đang đi học tít trên Quận Sa cơ mà!"
 
-Triệu Duyệt Thiên cũng không hiểu rõ lắm, trước đây Triệu Kim An đi học nội trú cùng lắm là một tháng sẽ về nhà một chuyến, lần này anh dường như đã rất lâu rồi chưa về nhà.
+Triệu Duyệt Thiên còn quá nhỏ nên chưa hiểu hết được. Trước đây Triệu Kim An đi học nội trú cấp ba thì nhiều nhất là một tháng cũng sẽ về nhà một lần, nhưng lần này cảm giác như anh hai đã đi rất lâu, rất lâu rồi chưa về.
 
-"Lo mà viết bài tập đi, sau này còn đi học đại học giống như anh con!"
+"Lo mà chăm chỉ viết bài tập đi, sau này phải đỗ đại học giỏi giang như anh hai mày đấy!"
 
-Đây lại là giọng của Vương Kim Như.
+Đó lại là giọng nói sang sảng quen thuộc của Vương Kim Như.
 
-Việc Triệu Kim An thi đỗ Sư Đại không chỉ là niềm tự hào của bà nội.
+Chuyện Triệu Kim An thi đỗ Đại học Sư phạm không chỉ là niềm tự hào vô bờ bến của bà nội.
 
-Mà còn là niềm tự hào của Vương Kim Như.
+Đó cũng là niềm hãnh diện tột cùng của thím Vương Kim Như.
 
-Nếu không, số tiền bà nội bán lợn, nếu Vương Kim Như thật sự so đo tính toán thì một nửa là của thím, thím đều nhắm mắt cho qua để cho bà nội "cất" đi.
+Nếu không thì số tiền bán lợn của bà nội, nếu Vương Kim Như thực sự là người so đo tính toán chi li, thì một nửa số tiền đó phải thuộc về phần của bà. Nhưng bà vẫn luôn mắt nhắm mắt mở để bà nội giữ lại "dành dụm" cho Triệu Kim An ăn học.
 
-Nửa tiếng sau, một chiếc Range Rover màu trắng và một chiếc Audi A6 màu đen từ ngã rẽ chạy xuống dốc.
+***
 
-"Kim An, căn nhà nào là nhà cậu?"
+Nửa tiếng sau, một chiếc Land Rover màu trắng và một chiếc Audi A6 màu đen từ ngã ba đường từ từ lăn bánh chầm chậm xuống con dốc đất.
 
-Ở ghế phụ, Triệu Kim An cất điện thoại, Lạc Cẩn Chi đang lái chiếc Range Rover của cô. Chiếc xe này Doãn Hiểu Lan từng thấy qua, cô ấy còn nói với bà nội rằng Kim An nghỉ hè đi làm thêm rồi.
+"Kim An, căn nhà nào là nhà của em thế?"
 
-Ngày hôm đó bà nội không hỏi gì cả, chỉ làm thêm hai món mà cháu trai thích ăn.
+Ngồi ở ghế phụ, Triệu Kim An cất điện thoại vào túi. Lạc Cẩn Chi đang trực tiếp cầm lái chiếc Land Rover của cô. Chiếc xe này Doãn Hiểu Lan từng nhìn thấy một lần, hồi nghỉ hè cô dâu họ ấy còn chạy về bảo với bà nội rằng Kim An đã tìm được công việc làm thêm trong kỳ nghỉ.
 
-"Ông chủ là người ở đây sao?"
+Hôm đó bà nội chẳng gặng hỏi nửa lời, chỉ lẳng lặng xuống bếp xào thêm hai món ăn mà đứa cháu trai yêu quý thích nhất.
 
-Đơn Vĩ lái xe đi phía sau luôn nghĩ rằng gia cảnh Triệu Kim An rất tốt, nhìn hai túi lớn McDonald's ở ghế phụ, là Triệu Kim An vừa dặn dò anh đi mua.
+"Ông chủ là người ở vùng quê này thật sao?"
 
-Hồ Thần ở hàng ghế sau cũng rất tò mò, bây giờ anh ta không dám coi thường Triệu Kim An nữa.
+Đan Vĩ lái chiếc xe A6 chạy nối đuôi ngay phía sau. Ông vẫn luôn đinh ninh rằng hoàn cảnh gia đình của Triệu Kim An rất giàu có, bề thế. Nhìn hai túi lớn đồ ăn nhanh McDonald's đặt ở ghế phụ mà ban nãy Triệu Kim An vừa dặn ông ghé mua, trong lòng không khỏi bùi ngùi.
 
-Người này trông thư sinh như thế, mà lúc ác lên thì thật sự rất thâm hiểm.
+Hồ Thần ngồi ở hàng ghế sau cũng tò mò đưa mắt dòm ngó. Giờ đây anh ta tuyệt đối không dám coi thường chàng trai trẻ này nữa rồi.
 
-Hồ Thần liếc nhìn Đơn Vĩ đang lái xe, buổi sáng anh ta đứng bên cạnh đã nghe thấy những lời Lạc Cẩn Chi nói, Triệu Kim An có thể "bán" đứng Đơn Vĩ bất cứ lúc nào, mà bản thân lại phủi sạch sành sanh.
+Người thanh niên này trông dáng vẻ thì thư sinh, nho nhã, nhưng một khi đã ra tay thì sự tàn nhẫn, thâm sâu và mưu lược bên trong thực sự khiến người ta phải lạnh gáy.
 
-Hạng người này... quả nhiên càng học nhiều... càng bạc tình.
+Hồ Thần liếc nhìn Đan Vĩ đang lái xe. Hồi sáng anh ta đứng bên cạnh đã nghe rõ mồn một từng lời Lạc Cẩn Chi phân tích: Triệu Kim An bất cứ lúc nào cũng có thể phủi tay "bán đứng" Đan Vĩ, còn bản thân thì ung dung đứng ngoài vòng pháp luật trong sạch như tờ giấy trắng.
 
-Triệu Kim An Gia thôn chỉ có trưởng thôn là có chiếc Toyota cũ, đột nhiên có hai chiếc xe như thế này đi vào, người biết người không, không ít người tỏ ra tò mò.
+Loại người này... quả đúng là học thức càng cao... tâm cơ lại càng lạnh lùng, sắt đá.
 
-"Người quen nhà ai thế nhỉ?"
+Ở Triệu Gia Thôn, duy nhất chỉ có ông trưởng thôn là tậu được một chiếc Toyota cũ nát. Bỗng dưng chiều nay lại có hai chiếc xe hơi sang trọng bóng lộn từ từ tiến vào làng, người nhận ra nhãn hiệu xe có, người không biết cũng nhiều, khiến không ít bà con lối xóm hiếu kỳ túa ra xem.
 
-Có nhà ăn cơm tối sớm, đang bưng bát ngồi ngoài sân ăn cơm.
+"Xe nhà bà con nào về chơi thế nhỉ?"
 
-Từng người bưng bát rướn người ra, vẻ mặt đầy hóng hớt, xem xe lái vào nhà nào.
+Có những nhà ăn cơm tối sớm, mọi người đang bưng bát cơm ra trước khoảng sân gạch ngồi hóng gió.
 
-Lạc Cẩn Chi cười nói: "Kim An, thế này của cậu có tính là áo gấm về làng không?"
+Ai nấy đều vừa và cơm vừa rướn cổ ngó nghiêng, vẻ mặt đầy tò mò hóng hớt, muốn xem hai chiếc xe sang kia rốt cuộc sẽ rẽ vào nhà ai.
 
-Đúng lúc đi ngang qua nhà Triệu Bác Lan, Triệu Kim An liếc nhìn một cái rồi đáp: "Bây giờ thì chưa tính."
+Lạc Cẩn Chi khẽ mỉm cười trêu: "Kim An, chuyến này của em có tính là áo gấm về làng không đấy?"
 
-Lạc Cẩn Chi nhìn quanh hai bên, hỏi: "Chỉ đưa một vạn tệ thôi sao?"
+Xe vừa vặn chạy ngang qua cổng nhà Triệu Bác Lan. Triệu Kim An liếc mắt nhìn một cái, điềm đạm đáp: "Bây giờ thì chưa tính là như vậy."
 
-"Ừm."
+Lạc Cẩn Chi ngó nghiêng chung quanh, hỏi tiếp: "Chỉ biếu một vạn tệ thôi thật à?"
 
-Triệu Kim An gật đầu, nghiêm túc nói: "Đưa nhiều quá họ sẽ nghĩ ngợi nhiều, buổi tối bà nội sẽ mất ngủ mất."
+"Vâng."
 
-Lạc Cẩn Chi nhìn Triệu Kim An hồi lâu, chớp mắt cười hỏi: "Vậy một vạn tiền lương này tôi đưa cho ai đây? Bà nội hay là thím của cậu? Hay là mỗi người năm ngàn?"
+Triệu Kim An khẽ gật đầu, nghiêm túc nói: "Đưa nhiều quá người nhà sẽ suy nghĩ lung tung, đêm về bà nội sẽ lo lắng đến mất ngủ."
 
-"Đúng rồi, còn nhà mẹ cậu có đi không?"
+Lạc Cẩn Chi ngắm nhìn Triệu Kim An hồi lâu, khẽ chớp mắt cười hỏi: "Thế một vạn tệ tiền lương này chị nên trao tận tay cho ai đây? Cho bà nội hay cho thím của em? Hay là chia đều mỗi người năm nghìn?"
 
-Triệu Kim An nói: "Chị lo mà lái xe đi, đừng có lao xuống mương đấy."
+"À đúng rồi, thế còn bên nhà mẹ đẻ của em có ghé qua không?"
 
-Lạc Cẩn Chi vén tóc, mắt nhìn phía trước, im lặng một lúc rồi nói: "Kim An, nhìn cậu gọi điện cho em gái... bao nhiêu sự dịu dàng của cậu đều dành hết cho người nhà rồi."
+Triệu Kim An nói: "Chị tập trung lái xe cho cẩn thận vào, kẻo lao xuống mương bây giờ."
+
+Lạc Cẩn Chi khẽ vuốt lại lọn tóc mai, mắt nhìn thẳng về phía trước, im lặng một lúc rồi nhẹ nhàng nói: "Kim An này, lúc nãy nhìn em gọi điện thoại nói chuyện với em gái... Chị mới nhận ra, toàn bộ sự dịu dàng, ấm áp nhất của em đều đã dành trọn hết thảy cho người nhà mình rồi."

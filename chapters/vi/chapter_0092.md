@@ -1,239 +1,241 @@
-# Chương 92: Có Núi Vàng Cũng Sẽ Phá Sản Sạch
+# Chương 92: Có cả núi vàng cũng bị phá sạch
 
-Triệu Chí Dũng cưỡi mô tô từ bên ngoài trở về, lần này số người gọi "thím nhỏ" lại càng nhiều hơn.
+> **Tiêu đề gốc**: 第92章 有座金山都会败光。
 
-Có người dẫn đầu, đám đàn ông kia liền cười hùa theo: "Cảm ơn thím nhỏ!"
+Triệu Trí Dũng phóng xe máy từ ngoài đường lớn quay về, lần này số người cất tiếng gọi "thím nhỏ" lại càng đông hơn trước.
 
-Còn cố ý thêm vào một chữ "nhỏ".
+Có người đi đầu mở màn, đám đàn ông con trai trong làng liền cười rộ lên rồi ùa theo trêu chọc: "Cảm ơn thím nhỏ nhé!"
 
-Trong đó không thiếu những người đàn ông đã ba bốn mươi tuổi.
+Lại còn cố tình thêm vào một chữ "nhỏ".
 
-Càng gọi, Triệu Kim An càng không cười nổi nữa, hắn và Tô Miền rõ ràng là "băng thanh ngọc khiết" mà.
+Bởi lẽ trong số những người vừa cất tiếng chào, chẳng thiếu những ông chú đã ngoài ba, bốn mươi tuổi.
 
-Người phụ nữ này quá giỏi mua chuộc lòng người!
+Tiếng gọi cứ vang lên liên hồi khiến Triệu Kim An đứng một bên dở khóc dở cười, chẳng biết nên vui hay nên méo mặt. Anh với Tô Miến rõ ràng vẫn còn trong sạch như băng như ngọc kia mà.
 
-Tô Miền làm loạn một trận thế này, sau này hắn còn đưa cô gái nào về được nữa?
+Người phụ nữ này quả thực quá biết cách mua chuộc lòng người!
 
-Đám người này mà thấy thím đổi người, chẳng phải sẽ đuổi mình ra khỏi Triệu Kim An Gia thôn sao?
+Tô Miến cứ bày ra cái màn này, thử hỏi sau này anh làm sao dám dẫn cô gái nào khác về làng nữa đây?
 
-"Thím!"
+Đám người trong họ này mà thấy anh đổi thím khác, chẳng hợp sức đuổi cổ anh ra khỏi thôn Triệu Gia ngay ấy chứ chẳng đùa!
 
-Vương Kim Như đang đứng chắn ở cửa phòng ngủ nhà mình, Triệu Chí Dũng cười hì hì nói: "Đĩa hạt dưa, đậu phộng bên ngoài hết sạch rồi, thím nhỏ Tô Miền bảo cháu vào lấy thêm."
+"Thím ơi!"
 
-Hàng Tết mua về đều để ở nhà Vương Kim Như. Triệu Quốc Khánh và Triệu Quốc Hoa đã phân gia, bà nội sống cùng con trai út là Triệu Quốc Hoa.
+Vương Kim Như đang đứng chắn ngay trước cửa phòng ngủ nhà mình, Triệu Trí Dũng liền cười hề hề nói: "Đĩa hạt dưa với đậu phộng ngoài sân mọi người cắn hết sạch rồi ạ, thím nhỏ Tô Miến bảo cháu vào lấy thêm."
 
-Sau khi Đoạn Thu Bình tái giá, Triệu Kim An cũng ăn cơm cùng gia đình chú.
+Đồ sắm Tết mua về đều cất cả trong buồng của Vương Kim Như. Năm xưa Triệu Quốc Khánh và Triệu Quốc Hoa đã phân chia gia sản rõ ràng, bà nội sống chung với gia đình người con trai út là Triệu Quốc Hoa.
 
-"Cái nhà này rồi sẽ bị cô ta dọn trống không cho xem!"
+Sau khi Đoàn Thu Bình tái giá, Triệu Kim An cũng theo chân ăn chung mâm chung bát với gia đình chú thím.
 
-Vương Kim Như hậm hực thốt một câu, nhưng vẫn tránh đường.
+"Cái nhà này rồi cũng bị nó khuân sạch cho mà xem!"
 
-Bà tựa vào cửa, hai tay khoanh trước ngực: "Tôi nói cho anh biết, cái nhà này không có tôi quán xuyến là không xong đâu. Kim An với Tô Miền nhìn chẳng giống người biết lo liệu cuộc sống gì cả, tôi còn phải trông chừng họ một chút."
+Vương Kim Như bực dọc lầu bầu một câu, nhưng rồi vẫn nghiêng người nhường lối cho nó vào.
 
-"Phải phải phải."
+Bà thím dựa lưng vào khung cửa, hai tay khoanh trước ngực hậm hực: "Tao nói cho mày biết nhé, cái nhà này mà không có tao đứng ra làm chủ quán xuyến là hỏng bét hết. Thằng Kim An với con bé Tô Miến nhìn chẳng có nét gì là biết vun vén tằn tiện cho cuộc sống gia đình cả, kiểu gì cũng phải để tao để mắt trông chừng hai đứa nó mới yên tâm được."
 
-Triệu Chí Dũng đáp lại một cách không mấy thành ý.
+"Vâng vâng vâng, thím nói chí phải."
 
-Vương Kim Như cũng có cảm giác như bị Tô Miền "trộm mất nhà". Quan niệm giữ nhà của bà và Tô Miền xung đột gay gắt, mà cái nhà này vốn luôn do một tay Vương Kim Như lo liệu.
+Triệu Trí Dũng miệng dạ vâng lia lịa nhưng trong bụng chẳng có nửa phần thành ý.
 
-Bây giờ hình như ai nấy đều nghe lời Tô Miền rồi!
+Bản thân Vương Kim Như lúc này cũng dâng lên một cảm giác như vừa bị Tô Miến "đột kích chiếm đoạt mất căn cứ". Quan niệm lo toan tề gia của bà thím và Tô Miến hoàn toàn xung đột gay gắt với nhau, từ trước tới nay cái nhà này vốn do một tay Vương Kim Như quán xuyến thu xếp.
 
-Phân gia?
+Thế mà giờ đây, dường như mọi người ngoài kia đều nhất nhất nghe theo lời của Tô Miến hết rồi!
 
-Trong tiềm thức của Vương Kim Như chưa bao giờ nghĩ đến chuyện này.
+Chia nhà ở riêng ư?
 
-Bên ngoài, tiếng lợn kêu thảm thiết.
+Trong tiềm thức sâu xa của Vương Kim Như, bà thím chưa bao giờ mảy may nghĩ đến chuyện này.
 
-Mấy người đàn ông hợp lực treo ngược con lợn lên.
+Ngoài sân, tiếng lợn bị chọc tiết kêu thét lên thảm thiết.
 
-"Thím nhỏ, thím có muốn ngồi xa ra một chút không?"
+Mấy người đàn ông lực lưỡng cùng nhau hợp sức treo ngược con lợn tạ lên giá gỗ.
 
-Cảnh tượng tàn nhẫn thế này, họ nghĩ đến Tô Miền đầu tiên.
+"Thím nhỏ ơi, thím có muốn ngồi lùi ra xa một chút cho đỡ sợ không?"
 
-Tô Miền nhìn không chớp mắt, đáp: "Không sao."
+Đối diện với cảnh tượng chém giết máu me có phần man rợ này, việc đầu tiên đám đàn ông nghĩ tới là lo lắng cho cảm nhận của Tô Miến.
 
-Triệu Duyệt Thiên tựa vào chân Tô Miền, bịt chặt tai lại.
+Tô Miến mắt không chớp nhìn thẳng về phía trước, điềm đạm đáp: "Không sao đâu ạ."
 
-Tô Miền không bịt tai mình, mà lại đưa tay giúp Triệu Duyệt Thiên bịt tai.
+Triệu Duyệt Thiên nép sát đầu vào đùi Tô Miến, hai tay bịt chặt lấy lỗ tai.
 
-Đám trẻ con xung quanh chẳng đứa nào sợ, đều bịt tai đứng xem náo nhiệt.
+Tô Miến không tự bịt tai mình, trái lại còn nhẹ nhàng vươn tay ra giữ lấy tai cho bé Duyệt Thiên.
 
-Vương Kim Như ra ngoài ngó một cái, rồi vào bếp nói: "Mẹ, con lợn Tết này giết trắng rồi, ngoài kia toàn là người, chẳng còn dư lại bao nhiêu đâu."
+Bao nhiêu đứa trẻ con xúm xít vây quanh chẳng có lấy một đứa nào tỏ ra sợ hãi, đứa nào đứa nấy đều giơ tay bịt tai tròn mắt đứng xem từ đầu đến cuối.
 
-Trong nồi đang chiên trứng ốp la, bà nội nói: "Không còn dư thì thôi, người ta đã đến thì gọi mọi người ở lại ăn cơm, phải ăn no ăn ngon."
+Vương Kim Như bước ra cửa ngó nghiêng một cái rồi lại quay tót vào bếp than thở: "Mẹ ơi, con lợn Tết này nhà mình coi như mổ công cốc rồi, ngoài sân đông nghìn nghịt toàn là người với người, lát nữa chẳng còn sót lại được miếng thịt nào đâu."
 
-Vương Kim Như bực bội: "Ăn no ăn ngon xong là lợn cũng hết luôn."
+Trong chảo mỡ đang xèo xèo rán trứng ốp lết, bà nội thong thả nói: "Không còn thì thôi, người trong làng đã cất công đến đông đủ thì cứ mời mọi người ở lại ăn bữa cơm tất niên, phải lo cho bà con ăn no ăn ngon mới được."
 
-Doãn Hiểu Lan nói: "Cơm nước cho ngần ấy người không dễ nấu đâu, hôm nay cứ như làm đám tiệc vậy."
+Vương Kim Như tức tối buông một câu càu nhàu: "Ăn no ăn ngon đồng nghĩa với việc mất toi con lợn chứ còn gì nữa."
 
-Điền Thúy Phượng tiếp lời: "Vậy thì ra ngoài dựng thêm cái bếp, dù sao họ cũng đã nhóm lửa rồi. Lát nữa ai đứng thì đứng, ai ngồi thì ngồi, không quản được nhiều thế đâu, như vậy trái lại còn có không khí hơn."
+Doãn Hiểu Lan đứng bên tiếp lời: "Đông người thế này quả thực nấu nướng không xuể, hôm nay chẳng khác nào nhà mình dựng rạp làm cỗ tiệc lớn cả."
 
-Đám phụ nữ đều ở trong bếp, hoặc ra bồn nước ngoài sân rửa rau.
+Điền Thúy Phượng liền hiến kế: "Thế thì đem một cái nồi gang to ra ngoài sân kê lên, đằng nào ngoài kia họ cũng đang đốt lửa sưởi, lát nữa ai thích đứng thì đứng, ai thích ngồi thì ngồi, chẳng cần câu nệ bàn ghế làm gì cho mệt, ăn uống tự do như thế khéo lại càng rôm rả ấm cúng, đậm không khí Tết hơn."
 
-Trừ Tô Miền.
+Đàn bà con gái trong họ đều túm tụm cả trong gian bếp, hoặc giả thì ngồi quanh bể nước ngoài sân cắm cúi rửa rau đãi hành.
 
-Trong lòng họ, Tô Miền đã được coi là nửa nữ chủ nhân, nhưng lạ là chẳng ai thấy nàng cũng nên làm việc như mọi người.
+Duy chỉ có một mình Tô Miến là ngoại lệ.
 
-Đã vậy thì thôi.
+Trong thâm tâm mọi người, Tô Miến đã được coi như một nửa nữ chủ nhân của căn nhà này, nhưng tuyệt nhiên chẳng có ai nghĩ rằng một cô gái đài các như nàng lại phải xắn tay áo làm lụng lấm lem bùn đất giống như bao người khác.
 
-Bà nội gật đầu đồng ý với Điền Thúy Phượng, còn bưng một bát mì nước thịt với hai quả trứng ốp la cho Tô Miền.
+Chưa dừng lại ở đó.
 
-Những người khác buổi sáng đều ăn cháo loãng.
+Bà nội khẽ gật đầu tán đồng ý kiến của Điền Thúy Phượng, sau đó đích thân bưng một bát mì nước hầm thịt nóng hổi thơm phức kèm theo hai quả trứng ốp lết vàng ươm mang ra tận nơi cho Tô Miến.
 
-Ngay cả Triệu Kim An cũng ăn cháo.
+Những người khác sáng nay đều chỉ được húp cháo trắng loãng.
 
-"Chao ôi, ai mà gả cho Kim An thì chẳng nói gì khác, chuyện tiền bạc cứ gác sang một bên, chứ ai mà được như bà nội, biết thương người đến thế?"
+Đến ngay cả Triệu Kim An cũng chỉ có một bát cháo lót dạ mà thôi.
 
-Điền Thúy Phượng cảm thán một câu.
+"Chao ôi, đứa con gái nào sau này mà gả cho thằng Kim An thì đúng là phúc đức ba đời. Chưa bàn đến chuyện giàu nghèo sang hèn, chỉ riêng việc có được một người bà nội biết thương dâu thương cháu hết lòng như thế này thì đào đâu ra cơ chứ?"
 
-Doãn Hiểu Lan đang thêm củi trước bếp lò, động tác khựng lại một chút.
+Điền Thúy Phượng không kìm được buột miệng cảm thán một câu.
 
-Giết lợn xong, cạo lông, có mấy người đàn ông tự giác mang lòng mề ra bờ sông rửa.
+Doãn Hiểu Lan đang ngồi trước cửa lò chụm củi, đôi tay khẽ khựng lại trong giây lát.
 
-Triệu Kim An Có Tài khiêng một cái chảo gang lớn đến, hỏi Tô Miền có lạnh không, có cần nhóm riêng cho nàng một đống lửa không.
+Sau khi mổ lợn, cạo sạch lông và mổ phanh thân lợn, mấy người đàn ông rất tự giác xách bộ lòng dồi cùng các thứ nội tạng chạy tót ra bờ sông để tẩy rửa.
 
-Tô Miền bảo không cần, ngoài trời nắng rất to.
+Triệu Hữu Tài khệ nệ khiêng một chiếc nồi gang cỡ đại ra sân, ân cần hỏi Tô Miến xem nàng có lạnh không, có cần ông nhóm thêm cho nàng một đống lửa riêng để sưởi ấm hay không.
 
-Triệu Kim An Có Tài vẫn tìm một khoảng trống nhóm cho Tô Miền một đống lửa, nơi không bị khói dầu ám vào, rồi bảo Triệu Kim An đẩy Tô Miền qua đó.
+Tô Miến mỉm cười bảo không cần, trời hôm nay nắng ráo ấm áp lắm.
 
-Triệu Kim An vào phòng ngủ lấy một chiếc chăn mỏng, là đồ Tô Miền tự mang theo, cùng bộ với quần áo trên người nàng.
+Thế nhưng Triệu Hữu Tài vẫn chu đáo tìm một khoảng đất trống khuất gió để nhóm riêng cho Tô Miến một đống lửa than đượm, đảm bảo khói dầu cay xè ngoài sân không thể tạt vào người nàng, rồi ông cất tiếng gọi Triệu Kim An đẩy xe lăn đưa nàng sang đó.
 
-Trông rất đắt tiền, trên đó còn có thêu hoa văn tinh xảo.
+Triệu Kim An vào buồng lấy chiếc chăn len mỏng mà Tô Miến tự mang theo mang ra đắp lên chân cho nàng, chiếc chăn này cùng tông màu và chất liệu đồng bộ với bộ trang phục quý phái trên người nàng.
 
-Triệu Chí Dũng lại cưỡi mô tô đi, lần này là đi lên thành phố mua McDonald's.
+Nhìn qua là biết món đồ đắt giá vô cùng, trên mặt vải còn thêu những đường hoa văn tinh xảo bằng chỉ tơ.
 
-Một đám trẻ con nhảy nhót reo hò!
+Triệu Trí Dũng lại đạp nổ xe máy phóng vút đi, lần này là phi thẳng lên cửa hàng McDonald's trên thành phố.
 
-Tô Miền nói: "Các cháu đừng chạy ở đây, chỗ này có lửa!"
+Một bầy trẻ con trong làng nhảy cẫng lên reo hò rộn rã!
 
-Nàng không đi lại được, chỉ có thể ngồi trên xe lăn đưa tay ra nhắc nhở ra vẻ một chút.
+Tô Miến ngồi trên xe lăn cất tiếng dặn dò: "Các cháu đừng chạy nhảy lung tung quanh đây nhé, ở đây có lửa than nguy hiểm lắm đấy!"
 
-Vương Kim Như đã chết lặng rồi.
+Đôi chân nàng không cử động được, chỉ có thể ngồi trên xe lăn giơ tay ra làm điệu bộ ngăn cản bọn trẻ.
 
-Dù sao cũng là tiền của Tô Miền, nàng thích tiêu thế nào thì tiêu.
+Vương Kim Như nhìn cảnh tượng ấy mà đầu óc đã trở nên tê dại hoàn toàn.
 
-Triệu Chí Dũng trên đường đi gọi điện cho Vương Duy Đào, nói Tô Miền đã đến làng mình. Vương Duy Đào rất kinh ngạc, còn rất hâm mộ, túm lấy Triệu Chí Dũng hỏi đông hỏi tây, hai người trò chuyện rất lâu.
+Đằng nào thì đó cũng là tiền riêng của Tô Miến, con bé thích vung tay tiêu xài thế nào thì tùy ý nó.
 
-Cuối cùng Vương Duy Đào nói, cậu phải đối xử tốt với chị Tô Miền một chút.
+Trên đường đi, Triệu Trí Dũng tranh thủ bấm điện thoại gọi cho Vương Duy Đào, khoe rằng Tô Miến đã về tận thôn Triệu Gia ăn Tết. Vương Duy Đào nghe xong vừa kinh ngạc vừa ghen tị đến phát cuồng, túm lấy Triệu Trí Dũng gặng hỏi đủ thứ chuyện trên trời dưới biển, hai đứa buôn dưa lê suốt một chặng đường dài.
 
-Triệu Chí Dũng đáp, chuyện đó còn cần cậu phải nói sao.
+Trước khi cúp máy, Vương Duy Đào dặn đi dặn lại: "Mày ở nhà phải đối xử thật tốt với chị Tô Miến đấy nhé."
 
-Tranh thủ lúc không có ai bên cạnh, Tô Miền nghe một cuộc điện thoại, che miệng máy lại.
+Triệu Trí Dũng bĩu môi: "Chuyện đấy còn cần mày phải mở mồm nhắc chắc?"
 
-Có một chiếc xe chuyên dụng dừng ở đầu thôn, chờ khoảng một tiếng đồng hồ, nhận được điện thoại lại lái đi.
+Nhân lúc xung quanh không có ai để ý, Tô Miến che ống nghe nhận một cuộc điện thoại.
 
-Tài xế nói: "Có lẽ chúng ta không được về ăn Tết rồi."
+Tại đầu đường dẫn vào thôn, một chiếc xe bảo mẫu sang trọng đã đỗ ở đó suốt gần một tiếng đồng hồ, sau khi nhận được một cuộc gọi ngắn liền từ từ quay đầu lăn bánh rời đi.
 
-Ngô Hiểu nhìn về phía Triệu Kim An Gia thôn, lắc đầu cười khổ: "Không biết cô Tô ở đây có gì vui nữa."
+Bác tài xế thở dài nói: "Có lẽ năm nay chúng ta không được về nhà đón Tết rồi."
 
-Tài xế chỉ lên trên: "Tôi làm tài xế cho ông chủ bao nhiêu năm, lần đầu tiên nhận được điện thoại của hai vị kia, vừa nãy làm tôi khó xử quá, không biết nên nghe lời ai."
+Ngô Hiểu đưa mắt nhìn về phía thôn Triệu Gia, lắc đầu cười khổ: "Chẳng hiểu ở cái xó quê mùa này có trò gì vui mà cô Tô lại thích thú đến thế."
 
-"Nếu ông cụ không lên tiếng, tôi cũng chẳng dám lái xe đi, chỉ có thể ở đây đợi không công."
+Bác tài xế giơ ngón tay chỉ lên trời: "Tôi làm tài xế cho sếp bao nhiêu năm nay, đây là lần đầu tiên nhận được điện thoại trực tiếp từ hai vị tai to mặt lớn kia, vừa nãy rơi vào thế tiến thoái lưỡng nan, chẳng biết nên nghe theo lời ai."
 
-Ngô Hiểu càng cười khổ hơn, vừa rồi cô cũng ở trên xe.
+"Nếu như đích thân Lão gia tử không lên tiếng mở lời, tôi có cho thêm tiền cũng chẳng dám lái xe rời đi, chỉ đành ngồi đây trơ mắt mà chờ."
 
-Ông chủ trong miệng tài xế là chỉ Tô Cảnh Hành, còn hai vị kia là chỉ Tô Minh Tùng ở kinh đô và anh cả của Tô Cảnh Hành là Tô Cảnh Ngôn.
+Ngô Hiểu lại càng cười khổ cay đắng hơn, vừa rồi cô cũng ngồi ngay trên xe.
 
-Họ đều làm việc theo chỉ thị, Tô Cảnh Ngôn muốn họ đón Tô Miền về, nhưng Tô Miền không ra, không chịu lên xe thì họ biết làm sao, cuối cùng vẫn là nhận được điện thoại của Tô Minh Tùng.
+"Sếp" trong miệng tài xế là ám chỉ Tô Cảnh Hành, còn "hai vị kia" chính là Tô Minh Tùng ở Kinh Đô cùng người anh cả Tô Cảnh Ngôn.
 
-Triệu Kim An Gia thôn.
+Bọn họ đều là phận làm công ăn lương nghe lệnh cấp trên mà hành sự. Tô Cảnh Ngôn hạ lệnh bắt bọn họ phải đón bằng được Tô Miến trở về, nhưng Tô Miến nhất quyết không chịu ra, không chịu bước lên xe thì họ biết làm cách nào bây giờ? Cuối cùng cũng may nhờ có cuộc gọi đích thân của Lão gia tử Tô Minh Tùng mới giải vây được cho bọn họ.
 
-Quá náo nhiệt.
+Tại thôn Triệu Gia.
 
-Trẻ con trong thôn lục tục kéo đến, năm 2006 ở Tư Tinh McDonald's còn chưa có dịch vụ giao hàng, Triệu Chí Dũng đeo gùi chạy ba chuyến McDonald's.
+Không khí náo nhiệt tưng bừng đến tột cùng.
 
-Gùi không tiện đựng Coca, Triệu Kim An liền cười lấy hết nước trái cây ra.
+Trẻ con trong khắp các ngõ ngách trong làng lục tục kéo nhau đến đông đủ. Vào năm 2006, tiệm McDonald's ở Tư Tinh vẫn chưa có dịch vụ giao hàng tận nơi, Triệu Trí Dũng phải đeo một cái gùi tre sau lưng chạy đi chạy lại tới ba chuyến liền.
 
-Đám trẻ con vui mừng cứ như thể giờ đã là đêm giao thừa vậy.
+Gùi tre không tiện chở đồ uống có ga như Coca, Triệu Kim An liền cười tươi mang toàn bộ nước ép trái cây đóng chai trong nhà ra chia cho tụi nhỏ.
 
-Mỗi đứa một cái hăm-bơ-gơ, thêm cánh gà, khoai tây chiên, nước trái cây.
+Lũ trẻ con vui sướng hân hoan như thể Tết Nguyên đán đã gõ cửa ngay trước mắt.
 
-Vương Kim Như lại quay sang phàn nàn với bà nội một câu: "Đúng là trời sinh một cặp!!"
+Đứa nào đứa nấy tay cầm một chiếc bánh kẹp thịt Hamburger, tay kia cầm đùi gà rán, khoai tây chiên giòn rụm và lon nước trái cây.
 
-Cả hai người đều hào phóng như thế, đều không biết giữ cửa nhà như thế, sau này cái nhà này không có bà quán xuyến là không xong, có núi vàng cũng sẽ phá sản sạch!
+Vương Kim Như lại chạy vào bếp càu nhàu với bà nội một câu: "Đúng là trời sinh một cặp, tuyệt phối!!"
 
-Đoạn Thu Bình đã tái giá, Vương Kim Như liền tự coi mình như đóng cả vai mẹ lẫn vai mẹ chồng.
+Cả hai đứa nó đứa nào cũng hào phóng quá trớn, đứa nào cũng không biết tằn tiện vun vén nhà cửa, sau này cái gia đình này mà không có một tay bà thím này quản lý thì dẫu có cả một núi vàng trong nhà cũng bị chúng nó phá cho sạch bách!
 
-Dù sao cũng lo đến nát cả lòng!
+Đoàn Thu Bình đã đi lấy chồng khác, Vương Kim Như bèn tự gánh vác lấy vai trò của cả người mẹ lẫn người mẹ chồng trong nhà.
 
-Ít nhất một phần ba người trong Triệu Kim An Gia thôn đến ăn cơm, có rất nhiều nhà tự nấu cơm rồi cũng bưng bát đến góp vui.
+Nói tóm lại là bà thím lo lắng đến nát cả cõi lòng!
 
-Trong bát có cơm có thức ăn, nhưng chủ yếu là đến xem náo nhiệt.
+Ít nhất phải có đến một phần ba dân số thôn Triệu Gia kéo sang đây ăn bữa cơm tất niên. Lại có rất nhiều người ở nhà đã nấu cơm xong xuôi nhưng vẫn bưng cả bát cơm sang để góp vui chung cho có tụ.
 
-Món nào vừa ra lò thì gắp một ít.
+Trong bát người ta đã có sẵn cơm có sẵn thức ăn, sang đây cốt yếu chỉ là để hòa vào bầu không khí náo nhiệt.
 
-Quan trọng nhất là đến để tán gẫu.
+Thức ăn trong chảo vừa chín tới múc ra, mỗi người thò đũa gắp một miếng là hết veo.
 
-Nhưng cũng không chịu nổi lượng người quá đông, một cái chảo không đủ liền dựng thêm hai cái, hai đầu bếp trong thôn không ngừng xào nấu, món vừa ra lò mỗi người một đũa là hết sạch.
+Nhưng quan trọng nhất vẫn là được quây quần chuyện trò rôm rả.
 
-"Đi ra vườn nhổ mấy cây cải thảo đến đây!"
+Dẫu vậy, lượng người kéo đến quá đông khiến một chiếc nồi gang không thể nào đáp ứng nổi, người ta phải kê thêm chiếc nồi thứ hai. Hai vị đầu bếp cừ khôi nhất trong làng đứng xào nấu thoăn thoắt không ngơi tay, thế nhưng đồ ăn vừa trút ra đĩa là mỗi người một đũa đã sạch bách.
 
-"Còn nữa, ai đi xuống ruộng bới mấy củ cải đi!"
+"Ra vườn nhổ mấy cây bắp cải to vào đây!"
 
-Lời vừa dứt, mấy thanh niên liền đặt bát xuống chạy ra vườn rau, nhảy xuống ruộng, cũng chẳng quản là của nhà ai.
+"Còn nữa, đứa nào chạy ra đồng bới thêm mấy củ cải trắng về mau lên!"
 
-"Đúng rồi, toàn là thịt, phải thêm chút rau xanh!"
+Lời dặn vừa dứt, lập tức có mấy chàng trai trẻ đặt bát cơm xuống, co cẳng chạy thốc ra vườn rau, nhảy bổ xuống ruộng củ cải, chẳng cần bận tâm đó là ruộng của nhà ai nữa.
 
-"Mấy đứa kia, nhổ nhiều một chút!"
+"Phải đấy, toàn là thịt với mỡ, phải thêm tí rau xanh vào ăn cho đỡ ngấy!"
 
-Những người lớn tuổi đứng trên bờ chỉ huy.
+"Mấy đứa chúng mày nhổ nhiều nhiều một chút nhé!"
 
-"Có Tài, lòng già phải bỏ thêm nhiều ớt chua mới đủ vị!"
+Những bậc cao niên đứng trên bờ lớn tiếng chỉ huy.
 
-Mỗi người bưng một cái bát, vây quanh hai cái chảo lớn nói nói cười cười.
+"Hữu Tài ơi, món lòng lợn xào phải bỏ thật nhiều ớt chua vào mới dậy mùi, ăn mới đã!"
 
-Lúc này dù chỉ có rau cải xào cũng chẳng ai phàn nàn gì, mọi người chủ yếu là vì niềm vui.
+Mỗi người bưng một chiếc bát tô, vây quanh hai chiếc chảo lớn vừa ăn vừa nói cười rôm rả.
 
-Huống hồ nhiều người như vậy, một con lợn thật sự không đủ ăn, hai đầu bếp chưa từng được nghỉ tay.
+Vào những lúc như thế này, cho dù trên bếp chỉ xào toàn bắp cải luộc thì cũng chẳng có ai buông lời phàn nàn, cái mọi người cùng nhau tận hưởng chính là niềm vui sum vầy của ngày Tết.
 
-Trong bếp.
+Huống chi đông người đến thế, một con lợn tạ thực sự chẳng thấm tháp vào đâu, hai người đầu bếp mồ hôi nhễ nhại xào nấu không lúc nào ngơi nghỉ.
 
-Bà nội làm riêng cho Tô Miền những món không bỏ ớt: sườn hấp gạo nếp, canh sườn, thịt xào lá tỏi...
+Trong gian bếp.
 
-Những điều này Tô Miền đều thu vào tầm mắt, bao gồm cả bữa sáng bà nội làm cho nàng.
+Bà nội làm riêng cho Tô Miến những món ăn thanh đạm không hề bỏ ớt: sườn non hấp gạo nếp dẻo thơm, canh sườn hầm củ sen nghi ngút khói, thịt nạc xào lá tỏi tươi...
 
-Còn có Triệu Kim An Có Tài, món gì cũng lấy bát múc ra một ít trước, để sang một bên, cho dù thức ăn trong chậu bị cướp sạch cũng không ai động vào chỗ đó.
+Tất cả những ân cần tỉ mỉ ấy Tô Miến đều lặng lẽ thu hết vào đáy mắt, kể cả bát mì trứng nóng hổi bà nội tự tay nấu cho nàng lúc sáng sớm.
 
-Tất cả mọi người đều biết đó là phần của Tô Miền.
+Lại còn cả Triệu Hữu Tài nữa, bất kể nấu xong món gì ngon, ông cũng đều dùng một chiếc bát sạch xới riêng ra một phần đầy đặn đặt sang một bên. Dù cho đồ ăn trong chậu lớn ngoài sân có bị mọi người tranh nhau gắp sạch sành sanh thì cũng tuyệt đối không có ai dám động đũa vào bát thức ăn ấy.
 
-Náo nhiệt mãi đến hai giờ rưỡi chiều, mọi người vẫn còn chưa muốn giải tán.
+Bởi vì tất cả mọi người đều hiểu rõ, phần cơm nước đó là dành riêng cho Tô Miến.
 
-Có những người đến từ mười hai giờ, bát vẫn còn chưa mang về.
+Bầu không khí tưng bừng náo nhiệt ấy kéo dài mãi cho đến tận hai giờ rưỡi chiều mà dường như ai nấy vẫn còn thòm thèm, chưa muốn dứt.
 
-Nhưng buổi chiều mọi người đều phải về dán câu đối, nhà mình cũng phải chuẩn bị cơm tất niên.
+Có những người đến từ lúc mười hai giờ trưa, đến giờ bát đũa vẫn còn chưa buồn mang về.
 
-Đám đông tản đi.
+Thế nhưng đến buổi chiều, nhà nào nhà nấy đều phải lục tục quay về để dán câu đối đỏ lên cửa và chuẩn bị mâm cơm cúng tất niên của gia đình mình.
 
-Trước khi đi, Vương Kim Như gọi anh em Triệu Kim An Có Tài và Triệu Hữu Hằng lại, bà nội từ trong bếp xách ra hai tảng thịt lợn nặng khoảng bảy tám cân, bảo hai anh em xách về nhà.
+Đám đông dần dần tản mác ra về.
 
-Triệu Kim An Có Tài và Triệu Hữu Hằng không chịu nhận, bà nội liền ép họ lấy cho bằng được.
+Trước lúc mọi người rời đi, Vương Kim Như cất tiếng gọi giật hai anh em Triệu Hữu Tài và Triệu Hữu Hằng lại. Bà nội từ trong bếp bước ra, hai tay xách hai tảng thịt lợn tươi ngon nặng chừng bảy, tám cân, dúi thẳng vào tay bảo hai anh em xách về ăn Tết.
 
-Bà nội biết kinh tế hai anh em họ hơi khó khăn, lại chưa quá năm đời.
+Triệu Hữu Tài và Triệu Hữu Hằng xua tay từ chối không dám nhận, nhưng bà nội nhất quyết ấn chặt vào lòng hai người.
 
-Vợ Triệu Kim An Có Tài còn bỏ đi rồi, đi làm thuê rồi không thấy về nữa.
+Bà nội thấu hiểu hoàn cảnh kinh tế của hai anh em họ có phần túng quẫn khó khăn, lại là chỗ bà con ruột thịt chưa ra khỏi năm đời.
 
-Hai anh em xách thịt lợn nói với bà nội vài câu, đi đến lối rẽ xuống dốc lại dừng bước nhìn về phía Tô Miền, Triệu Hữu Hằng tính tình hoạt bát hơn nói với Tô Miền: "Thím nhỏ, chúng cháu về đây."
+Vợ của Triệu Hữu Tài đã bỏ nhà đi từ lâu, từ dạo ra ngoài thành phố làm thuê đến nay một đi không trở lại.
 
-Triệu Kim An Có Tài cũng đầy cảm xúc, gật đầu nói một câu: "Vậy chúng tôi về nhé?"
+Hai anh em xách tảng thịt lợn đứng nói với bà nội đôi ba câu tâm tình, khi bước đến đoạn dốc thoai thoải đầu ngõ lại dừng bước ngoảnh đầu nhìn về phía Tô Miến. Triệu Hữu Hằng tính tình hoạt bát hơn liền cất lời chào: "Thím nhỏ ơi, chúng cháu xin phép về trước ạ."
 
-Tô Miền không thể đứng dậy tiễn, cười gật đầu nói: "Dạ."
+Triệu Hữu Tài trong lòng cũng ngập tràn xúc động, ông gật gật đầu mộc mạc nói thêm một câu: "Vậy... chúng tôi xin phép về nhé?"
 
-Hai anh em vừa nhấc chân, Tô Miền lại bảo các anh đợi một chút, nàng nói với Triệu Kim An: "Kim An, thuốc lá Chí Dũng mua vẫn chưa phát hết, ở trong phòng ngủ đấy, anh vào lấy đưa cho các anh ấy."
+Tô Miến không thể đứng dậy tiễn khách, nàng khẽ mỉm cười gật đầu: "Vâng, hai anh về cẩn thận nhé."
+
+Hai anh em vừa toan cất bước, Tô Miến liền vội gọi với theo: "Hai người chờ một chút đã." Nàng quay sang nói với Triệu Kim An: "Kim An, chỗ thuốc lá Trí Dũng mua lúc nãy vẫn chưa phát hết, đang để trong phòng ngủ, anh vào lấy mang ra biếu hai anh ấy đi."
 
 "Được."
 
-Triệu Kim An vào phòng ngủ, còn dư lại một cây rưỡi Hoàng Phù, hắn xé ra chia làm hai phần.
+Triệu Kim An bước vào buồng ngủ, thấy còn lại một cây rưỡi thuốc Phù Dung Vàng, anh bóc ra chia đều thành hai phần.
 
-Bà nội nhìn Tô Miền một lúc, thầm gật đầu tán thưởng.
+Bà nội đứng bên nhìn cử chỉ của Tô Miến một lúc, thầm kín gật đầu hài lòng trong bụng.
 
-Triệu Kim An Có Tài khi nhận thuốc thì vỗ vỗ tay Triệu Kim An, định nói gì đó nhưng lại thôi, cứ thế cúi đầu xách đồ đi xa rồi mới lặng lẽ quệt nước mắt.
+Khi đón lấy những bao thuốc lá từ tay Kim An, Triệu Hữu Tài khẽ vỗ nhẹ lên mu bàn tay anh, đôi môi mấp máy toan nói điều gì đó nhưng rồi lại thôi. Suốt dọc đường cắm cúi xách đồ đi về phía xa, ông già lén đưa mu bàn tay thô ráp lên quệt vội giọt nước mắt nơi khóe mi.
 
-Bà nội nói: "Kim An, sau này hai đứa có khả năng... giúp đỡ được gì thì cứ giúp đỡ họ một chút."
+Bà nội khẽ thở dài dặn dò: "Kim An à, sau này các cháu nếu có năng lực... có thể đỡ đần giúp đỡ được hai anh em nó phần nào thì ráng giúp đỡ chúng nó một chút."
 
-Triệu Kim An đáp: "Bà nội, cháu biết rồi."
+Triệu Kim An gật đầu: "Bà nội, cháu hiểu rồi ạ."
 
-Tô Miền cũng gật đầu bảo: "Vâng ạ."
+Tô Miến cũng khẽ nghiêng đầu đáp: "Vâng ạ."
 
-Ngay lúc mọi người đều tưởng Tô Miền sẽ ở lại ăn Tết, bà nội và Vương Kim Như cũng nghĩ vậy, họ lại bắt đầu chuẩn bị bữa cơm tất niên thì Tô Miền nhận được một cuộc điện thoại.
+Ngay vào lúc tất cả mọi người trong nhà đều đinh ninh rằng Tô Miến sẽ ở lại đón giao thừa cùng gia đình — ngay cả bà nội và Vương Kim Như cũng nghĩ như vậy và đã bắt tay vào chuẩn bị mâm cỗ tất niên — thì Tô Miến bỗng nhận được một cuộc điện thoại.
 
-Triệu Kim An lái xe đưa Tô Miền ra khỏi thôn.
+Triệu Kim An lái xe chở Tô Miến ra đầu làng...

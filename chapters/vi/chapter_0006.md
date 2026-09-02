@@ -1,219 +1,201 @@
-# Chương 6: Kiếp Này Trùng Phùng
+# Chương 6: Trùng phùng kiếp này
 
-Thế này thì có chút kỳ quái rồi.
+> **Tiêu đề gốc**: 第6章 今生重逢。
 
-Không chỉ Mộc Dao cảm thấy hơi lạ, mà trong lòng tất cả những người có mặt ở đây đều thấy có gì đó không đúng.
+Chuyện này quả thực có đôi phần kỳ quặc.
 
-Tại sao biểu hiện của Triệu Kim An lại bình thản đến thế? Chẳng phải hai người mới bắt đầu yêu nhau sao?
+Không chỉ riêng Mộc Dao cảm thấy lạ lùng, mà tất cả những người có mặt tại đó đều dâng lên một cảm giác là lạ trong lòng.
 
-Này, đang là giai đoạn mặn nồng mà.
+Sao Triệu Kim An lại tỏ ra bình thản đến thế? Chẳng phải hai người họ vừa mới nhận lời yêu nhau hay sao?
 
-"Kim An, sao điện thoại anh gọi không thông thế?"
+Này, đang là giai đoạn nồng nhiệt cơ mà!
 
-Giọng nói của Mộc Dao rất ngọt ngào và dịu dàng. Nàng chủ động bỏ qua chủ đề "bán cá", kiếm tiền có nhiều cách, đại loại là trong lòng những cô gái như nàng, việc ngồi xổm ở chợ bán cá không được vẻ vang cho lắm.
+"Kim An, sao điện thoại của cậu gọi mãi chẳng được thế?"
 
-Triệu Kim An lấy điện thoại ra nhìn một cái: "Điện thoại hết pin rồi."
+Giọng Mộc Dao vừa ngọt ngào lại vừa dịu dàng. Cô khéo léo lướt qua chủ đề "bán cá". Kiếm tiền thì có trăm phương ngàn kế, nhưng có lẽ trong suy nghĩ của những cô cậu học trò như họ, việc ngồi xổm giữa góc chợ nhếch nhác bán từng mớ cá tôm chẳng lấy gì làm vẻ vang cho lắm.
 
-Âu Cường làm sao có thể bỏ lỡ cơ hội tốt như vậy, hắn cố ý lớn tiếng hỏi: "Triệu Kim An, cá của các cậu bán bao nhiêu tiền một cân?"
+Triệu Kim An móc chiếc điện thoại trong túi ra liếc nhìn một cái: "Hết pin rồi."
 
-Nói xong hắn còn cố ý nhấn mạnh thêm một câu: "Mọi người đều là bạn học, để tôi ủng hộ việc làm ăn chút!"
+Âu Cường đời nào chịu bỏ lỡ cơ hội ngon ăn thế này, hắn cố tình cao giọng hỏi: "Triệu Kim An, cá của các cậu bán bao nhiêu tiền một cân thế?"
 
-Chế giễu là biểu hiện của kẻ năng lực kém, EQ thấp, nhưng lời này của hắn thì lại chẳng tìm ra lỗi sai nào.
+Dứt lời, hắn còn không quên bồi thêm một câu đầy vẻ hào sảng: "Dù sao cũng là bạn học cùng lớp, tiện đây ủng hộ việc làm ăn của cậu chút nhé!"
 
-"Cái đó sao có thể..."
+Móc mỉa, châm chọc một cách thô thiển là biểu hiện của kẻ kém cỏi và EQ thấp; còn một câu nói thế này thì chẳng ai có thể bắt bẻ lấy nửa lời.
 
-Triệu Chí Dũng xua tay đang định đứng dậy, kết quả vạt áo bị người phía sau kéo một cái. Bản thân hắn vốn định nói là: "Sao có thể lấy tiền chứ, mọi người đều là bạn học, ai muốn thì tôi tặng một ít."
+"Ấy, sao lại thế được..."
 
-"Kim An, các cậu còn thừa lại bao nhiêu?"
+Triệu Trí Dũng xua tay toan đứng dậy, nhưng vạt áo phía sau bỗng bị kéo giật lại. Vốn dĩ cậu ta định nói: "Bạn bè cùng lớp với nhau ai lại lấy tiền, ai thích ăn thì cứ việc xách về một ít."
 
-Mộc Dao lấy ra một chiếc ví tiền hình hoạt hình, nàng chỉ muốn Triệu Kim An mau chóng bán cho xong để không bị đám bạn học đứng vây quanh xem nữa.
+"Kim An, các cậu còn lại bao nhiêu?"
 
-Cảm giác này rất không tốt.
+Mộc Dao mở chiếc ví hoạt hình nhỏ nhắn ra. Cô chỉ mong Triệu Kim An bán cho thật nhanh để xong việc, không muốn anh tiếp tục bị đám bạn học vây quanh nhìn ngó nữa.
 
-"Mộc Dao, cậu..."
-
-Triệu Chí Dũng vừa mở miệng lại bị người phía sau kéo thêm cái nữa.
-
-Hắn có chút mơ hồ rồi, lẽ nào tiền của Mộc Dao cũng lấy sao?
-
-Chỉ thấy Âu Cường rút ví tiền ra, miệng còn nói: "Để tôi, để tôi, sao có thể để bạn nữ như các cậu bỏ tiền ra được?"
-
-Những bạn học khác đều không có động thái gì.
-
-Biểu cảm của Lý Lị có chút phong phú, mắt cứ nhìn chằm chằm vào Mộc Dao.
-
-Không ngờ Mộc Dao lại không vui: "Không cần cậu, tôi mua hết!"
-
-Nàng chẳng thèm nhìn Âu Cường, cũng không nhìn các bạn học khác, cứ thế tranh trả tiền.
+Cảm giác bị người khác vây quanh xì xào này chẳng dễ chịu chút nào.
 
 "Mộc Dao, cậu..."
 
-Triệu Chí Dũng có chút khó xử, không biết nên nhận tiền của ai.
+Triệu Trí Dũng vừa mở miệng lại bị người phía sau kéo nhẹ vạt áo thêm một cái.
 
-Lúc này Triệu Kim An mới cử động, hắn vươn tay rút một tờ một trăm tệ trong tay Âu Cường, nói: "35 một cân."
+Cậu chàng bắt đầu thấy mờ mịt, chẳng lẽ tiền của Mộc Dao mà cũng thu thật ư?
 
-"35 một cân!?"
+Chỉ thấy Âu Cường đã móc chiếc ví da dày cộm ra, miệng đon đả: "Để tôi, để tôi chứ! Ai lại để bạn nữ phải bỏ tiền túi bao giờ?"
 
-Đám con gái không am hiểu về giá rau quả lắm, nhưng cũng cảm thấy 35 một cân hình như hơi đắt, thịt lợn hình như mới bán có 7, 8 đồng một cân, chuyện này bọn họ vẫn có nghe qua.
+Những bạn học khác chỉ đứng nhìn, chẳng ai có ý định can thiệp.
 
-Học sinh trung học dù mỗi ngày chỉ biết học tập thì cũng không đến mức vô tri như vậy.
+Gương mặt Lý Lợi biến hóa muôn phần sinh động, đôi mắt cứ đảo qua liếc lại nhìn chằm chằm vào Mộc Dao.
 
-Âu Cường nhìn ngó xung quanh, chỉ vào sạp hàng cách đó không xa: "Cá trắm cỏ lớn như thế kia cũng chỉ bán có 7 đồng một cân, Triệu Kim An, sao cậu bán cho bạn học mà còn đắt thế?"
+Nào ngờ Mộc Dao lại tỏ vẻ không bằng lòng: "Không cần cậu đâu, chỗ này tôi mua hết!"
 
-"Lớp trưởng."
+Cô chẳng buồn nhìn Âu Cường, cũng không thèm đoái hoài đến những người khác, chỉ vội vã tranh phần trả tiền.
 
-Triệu Kim An đẩy đẩy Triệu Chí Dũng, bảo hắn mau chóng đóng túi: "Cậu cố ý nói lời của người ngoài nghề đấy à?"
+"Mộc Dao, cậu..."
 
-"Cái gì?"
+Triệu Trí Dũng rơi vào thế khó xử, tay cầm túi cá mà chẳng biết nên nhận tiền của ai.
 
-Âu Cường vẫn còn chút mơ hồ.
+Đúng lúc ấy, Triệu Kim An rốt cuộc cũng động đậy. Anh thản nhiên vươn tay rút phắt một tờ một trăm tệ trong tay Âu Cường, cất giọng rành rọt: "Ba mươi lăm tệ một cân."
 
-"Hàng nuôi với hàng hoang dã có thể giống nhau được sao?"
+"Ba mươi lăm tệ một cân á?!"
 
-Triệu Kim An cố ý tâng bốc Âu Cường lên mà nói: "Chẳng phải cậu bảo nhà cậu có nhân sâm Trường Bạch hoang dã sao? Cái giá đó có thể giống với loại bình thường được không?"
+Đám học sinh vốn chẳng mấy khi đi chợ mua thức ăn, nhưng nghe tới giá ba mươi lăm tệ một cân thì ai nấy đều thấy đắt đến vô lý. Nghe đâu thịt lợn ngon ngoài chợ cũng chỉ tầm bảy, tám tệ một cân là cùng.
 
-"Hình như tôi chưa từng nói thế nhỉ."
+Dù học sinh cấp ba tối ngày chỉ biết vùi đầu vào sách vở thì cũng đâu đến mức mù tịt giá cả ngoài đời.
 
-Âu Cường thầm lẩm bẩm trong lòng, hắn đã bốc phét quá nhiều rồi.
+Âu Cường đảo mắt nhìn quanh quất bốn phía, rồi chỉ tay về phía quầy hàng cách đó không xa: "Con cá trắm cỏ to đùng đùng đằng kia người ta bán có bảy tệ một cân, Triệu Kim An, cậu bán cho bạn học mà sao chém đắt thế?"
 
-"Rùa nuôi với rùa hoang dã có thể giống nhau được sao, còn gà ta thực sự nuôi thả ở nông thôn nữa?"
+"Lớp trưởng này."
 
-Triệu Kim An lại dồn hắn thêm một bước: "Điều kiện nhà cậu tốt như vậy, đồ ăn thức dùng đều là hàng cao cấp, tai nghe mắt thấy lẽ nào cậu lại không hiểu cái giá thị trường này?"
+Triệu Kim An huých nhẹ Triệu Trí Dũng, ra hiệu cho cậu ta mau tay cho cá vào túi: "Cậu đang cố tình nói mấy câu ngoài nghề đấy à?"
+
+"Hả? Ý cậu là sao?" Âu Cường ngớ người.
+
+"Hàng nuôi công nghiệp với hàng bắt tự nhiên ngoài sông suối sao mà giống nhau được?"
+
+Triệu Kim An cố tình nâng bổng Âu Cường lên: "Chẳng phải cậu từng khoe nhà cậu có cả nhân sâm Trường Bạch mọc hoang dã sao? Thứ đó giá cả làm sao đánh đồng với sâm trồng đại trà ngoài ruộng được chứ?"
+
+"Hình như... mình có nói thế bao giờ đâu nhỉ?"
+
+Âu Cường thầm lẩm bẩm trong bụng, nhưng khổ nỗi trước giờ hắn bốc phét quá nhiều chuyện nên chính hắn cũng chẳng nhớ nổi mình đã từng chém gió những gì.
+
+"Rùa nuôi với rùa tự nhiên giá có như nhau không? Hay gà thả vườn chuẩn ở quê với gà công nghiệp thì sao?"
+
+Triệu Kim An tiếp tục dồn hắn vào thế bí: "Gia cảnh nhà cậu khá giả như thế, từ nhỏ chuyện ăn uống dùng đồ xịn đã quen mắt quen miệng, lẽ nào lại không am hiểu cái thị trường này?"
 
 Âu Cường: "..."
 
-"À, đúng đúng đúng."
+"À... đúng đúng đúng."
 
-"Nhà chúng tôi từ trước đến nay không bao giờ ăn đồ nuôi nhân tạo."
+"Nhà tôi trước giờ quả thực chưa từng ăn đồ nuôi nhốt bao giờ."
 
-Hắn còn có thể nói gì được nữa, một câu "điều kiện nhà cậu tốt như vậy" đã chặn đứng miệng hắn rồi, đại loại là còn hy vọng Triệu Kim An nếu đã biết nói chuyện như thế thì nói thêm vài câu nữa.
+Hắn còn có thể nói gì được nữa? Một câu "gia cảnh nhà cậu khá giả" của Triệu Kim An đã chặn đứng họng hắn, thậm chí sâu trong lòng hắn còn thầm mong Triệu Kim An khéo mồm khéo miệng như thế thì cứ khen thêm vài câu cho mát mặt.
 
-Chỉ là thấy Triệu Chí Dũng trút toàn bộ cá vào túi nilon, hắn lại đưa tay ra: "Cái đó, có nước, Triệu Chí Dũng cậu ít nhất cũng phải lọc cho khô chứ..."
+Chỉ là nhìn Triệu Trí Dũng trút toàn bộ số cá vào túi ni lông, hắn lại vội vươn tay ngăn lại: "Khoan đã, trong xô còn nhiều nước lắm, Triệu Trí Dũng, cậu ít ra cũng phải chắt cho ráo nước đã chứ..."
 
-"Giỏ tre thì làm gì có nước? Đã để nửa ngày trời rồi."
+"Giỏ tre đan thế này thì làm gì có nước đọng? Để cả buổi chiều rồi."
 
-Triệu Chí Dũng cũng phản ứng lại, vội vàng mang đi cân.
+Triệu Trí Dũng lúc này cũng đã tỉnh táo hẳn ra, nhanh thoăn thoắt xách túi cá chạy lại bàn cân đối chứng của ban quản lý chợ.
 
-Giỏ cá đan dày luôn có chút nước, dưới đáy còn có vài viên đá nhỏ và lá cây này nọ.
+Chiếc giỏ tre đan dày thì kiểu gì dưới đáy chẳng còn đọng lại chút nước, dăm ba hạt sỏi nhỏ cùng mấy nhánh lá cây trôi dạt. Vừa nãy Triệu Kim An tiện tay nhận lấy mớ cá từ vợt của Triệu Trí Dũng đổ cả vào giỏ tre, lúc rảnh rỗi cũng chẳng buồn nhặt nhạnh phân loại làm gì.
 
-Dù sao Triệu Kim An cũng nhận lấy túi cá từ tay Triệu Chí Dũng rồi đổ hết vào giỏ của Âu Cường, lúc rảnh rỗi cũng không hề chọn lựa gì.
+"Hơn ba cân một chút!"
 
-"Hơn 3 cân một chút!"
+Triệu Trí Dũng đứng cạnh chiếc cân điện tử công cộng, vẫy vẫy tay gọi to.
 
-Triệu Chí Dũng chỉ vào cái cân đối chứng mà hét lên.
+"Không sao, bạn bè cùng lớp cả, phần lẻ thừa ra coi như tôi tặng cậu." Triệu Kim An ra chiều rất mực phóng khoáng.
 
-"Không sao, mọi người đều là bạn học, phần thừa coi như tặng."
+Âu Cường há hốc mồm: "Tôi... tôi đâu có định mua nhiều đến thế."
 
-Triệu Kim An hào phóng bày tỏ.
+Chẳng một ai buồn tiếp lời hắn.
 
-Âu Cường há hốc mồm: "Tôi đâu có định mua nhiều như vậy."
+Triệu Kim An chỉ tay vào mớ ớt xanh còn lại dưới đất: "Chỗ ớt này tặng nốt cho cậu đấy, đem về xào lăn ăn ngon hết ý."
 
-Chẳng ai thèm để ý tới hắn.
+"Chuẩn luôn, ớt này là chị dâu tớ tự tay trồng ở vườn nhà, thơm cay ăn đứt ớt nhập từ nơi khác về." Triệu Trí Dũng đưa túi cá sang, hào hứng phụ họa thêm một câu thật lòng.
 
-Triệu Kim An chỉ vào đống ớt trên mặt đất: "Ớt này tặng cậu, xào lăn, ăn ngon lắm."
+"Tận ba cân cá thì ăn làm sao cho hết, nhà tôi có mỗi ba miệng ăn... À mà chết, lát nữa tụi mình còn phải ra bến xe đón đám thằng Điền nữa chứ."
 
-"Đúng, ớt này là do nhà chị dâu chúng tôi trồng, tốt hơn ớt ở nơi khác nhiều."
+Tay xách lủng lẳng túi cá nặng trịch, Âu Cường bấy giờ mới sực nhớ ra rắc rối. Chẳng lẽ tí nữa lại xách cả túi cá sống này vào quán ăn nhờ đầu bếp chế biến hộ?
 
-Triệu Chí Dũng đưa túi qua, chân thành nói.
+Âu Cường đành ngậm bồ hòn làm ngọt, lời than vãn nghẹn ứ nơi cuống họng lại đành nuốt ngược vào trong. Vừa nãy chính miệng hắn lớn tiếng bảo muốn ủng hộ bạn học, giờ phút này mà bảo trả lại thì mặt mũi vứt đi đâu cho hết?
 
-"Ba cân sao mà ăn hết được, nhà tôi chỉ có ba miệng ăn, đúng rồi, bọn tôi còn phải đi đón Lão Điền và những người khác nữa."
+"Triệu Kim An, cậu đi bán cá là để tự kiếm tiền đóng học phí đại học đấy à?" Âu Cường nặn ra một nụ cười giả lả, cố ý hỏi dò.
 
-Âu Cường xách túi cá trong tay mới chợt nhớ ra, tổng không thể xách cái này tới nhà hàng nhờ người ta chế biến chứ.
-
-Âu Cường phải ngậm bồ hòn làm ngọt, lời định nói lại nuốt vào, hắn vừa mới bảo ủng hộ việc làm ăn của bạn học, lúc này tổng không thể nói là không lấy nữa được phải không?
-
-"Triệu Kim An, cậu đang kiếm tiền đóng học phí à?"
-
-Âu Cường cố ý cười hì hì hỏi.
-
-Triệu Kim An gật đầu nói đúng vậy.
+Triệu Kim An thản nhiên gật đầu: "Ừ, đúng thế."
 
 "Ờ..."
 
-Âu Cường nhất thời nghẹn lời, nếu Triệu Kim An không thừa nhận mà bảo là bán cho vui, hắn vốn dĩ còn định chế giễu một phen.
+Âu Cường tức thì bị nghẹn lời. Ban nãy hắn đã tính sẵn trong đầu, nếu Triệu Kim An chối đây đẩy bảo chỉ đi bán cho vui, hắn sẽ nhân cơ hội đó mà châm chọc một trận cho bõ ghét.
 
-Mộc Dao vẫn luôn nhìn chằm chằm vào Triệu Kim An, không hề lên tiếng.
+Mộc Dao từ nãy tới giờ vẫn đứng lặng một bên, đôi mắt trong veo chan chứa nỗi niềm nhìn đăm đắm vào Triệu Kim An, tuyệt nhiên không hé răng lấy một lời.
 
-Cuối cùng Du Phỉ mới mở miệng hỏi: "Triệu Kim An, cậu và Triệu Chí Dũng tối nay có đi hát karaoke không?"
+Cuối cùng, vẫn là Du Phỉ lên tiếng phá vỡ bầu không khí ngượng ngùng: "Triệu Kim An, tối nay cậu với Triệu Trí Dũng có đi hát karaoke cùng bọn tớ không?"
 
-Nàng không rủ Triệu Kim An và Triệu Chí Dũng đi ăn cơm cùng, đại loại cũng là cân nhắc đến việc bọn họ vừa mới bán cá cho Âu Cường, đi cùng sẽ có chút khó xử.
+Cô không rủ hai người họ đi ăn tối chung, có lẽ cũng vì tinh tế nhận ra việc họ vừa bán mớ cá cho Âu Cường sẽ khiến đôi bên rơi vào cảnh gượng gạo trên bàn ăn.
 
-Triệu Kim An nhìn Triệu Chí Dũng đang rục rịch muốn đi, nói: "Không đi đâu, bọn tôi phải về ăn cơm tối rồi."
+Triệu Kim An liếc nhìn Triệu Trí Dũng đang có vẻ háo hức nhấp nhổm, rồi điềm tĩnh đáp: "Bọn tớ không đi đâu, phải về quê ăn cơm tối rồi."
 
-"Đám con trai các cậu hát xong còn bảo đi ăn đêm, cùng xem World Cup nữa."
+"Lát nữa đám con trai hát xong còn hẹn nhau đi ăn đêm để cùng xem World Cup đấy." Du Phỉ nhớ Triệu Kim An chơi bóng rổ rất cừ, từng là tay ném chủ lực của lớp trong các trận đấu toàn trường.
 
-Du Phỉ biết Triệu Kim An chơi bóng rổ rất giỏi, giải bóng rổ của trường hắn còn là quân chủ lực của lớp.
+"World Cup ư!?"
 
-"World Cup!?"
+Triệu Kim An từ lúc sống lại đến giờ bị Triệu Trí Dũng lôi đi xềnh xệch khắp nơi, cả một ngày đầu óc cứ lâng lâng chưa kịp định thần. Giờ nghe nhắc mới sực nhớ ra, mùa hè năm anh thi đại học — năm 2006, chính là kỳ World Cup sôi động tại nước Đức.
 
-Triệu Kim An vừa mới trở về đã bị Triệu Chí Dũng kéo đi, cả ngày đều trong trạng thái mông lung, giờ nghĩ lại thì năm hắn thi đại học này, năm 2006, chính là World Cup Đức.
+"Tối nay là trận nào đá với trận nào thế?"
 
-"Đội nào đấu với đội nào thế?"
+Vừa lúc đó, một cậu bạn nam bên cạnh cúp điện thoại rồi quay sang gọi với: "Bọn thằng Điền tới bến xe rồi kìa!"
 
-Lúc này một nam sinh cúp điện thoại nói Lão Điền và những người khác đã đến bến xe rồi.
+"Triệu Kim An, bọn tớ đi trước đây nhé!"
 
-"Triệu Kim An, bọn tôi đi đây!"
+Chẳng ai rảnh rỗi để trả lời câu lẩm bẩm một mình của Triệu Kim An. Mấy cậu bạn vẫy tay chào qua loa rồi rảo bước rời đi.
 
-Chẳng có ai trả lời câu lẩm bẩm của Triệu Kim An, mấy nam sinh chào hỏi một tiếng rồi rời đi.
+Tận mắt chứng kiến Triệu Kim An và Triệu Trí Dũng phải ngồi góc chợ bán cá vất vả kiếm từng đồng, họ lại càng ngại mở lời rủ hai người lên thành phố tiêu xài số tiền mồ hôi nước mắt ấy.
 
-Nhìn thấy Triệu Kim An và Triệu Chí Dũng đang bán rau kiếm tiền, bọn họ càng không nỡ rủ hai người lên thành phố lãng phí tiền mồ hôi nước mắt nữa.
+"Kim An, tối nay cậu thật sự không đến sao?"
 
-"Kim An, tối nay anh có đến không?"
+Mộc Dao ngước đôi mắt tròn xoe nhìn anh, trong đáy mắt đượm chút tủi thân hờn dỗi.
 
-Mộc Dao nhìn chằm chằm vào Triệu Kim An, vẻ mặt hình như có chút ủy khuất.
+Triệu Kim An nở nụ cười hiền hòa quen thuộc, khẽ lắc đầu: "Không đâu."
 
-Triệu Kim An nở nụ cười hòa ái, khẽ lắc đầu.
+"Ồ..."
 
-"Không đâu."
+Mộc Dao thoáng lộ vẻ hụt hẫng. Cô cắn nhẹ làn môi mọng đỏ mượt mà, nét mặt thoáng chút bối rối phức tạp, lại liếc nhìn về phía Du Phỉ và Lý Lợi đang đứng đợi phía trước, dáng vẻ dùng dằng không dứt.
 
-"Ồ."
+"Vậy... vậy tớ đi nhé?"
 
-Mộc Dao có chút thất vọng, nàng cắn bờ môi căng mọng, biểu cảm hơi phức tạp, nhìn lướt qua Du Phỉ và Lý Lị đang đợi phía trước, tỏ ra có chút do dự không quyết.
+Rõ ràng là bạn trai lặn lội lên tận thành phố, đang trong giai đoạn yêu đương nồng thắm thì đáng lẽ cô phải ở lại cùng bạn trai mới phải đạo.
 
-"Vậy, vậy em đi nhé?"
+Triệu Kim An mỉm cười gật đầu: "Ừ, đi đi."
 
-Vốn dĩ bạn trai đã lên thành phố, đang trong giai đoạn mặn nồng thì nàng nên ở lại bầu bạn với bạn trai mới phải.
+"Đi đi ư?"
 
-Triệu Kim An mỉm cười gật đầu: "Được."
+Trong lòng Mộc Dao càng thêm ấm ức. Bắt gặp bạn trai đi bán cá nơi góc chợ đã đành, đằng này hôm nay anh lại tỏ ra lạnh nhạt, hờ hững với cô đến thế. Cô đứng chôn chân tại chỗ mất ba giây, rồi mới vừa đi vừa ngoái đầu lại nhìn anh tới ba bốn bận.
 
-"Được?"
+Đợi bóng dáng Mộc Dao khuất hẳn sau góc phố, Triệu Trí Dũng bấy giờ mới nhịn không nổi mà cằn nhằn:
 
-Trong lòng Mộc Dao càng thấy ủy khuất hơn, gặp phải bạn trai đi bán rau thì thôi đi, hôm nay hắn còn đối xử với mình không nhiệt tình như thế, nàng đứng khựng lại 3 giây rồi mới vừa đi vừa ngoảnh lại ba lần mà rời khỏi.
-
-Đợi sau khi Mộc Dao đi rồi, Triệu Chí Dũng mới có lời để nói.
-
-"Kim An, sao mày không hẹn riêng Mộc Dao? Chúng ta có tiền rồi, mày hẹn em ấy đi ăn cơm xem phim đi chứ!"
+"Kim An, sao mày không hẹn riêng Mộc Dao? Tụi mình có tiền rồi mà, mày cứ hẹn rủ cô ấy đi ăn một bữa ngon rồi đi xem phim có phải hay không!"
 
 "Về thôi, đã hứa với chị dâu là về nhà ăn cơm rồi."
 
-"Mày đã đến đây rồi, cơ hội tốt như vậy, mày nhìn kìa, em ấy vẫn còn đang ngoái đầu lại nhìn đấy."
+"Mày đã cất công lên tận đây rồi, cơ hội tốt thế này bỏ phí quá! Mày nhìn xem, người ta vừa đi vừa ngoái lại nhìn mày mãi kìa."
 
-Trong lòng Triệu Chí Dũng, tiền mình kiếm được không cần phải phân chia rạch ròi với Triệu Kim An, bạn nối khố muốn đi hẹn hò thì cứ cầm lấy mà dùng, cùng lắm thì ngày mai hắn chia cho mình nhiều hơn một chút là được.
+Trong suy nghĩ mộc mạc của Triệu Trí Dũng, tiền hai đứa kiếm được thì cần gì phải phân chia rạch ròi. Bạn thân nối khố muốn hẹn hò với người yêu thì cứ việc cầm lấy mà chi tiêu, cùng lắm thì ngày mai chia cho cậu ta phần hơn một chút là được chứ có sao đâu.
 
-Người ngoái đầu lại không chỉ có Mộc Dao, Du Phỉ và Lý Lị cũng đang nhìn.
+Người ngoái đầu nhìn lại không chỉ có mỗi Mộc Dao, mà cả Du Phỉ lẫn Lý Lợi cũng đang tò mò dõi mắt theo.
 
-"Mộc Dao, Triệu Kim An không hẹn cậu à?"
+"Mộc Dao, Triệu Kim An không hẹn cậu đi chơi riêng à?"
 
-Mộc Dao lắc đầu.
+Mộc Dao buồn bã lắc đầu.
 
-"Ôi dào, không sao đâu, dù sao chúng ta và Triệu Kim An học đại học cũng cùng một khu đại học mà."
+"Ôi dào, có sao đâu, dù gì sau này cậu với Triệu Kim An cũng học chung trong một làng đại học ở Quận Sa mà." Du Phỉ bước tới khoác lấy cánh tay Mộc Dao an ủi. Cả cô và Mộc Dao đều trúng tuyển vào Đại học Công nghiệp Trung Nam, lại còn đăng ký cùng một chuyên ngành.
 
-Du Phỉ tiến lên khoác tay Mộc Dao, nàng và Mộc Dao đều học ở Trung Nam Công Đại, lại còn đăng ký cùng một chuyên ngành.
+"Mộc Dao này, tiền học phí của Triệu Kim An phải tự mình đi kiếm thật đấy à?" Lý Lợi cố tình hỏi một câu đầy ẩn ý.
 
-"Mộc Dao, học phí của Triệu Kim An còn phải tự mình kiếm sao?"
+"Tự kiếm thì tốt chứ sao, tự lực cánh sinh lo tiền ăn học mới có ý nghĩa chứ." Du Phỉ lập tức đỡ lời thay cho Mộc Dao.
 
-Lý Lị biết rõ còn cố hỏi.
+"Một người chị họ của tớ vừa tốt nghiệp đại học năm nay, chị ấy bảo lên đại học chọn bạn trai là phải hết sức thận trọng, đừng có chỉ nhìn vào mỗi điểm số với vẻ ngoài đẹp mã."
 
-"Rất tốt mà, tự mình kiếm học phí mới có ý nghĩa."
+"Thế phải nhìn vào cái gì? Lý Lợi, cậu thực dụng quá rồi đấy."
 
-Du Phỉ thay Mộc Dao đáp lại một câu.
+"Ôi dào, nói với cậu chẳng thông được đâu."
 
-"Một người chị họ của tôi năm nay tốt nghiệp đại học, chị ấy bảo lên đại học tìm bạn trai phải thận trọng, đừng chỉ nhìn vào thành tích và tướng mạo."
+Suốt cả đoạn đường, Mộc Dao chỉ cúi gằm mặt im lặng không nói nửa lời, chẳng ai đoán được trong đầu cô lúc này đang nghĩ ngợi những gì.
 
-"Thế thì nhìn vào cái gì? Lý Lị, cậu thực dụng quá rồi đấy."
-
-"Chao ôi, nói với cậu chẳng thông được."
-
-Mộc Dao suốt cả quá trình đều cúi đầu không đáp lời, chẳng ai biết nàng đang nghĩ gì.
-
-Ngoảnh lại nhìn, Triệu Kim An đã cầm giỏ cá leo lên xe mô tô, hắn không hề ngoái đầu nhìn ngó xung quanh.
+Chỉ biết khi ngoái đầu nhìn lại lần cuối, Triệu Kim An đã xách giỏ tre trèo lên chiếc xe máy, bóng lưng dứt khoát phóng đi, tuyệt nhiên không một lần quay đầu nhìn lại.

@@ -1,195 +1,197 @@
-# Chương 63: Bốn Giờ Rưỡi Sáng Đến Nơi
+# Chương 63: Bốn giờ rưỡi sáng có mặt
 
-Đến Tư Tinh đã là bốn giờ rưỡi sáng.
+> **Tiêu đề gốc**: 第63章 凌晨4点半到。
 
-Triệu Kim An xem giờ rồi nói: "Đến rồi, ngay đây thôi, anh ở trên xe nghỉ ngơi một lát đi."
+Đến được Tư Hưng thì trời đã rạng sáng bốn giờ rưỡi.
 
-Đơn Vĩ có quá nhiều điều thắc mắc, nhưng biết rõ thân phận mình là tài xế.
+Triệu Kim An liếc nhìn đồng hồ rồi nói: "Đến nơi rồi, chính là chỗ này. Anh cứ ngả lưng ở trên xe chợp mắt một lát đi."
 
-Việc không nên hỏi thì không hỏi.
+Trong lòng Đan Vĩ có muôn vàn thắc mắc, nhưng ông tự biết thân phận mình là tài xế.
 
-Chiếc Audi A6 dừng bên lề đường, ngay dưới lầu văn phòng. Nhìn thấy chiếc Range Rover màu trắng đậu ở cửa tòa nhà, Triệu Kim An biết Lạc Cẩn Chi đang ngủ ở văn phòng trên tầng ba.
+Chuyện không nên hỏi thì tuyệt đối không được tò mò.
 
-Tháng mười, một nửa là dư ôn cuối hạ, một nửa là khúc dạo đầu của chớm thu.
+Chiếc Audi A6 từ từ dừng bánh bên lề đường, ngay dưới chân tòa nhà văn phòng. Trông thấy chiếc Land Rover màu trắng đỗ trước cửa sảnh chung cư, Triệu Kim An biết ngay Lạc Cẩn Chi đang ngủ lại trên văn phòng ở tầng ba.
 
-Hơi thu dần đậm, Triệu Kim An xuống xe kéo chặt vạt áo khoác, ngẩng đầu nhìn lên tầng ba, rút một điếu thuốc ra châm lửa.
+Tháng mười, một nửa là hơi ấm tàn dư của mùa hạ, một nửa là khúc dạo đầu của tiết thu se lạnh.
 
-Áo khoác là loại mỏng mua với giá năm trăm tệ, thuốc lá là loại Hoàng Phù.
+Hơi thu ngày càng đậm đặc. Triệu Kim An bước xuống xe, khẽ kéo lại vạt áo khoác mỏng, ngước nhìn lên căn phòng tầng ba rồi rút bao thuốc lá châm một điếu.
 
-Bốn giờ rưỡi sáng, thành phố nhỏ Tư Tinh này đang chìm trong giấc ngủ, trên đường nửa ngày chẳng thấy một bóng xe, xung quanh vắng lặng như tờ, không có quán bar, thỉnh thoảng còn nghe thấy vài tiếng chó sủa.
+Chiếc áo khoác mỏng này anh mua với giá năm trăm tệ, còn bao thuốc đang hút là loại Phù Dung Vàng.
 
-Đoạn Thu Bình gả từ Triệu Kim An Gia thôn đến Sâm Châu, Sâm Châu có quán bar.
+Bốn giờ rưỡi sáng, thành phố nhỏ Tư Hưng vẫn còn đang chìm trong giấc nồng say. Trên đường phố hồi lâu mới thấy một bóng xe qua lại, bốn bề vắng lặng như tờ. Nơi đây không có quán bar nhộn nhịp, thi thoảng chỉ có tiếng chó sủa vu vơ vọng lại từ xa.
 
-Đơn Vĩ nhìn ông chủ đang đứng hút thuốc bên ngoài, chỉ cảm thấy bóng lưng kia có chút tiêu điều, cảm giác ai cũng khó lòng tiếp cận, dù ngày thường hắn đối với ai cũng tươi cười... Nhìn một hồi, vì mệt mỏi cả ngày nên anh ta thiếp đi lúc nào không hay.
+Đoạn Thu Bình từ Triệu Gia Thôn tái giá về Sâm Thành, ở Sâm Thành mới có quán bar.
 
-Trong lúc mơ màng nghe thấy tiếng người cãi vã, Đơn Vĩ mở mắt ra thấy xung quanh đã có rất nhiều người. Nhìn đồng hồ đã là 7 giờ 45 phút, lắng tai nghe kỹ thì chính là giọng của ông chủ.
+Đan Vĩ ngồi trong xe nhìn ra ngoài, thấy bóng lưng ông chủ đang đứng phì phèo điếu thuốc trong màn sương sớm, bỗng thấy dáng hình ấy sao mà đơn độc, tiêu điều đến lạ. Có cảm giác như chẳng ai có thể thực sự bước vào được thế giới nội tâm của cậu ta, dẫu cho bình thường cậu ta gặp ai cũng nở nụ cười... Cứ mải miết suy nghĩ miên man, lại thêm một ngày mệt mỏi, Đan Vĩ dần chìm vào giấc ngủ.
 
-Đơn Vĩ vội vàng xuống xe, gạt đám đông ra rồi chạy theo hướng tiếng động lên tầng ba.
+Trong cơn mơ màng, Đan Vĩ bỗng nghe thấy tiếng cãi vã to tiếng vọng lại. Ông giật mình mở mắt, thấy chung quanh đã có khá đông người tụ tập. Nhìn đồng hồ đã là bảy giờ bốn mươi lăm phút sáng. Lắng tai nghe kỹ lại, đó chính là giọng nói của ông chủ mình.
 
-"Anh là ai!?"
+Đan Vĩ vội vàng đẩy cửa bước xuống xe, rẽ đám đông men theo tiếng cãi cọ chạy thục mạng lên tầng ba.
 
-Ở ngay lối lên cầu thang tầng ba, anh ta bị mấy người đàn ông chặn lại.
+"Mày là ai?!"
 
-Hồ Thần và mấy nhân viên giao hàng đang đứng chắn lối đi.
+Vừa lên đến chiếu nghỉ tầng ba, ông đã bị mấy gã đàn ông lực lưỡng chặn đường.
 
-"Ông chủ của tôi ở bên trong!"
+Hồ Thần cùng mấy nhân viên giao hàng đang đứng ken đặc trước cửa phòng.
 
-Đơn Vĩ đẩy mấy người ra, Hồ Thần bị đẩy trúng kêu "pạch" một tiếng dính vào tường, hắn vừa xoa lưng vừa gắt gỏng: "Anh vội cái quái gì, cậu ta đang bàn chuyện với sếp của chúng tôi!"
+"Ông chủ của tôi đang ở bên trong!"
 
-Hồ Thần cũng đang ngơ ngác đây, vừa đi làm đã nghe thấy sếp đang cãi nhau với người ta.
+Đan Vĩ hung hăng gạt phăng mấy người ra. Hồ Thần bị đẩy một cú đau điếng đập cả lưng vào tường, vừa xoa lưng vừa bực bội quát: "Gấp cái rắm gì mà gấp! Cậu ta đang bàn chuyện làm ăn với sếp của bọn tao!"
 
-Cứ tưởng trị an không tốt, hắn dẫn theo mấy nhân viên kinh doanh xông lên gõ cửa, hóa ra lại là cậu sinh viên đại học kia.
+Bản thân Hồ Thần lúc này cũng đang ngơ ngác như bò đội nón. Vừa tới công ty làm việc đã nghe thấy tiếng bà chủ đang to tiếng cãi nhau kịch liệt với ai đó bên trong.
 
-Đơn Vĩ đứng chắn ngay phía trước, nhìn chằm chằm nhóm Hồ Thần, nghe thấy trong văn phòng chỉ có tiếng của một người phụ nữ mới yên tâm phần nào.
+Tưởng đâu gặp phải bọn bất hảo đến quấy rối, anh ta liền dẫn theo mấy nhân viên kinh doanh hùng hổ xông lên gõ cửa, kết quả cửa vừa mở ra thì phát hiện kẻ bên trong lại chính là cậu sinh viên đại học hôm trước.
+
+Đan Vĩ đứng chắn ngay phía trước, ánh mắt sắc lẹm trừng trừng nhìn nhóm Hồ Thần. Mãi đến khi nghe ngóng bên trong phòng làm việc chỉ có tiếng của một người phụ nữ, ông mới thở phào trút được gánh nặng.
 
 "Mẹ kiếp!"
 
-Hồ Thần chửi một câu, biết người trước mặt này hơi khó dây vào, liền nói: "Ông chủ của anh là đàn ông, anh sợ cái gì, sếp chúng tôi còn có thể... Không đúng, cậu ta là ông chủ của anh!?"
+Hồ Thần khẽ rủa thầm một câu, biết gã to con trước mặt không phải dạng vừa, bèn nói: "Ông chủ mày là đàn ông con trai thì sợ cái cóc khô gì, bà chủ tao còn có thể ăn thịt được cậu ta chắc... Ơ mà khoan đã, thằng nhóc đó là ông chủ của mày á?!"
 
-Càng nói, vẻ mặt Hồ Thần càng kinh ngạc.
+Nói đến đây, gương mặt Hồ Thần lộ rõ vẻ kinh ngạc tột độ.
 
-Một thằng nhóc sinh viên đại học mà thuê được kiểu bảo vệ như thế này sao!?
+Một thằng nhóc sinh viên năm nhất mà lại thuê hẳn một tài xế kiêm vệ sĩ thế này ư?!
 
-"Triệu Kim An, tâm địa của cậu có phải quá đen tối rồi không!!!"
+"Triệu Kim An, lòng dạ cậu có phải quá thâm hiểm đen tối rồi không hả?!!"
 
-Nghe thấy tiếng có người ném đồ đạc, giọng của Triệu Kim An lại rất thản nhiên: "67%, giá cả chị cứ đưa ra, tôi không mặc cả."
+Bên trong bỗng vang lên tiếng đồ vật bị ném loảng xoảng, nhưng giọng điệu của Triệu Kim An đáp lại vẫn vô cùng bình thản: "Sáu mươi bảy phần trăm cổ phần. Giá cả chị cứ việc đưa ra, tôi không thèm mặc cả một câu."
 
-"Được thôi, vậy tính tròn một trăm triệu đi!"
+"Được thôi! Thế thì tính theo định giá một trăm triệu tệ đi!"
 
-Đến đây thì không còn tiếng động nào nữa.
+Bên trong căn phòng bỗng chốc im bặt.
 
-Trong văn phòng, Lạc Cẩn Chi tức giận đến mức lồng ngực phập phồng dưới lớp áo sơ mi, suýt chút nữa là bung cúc áo. Nàng cũng chẳng buồn mang cao gót nữa, đôi mắt nhìn chằm chằm Triệu Kim An, nói: "67% chính là sáu mươi bảy triệu, cậu lấy tiền ra đi."
+Trong phòng làm việc, Lạc Cẩn Chi tức giận đến mức lồng ngực phập phồng kịch liệt dưới lớp áo sơ mi mỏng, suýt chút nữa làm bung cả cúc áo. Đôi giày cao gót cũng bị cô đá văng sang một bên, đôi mắt đẹp trừng trừng nhìn Triệu Kim An: "Sáu mươi bảy phần trăm tức là sáu mươi bảy triệu tệ, cậu móc tiền ra đây!"
 
-"Bán hết cả công ty cho cậu cũng chẳng sao!"
+"Bán đứt cả công ty này cho cậu luôn cũng được!"
 
-Triệu Kim An không mắc mưu nàng, nói: "Công ty của chị giá trị tối đa là sáu triệu, tôi tính theo mức định giá mười triệu cho chị."
+Triệu Kim An không thèm bắt bẻ câu nói hờn dỗi ấy, điềm đạm phân tích: "Cả cái công ty này của chị cùng lắm chỉ đáng giá sáu triệu tệ, tôi đã tính cho chị theo mức định giá mười triệu tệ rồi đấy."
 
-Lạc Cẩn Chi quăng tập tài liệu đi: "Cậu nói bao nhiêu là bấy nhiêu chắc!?"
+Lạc Cẩn Chi vung tập tài liệu xuống bàn: "Cậu bảo bao nhiêu là bấy nhiêu chắc?!"
 
-Triệu Kim An vốn xuất thân là kế toán, điềm tĩnh đáp: "Tôi tính toán dựa trên tài sản cố định của công ty chị, nhà máy nước tôi đã đi xem qua rồi."
+Là dân kế toán chuyên nghiệp, Triệu Kim An từ tốn nói: "Tôi dựa trên giá trị tài sản cố định hiện có của công ty chị để ước tính, nhà máy nước tôi cũng đã đích thân xuống tận nơi xem xét rồi."
 
-Lạc Cẩn Chi nói: "Tôi còn có Đông Giang Ấn Tượng nữa."
+Lạc Cẩn Chi cãi: "Tôi còn có thương hiệu 'Đông Giang Ấn Tượng' nữa!"
 
-Triệu Kim An nói: "Thương hiệu này của chị không có giá trị thặng dư."
+Triệu Kim An dội ngay một gáo nước lạnh: "Thương hiệu này của chị chẳng hề có chút giá trị thặng dư nào cả."
 
 "..."
 
-Cúc áo sơ mi của Lạc Cẩn Chi thực sự sắp bung ra rồi, thương hiệu mình vất vả gầy dựng mấy năm trời, cư nhiên bị người ta nói là không có giá trị, cuối cùng nàng vẫn phải nén giận.
+Lạc Cẩn Chi tức đến mức cúc áo sơ mi suýt bung ra thật. Thương hiệu mà cô phải dốc bao tâm huyết, trầy vi tróc vảy gầy dựng suốt mấy năm trời, vậy mà rơi vào miệng cậu ta lại trở thành thứ vô giá trị không đáng một xu. Nhưng cuối cùng, cô vẫn cố nén cơn giận xuống.
 
-"Cậu chỉ nhắm vào cái giấy phép khai thác nước này của tôi thôi chứ gì."
+"Cậu chỉ nhắm vào cái giấy phép khai thác nguồn nước của tôi thôi chứ gì."
 
-Triệu Kim An gật đầu.
+Triệu Kim An khẽ gật đầu thừa nhận.
 
-Lạc Cẩn Chi nói: "49%, tính theo giá tám triệu."
+Lạc Cẩn Chi mặc cả: "Bốn mươi chín phần trăm cổ phần, tính theo định giá tám triệu tệ."
 
-Triệu Kim An lắc đầu: "67%, công ty phải do tôi quyết định."
+Triệu Kim An lắc đầu dứt khoát: "Sáu mươi bảy phần trăm. Công ty này bắt buộc phải do tôi toàn quyền quyết định."
 
-Lạc Cẩn Chi lườm một cái: "51% thì cậu cũng có quyền quyết định rồi còn gì."
+Lạc Cẩn Chi đảo mắt lườm anh một cái: "Năm mươi mốt phần trăm cũng đủ để cậu nắm quyền quyết định rồi."
 
-Triệu Kim An nói: "Lạc tổng, chị không huy động vốn thì công ty mãi mãi không lớn nổi. Chị đến Quận Sa cũng được một tháng rồi nhỉ, người ta có công nhận Đông Giang Ấn Tượng của chị không?"
+Triệu Kim An phân tích cặn kẽ: "Lạc tổng, nếu chị không gọi vốn đầu tư thì công ty này vĩnh viễn chẳng bao giờ lớn mạnh nổi đâu. Chị lên Quận Sa mở thị trường cũng được một tháng rồi nhỉ, có ai thèm công nhận cái thương hiệu Đông Giang Ấn Tượng của chị chưa?"
 
-Lạc Cẩn Chi nói: "Tôi có thể tìm người khác góp vốn, đâu phải chỉ có mình cậu."
+Lạc Cẩn Chi bướng bỉnh: "Tôi có thể đi tìm người khác gọi vốn, đâu phải chỉ có mình cậu là lựa chọn duy nhất."
 
-Triệu Kim An nói: "Có ai đưa ra điều kiện tốt như tôi không? Tôi đã nói rồi, trong vòng ba năm nếu không có khởi sắc, toàn bộ cổ phần sẽ trả lại vô điều kiện cho chị. Chị tìm người khác góp vốn, có khi còn phải ký thỏa thuận cá cược."
+Triệu Kim An thản nhiên nói: "Liệu có ai đưa ra điều kiện hậu hĩnh như tôi không? Tôi đã cam kết rõ ràng, trong vòng ba năm nếu công ty không khởi sắc, toàn bộ số cổ phần này tôi sẽ hoàn trả vô điều kiện lại cho chị. Chị đi tìm người khác góp vốn, khéo chừng còn phải ký hợp đồng đánh cược doanh số đối ứng."
 
-"Chỉ cần không đạt chỉ tiêu, có lẽ công ty sẽ thuộc về người khác luôn đấy."
+"Chỉ cần không đạt chỉ tiêu đề ra, công ty này lập tức rơi vào tay kẻ khác ngay."
 
-Lạc Cẩn Chi im lặng.
+Lạc Cẩn Chi hoàn toàn cứng họng, không cãi lại được câu nào.
 
-Thời gian qua nàng luôn cân nhắc chuyện này, đến Quận Sa rồi mới biết cạnh tranh khốc liệt thế nào, rời khỏi địa bàn cũ thì ngay cả thị trường nước đóng bình cũng khó chen chân vào được.
+Khoảng thời gian này cô đã trăn trở, suy nghĩ nát cả óc. Lên đến đất Quận Sa hoa lệ mới thấm thía mức độ cạnh tranh trên thương trường khốc liệt đến dường nào. Rời khỏi địa bàn sân nhà Tư Hưng, ngay cả thị trường nước đóng bình cô cũng chẳng tài nào chen chân nổi.
 
-Ở Tư Tinh, in hai chữ "Đông Giang" lên thì còn bán được chút ít, có người nhận diện, nhưng đến Quận Sa chẳng mấy ai biết "Đông Giang" là cái gì. Bán một tệ một chai cũng không tranh nổi với những hãng giá hai tệ hay một tệ rưỡi như Nongfu Spring, C'estbon, Wahaha...
+Ở huyện Tư Hưng này, trên bình nước in hai chữ "Đông Giang" thì người ta còn biết đến mà tiêu thụ được chút ít. Chứ đặt chân lên Quận Sa thì chẳng mấy ai biết "Đông Giang" là cái thứ gì, dẫu có bán một tệ một chai cũng không thể nào cạnh tranh nổi với những ông lớn bán giá hai tệ hay một tệ rưỡi như Nông Phu Sơn Tuyền, Di Bảo, Oa Cáp Cáp...
 
-Còn có cả Master Kong giá một tệ, Master Kong cũng là thương hiệu lớn.
+Lại còn có cả Khang Sư Phụ bán giá một tệ, người ta là thương hiệu quốc dân lâu năm.
 
-Đây chính là một vòng lẩn quẩn.
+Đây chính là một cái vòng luẩn quẩn chết người.
 
-Chị càng bán không chạy, những tiệm tạp hóa đó càng không dành vị trí cho chị.
+Hàng của chị càng khó bán thì các tiệm tạp hóa lại càng không chịu dành vị trí trưng bày đẹp cho chị.
 
-Nhân viên tiếp thị đến tận nơi, các ông chủ sẽ bảo: "Các cô đừng bày ra nữa, lần trước giao đến còn chưa bán hết, bày ra chỉ tổ chật chỗ!"
+Nhân viên tiếp thị đến chào hàng, các ông bà chủ tiệm chỉ phẩy tay xua đuổi: "Thôi đừng bày ra nữa, lô hàng đợt trước các cô chở tới còn chưa bán hết đây này, bày ra chỉ tổ chật chội rác nhà!"
 
-Để mở rộng thị trường, ngành hàng tiêu dùng nhanh thường là cung cấp hàng trước rồi mới thanh toán sau, tức là bán được mới trả tiền.
+Để mở rộng thị trường, trong ngành hàng tiêu dùng nhanh thường áp dụng phương thức ký gửi: tức là giao hàng trước, bán được bao nhiêu thì cuối tháng mới thanh toán bấy nhiêu.
 
-Đây được coi là quy tắc ngầm trong ngành rồi.
+Đây được coi là luật bất thành văn trong ngành rồi.
 
-Cho nên làm ngành này mà không có chút vốn liếng thì thực sự không được, ngay cả làm đại lý cũng phải có thực lực kinh tế nhất định.
+Thế nên bước chân vào mảng hàng tiêu dùng nhanh mà không có tiềm lực tài chính dồi dào thì tuyệt đối không thể làm nổi, ngay cả việc làm đại lý phân phối cũng đòi hỏi phải có vốn liếng vững vàng.
 
-Đầu tiên chính là phải phủ hàng.
+Bước đầu tiên và quan trọng nhất chính là phải phủ hàng cho bằng được.
 
-Nhìn Lạc Cẩn Chi có chút tiều tụy, Triệu Kim An nhặt một chiếc giày cao gót lên nói: "Lạc tổng, thương vụ này chị chỉ có lời chứ không lỗ. Công ty phất lên, chị kiếm đậm; công ty không phất lên được, ba năm sau tất cả lại là của chị."
+Nhìn Lạc Cẩn Chi có phần tiều tụy, Triệu Kim An cúi người nhặt chiếc giày cao gót dưới đất lên, nhẹ giọng nói: "Lạc tổng, thương vụ này chị chỉ có lời chứ không bao giờ lỗ. Công ty phất lên, chị kiếm bộn tiền; công ty không phất lên được, ba năm sau mọi thứ lại hoàn toàn thuộc về chị."
 
-Lạc Cẩn Chi hậm hực: "Lạc tổng, Lạc tổng cái gì, gọi chị Cẩn Chi!"
+Lạc Cẩn Chi hờn dỗi gắt: "Lạc tổng với chả Lạc tổng cái gì, gọi là Cẩn Chi tỷ!"
 
-Triệu Kim An đặt chiếc giày cao gót xuống dưới chân Lạc Cẩn Chi, tâm bình khí hòa nói: "Hiện tại chị phản ứng mạnh như vậy chẳng qua là để mặc cả thôi, nếu không thì chị đã chẳng bảo gặp mặt rồi mới bàn."
+Triệu Kim An đặt chiếc giày cao gót xuống ngay dưới chân Lạc Cẩn Chi, bình thản nói: "Phản ứng của chị dữ dội như vậy chẳng qua chỉ là một đòn tâm lý để mặc cả ép giá thôi, nếu không thì chị đã chẳng hẹn tôi gặp mặt trực tiếp làm gì."
 
-Lạc Cẩn Chi ngồi trên sofa cười một tiếng, nhìn Triệu Kim An sạch sẽ lại đẹp trai, đột nhiên đá hắn một cái, nói: "Giày nhặt rồi, không biết đi vào cho chị sao?"
+Lạc Cẩn Chi ngồi xuống ghế sofa khẽ bật cười. Đưa mắt ngắm nhìn chàng trai trẻ trung, tuấn tú và sạch sẽ trước mặt, cô bỗng tinh nghịch vươn chân khẽ đá nhẹ vào người anh một cái: "Nhặt giày hộ người ta rồi mà không biết xỏ vào chân cho chị luôn à?"
 
-Đi giày cho phụ nữ!?
+Xỏ giày cho phụ nữ sao?!
 
-"Đồ ngốc!"
+"Đúng là đồ ngốc!"
 
-Lạc Cẩn Chi cười khẽ: "Người khác muốn đi cho tôi, tôi còn chưa cho cơ hội đâu đấy!"
+Lạc Cẩn Chi phì cười: "Bao nhiêu kẻ xếp hàng muốn xỏ giày cho bà đây mà bà còn chẳng thèm cho cơ hội đấy!"
 
-Triệu Kim An lạnh lùng thốt ra một câu: "Sở thích đôi chân à?"
+Triệu Kim An buông một câu lạnh lùng: "Chị thích khoe chân à?"
 
-Chân của Lạc Cẩn Chi rất trắng, thực sự rất đẹp. Nàng nói: "51% không được sao, nhất định phải là 67%?"
+Đôi bàn chân của Lạc Cẩn Chi rất trắng trẻo, thon thả và thực sự rất đẹp. Cô thu chân lại, nghiêm túc nói: "Năm mươi mốt phần trăm không được sao, nhất thiết cứ phải là sáu mươi bảy phần trăm à?"
 
-Triệu Kim An gật đầu: "Trong vòng ba năm, nhất định phải do tôi quyết định."
+Triệu Kim An gật đầu chắc nịch: "Trong vòng ba năm, công ty bắt buộc phải do một mình tôi định đoạt."
 
-"Vậy tôi thành người đi làm thuê cho cậu rồi!"
+"Thế thì tôi hóa ra thành kẻ đi làm thuê cho cậu rồi còn gì!"
 
-Triệu Kim An nói: "Chị có được sáu triệu bảy trăm nghìn tệ rồi còn không mãn nguyện sao?"
+Triệu Kim An đáp: "Chị cầm trọn sáu triệu bảy trăm nghìn tệ bỏ túi rồi mà vẫn chưa thỏa mãn sao?"
 
-Lạc Cẩn Chi suy nghĩ một chút vẫn thấy không cam lòng, nói: "Công ty là tâm huyết của tôi, tôi có thể đánh cược với cậu, cho cậu thời gian ba năm, nhưng tối đa chỉ bán 51%."
+Lạc Cẩn Chi suy nghĩ một lát nhưng trong lòng vẫn chưa cam tâm, bèn nói: "Công ty này là toàn bộ tâm huyết của tôi, tôi có thể đánh cược với cậu một phen, cho cậu thời hạn ba năm, nhưng tối đa tôi chỉ bán năm mươi mốt phần trăm cổ phần thôi."
 
-Triệu Kim An do dự.
+Triệu Kim An hơi đăm chiêu do dự.
 
-Lạc Cẩn Chi lại nói: "Nhưng chúng ta cũng có thể ký một bản hợp đồng ba năm, tôi biết cậu lo lắng điều gì, trong vòng ba năm cậu có thể thực hiện quyền hạn của 67% cổ phần..."
+Lạc Cẩn Chi nói tiếp: "Nhưng chúng ta có thể ký thêm một bản thỏa thuận phụ kéo dài ba năm. Tôi biết cậu lo lắng điều gì, trong vòng ba năm này cậu được toàn quyền thực thi quyền biểu quyết tương đương sáu mươi bảy phần trăm cổ phần..."
 
-"Tôi cũng không chiếm hời của cậu quá nhiều, tính theo mức tám triệu đi."
+"Tôi cũng không chiếm quá nhiều lợi của cậu đâu, cứ tính theo mức định giá tám triệu tệ là được."
 
-Bên ngoài, Đơn Vĩ và Hồ Thần không còn nghe thấy tiếng cãi vã nữa.
+Bên ngoài hành lang, Đan Vĩ và Hồ Thần không còn nghe thấy tiếng cãi vã to tiếng nữa.
 
-Hồ Thần mời Đơn Vĩ một điếu thuốc, nhìn chiếc xe tải nhỏ ba bánh dưới lầu có in logo Đông Giang Ấn Tượng, Đơn Vĩ thầm nghĩ cuối cùng ông chủ cũng bắt tay vào làm việc rồi sao?
+Hồ Thần mời Đan Vĩ một điếu thuốc. Đưa mắt nhìn xuống chiếc xe lôi ba bánh dưới sân có in logo của Đông Giang Ấn Tượng, Đan Vĩ thầm nghĩ chẳng lẽ ông chủ của mình cuối cùng cũng bắt tay vào làm ăn lớn thật rồi sao?
 
-Trong văn phòng.
+Bên trong văn phòng.
 
-Triệu Kim An chỉ cầm sổ sách lật xem qua loa, liền nói: "Lạc tổng, lấy sổ sách thật ra đây đi."
+Triệu Kim An chỉ cầm cuốn sổ cái lật giở vài trang, rồi ngẩng đầu lên nói: "Lạc tổng, chị mang cuốn sổ sách kế toán thật ra đây đi."
 
-Lạc Cẩn Chi rất ngạc nhiên: "Cậu mới đi học được mấy buổi? Mà đã có thể đọc hiểu báo cáo tài chính rồi? Lại còn nhanh như vậy?"
+Lạc Cẩn Chi vô cùng kinh ngạc: "Cậu mới học có mấy tiết đại học thôi mà? Đã đọc hiểu được báo cáo tài chính rồi á? Mà lại còn đọc nhanh như thế nữa?"
 
-Nàng không biết Triệu Kim An đã làm kế toán hơn mười năm, lại còn thi đậu chứng chỉ kiểm toán viên (CPA). Với một công ty như thế này, kế toán và thủ quỹ cộng lại chắc chỉ có trình độ chứng chỉ kế toán sơ cấp.
+Cô làm sao biết được Triệu Kim An ở kiếp trước đã làm kế toán hơn mười năm, lại còn thi đỗ chứng chỉ Kế toán Công chứng (CPA) danh giá. Với một quy mô công ty nhỏ như thế này, kế toán lẫn thủ quỹ cộng lại giỏi lắm cũng chỉ có cái chứng chỉ sơ cấp nhập môn.
 
-Chẳng còn cách nào, không có chứng chỉ thì không làm kế toán được.
+Không có cách nào khác, thời buổi này không có chứng chỉ kế toán thì không được phép hành nghề.
 
-Có phải sinh viên đại học hay không thì khó nói, có lẽ chỉ là học sinh trung cấp tốt nghiệp từ trường trung cấp ở Sâm Châu thôi.
+Còn có phải sinh viên đại học chính quy hay không thì khó nói lắm, có khi chỉ là học sinh trung cấp tốt nghiệp trường nghề ở Sâm Thành ra.
 
-Cách họ làm sổ sách sao có thể qua mắt được Triệu Kim An. Hắn xem thêm một lát nữa, cầm sổ sách nói: "Trên tài khoản của chị ngoài việc không có tiền ra, còn đang nợ ngân hàng bốn triệu?"
+Thứ sổ sách do những người này làm sao qua nổi đôi mắt nhà nghề của Triệu Kim An. Anh xem thêm một lúc nữa rồi gập sổ lại, nhìn Lạc Cẩn Chi: "Tài khoản công ty ngoài việc không còn một đồng tiền mặt nào ra, chị còn đang nợ ngân hàng bốn triệu tệ nữa đúng không?"
 
-Lạc Cẩn Chi nhường luôn cả chiếc ghế giám đốc, ngồi thong thả hút sữa trên sofa, chẳng buồn đáp lời Triệu Kim An.
+Lạc Cẩn Chi đã nhường luôn cả chiếc ghế giám đốc cho anh, còn mình thì thảnh thơi ngồi ngả ngớn trên sofa hút sữa tươi, chẳng buồn đôi co với Triệu Kim An nữa.
 
-Triệu Kim An nói: "Vậy mà chị còn mua cả Range Rover?"
+Triệu Kim An nhíu mày: "Nợ đầm đìa như thế mà chị còn dám vung tiền mua chiếc Land Rover Range Rover kia à?"
 
-Đến lúc này Lạc Cẩn Chi mới lên tiếng: "Range Rover thì sao? Cậu thấy có công ty nào mà không nợ tiền ngân hàng không? Có ông chủ nào mà không phải xe sang nhà xịn nhưng nợ nần đầm đìa?"
+Nghe đến đây, Lạc Cẩn Chi lập tức có cớ để phản bác: "Land Rover Range Rover thì làm sao nào? Cậu ra ngoài nhìn xem có công ty nào mà không vay nợ ngân hàng không? Có ông chủ nào mà chẳng ở biệt thự, đi xe sang rồi gánh một đống nợ trên lưng?"
 
-"Họ mà ép tôi trả nợ, có giỏi thì cứ thu hồi công ty đi."
+"Bọn họ mà dám ép tôi trả nợ gấp, có giỏi thì cứ xiết nợ tịch thu cả cái công ty này đi."
 
-Lạc Cẩn Chi nói một cách hùng hồn đầy lý lẽ, khiến Triệu Kim An cũng không còn gì để nói.
+Lạc Cẩn Chi nói năng vô cùng hùng hồn, khiến Triệu Kim An cũng phải cạn lời.
 
-"Hối hận rồi sao?"
+"Hối hận rồi chứ gì?"
 
-Lạc Cẩn Chi cười rộ lên, đứng dậy vừa hút sữa, ngón tay thanh mảnh vừa điểm vào trước ngực Triệu Kim An nói: "Hối hận vẫn còn kịp đấy. Còn nữa, cậu vội vàng khởi nghiệp như vậy là muốn làm gì?"
+Lạc Cẩn Chi cười khúc khích, đứng dậy vừa hút sữa vừa đưa ngón tay thon dài chọc nhẹ vào lồng ngực Triệu Kim An: "Hối hận bây giờ vẫn còn kịp đấy nhé. Mà này, cậu sốt sắng khởi nghiệp gấp gáp như thế là định làm cái gì?"
 
-Triệu Kim An nói: "Làm vua tiền mặt?"
+Triệu Kim An thản nhiên đáp: "Làm Vua Tiền Mặt."
 
-Lạc Cẩn Chi ngẩn người một hồi: "Tôi vừa nói nợ nần, cậu đã bảo muốn làm vua tiền mặt?"
+Lạc Cẩn Chi ngây người ra một lúc lâu: "Tôi vừa mới bảo công ty đang nợ nần ngập đầu, cậu đã đòi làm Vua Tiền Mặt là thế quái nào?"
 
-Triệu Kim An nói: "Chuyện ngân hàng chị tự đi mà giải quyết, tiền bán cổ phần của chị cứ để lại công ty mà dùng, khi nào có lãi mới được rút đi."
+Triệu Kim An nói: "Chuyện ngân hàng chị tự đi mà giải quyết ổn thỏa. Tiền bán cổ phần của chị trước mắt cứ giữ lại trong công ty để làm vốn lưu động, chừng nào công ty sinh lời thì chị mới được rút ra."
 
-"Triệu Kim An, vậy tôi mưu cầu cái gì chứ!?"
+"Triệu Kim An, thế thì rốt cuộc tôi được cái tích sự gì hả?!"
 
-"Yên tâm, sẽ không để chị chịu thiệt đâu."
+"Chị cứ yên tâm, phần của chị tuyệt đối không thiếu một cắc."
 
-"Vậy nhỡ lỗ vốn thì tôi lấy tiền ở đâu, chẳng lẽ tôi đi theo chơi không với cậu suốt ba năm sao!? Bàn tính này của cậu gảy cũng vang quá rồi đấy?"
+"Thế lỡ làm ăn thua lỗ thì tôi biết đi đâu đòi tiền? Chẳng lẽ tôi phải hầu cậu chơi trò con nít không công suốt ba năm trời à?! Cậu tính toán nước cờ này cũng khôn khéo quá rồi đấy!"
 
 ...

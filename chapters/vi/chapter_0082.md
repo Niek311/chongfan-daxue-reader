@@ -1,235 +1,235 @@
-# Chương 82: Phí Đổi Miệng
+# Chương 82: Tiền đổi cách xưng hô?
 
-Mùa đông lạnh giá, buổi chập choạng tối, ráng chiều quyện cùng sương giá trầm xuống.
+> **Tiêu đề gốc**: 第82章 改口费？
 
-Ánh đèn neon trên các biển quảng cáo giữa bầu trời xám xịt tựa như tiếng thở dốc của một bệnh nhân hen suyễn.
+Một buổi chập tối mùa đông giá rét, sương giá buốt lạnh phủ xuống không gian mịt mù.
 
-Tô Miền cô độc trên chiếc xe lăn, xung quanh là những sinh viên "tươi tắn" đang tay xách nách mang hành lý vội vã ra ga tàu.
+Ánh đèn neon trên các biển hiệu quảng cáo chớp nháy giữa bầu trời màu xám tro ảm đạm, tựa như hơi thở dồn dập, đứt quãng của một bệnh nhân hen suyễn.
 
-Lại là tông màu đen, váy dài đen, áo len cao cổ đen, áo khoác đen. Khuôn mặt trái xoan tinh tế cổ điển với làn da trắng sứ tạo nên sự tương phản cực hạn với sắc đen tuyền.
+Tô Miến trơ trọi một mình bên chiếc xe lăn, xung quanh là từng tốp sinh viên trẻ trung, tràn đầy sức sống đang hối hả xách ba lô, hành lý đổ dồn về phía nhà ga xe lửa.
 
-Triệu Kim An nhìn quanh một lượt, xác nhận không có Ngô Hiểu, cũng không có chiếc xe khả nghi nào.
+Vẫn là tông màu đen quen thuộc: chiếc váy dài màu đen, áo len cổ lọ màu đen cùng chiếc áo khoác đen tuyền bên ngoài. Khuôn mặt trái xoan thanh tú, mang đậm nét đẹp cổ điển đài các, làn da trắng nõn nà đối lập đến tột cùng với sắc đen bao quanh.
 
-Hắn hít sâu một hơi, tiến lên phía trước ngồi xổm xuống bên cạnh xe lăn, chạm vào tay Tô Miền.
+Triệu Kim An dáo dác nhìn quanh quất hai bên đường, sau khi đã chắc chắn không có Ngô Hiểu và cũng chẳng có chiếc xe "khả nghi" nào theo sau, anh mới hít sâu một hơi, bước lại gần rồi ngồi xổm xuống bên cạnh chiếc xe lăn, khẽ chạm tay vào bàn tay của Tô Miến.
 
-"Không lạnh sao? Găng tay đâu?"
+"Không thấy lạnh à? Găng tay của cô đâu rồi?"
 
-Triệu Kim An vừa nói vừa cầm lấy chiếc túi đeo chéo trong lòng Tô Miền, hắn không hiểu cô một mình chạy loạn cái gì.
+Triệu Kim An vừa nói vừa với lấy chiếc túi xách Tô Miến đang ôm trong lòng, anh thật sự không hiểu nổi rốt cuộc cô nàng này tự ý chạy lung tung một mình ra đây làm cái gì.
 
-Kết quả, Tô Miền lật tay nắm lấy tay Triệu Kim An, sờ nắn một hồi rồi lật lòng bàn tay hắn lên.
+Nào ngờ, Tô Miến lại trở tay nắm chặt lấy bàn tay Triệu Kim An, nhẹ nhàng mân mê rồi lật ngược lòng bàn tay anh lên xem.
 
-"Sao trên tay cậu lại có nhiều vết chai thế này!?"
+"Sao trong lòng bàn tay cậu lại có nhiều vết chai sạn thế này!?"
 
-Triệu Kim An rụt tay lại nhưng Tô Miền không cho.
+Triệu Kim An toan rụt tay lại nhưng Tô Miến nhất quyết không buông.
 
-Hồi quân sự, có mấy nữ sinh từng hâm mộ Triệu Kim An vì phơi nắng mãi không đen, Lưu Sấm Phong lúc mới khai giảng còn bảo Triệu Kim An trông còn giống đàn bà hơn cả đàn bà, sau đó lại nói hắn da dẻ mịn màng.
+Hồi còn học quân sự, khối nữ sinh từng ghen tị với Triệu Kim An vì anh phơi nắng mãi mà chẳng hề đen đi chút nào. Lưu Sấm Phong đợt đầu năm học từng bảo Triệu Kim An trông ẻo lả hơn cả đàn bà, sau này lại bảo da dẻ anh mịn màng nõn nà chẳng khác nào công tử bột.
 
-Điểm này ngay cả Vương Duy Đào cũng phụ họa theo.
+Ngay cả Vương Duy Đào cũng từng gật gù hùa theo nhận xét đó.
 
-Tô Miền vừa vuốt ve vừa hỏi: "Do làm việc mà thành à?"
+Tô Miến khẽ vuốt ve những vết chai thô ráp trong lòng bàn tay anh, ân cần hỏi: "Do làm lụng vất vả mà thành à?"
 
-Triệu Kim An gật đầu, lấy từ trong túi ra một chiếc khăn quàng cổ giúp Tô Miền thắt lại.
+Triệu Kim An gật đầu, thò tay vào túi xách tìm ra một chiếc khăn quàng cổ rồi cẩn thận quấn quanh cổ cho Tô Miến.
 
-Lại là màu đen.
+Lại là một chiếc khăn màu đen.
 
-Hắn kéo kéo chiếc khăn che đến tận cằm, khiến Tô Miền chỉ còn lộ ra khuôn mặt trái xoan trắng nõn.
+Anh kéo nhẹ chiếc khăn lên sát cằm, khiến Tô Miến giờ đây chỉ lộ ra mỗi gương mặt trái xoan trắng muốt như ngọc.
 
 "Kể tôi nghe đi, tôi muốn nghe."
 
-Triệu Kim An nói: "Do lên núi đốn củi thôi..."
+Triệu Kim An khẽ nói: "Thì lên núi đốn củi, chặt cây nên mới thế..."
 
-Triệu Quốc Hoa không có nhà, trong nhà chỉ có mình Triệu Kim An là đàn ông, việc nặng nhọc đương nhiên đổ lên đầu hắn. Lên núi đốn củi, cõng xuống núi, cưa nhỏ rồi chẻ ra.
+Chú Triệu Quốc Hoa quanh năm đi làm ăn xa không có nhà, trong gia đình chỉ có mỗi Triệu Kim An là đàn ông con trai, những việc nặng nhọc tốn sức đương nhiên đều dồn hết lên vai anh. Từ việc lên núi đốn củi, gùi củi xuống núi, cho đến việc cưa từng khúc rồi chẻ củi chất đống trong sân.
 
-Phải nói là từ sau khi Triệu Quốc Khánh qua đời, Triệu Kim An đã bắt đầu hiểu chuyện rồi.
+Đúng ra mà nói, kể từ sau ngày người cha Triệu Quốc Khánh qua đời, Triệu Kim An đã sớm phải học cách trưởng thành, hiểu chuyện hơn bạn bè đồng trang lứa.
 
-Đặc biệt là sau khi Đoạn Thu Bình tái giá, Triệu Kim An lúc đó mới lên cấp hai càng phải cố gắng lấy lòng Vương Kim Như.
+Đặc biệt là sau khi mẹ Đoạn Thu Bình tái giá, cậu bé Triệu Kim An mới bước chân vào cấp hai lại càng phải biết ý, tìm cách lấy lòng thím Vương Kim Như.
 
-Dù Vương Kim Như là kiểu người "khẩu xà tâm phật", nhưng sống gửi nhà chú, tổng không thể không làm việc gì mà chỉ biết ăn cơm chực chứ?
+Dẫu biết thím Vương Kim Như vốn là người "khẩu xà tâm phật", miệng lưỡi cay nghiệt nhưng bụng dạ lại chẳng hề ác ý, thế nhưng thân phận một đứa cháu "ở nhờ" nhà chú thím, lẽ nào lại có thể ăn không ngồi rồi, chẳng mó tay vào bất cứ việc gì để người ta nuôi báo cô?
 
-Hơn nữa, Triệu Kim An khi ấy mới học cấp hai, liệu có hiểu thế nào là khẩu xà tâm phật không?
+Hơn nữa, một đứa trẻ mới học cấp hai như Triệu Kim An ngày ấy, liệu đã đủ từng trải để thấu hiểu thế nào là "ngoài miệng dao găm trong lòng bồ tát" hay chưa?
 
-Sẽ có người hỏi tại sao Triệu Kim An không đi theo Đoạn Thu Bình?
+Có người ắt sẽ thắc mắc, tại sao ngày đó Triệu Kim An không đi theo mẹ Đoạn Thu Bình?
 
-Người không hiểu chuyện này thì sẽ mãi không hiểu.
+Chuyện này ai không ở trong hoàn cảnh ấy thì vĩnh viễn không thể nào thấu hiểu nổi.
 
-Ở Triệu Kim An Gia thôn, Triệu Kim An mang họ Triệu Kim An, có chú và cô. Đi theo Đoạn Thu Bình, chưa bàn đến chuyện Tống Siêu Văn có đồng ý hay không, thì đến bên đó chỉ có mình Triệu Kim An là người họ Triệu Kim An.
+Ở làng Triệu Gia Thôn, Triệu Kim An mang họ Triệu, bên cạnh còn có chú, có cô ruột thịt. Nếu theo Đoạn Thu Bình sang nhà mới, trước tiên chưa bàn đến chuyện người dượng Tống Siêu Văn có bằng lòng hay không, thì khi bước chân sang bên đó, cả căn nhà ấy chỉ có duy nhất một mình Triệu Kim An mang họ Triệu mà thôi.
 
-Cũng sẽ có người nói sao không tự lập, chẳng theo ai cả.
+Lại cũng có người bảo, sao không tự lập, chẳng theo bất kỳ ai?
 
-Tuổi trẻ nổi loạn có rất nhiều, họ bỏ học từ cấp hai, trong các công xưởng ở Dương Châu có không ít những người như vậy.
+Những đứa trẻ tuổi dậy thì nổi loạn bồng bột ngoài đời đâu có thiếu, bọn họ sẵn sàng bỏ học ngay từ cấp hai, và trong các khu công xưởng ở Dương Thành nhan nhản những số phận trôi dạt như thế.
 
-Triệu Kim An đẩy xe lăn, để ý phía sau quả thực không có ai đi theo.
+Triệu Kim An vừa chậm rãi đẩy xe lăn, vừa kín đáo liếc nhìn phía sau để chắc chắn thực sự không có ai bám đuôi theo dõi.
 
-Tô Miền lại nói: "Cậu gọi điện thoại đi."
+Tô Miến lại cất tiếng: "Cậu gọi điện thoại đi chứ."
 
-Triệu Kim An nghĩ ngợi rồi lấy điện thoại ra gọi cho Vương Duy Đào. Cái thằng cha này cứ lải nhải mãi, bảo trời lạnh thế này đi ra ngoài làm gì, nhất quyết đòi phải được mời ăn một bữa ngon.
+Triệu Kim An ngẫm nghĩ một thoáng rồi rút điện thoại ra gọi cho Vương Duy Đào. Cái thằng của nợ này vừa nghe máy đã càu nhàu la lối om sòm, bảo trời rét mướt cắt da cắt thịt thế này mò mặt ra đường làm gì, nếu muốn rủ đi thì bắt buộc phải bao ăn một bữa thật ra trò mới được.
 
-Ít nhất phải là cơm thố thịt băm hương cá thêm một chai nước cam, bảy tệ đấy!
+Ít nhất cũng phải là một suất cơm niêu thịt heo xào ớt hương kèm theo một chai nước cam, tính ra tròn trĩnh bảy tệ!
 
-Hắn đang ở ký túc xá thu dọn hành lý, mua vé tàu lúc mười giờ rưỡi đêm.
+Cậu ta lúc này đang ở trong phòng dọn dẹp hành lý, vé tàu của cậu ta khởi hành lúc mười giờ rưỡi tối nay.
 
-Triệu Chí Dũng thì đơn giản hơn nhiều, bảo là sẽ đến ngay.
+Triệu Trí Dũng thì đơn giản hơn nhiều, vừa nghe rủ rê đã lập tức bảo sẽ có mặt ngay.
 
-Hắn đang định tìm Triệu Kim An "hỏi tội", năm nay thị trường măng mùa đông tốt như vậy, về sớm một ngày là kiếm thêm được hơn một trăm tệ, thế mà Triệu Kim An cứ lề mề chuyện gùi hàng.
+Cậu ta vốn đang định chạy sang tìm Triệu Kim An để "hỏi tội" cho ra lẽ. Năm nay giá măng mùa đông được giá hời như thế, về quê sớm ngày nào là kiếm thêm được hơn trăm tệ ngày đó, vậy mà Triệu Kim An cứ dây dưa lề mề mãi chẳng chịu thu dọn hành lý về cùng.
 
-Triệu Chí Dũng đã tính kỹ rồi, mười mấy ngày có thể kiếm được hai nghìn tệ, mỗi người chia được một nghìn!
+Triệu Trí Dũng đã tính toán chi li đâu vào đấy, mười mấy ngày ở nhà đào măng có thể kiếm chắc hai nghìn tệ, hai thằng chia đôi mỗi đứa đút túi một nghìn ngon ơ!
 
-Triệu Kim An đẩy Tô Miền đến quảng trường Đồng Trình ở trấn Vinh Loan.
+Triệu Kim An đẩy Tô Miến đến quảng trường Đồng Trình ở thị trấn Vinh Loan.
 
-Đầu đường có một hàng bán khoai lang nướng, hơi ấm từ lò than trong thùng sắt tỏa ra âm ỉ.
+Ngay góc ngã tư có một xe đẩy bán khoai lang nướng, hơi ấm từ thùng sắt đượm than hồng tỏa ra xua bớt phần nào cái lạnh buốt giá.
 
-"Sưởi ấm chút nhé?"
+"Sưởi ấm một chút nhé?"
 
-Triệu Kim An rút tiền, chỉ vào một củ khoai nướng vừa vặn đang chảy mật xèo xèo: "Ông chủ, có thìa không?"
+Triệu Kim An rút ví tiền, chỉ vào một củ khoai nướng vừa chín tới đang tứa mật thơm lừng: "Bác ơi, có thìa múc không ạ?"
 
-"Ai ăn khoai lang mà dùng thìa chứ!?"
+"Ăn khoai lang nướng mà lại đòi thìa á!?"
 
-"Tôi mua."
+"Cháu mua luôn cái thìa."
 
-Triệu Kim An không nói nhiều, giống như đối đãi với Lưu Sấm Phong, một người bán hàng rong có gì phải tính toán, một hai tệ không đáng để tốn lời.
+Triệu Kim An chẳng buồn đôi co dông dài. Đối với một người bán hàng rong lề đường thì có gì đáng để tranh cãi, một hai tệ bạc lẻ không đáng để tốn nước bọt kỳ kèo.
 
-Ông chủ liếc nhìn Tô Miền một cái, lấy chiếc thìa múc đường đưa cho Triệu Kim An.
+Chủ quán ngước mắt liếc nhìn Tô Miến một cái, bèn cầm chiếc thìa chuyên dùng để múc đường đưa cho Triệu Kim An.
 
-Trả tiền xong, Triệu Kim An bóc vỏ khoai lang rồi đưa cho Tô Miền.
+Trả tiền xong xuôi, Triệu Kim An bóc tách lớp vỏ khoai nóng hổi rồi đưa củ khoai tới trước mặt Tô Miến.
 
-"Nóng đấy."
+"Nóng lắm."
 
-Bên cạnh là lửa than, mặt nhỏ của Tô Miền ửng hồng, cả người đều ấm áp hẳn lên.
+Ngồi cạnh bếp than hồng ấm áp, đôi má Tô Miến ửng hồng lên trông vô cùng đáng yêu, toàn thân cô đã ấm áp trở lại.
 
-Cô nhìn Triệu Kim An đang ngồi xổm trước mặt mình, nói: "Cậu bón cho tôi."
+Cô ngước đôi mắt trong veo nhìn Triệu Kim An đang ngồi xổm trước mặt mình, nũng nịu bảo: "Cậu đút cho tôi ăn đi."
 
 Triệu Kim An: "..."
 
-Cô chỉ là chân không cử động được, chứ có phải tay không cử động được đâu.
+Chân cô không cử động được, chứ tay cô có bị tật đâu cơ chứ.
 
-"Ấm rồi, cậu đẩy tôi lên đi."
+"Tôi ấm người rồi, cậu đẩy tôi lên trên đi."
 
-Một lát sau Vương Duy Đào đến trước, nhìn thấy Triệu Kim An đang ngồi ở quảng trường bón khoai lang cho một người phụ nữ, hắn tò mò tiến lại gần: "Kim An, cậu... cô ấy..."
+Một lát sau, Vương Duy Đào là người chạy đến trước tiên. Trông thấy Triệu Kim An đang ngồi ở góc quảng trường ân cần đút từng thìa khoai nướng cho một cô gái xinh đẹp, cậu ta tò mò rảo bước lại gần: "Kim An, cậu... cô ấy..."
 
-Vương Duy Đào muốn nói, khẩu vị của Triệu Kim An hơi đặc biệt, Tô Miền thì rất đẹp thật đấy, nhưng...
+Vương Duy Đào vốn định buột miệng trêu rằng gu của Triệu Kim An quả là có chút độc lạ. Tô Miến đẹp thì đẹp thật đấy, thế nhưng mà...
 
-Dù là người có nhan sắc bình thường như Lý Lộ, đàn ông cũng biết nên chọn thế nào chứ?
+Dẫu có đem so với một cô nàng có nhan sắc tầm thường như Lý Lộ, thì bất kỳ thằng đàn ông bình thường nào cũng đều biết nên chọn ai chứ?
 
-Chỉ là sau khi nhìn rõ khuôn mặt của Tô Miền, Vương Duy Đào lại thấy hiểu được.
+Thế nhưng, đến khi nhìn thật rõ khuôn mặt và khí chất của Tô Miến, Vương Duy Đào lập tức hiểu ra tất cả.
 
-Vẻ đẹp của Tô Miền thực sự rất cao cấp, Vương Duy Đào thề là mình chưa từng thấy người phụ nữ nào có khí chất tốt đến vậy, kể cả trên tivi. Triệu Kim An kéo khăn quàng xuống một chút: "Đây là bạn tốt nhất của tôi ở trường."
+Vẻ đẹp của Tô Miến thực sự đạt đến một đẳng cấp vô cùng thanh cao, thoát tục. Vương Duy Đào dám thề với trời đất rằng từ bé đến lớn cậu ta chưa từng gặp người phụ nữ nào sở hữu khí chất xuất chúng đến nhường này, ngay cả các minh tinh trên màn ảnh truyền hình cũng chẳng thể sánh bằng. Triệu Kim An kéo nhẹ chiếc khăn quàng cổ xuống một chút rồi giới thiệu: "Đây là người bạn thân nhất của tôi ở trường đại học."
 
-Tô Miền mỉm cười nói: "Chào anh, tôi là Tô Miền."
+Tô Miến mỉm cười nhã nhặn: "Chào cậu, tôi là Tô Miến."
 
-"A, chào... chào cô."
+"A... chào... chào chị."
 
-Vương Duy Đào mới là sinh viên năm nhất nên có chút lúng túng. Giọng của Tô Miền rất thanh lãnh, cô vẫn mỉm cười chào hỏi Vương Duy Đào, nhưng nghĩ lại cũng dễ hiểu thôi.
+Một cậu chàng tân sinh viên năm nhất ngây ngô như Vương Duy Đào bỗng chốc trở nên lúng túng, vụng về chẳng biết phải xưng hô ra sao. Chất giọng của Tô Miến vô cùng trong trẻo, mang chút thanh lãnh, nhưng khi chào hỏi Vương Duy Đào thì nụ cười trên môi cô lại vô cùng ấm áp, hòa nhã. Nghĩ lại cũng phải thôi.
 
-Anh trai thứ hai của Tô Miền là Tô Cảnh Hành, Thị trưởng thành phố Quận Sa, cha là Tô Minh Tùng ở kinh đô, còn có một người anh cả nữa.
+Anh hai của Tô Miến chính là Tô Cảnh Hành - đương kim Thị trưởng thành phố Quận Sa; người cha Tô Minh Tùng quyền cao chức trọng đang ở tận Kinh đô, trên cô lại còn có một người anh cả nữa.
 
-Những điều này Vương Duy Đào không biết, nhưng khí chất và trường năng lượng của Tô Miền đã rành rành ra đó.
+Những gia thế hiển hách ngút trời đó Vương Duy Đào làm sao mà biết được, nhưng cái khí chất đài các, phong thái quý phái toát ra từ tận cốt cách của Tô Miến thì ai nấy đều có thể cảm nhận rõ mồn một.
 
-"Kim An! Đậu xanh, Vương Duy Đào mày cũng ở đây à?"
+"Kim An! Vãi, Vương Duy Đào mày cũng ở đây à?"
 
-Đúng lúc này Triệu Chí Dũng tới, hắn chạy đến rồi phanh gấp một cái, trợn tròn mắt.
+Đúng lúc này, Triệu Trí Dũng hớt hải chạy tới, vừa phanh gấp lại đã trố tròn hai mắt ngạc nhiên.
 
 "Kim An, mày... cô ấy..."
 
-Triệu Chí Dũng chỉ chỉ hai người, đại khái là đã hiểu ra.
+Triệu Trí Dũng đưa ngón tay chỉ qua chỉ lại giữa hai người, trong đầu dường như đã lờ mờ vỡ lẽ ra điều gì đó.
 
-Kim An gọi mình đến là để giới thiệu bạn gái cho mình biết, chính là...
+Hóa ra Kim An gọi mình tới đây là để giới thiệu bạn gái cho mình làm quen, chỉ có điều chuyện này mà để bà nội ở quê biết thì...
 
-"Tô Miền."
+"Đây là Tô Miến."
 
-Triệu Kim An giới thiệu đơn giản xong, lại nói với Tô Miền: "Chúng tôi cùng làng, nó phải gọi tôi bằng chú."
+Triệu Kim An giới thiệu ngắn gọn xong, liền quay sang nói với Tô Miến: "Cậu này cùng làng với tôi, theo vai vế trong họ thì phải gọi tôi bằng chú."
 
-Chú?
+Bằng chú ư?
 
-Tô Miền bật cười.
+Tô Miến nghe vậy không nhịn được bật cười.
 
-Không ngờ cái thằng cha Triệu Chí Dũng này lại thử gọi một tiếng: "Thím ạ?"
+Nào ngờ cái thằng của nợ Triệu Trí Dũng lại lập tức thử cất tiếng gọi: "Thím ạ?"
 
 Triệu Kim An: "..."
 
-"Mày gọi bừa cái gì đấy?"
+"Mày gọi bậy bạ cái gì đấy?"
 
-"Không phải mày bảo mày là chú tao sao?"
+"Chẳng phải chính miệng mày vừa bảo mày là chú tao à?"
 
-"Không phải, chúng tôi..."
+"Không phải, bọn tao..."
 
-Triệu Kim An há hốc mồm, cái thằng này sao đột nhiên lại trở nên lanh lợi thế không biết, trước đây có thấy nó gọi Mộc Dao là thím bao giờ đâu.
+Triệu Kim An trố mắt nghẹn lời. Cái thằng của nợ này sao bỗng dưng hôm nay lại trở nên lanh lợi, khôn lỏi đột xuất thế này không biết, trước đây có bao giờ thấy nó mở mồm gọi Mộc Dao một tiếng "thím" đâu cơ chứ.
 
 "Mày đừng có gọi linh tinh."
 
-"Không được, tao cứ thích gọi thím đấy!"
+"Không được, tao cứ thích gọi là thím đấy thì sao!"
 
-Triệu Chí Dũng cười ha hả: "Thím đẹp thế này, tao không nhịn được cứ muốn gọi thím thôi!"
+Triệu Trí Dũng cười phá lên khoái chí: "Thím xinh đẹp thế này, nhìn một cái là tao đã không kìm lòng được muốn gọi bằng thím rồi!"
 
 Triệu Kim An: "..."
 
 Vương Duy Đào: "..."
 
-Không nhịn được? Cái thằng này da mặt dày thế sao!?
+Không kìm lòng được? Da mặt cái thằng này rốt cuộc dày đến mức nào vậy trời!?
 
-"Thím ơi, cháu là Triệu Chí Dũng, cùng làng với Kim An ạ!"
+"Thím ơi, cháu là Triệu Trí Dũng, cháu cùng làng lớn lên từ nhỏ với Kim An đấy ạ!"
 
-Triệu Chí Dũng vỗ ngực, giọng oang oang.
+Triệu Trí Dũng vỗ ngực bôm bốp, cất giọng sang sảng đầy tự hào.
 
-Tô Miền ngẩn người một lúc, nhìn Triệu Kim An, đột nhiên dường như rất vui vẻ, cô lấy từ trong túi ra một xấp tiền. Một tờ, hai tờ, ba tờ, cũng chẳng buồn đếm kỹ.
+Tô Miến ngẩn người ra mất một lúc, đưa mắt nhìn Triệu Kim An rồi bỗng chốc cảm thấy vô cùng vui vẻ, thích thú. Cô thò tay vào chiếc túi xách của mình rút ra một xấp tiền mặt dày cộm, một tờ, hai tờ, ba tờ... cứ thế rút ra một xấp mà chẳng thèm đếm kỹ.
 
-Triệu Chí Dũng: "???"
+Triệu Trí Dũng: "???"
 
 Vương Duy Đào: "???"
 
-"Triệu Chí Dũng, lại đây, cho cậu này, tôi chưa chuẩn bị hồng bao."
+"Triệu Trí Dũng, cầm lấy này. Tôi không chuẩn bị sẵn phong bao lì xì, cậu cầm tạm nhé."
 
 Triệu Kim An: "..."
 
-Chuyện gì thế này!?
+Cái tình huống quái quỷ gì thế này!?
 
-Triệu Chí Dũng và Vương Duy Đào không biết thân thế của Tô Miền, lại càng mù mờ hơn.
+Triệu Trí Dũng và Vương Duy Đào vốn chẳng hề hay biết về thân thế trâm anh thế phiệt của Tô Miến, lúc này đầu óc lại càng mịt mù như đi vào cõi sương mù.
 
-Vừa mới không vừa ý đã phát tiền?
+Hễ không vừa ý hay mở miệng một cái là vung tiền phát thưởng luôn sao?
 
-Họ nhìn Tô Miền "đếm tiền", đại khái phải đến hai nghìn tệ!
+Bọn họ nhìn xấp tiền Tô Miến vừa rút ra đưa cho, ước chừng phải đến hai nghìn tệ chứ chẳng ít!
 
-Hai nghìn tệ đấy!!!
+Hai nghìn tệ đấy trời đất ơi!!!
 
 "Kim An..."
 
-Triệu Chí Dũng nhìn về phía Triệu Kim An, tiền này có nhận không?
+Triệu Trí Dũng nuốt nước bọt cái ực, ngước mắt nhìn Triệu Kim An đầy dò hỏi, số tiền lớn thế này có nên nhận hay không?
 
-Tô Miền nói: "Cầm lấy đi, đây là tôi cho cậu."
+Tô Miến dịu dàng nói: "Cầm lấy đi, đây là tiền tôi cho cậu mà."
 
-"Thím, cảm ơn thím ạ, sau này thím mãi là thím của cháu, ha ha ha!"
+"Thím ơi, cháu cảm ơn thím nhiều lắm ạ! Từ nay về sau thím mãi mãi là thím ruột của cháu, ha ha ha!"
 
-Triệu Chí Dũng nhận tiền, cười không khép được miệng, ngay trước mặt Vương Duy Đào mà bắt đầu đếm, còn cố ý đếm cho Vương Duy Đào xem.
+Triệu Trí Dũng đón lấy xấp tiền, miệng cười toe toét ngoác đến tận mang tai. Cậu ta lập tức đứng ngay trước mặt Vương Duy Đào đếm tiền xoèn xoẹt, còn cố tình đếm thật to cho bạn cùng phòng lác mắt ghen tị.
 
-"... Phí đổi miệng à?"
+"... Tiền đổi cách xưng hô đấy à?"
 
-Vương Duy Đào hơi cuống lên rồi.
+Vương Duy Đào đứng bên cạnh bắt đầu cuống cuồng sốt ruột.
 
-"Thím... à không, chị dâu, em với Kim An là anh em tốt nhất."
+"Thím ơi... à nhầm, chị dâu ơi! Em với Kim An là anh em chí cốt vào sinh ra tử với nhau đấy chị!"
 
-Tô Miền mỉm cười, lại bắt đầu đếm tiền.
+Tô Miến khẽ mỉm cười, lại thò tay vào túi xách tiếp tục rút tiền.
 
 Triệu Kim An: "..."
 
-Vương Duy Đào trợn tròn mắt nhìn Tô Miền đếm, lại là hai nghìn.
+Vương Duy Đào trố tròn hai mắt, nín thở nhìn Tô Miến rút ra một xấp tiền mặt, lại tròn trĩnh hai nghìn tệ nữa.
 
-"Cảm ơn chị dâu, chị mãi mãi là chị dâu của em!"
+"Em cảm ơn chị dâu nhiều lắm! Chị mãi mãi là người chị dâu kính yêu nhất đời em!"
 
-Đối với Vương Duy Đào mà nói, ở trong ký túc xá vì để bạn cùng phòng mua bữa sáng cho mình mà gọi "nghĩa phụ" còn được, huống chi gọi chị dâu thì chẳng có chút áp lực tâm lý nào.
+Đối với một thằng sinh viên nghèo như Vương Duy Đào, ở trong phòng ký túc xá chỉ cần bạn cùng phòng chịu mua hộ bữa sáng là cậu ta đã có thể gọi người ta một tiếng "cha nuôi" rồi, huống chi việc mở mồm gọi một tiếng "chị dâu" thì có gì mà phải lăn tăn, xấu hổ?
 
-Nhìn hai thằng ngốc đứng giữa quảng trường đếm tiền, cười đến mức chảy cả nước miếng, Triệu Kim An thật sự là... kết bạn không thận trọng mà!
+Nhìn hai thằng bạn dở hơi đứng giữa quảng trường gió rét đếm tiền xoèn xoẹt, cười đến mức rớt cả dãi, Triệu Kim An thực sự cảm thấy... đúng là kết nhầm bạn xấu rồi!
 
-Mất mặt quá đi mất!
+Mất mặt đến mức không còn chỗ nào để chui!
 
-Tô Miền ngược lại có vẻ rất vui.
+Thế nhưng Tô Miến trông lại có vẻ vô cùng vui vẻ, hào hứng.
 
-"Thím ơi, nhà thím làm gì thế ạ?"
+"Thím ơi, nhà thím làm nghề gì thế ạ?"
 
 "Đúng đấy chị dâu..."
 
-Triệu Chí Dũng và Vương Duy Đào thực sự tò mò, ai mà ra tay một cái đã là hai nghìn, nhà có mỏ vàng à?
+Cả Triệu Trí Dũng lẫn Vương Duy Đào đều vô cùng tò mò. Người đâu mà ra tay hào phóng một phát là vung luôn hai nghìn tệ thế này, nhà có mỏ vàng mỏ kim cương chắc?
 
-Tô Miền nói: "Triệu Chí Dũng, cậu học trường nào?"
+Tô Miến khẽ hỏi: "Triệu Trí Dũng, cậu học trường nào thế?"
 
-Triệu Chí Dũng bảo là trường Tài chuyên.
+Triệu Trí Dũng thật thà đáp là trường Cao đẳng Tài chính.
 
-Tô Miền lại hỏi: "Sau khi tốt nghiệp cậu muốn làm gì?"
+Tô Miến lại hỏi tiếp: "Sau này tốt nghiệp xong, cậu muốn làm công việc gì?"

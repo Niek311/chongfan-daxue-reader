@@ -1,219 +1,221 @@
-# Chương 88: Triệu gia thôn, chờ lấy gặp người 1
+# Chương 88: Làng họ Triệu, ngóng chờ diện kiến (1)
 
-Sắp hết năm.
+> **Tiêu đề gốc**: 第88章 赵家村，等着见人1
 
-Tô xa chỉ có một người ngồi ở bên lề đường, chưa quen cuộc sống nơi đây của.
+Tết nhất đã cận kề trước mắt.
 
-Nữ nhân này..... Khó dùng tùy hứng để hình dung.
+Vậy mà Tô Miến lại ngồi trơ trọi một mình bên vệ đường quốc lộ, giữa nơi đất khách quê người xa lạ này.
 
-"Triệu Chí Dũng."
+Cái tính cách của người phụ nữ này... quả thực không thể dùng hai chữ "tùy hứng" đơn thuần để miêu tả nổi nữa rồi.
 
-"ài, thẩm thẩm."
+"Triệu Trí Dũng."
 
-Triệu Kim An không nhúc nhích, Triệu Chí Dũng liền không có động, hắn nhìn xem Triệu Kim An.
+"Dạ, thím!"
 
-Tô xa cũng nhìn xem Triệu Kim An.
+Triệu Kim An chưa nhúc nhích thì Triệu Trí Dũng cũng không dám tự tiện bước tới, cậu ta ngơ ngác quay sang nhìn Triệu Kim An.
 
-"tích, tích — —"
+Tô Miến cũng ngước đôi mắt trong veo nhìn chăm chú vào Triệu Kim An.
 
-Một chiếc chở đầy hành khách của xe tuyến đi qua, cũng là bên ngoài đi làm trở về, thoa không nổi cũng muốn thoa, trên xe ô ương ương một mảnh, tất cả mọi người chạy về nhà qua tết xuân.
+"Bíp... bíp ——"
 
-Triệu Kim An động, tiến lên ôm lấy tô xa.
+Một chiếc xe khách liên tỉnh chật ních người ì ạch chạy ngang qua. Trên xe toàn là những người lao động xa quê trở về đón Tết, dẫu chật chội đến mấy người ta cũng cố chen chúc cho bằng được, bên trong đen nghìn nghịt những bóng người, ai nấy đều hối hả, tất bật chạy đua với thời gian để kịp về sum họp bên gia đình trước thềm năm mới.
 
-Triệu Chí Dũng động tác càng nhanh, nâng lên xe lăn, nhấc lên tay nải, còn có xe lăn cái khác một cái túi du lịch.
+Triệu Kim An bước tới, cậu cúi người nhẹ nhàng bế bổng Tô Miến lên khỏi chiếc xe lăn.
 
-"tô xa là thực sự dũng cảm.... Gan lớn a, nãi nãi cùng thẩm thẩm không thể ngoác mồm kinh ngạc?"
+Động tác của Triệu Trí Dũng còn thoăn thoắt hơn nhiều, cậu ta vội vã vác chiếc xe lăn lên vai, một tay xách chiếc túi đeo chéo, tay kia cầm gọn chiếc túi du lịch to đặt bên cạnh.
 
-Tô xa khuôn mặt nhỏ lạnh như băng, trong lòng vụng trộm cười.
+"Tô Miến đúng là dũng cảm thật đấy... Gan to bằng trời luôn rồi, phen này bà nội với thím mày khéo kinh ngạc đến rớt cả cằm mất thôi!"
 
-"ngươi không muốn ta tới."
+Khuôn mặt nhỏ nhắn của Tô Miến tuy vẫn giữ vẻ lạnh lùng kiêu sa, nhưng nơi khóe môi đã thấp thoáng nụ cười đắc ý.
 
-Triệu Kim An:......
+"Anh không muốn em đến đây chứ gì."
 
-"ngươi câu nói này có vấn đề."
+Triệu Kim An dở khóc dở cười: "..."
 
-Tô xa cười, một tay bắt lấy Triệu Kim An cánh tay, không hiểu thấu nói:"ta đi không được lộ, đi ra một lần sẽ rất khó."
+"Câu này của em có vấn đề rồi đấy."
 
-Phía dưới sườn dốc đẩy không được xe lăn.
+Tô Miến bật cười khúc khích, một bàn tay túm chặt lấy bắp tay Triệu Kim An, miệng nói một câu đầy ẩn ý: "Chân em không đi lại được, mỗi lần muốn đi đâu ra ngoài khó khăn lắm đấy."
 
-Xuống sườn dốc, không có phô đường xi măng, cũng không tốt đẩy xe lăn.
+Con dốc gồ ghề từ đường lớn dẫn xuống làng hoàn toàn không thể đẩy nổi xe lăn.
 
-Triệu Kim An liền ôm tô xa, tô xa hết nhìn đông tới nhìn tây một hồi, nói:"ta xuất tiền đem lộ sửa chữa tốt."
+Mà xuống hết dốc rồi thì con đường đất dẫn vào xóm cũng chưa được đổ bê tông, đá sỏi lởm chởm khắp nơi, đẩy xe lăn lại càng là chuyện không tưởng.
 
-Triệu Kim An không nói chuyện.
+Thế là Triệu Kim An cứ thế ôm chặt Tô Miến trong lòng từng bước đi về. Tô Miến tò mò ngó nghiêng nhìn ngắm khung cảnh xung quanh một lát rồi bỗng thốt lên: "Để em bỏ tiền ra đổ bê tông làm lại cả con đường này cho đàng hoàng nhé."
 
-Tô xa còn nói:"vậy ta gọi điện thoại, các ngươi dặm tới đem lộ sửa chữa tốt."
+Triệu Kim An im lặng không đáp.
 
-"....."
+Tô Miến lại tiếp tục nói: "Hay là để em gọi một cuộc điện thoại, bảo lãnh đạo thành phố cử người xuống đây sửa sang làm lại đường sá cho làng các anh."
 
-Triệu Kim An đem tô xa ôm vào một điểm, một trăm tới cân một đường ôm không phải nhẹ nhàng như vậy.
+"..."
 
-"Kim An, có muốn hay không ta tới...."
+Triệu Kim An khẽ xốc Tô Miến lên cao hơn một chút. Một người con gái nặng cả trăm cân ôm trên tay đi suốt một quãng đường dài thế này quả thực chẳng dễ dàng gì.
 
-Triệu Chí Dũng không nghĩ nhiều như vậy, khí lực của hắn so Triệu Kim An lớn hơn nhiều.
+"Kim An, có cần để tao bế đỡ cho một đoạn không..."
 
-Triệu Kim An lắc đầu, nói:"không cần."
+Triệu Trí Dũng tính tình thẳng đuột chẳng nghĩ ngợi sâu xa, sức vóc của cậu ta thì khỏe hơn Triệu Kim An rất nhiều.
 
-Tô xa nhìn Triệu Kim An một cái, vừa cười:"chí dũng, nhà ngươi ở nơi nào?"
+Triệu Kim An lắc đầu bảo: "Không cần đâu."
 
-Triệu Chí Dũng chỉ cái phương hướng, nói cách Triệu Kim An nhà có 4, 5 trăm mét.
+Tô Miến liếc nhìn Triệu Kim An một cái, khóe môi lại cong lên thành một nụ cười rạng rỡ: "Trí Dũng, nhà cậu ở đâu thế?"
 
-"Kim An, ai vậy?"
+Triệu Trí Dũng liền giơ tay chỉ về một hướng, bảo nhà mình cách nhà Kim An chừng bốn, năm trăm mét.
 
-Có người ở phía trước bãi hỏi, quá hiếu kỳ rồi.
+"Kim An đấy à, ai thế cháu?"
 
-Triệu Chí Dũng không có lên tiếng âm thanh, trông thấy nhân tâm nói làm không tốt ngươi cũng cùng ta cũng như thế muốn bảo nàng thẩm thẩm.
+Có người đang đứng chơi ở sân trước cất tiếng hỏi với ra, giọng điệu đầy vẻ tò mò, hóng hớt.
 
-Triệu Kim An đi nhanh một chút.
+Triệu Trí Dũng không thèm hé răng nửa lời, thầm nghĩ trong bụng khéo chừng lát nữa mày cũng phải giống như tao, ngoan ngoãn mở mồm ra mà gọi cô ấy một tiếng thím đấy con ạ.
 
-Bất quá sát bên đường cái người nghe được động tĩnh đều chạy đến nhìn, bát quái lan tràn rất nhanh, Triệu Kim An tìm một cái"tàn tật"của bạn gái? Triệu Chí Dũng khiêng xe lăn.
+Triệu Kim An rảo bước nhanh hơn.
 
-Không sai!
+Thế nhưng mấy nhà nằm sát bên đường nghe thấy tiếng động lạ đều lục tục chạy túa ra ngó nghiêng. Chuyện ngồi lê đôi mách ở chốn làng quê lan truyền nhanh như một cơn lốc: Thằng Kim An dẫn bạn gái "khuyết tật" về làng kìa! Thằng Trí Dũng còn đang vác cả xe lăn chạy theo sau nữa!
 
-Tại Triệu gia thôn không có bí mật, coi như Triệu Kim An trở về lái xe đi giao lộ tiếp tô xa, chỉ cần có một người biết liền truyền ra.
+Đích thị là như thế rồi, không trật đi đâu được!
 
-"đến rồi, nhà ta phòng ở có chút đơn sơ."
+Ở cái làng họ Triệu này vốn dĩ chẳng bao giờ giấu nổi bất kỳ bí mật nào. Cho dù Triệu Kim An có lái xe hơi ra tận đầu đường đón Tô Miến đi chăng nữa, thì chỉ cần một người nhìn thấy thôi là cả làng đã biết tường tận ngay lập tức.
 
-Triệu Kim An ôm tô xa đi lên sườn dốc, tô xa quay đầu liếc mắt nhìn.
+"Tới nơi rồi, nhà anh hơi đơn sơ, lụp xụp một chút."
 
-Lần này Triệu Chí Dũng không có nói đến đây báo tin, không giống lần trước Mộc Dao cùng Du Phỉ tới chơi.
+Triệu Kim An bế Tô Miến bước lên con dốc nhỏ dẫn vào sân nhà. Tô Miến ngoảnh đầu nhìn ngắm xung quanh.
 
-Bevel; groove chỗ, Triệu Quốc Hoa trong tay kẹp lấy thuốc lá, há to mồm:"nay, Kim An...?"
+Lần này Triệu Trí Dũng không chạy trước về báo tin như lần trước Mộc Dao và Du Phi sang chơi nữa.
 
-"thúc thúc."
+Ngay trước miệng dốc, Triệu Quốc Hoa đang kẹp điếu thuốc lá trên tay, miệng há hốc kinh ngạc đến mức đánh rơi cả tàn thuốc: "Kim... Kim An đấy à cháu...?"
 
-Triệu Kim An hô một tiếng, không có giảng giải.
+"Chú ạ."
 
-Tô xa rất hào phóng cùng Triệu Kim An hô một tiếng:"thúc thúc, ngươi tốt, ta là tô xa."
+Triệu Kim An cất tiếng chào một câu, tuyệt nhiên không đưa ra lời giải thích dài dòng nào.
 
-"đông!"
+Tô Miến vô cùng tự nhiên và hào phóng cất lời chào theo Triệu Kim An: "Cháu chào chú ạ, cháu tên là Tô Miến."
 
-Nghe được có giọng của nữ nhân, ngồi xổm bên cạnh cái ao của vương kim như lập tức đứng dậy, trông thấy tô xa biểu lộ rất phức tạp.
+"Keng!"
 
-"mẹ, mẹ!!!"
+Nghe thấy tiếng giọng nữ lạ lẫm vang lên ngoài sân, Vương Kim Như đang ngồi xổm bên bể nước lập tức đứng bật dậy. Vừa nhìn thấy Tô Miến, sắc mặt bà biến đổi vô cùng phức tạp, kinh ngạc đến sững sờ.
 
-Đừng nhìn vương kim như ô ô thì thầm, rất nhiều chuyện người lãnh đạo là nãi nãi.
+"Mẹ ơi, mẹ ơi mau ra đây mà xem này!!!"
 
-Nãi nãi từ phòng bếp đi ra, đã nhìn thấy cháu trai ôm một nữ nhân đặt ở trên xe lăn.
+Đừng nhìn ngày thường Vương Kim Như hay bô bô cái mồm quát tháo om sòm, thực chất trong cái nhà này, người đóng vai trò trụ cột, định đoạt mọi chuyện lớn nhỏ vẫn luôn là bà nội.
 
-"nãi nãi."
+Bà nội vội vã từ trong bếp bước ra, vừa vặn nhìn thấy cảnh cháu đích tôn đang cẩn thận đặt một cô gái xinh đẹp ngồi ngay ngắn vào chiếc xe lăn.
 
-Triệu Kim An hô một tiếng.
+"Bà nội."
 
-Tô xa lại cùng hô:"nãi nãi, thẩm thẩm, ta là tô xa."
+Triệu Kim An khẽ gọi.
 
-Nếu như là bình thường còn tốt, có nữ đồng học đến tìm cháu trai chơi, cái này đều nhanh qua tết a, ai ăn tết chạy nhà đồng học đi chơi, nãi nãi chần chờ một chút mới"ài"một tiếng.
+Tô Miến cũng lập tức ngoan ngoãn cất tiếng chào theo: "Cháu chào bà nội, chào thím ạ, cháu tên là Tô Miến."
 
-Lại nhìn mắt cháu trai, liền tiến phòng bếp.
+Nếu là ngày thường thì chuyện này cũng chẳng có gì to tát, bạn học nữ đến nhà chơi là chuyện bình thường. Thế nhưng lúc này đã là ba mươi Tết cận kề rồi, có ai đời sắp sang năm mới lại chạy sang nhà bạn học cùng lớp chơi bao giờ đâu? Bà nội thoáng ngập ngừng trong giây lát, rồi mới khẽ cất tiếng: "Ừ, chào cháu."
 
-Triệu Quốc Hoa cùng vương kim như không hề động, liền tìm Triệu Chí Dũng cũng không có động, các nàng tại nhìn nãi nãi của thái độ.
+Nói đoạn, bà đưa mắt nhìn cháu trai một cái thật sâu, rồi lẳng lặng quay người bước trở vào gian bếp.
 
-Triệu Quốc Hoa ở nhà không có gì địa vị, nghe lời mẹ, lại không cùng vương kim như mạnh miệng, biết vương kim như ở nhà một mình mang theo nữ nhi, lo liệu một cái gia khó khăn thế nào.
+Triệu Quốc Hoa và Vương Kim Như đứng chôn chân tại chỗ không dám nhúc nhích, ngay cả Triệu Trí Dũng cũng nín thở đứng im. Cả bọn đều đang nơm nớp ngóng chờ xem thái độ thực sự của bà nội ra sao.
 
-Không đầy một lát nãi nãi đi ra, bưng một bát vàng óng của canh gà.
+Triệu Quốc Hoa vốn chẳng có tiếng nói gì trong nhà, chuyện gì cũng răm rắp nghe lời mẹ, lại chẳng bao giờ nỡ cãi nhau tay đôi với Vương Kim Như, bởi ông thấu hiểu một mình vợ ở nhà chăm sóc mẹ già, nuôi nấng con thơ, quán xuyến cả cái gia đình này vất vả, gian nan đến nhường nào.
 
-Bên trong còn có một cái đùi gà!!!
+Chỉ một lát sau, bà nội từ trong bếp lại bước ra ngoài, trên tay cẩn thận bưng một bát canh gà vàng óng, thơm phức ngào ngạt.
 
-"thời tiết lạnh, uống chén canh ấm áp thân thể."
+Bên trong bát canh còn có nguyên một chiếc đùi gà béo ngậy!!!
 
-Nãi nãi bưng đến xe lăn phía trước, tô xa hai tay bưng qua bát, nói:"tạ ơn nãi nãi."
+"Trời lạnh buốt thế này, cháu mau uống bát canh nóng cho ấm người đi đã."
 
-Triệu Quốc Hoa cùng vương kim như liếc nhau, mẹ không có phản đối?
+Bà nội nhẹ nhàng bưng bát canh tới tận trước mặt xe lăn. Tô Miến vội vàng đưa cả hai tay cung kính đón lấy bát canh từ tay bà: "Cháu cảm ơn bà nội ạ."
 
-Cũng không phải phản đối, nãi nãi của tính cách sẽ không nói lời khó nghe, chính là"lạnh"xử lý, tới cơm chắc chắn quản, không nghĩ tới còn bưng canh gà đi ra!
+Triệu Quốc Hoa và Vương Kim Như đưa mắt nhìn nhau, chẳng lẽ mẹ lại không hề phản đối hay sao?
 
-Nếu như nãi nãi tiến vào phòng bếp không có đi ra, liền đại biểu nàng không đồng ý cháu trai tìm bạn gái như vậy.
+Thực ra cũng không hẳn là không phản đối. Với tính cách đôn hậu của bà nội, bà tuyệt đối chẳng bao giờ thốt ra những lời cay nghiệt, khó nghe, cùng lắm bà chỉ chọn cách xử lý "lạnh nhạt" mà thôi. Khách đến nhà thì cơm nước nhất định phải lo chu tất, nhưng điều khiến mọi người không ngờ tới là bà lại đích thân bưng hẳn một bát canh gà đùi lớn ra cho cô gái này!
 
-"thỏa!!!"
+Nếu lúc nãy bà nội bước vào bếp mà không thèm quay trở ra nữa, thì điều đó đồng nghĩa với việc bà hoàn toàn phản đối chuyện cháu trai tìm một người bạn gái có hoàn cảnh đặc biệt như thế này.
 
-Triệu Chí Dũng trong lòng thầm kêu một tiếng, nhanh chóng hành động:"thẩm thẩm, ta giúp ngươi nhóm lửa!"
+"Xong rồi, ngon lành cành đào rồi!!!"
 
-Vương kim như:.....
+Triệu Trí Dũng thầm reo lên một tiếng trong bụng, lập tức xông xáo hành động ngay: "Thím cứ ngồi yên đấy, để cháu đi nhóm lửa sưởi ấm cho thím!"
 
-Triệu Quốc Hoa: (# + _ +)
+Vương Kim Như: "..."
 
-Ngươi bối phận còn cần hay không!?
+Triệu Quốc Hoa: "(#+_+) "
 
-Triệu Chí Dũng tìm đất trống cầm củi nhóm lửa, trong nhà không điều hòa, chỉ có phòng ngủ có một chậu lửa than, tô xa ngồi xe lăn không tốt sưởi ấm, phát lên củi lửa Triệu Chí Dũng lại vỗ đầu một cái.
+Mày có còn cần cái vai vế của mình nữa không hả cái thằng này!?
 
-"ta dug out măng mùa đông đều bán lấy tiền!"
+Triệu Trí Dũng tìm một khoảng đất trống sạch sẽ rồi ôm củi khô lại nhóm lửa. Trong nhà không có điều hòa nhiệt độ, chỉ duy nhất trong phòng ngủ có một chậu than sưởi nhỏ, Tô Miến ngồi trên xe lăn thế này rất khó vào phòng sưởi than. Vừa châm lửa cháy bập bùng xong, Triệu Trí Dũng bỗng vỗ trán một cái "bốp".
 
-Triệu Kim An tức giận nói:"ngươi còn biết a, gọi ngươi chừa chút còn không nỡ!"
+"Chết cha, mớ măng mùa đông tao vừa đào được đem bán lấy tiền hết sạch rồi!"
 
-"ăn ta đây ngày mai buổi sáng đào là đủ rồi."
+Triệu Kim An lườm cậu ta một cái, bực mình mắng: "Mày giờ mới nhớ ra đấy à, bảo giữ lại một ít ăn Tết thì tiếc của không chịu giữ!"
 
-Triệu Chí Dũng đối với tô xa rất nhiệt tình:"thẩm thẩm, ta bây giờ đi cho ngươi đào hai cái măng mùa đông, tuyệt đối ăn thật ngon, thả điểm trắng quả ớt, thả điểm thịt khô đều ngon!"
+"Đồ ăn thì sáng mai tao lên đồi đào một loáng là đủ ăn ngay ấy mà."
 
-"nãi nãi, ngươi chờ ta một chút xào rau!"
+Triệu Trí Dũng vô cùng nhiệt tình, đon đả quay sang Tô Miến: "Thím ơi, bây giờ cháu vác cuốc lên đồi đào ngay cho thím hai củ măng mùa đông tươi rói nhé, đảm bảo ngon ngọt tuyệt đỉnh luôn, xào chung với ớt muối hay thịt ba chỉ hun khói thì cứ gọi là nuốt trôi cả lưỡi!"
 
-Nói, Triệu Chí Dũng liền cầm lên trên cái cuốc núi.
+"Bà nội ơi, bà đợi cháu một lát rồi hẵng xào rau nhé!"
 
-Vương kim như:.....
+Nói dứt lời, Triệu Trí Dũng liền vác chiếc cuốc sắt vội vã lao thẳng lên ngọn đồi sau nhà.
 
-Tiểu tử thúi này quất cái gì gió?
+Vương Kim Như đứng hình nhìn theo: "..."
 
-Nơi xa còn truyền đến Triệu Chí Dũng của âm thanh:"thẩm thẩm, ta ngày mai đi trong sông xuống đất lồng, cam đoan tươi mới nhất của cá con, ngươi khẳng định chưa ăn qua!"
+Cái thằng ranh con này hôm nay bị trúng gió độc phương nào hay sao mà lăng xăng thế không biết?
 
-Người đều là lẫn nhau.
+Từ đằng xa trên sườn đồi vẫn còn vẳng lại tiếng gào to tướng của Triệu Trí Dũng: "Thím ơi, sáng mai cháu ra bờ sông thả rập bát quái, đảm bảo bắt được toàn cá tươi roi rói, thím ở thành phố chắc chắn chưa từng được ăn món này bao giờ đâu!"
 
-Tại quận cát tô xa đối với Triệu Chí Dũng cùng vương duy đào tốt như vậy, tới Triệu gia thôn, Triệu Chí Dũng liền nghĩ đem tốt nhất lấy ra chiêu đãi tô xa.
+Lòng người đối đãi với nhau vốn dĩ luôn có qua có lại.
 
-Tô xa nói:"Kim An, Triệu Chí Dũng hắn được không? Trời đã sắp tối rồi."
+Hồi ở thành phố Quận Sa, Tô Miến đã đối xử với Triệu Trí Dũng và Vương Duy Đào hào phóng, tốt bụng đến nhường nào, thì nay cô đặt chân về đến làng họ Triệu này, Triệu Trí Dũng chỉ muốn đem tất cả những thứ ngon nhất, quý giá nhất của thôn quê ra để tiếp đãi cô cho thật chu tất.
 
-Triệu Kim An cười cười:"những chuyện lặt vặt này cũng khó khăn không ngã hắn."
+Tô Miến ngước nhìn Triệu Kim An hỏi: "Kim An, Trí Dũng đi như thế liệu có ổn không anh? Trời sắp tối mịt rồi kìa."
 
-Nhìn xem phía sau núi rừng trúc ranh giới thân ảnh, Triệu Kim An nghĩ thầm Triệu Chí Dũng coi như không tới công ty, con đường của hắn cũng đi chiều rộng, văn bằng đối với tô xa tới nói thì xem là cái gì?
+Triệu Kim An mỉm cười đáp: "Mấy cái trò đào bới này chẳng làm khó nổi nó đâu."
 
-Bên cạnh củi lửa đốt lốp bốp vang dội.
+Nhìn theo bóng lưng thoăn thoắt đang mất hút dần sau rặng tre trên ngọn đồi phía sau nhà, Triệu Kim An thầm nghĩ trong bụng, thằng nhóc Triệu Trí Dũng này dẫu sau này có không đến công ty làm việc thì con đường tương lai của nó cũng đã rộng mở thênh thang rồi. Tấm bằng đại học đối với đẳng cấp gia thế như của Tô Miến thì có đáng là cái đinh gỉ gì đâu?
 
-Tô xa nâng bát uống xong canh gà, đùi gà cũng ăn sạch sẽ.
+Bên cạnh, đống củi khô cháy bập bùng, tiếng than nổ lách tách vui tai.
 
-Triệu Kim An nhớ tới Trần Thanh Trĩ, nãi nãi lưu hảo gà vịt gọi điện thoại cho Trần Thanh Trĩ, Trần Thanh Trĩ mỗi lần đều cớ bận rộn công việc, nãi nãi chỉ có thể tiếc nuối cúp điện thoại.
+Tô Miến nâng bát húp sạch từng ngụm canh gà ấm nóng, chiếc đùi gà thơm phức cũng được cô ăn gọn gàng sạch sẽ.
 
-Tô xa hô Triệu Kim An lấy ra túi du lịch, từ trong bọc lấy ra hai đầu"chưa thấy qua"của thuốc lá.
+Triệu Kim An bất giác nhớ lại hình ảnh của Trần Thanh Trĩ ở kiếp trước. Mỗi lần bà nội cẩn thận để dành gà vịt ngon ở quê rồi gọi điện bảo Trần Thanh Trĩ về ăn, lần nào cô ta cũng viện cớ bận rộn công việc để từ chối khéo, bà nội chỉ đành ngậm ngùi, tiếc nuối gác ống nghe xuống.
 
-"thúc thúc, đưa cho ngươi."
+Tô Miến cất tiếng bảo Triệu Kim An mang chiếc túi du lịch lại gần. Cô kéo khóa túi, lấy ra hai cây thuốc lá với bao bì sang trọng, lạ mắt mà chưa ai ở vùng này từng nhìn thấy bao giờ.
 
-Lại lấy ra một cái hương nại nhi túi xách:"thẩm thẩm, ta không có thuận tiện mua đồ, đây là đưa cho ngươi."
+"Chú ơi, cái này cháu biếu chú ạ."
 
-"cái kia, cảm tạ a..."
+Đoạn, cô lại lấy tiếp ra một chiếc túi xách hàng hiệu Chanel quý phái: "Thím ơi, cháu đi lại không tiện nên không tự tay đi chọn đồ được, chiếc túi này cháu tặng thím ạ."
 
-Vương kim như cầm lấy bao nhìn một chút, nghĩ thầm nhỏ như vậy bao có thể thả đồ vật gì? Quá không thật dùng.
+"À... ừ, thím cảm ơn cháu nhé..."
 
-"um tùm!"
+Vương Kim Như đón lấy chiếc túi ngắm nghía qua lại một hồi, trong bụng thầm nghĩ cái túi bé tí teo thế này thì nhét vừa cái gì vào bên trong cơ chứ? Chẳng thực tế chút nào cả.
 
-Triệu Duyệt Thiên tại phòng ngủ nhìn phim hoạt hình, cái này năm đối với nàng mà nói quá phong phú rồi, đồ uống nước trái cây không nói, Triệu Kim An mua rất nhiều hoa quả, còn mua mấy cái trái dưa hấu!
+"Thiến Thiến đâu rồi!"
 
-Bởi vậy, vương kim như còn mắng Triệu Kim An, lúc nói cái này của dưa hấu đắt như vậy!
+Bé Triệu Duyệt Thiến đang ngồi trong phòng ngủ xem hoạt hình. Cái Tết năm nay đối với con bé quả thực là phong phú và đủ đầy chưa từng thấy. Nước ngọt, nước ép trái cây thì uống tẹt ga không hết, Triệu Kim An còn mua về cơ man nào là trái cây tươi ngon, thậm chí còn hào phóng mua hẳn mấy quả dưa hấu to bự nữa!
 
-"um tùm, đi lấy cái hương lê cho ngươi... Tỷ tỷ ngươi ăn."
+Cũng vì mấy quả dưa hấu trái mùa này mà Vương Kim Như đã mắng Triệu Kim An một trận tơi bời, bảo giữa mùa đông rét mướt dưa hấu đắt đỏ như vàng ròng mà còn vung tay mua sắm!
 
-Vương kim như vẫn là không nói ra"tẩu tử ngươi"ba chữ.
+"Thiến Thiến, mau mang một quả lê thơm ra đây cho... cho chị gái ăn đi con."
 
-Triệu Duyệt Thiên chạy về phòng ngủ cầm một cái hương lê, tô xa sờ lên khuôn mặt nàng:"um tùm, ngươi muốn ăn cái gì, tỷ tỷ mua cho ngươi."
+Vương Kim Như cuối cùng vẫn ngập ngừng, không tài nào thốt nổi ba chữ "chị dâu con" ra khỏi miệng.
 
-Triệu Duyệt Thiên có chút ngại ngùng, ngẩng đầu nhìn một chút ca ca, lại chạy về phòng ngủ, ôm cái tăng thêm gói quà lớn đi ra.
+Bé Triệu Duyệt Thiến lon ton chạy vào phòng ngủ bê một quả lê thơm ra, Tô Miến liền đưa bàn tay mềm mại khẽ xoa đầu con bé: "Thiến Thiến, em thích ăn món gì nào, để chị mua cho em nhé."
 
-"ngươi muốn ăn cái gì, ngươi tuyển."
+Triệu Duyệt Thiến bẽn lẽn ngượng ngùng, ngước mắt nhìn anh trai một cái rồi lại thoăn thoắt chạy tót vào phòng ngủ, hớn hở ôm gói quà Tết Vượng Vượng to bự chạy ra ngoài sân.
 
-Tô xa không rõ ràng cho lắm.
+"Chị muốn ăn gì thì cứ chọn đi ạ."
 
-Triệu Kim An nói:"nàng thích nhất."
+Tô Miến ngơ ngác chưa hiểu chuyện gì.
 
-Tô xa đã hiểu, lôi kéo Triệu Duyệt Thiên cúi đầu nói thì thầm:"ngươi muốn ăn cái gì? Ta gọi Triệu Chí Dũng đi mua, cái gì đều được."
+Triệu Kim An đứng bên mỉm cười giải thích: "Đó là món con bé thích nhất trần đời đấy."
 
-Triệu Duyệt Thiên một mặt ngây thơ, thử vấn đạo:"ta muốn ăn MacDonald, có thể chứ?"
+Tô Miến lập tức hiểu ra, cô liền kéo tay bé Duyệt Thiến lại gần, cúi đầu thì thào to nhỏ: "Thế em muốn ăn món gì nhất nào? Để chị bảo anh Trí Dũng đi mua cho em ngay, món gì cũng được hết."
 
-Tại Triệu Duyệt Thiên trong lòng, MacDonald là rất đắt đồ vật, chỉ có ca ca trở về mới có cơ hội ăn.
+Triệu Duyệt Thiến ngây thơ chớp chớp mắt, rụt rè cất giọng hỏi: "Em muốn ăn gà rán McDonald's, có được không chị?"
 
-Lần này không cần Triệu Kim An giải thích, tô xa sửng sốt một hồi, lấy điện thoại di động ra gọi điện thoại.
+Trong suy nghĩ non nớt của cô bé Triệu Duyệt Thiến, đồ ăn nhanh McDonald's là một thứ gì đó vô cùng xa xỉ, chỉ khi nào anh hai về quê thì con bé mới có cơ hội được nếm thử.
 
-Nàng là thực sự không che giấu, không biết điều.
+Lần này chẳng cần Triệu Kim An phải mở lời giải thích, Tô Miến ngẩn người ra trong chốc lát, rồi dứt khoát rút chiếc điện thoại đắt tiền trong túi ra bấm số gọi đi.
 
-"ngươi giúp ta hỏi một chút, tư cách tinh gia nhập liên minh MacDonald bao nhiêu tiền."
+Cô thực sự là mẫu người chẳng bao giờ thèm giấu giếm thân phận hay cố tỏ ra khiêm nhường làm gì.
 
-Triệu Kim An:......
+"Anh giúp tôi hỏi xem, muốn mua nhượng quyền một cửa hàng McDonald's ở thành phố Tư Tinh thì chi phí hết bao nhiêu tiền."
 
-Vương kim như:......
+Triệu Kim An: "..."
 
-Nàng và Triệu Quốc Hoa liếc nhau, từ đâu tới người
+Vương Kim Như: "..."
+
+Bà và Triệu Quốc Hoa kinh ngạc đưa mắt nhìn trừng trừng vào nhau, rốt cuộc thì thằng cháu mình nó rước đại tiểu thư thần thánh phương nào về cái làng này thế không biết!?

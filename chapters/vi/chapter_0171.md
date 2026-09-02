@@ -1,245 +1,249 @@
-# Chương 171: Tẩu tử....
+# Chương 171: Chị dâu...
 
-Hắn nghiêm túc lái xe, mắt nhìn kính chiếu hậu.
+> **Tiêu đề gốc**: 第171章 嫂子....
 
-Đoạn thu bình ôm tống gia nguyệt vấn đạo:"Kim An, ngươi lái xe đi nơi nào?"
+Triệu Kim An chăm chú cầm lái, thỉnh thoảng lại liếc nhìn qua gương chiếu hậu.
 
-Triệu Kim An cầm lấy tay lái phụ một cái quả táo đưa tới xếp sau:"tống đẹp lúa nhỉ?"
+Đoàn Thu Bình ôm Tống Gia Nguyệt trong lòng, cất giọng hỏi: "Kim An, con định lái xe đi đâu thế?"
 
-Đoạn thu bình không có lên tiếng.
+Triệu Kim An với tay lấy một quả táo bên ghế phụ đưa ra hàng ghế sau: "Tống Uyển Hòa đâu rồi mẹ?"
 
-Triệu Kim An trầm mặc sẽ, mở miệng nói:"hắn không có Triệu Quốc Khánh đau như vậy ngươi, Triệu Quốc Khánh không nỡ nhìn ngươi khổ cực như vậy, ngươi trước đó bỏng tóc quăn, yêu xinh đẹp, những năm này già nhanh.... Chính ngươi không soi gương sao?"
+Đoàn Thu Bình im lặng, không đáp.
 
-"....."
+Triệu Kim An im lặng một hồi rồi mới trầm giọng mở lời: "Người ta chẳng thương mẹ bằng bố Triệu Quốc Khánh đâu. Bố con ngày xưa không bao giờ nỡ để mẹ phải vất vả thế này. Hồi đó mẹ thích uốn tóc xoăn, thích điệu đà làm đẹp, vậy mà mấy năm nay mẹ già đi nhanh quá... Mẹ không tự soi gương xem lại mình sao?"
 
-Đoạn thu bình cúi đầu, không phải cảm thấy mình khổ cực, là xấu hổ.
+"..."
 
-Nàng biết nhi tử là quan tâm chính mình, nhưng càng như vậy liền sẽ đối với nhi tử xấu hổ, đối với Triệu Quốc Khánh có xấu hổ.
+Đoàn Thu Bình cúi gằm mặt xuống. Không phải bà xót xa cho nỗi vất vả của bản thân, mà là cảm giác hổ thẹn đang dâng tràn.
 
-Đoạn thu bình đương nhiên biết Triệu Quốc Khánh có nhiều yêu thương chính mình, biết nãi nãi có nhiều thương mình, thương mình cái này con trai cả tức.
+Bà biết con trai đang lo lắng, quan tâm cho mình, nhưng càng như vậy, bà lại càng thấy xấu hổ và tội lỗi với con, tội lỗi với cả Triệu Quốc Khánh nơi chín suối.
 
-Tại KFC phía trước, Triệu Kim An dừng xe.
+Đoàn Thu Bình làm sao không hiểu Triệu Quốc Khánh từng yêu thương, chiều chuộng bà đến nhường nào; bà cũng hiểu rõ bà nội thương bà ra sao, thương đứa con dâu cả này biết bao nhiêu.
 
-"Kim An, ngươi không ăn đồ vật sao?"
+Đến trước cửa tiệm KFC, Triệu Kim An đánh lái tấp xe vào lề.
 
-"ân."
+"Kim An, con chưa ăn gì à?"
 
-Triệu Kim An hướng đi chọn món ăn chỗ, đoạn thu bình ôm tống gia nguyệt nhanh chóng bỏ tiền:"Kim An, ngươi muốn ăn cái gì?"
+"Vâng."
 
-"ta kiếm tiền, ta tới đỡ tiền."
+Triệu Kim An bước về phía quầy gọi món. Đoàn Thu Bình ôm Tống Gia Nguyệt vội vã móc tiền túi ra: "Kim An, con muốn ăn gì cứ chọn đi, mẹ trả."
 
-"Kim An...."
+"Con kiếm ra tiền rồi, để con trả."
 
-Triệu Kim An khẽ lắc đầu, đoạn thu bình cũng không muốn nhi tử vừa mới vì cái gì không ăn đồ nướng rồi, nàng thả tống gia dưới ánh trăng tới, dán chặt Triệu Kim An, một tay dắt tống gia nguyệt.
+"Kim An..."
 
-Nàng quá muốn dạng này rồi, trước mắt là nhi tử, cúi đầu là nữ nhi.
+Triệu Kim An khẽ lắc đầu. Đoàn Thu Bình cũng chẳng còn tâm trí đâu mà nghĩ xem vì sao ban nãy con trai lại không ăn đồ nướng cùng chồng mình nữa. Bà đặt Tống Gia Nguyệt xuống đất, nép sát vào người Triệu Kim An, một tay dắt lấy bàn tay nhỏ bé của con gái.
 
-Phục vụ viên còn thân mật cười cười, tình cảm mẹ con thật tốt.
+Bà đã khao khát khoảnh khắc này biết bao: trước mặt là con trai, dưới tầm mắt là con gái.
 
-"tiểu nguyệt ngươi muốn ăn cái gì?"
+Cô nhân viên phục vụ nhìn thấy cảnh tượng ấy cũng mỉm cười thân thiện, thầm ngưỡng mộ tình cảm mẹ con gắn bó.
 
-Đoạn thu bình lại đem tống gia nguyệt ôm, chỉ vào phía trên hình ảnh.
+"Tiểu Nguyệt, con muốn ăn gì nào?"
 
-Triệu Kim An điểm rất nhiều thứ, giữa mùa đông còn điểm hai chén kem tươi.
+Đoàn Thu Bình lại bế Tống Gia Nguyệt lên, chỉ vào những hình ảnh rực rỡ trên bảng thực đơn.
 
-Lần này đoạn thu bình không cảm thấy lãng phí tiền, nàng nằm mộng cũng muốn dạng này một nhà ba người chơi một hồi.
+Triệu Kim An gọi rất nhiều món, giữa trời đông giá rét thế này mà anh còn gọi thêm hai ly kem sundae.
 
-Đương nhiên, đoạn thu bình cũng không biết Triệu Duyệt Thiên tại tư cách tinh có nhà KFC.
+Lần này Đoàn Thu Bình không hề tiếc tiền hay thấy lãng phí. Bà từng mơ ước biết bao lần cả ba mẹ con có thể quây quần đi chơi với nhau như thế này.
 
-Đã trễ thế như vậy, trơn bóng bậc thang bên trong liền tống gia nguyệt một người nắm lấy đùi gà, đoạn thu bình tại cửa ra vào cầm Hamburger, tống gia nguyệt có chút hướng nội, liền nhiền lấy Triệu Kim An.
+Tất nhiên, Đoàn Thu Bình hoàn toàn không hay biết rằng ở Tư Tinh, cô bé Triệu Duyệt Duyệt cũng đang sở hữu một cửa hàng KFC như thế.
 
-Ở kiếp trước tống gia nguyệt không có lên đại học, tốt nghiệp trung học ngay tại sâm trên thành ban.
+Trời đã khuya, trong khu cầu trượt chỉ có mỗi Tống Gia Nguyệt đang một tay cầm chiếc đùi gà rán gặm ngon lành. Đoàn Thu Bình đứng tựa cửa cầm chiếc bánh mì kẹp thịt. Tống Gia Nguyệt tính tình có phần nhút nhát, rụt rè, chốc chốc lại đưa mắt lén nhìn Triệu Kim An.
 
-Khách quan mà nói Triệu Kim An xem như hỗn rất khá, có đăng kí kế toán chứng nhận một năm có 2 0 vạn hơn thu vào, bất quá tống gia nguyệt cho tới bây giờ không có đi tìm ca ca nói vay tiền mua nhà cái gì.
+Ở kiếp trước, Tống Gia Nguyệt không học đại học, tốt nghiệp cấp ba xong là ở lại Sâm Thành đi làm thuê.
 
-Hai người bình thường cũng không thể nào liên hệ.
+So với em gái, Triệu Kim An có thể coi là thành đạt khi thi đỗ chứng chỉ kiểm toán viên công chứng (CPA), mỗi năm thu nhập hơn hai trăm nghìn tệ. Thế nhưng Tống Gia Nguyệt chưa từng một lần mở miệng tìm anh trai để hỏi vay tiền mua nhà hay nhờ vả bất cứ điều gì.
 
-"tiểu nguyệt...."
+Ngày thường, hai anh em cũng rất ít khi liên lạc.
 
-Đoạn thu bình ngồi xổm xuống uy một ngụm Hamburger, tống gia nguyệt ngẩng đầu nhìn Triệu Kim An, giống như là có chút sợ người này, qua một hồi lâu, con mắt mới nhìn hướng ly kia kem tươi.
+"Tiểu Nguyệt..."
 
-Nàng tới qua KFC, nhưng lần này quá phong phú, muốn ăn cái gì cũng có.
+Đoàn Thu Bình ngồi xổm xuống đút cho con bé một miếng bánh kẹp. Tống Gia Nguyệt ngẩng đầu nhìn Triệu Kim An, dường như vẫn còn chút e sợ người anh trai này. Phải một lúc sau, ánh mắt con bé mới len lén chuyển sang ly kem sundae mát lạnh.
 
-"không thể ăn nhiều kem ly."
+Con bé từng được đi ăn KFC, nhưng chưa bao giờ được ăn bữa thịnh soạn thế này, muốn ăn gì cũng có.
 
-Đoạn thu bình vẫn là uy rồi miệng, Triệu Kim An an vị cao trên ghế nhìn xem.
+"Không được ăn nhiều kem lạnh đâu đấy."
 
-"Kim An...."
+Dù nói vậy nhưng Đoàn Thu Bình vẫn múc một muỗng đút cho con gái. Triệu Kim An chỉ ngồi trên chiếc ghế cao lặng lẽ quan sát.
 
-Tống gia nguyệt lại đi leo trơn bóng bậc thang rồi, đoạn thu bình đứng dậy dựa đi tới.
+"Kim An à..."
 
-Triệu Kim An cười cười:"ngươi cũng ăn, mua nhiều như vậy đừng lãng phí."
+Thấy Tống Gia Nguyệt lại lon ton trèo lên cầu trượt chơi, Đoàn Thu Bình đứng dậy bước lại gần con trai.
 
-"ân."
+Triệu Kim An nở nụ cười nhẹ: "Mẹ cũng ăn đi, con mua nhiều thế này đừng để lãng phí."
 
-Đoạn thu bình cắn miệng Hamburger, nàng muốn hỏi tô xa, lại không muốn phá hư bầu không khí.
+"Ừ."
 
-Triệu Kim An lấy ra một chồng chuẩn bị xong tiền, 5 ngàn.
+Đoàn Thu Bình cắn một miếng bánh. Bà rất muốn hỏi thăm về Tô Miến, nhưng lại sợ làm hỏng bầu không khí êm đềm hiếm có lúc này.
 
-Cái số này là đoạn thu bình đi Triệu gia thôn tặng học phí, Triệu Kim An không phải cố ý, cũng không có đặc thù hàm nghĩa, hắn nhìn xem đoạn thu bình trên người bông vải phục đạo:"qua tết đi mua mấy bộ y phục."
+Triệu Kim An lấy ra một xấp tiền đã chuẩn bị sẵn, đúng năm nghìn tệ.
 
-"Kim An, ngươi.... Ta sao có thể muốn tiền của ngươi!?"
+Con số này chính là số tiền học phí mà Đoàn Thu Bình từng lặn lội mang về thôn Triệu gia ngày trước. Triệu Kim An không cố ý chọn con số đó, cũng chẳng có ngụ ý sâu xa gì, anh chỉ nhìn chiếc áo bông cũ kỹ trên người bà rồi bảo: "Tết đến rồi, mẹ cầm lấy mà mua mấy bộ quần áo mới."
 
-Nhìn xem dày như vậy một xấp tiền, đoạn thu bình có chút hù dọa, chính mình sao có thể bông hoa tử vừa học vừa làm tiền.
+"Kim An, con... làm sao mẹ có thể lấy tiền của con được!?"
 
-"cầm."
+Nhìn xấp tiền dày cộp, Đoàn Thu Bình có chút hốt hoảng. Làm sao bà có thể nỡ tiêu số tiền mồ hôi nước mắt mà con trai vất vả vừa học vừa làm kiếm được cơ chứ?
 
-Triệu Kim An nhét vào đoạn thu bình túi, mắt nhìn tống gia nguyệt vấn đạo:"hắn rất tiết kiệm sao?"
+"Mẹ cứ cầm lấy đi."
 
-Đoạn thu bình không tiện nói gì.
+Triệu Kim An nhét xấp tiền vào túi áo Đoàn Thu Bình, rồi liếc nhìn Tống Gia Nguyệt đang chơi đùa, khẽ hỏi: "Ông ta chi tiêu tằn tiện lắm à mẹ?"
 
-"tiết kiệm tiền cho ai dùng?"
+Đoàn Thu Bình ngập ngừng, không biết phải trả lời thế nào.
 
-Triệu Kim An cười khổ một tiếng, vương kim như bớt là không có cách nào, hắn nhìn xem đoạn thu bình đạo:"chính ngươi thả thông minh một chút."
+"Tằn tiện để dành cho ai tiêu?"
 
-Đoạn thu bình ngẩng đầu:"Kim An...."
+Triệu Kim An cười khổ một tiếng. Thím Vương Kim Như tằn tiện là vì hoàn cảnh gia đình ngày trước, còn người đàn ông kia thì khác. Anh nhìn thẳng vào mắt mẹ, dặn dò: "Mẹ tự mình phải khôn ngoan lên một chút."
 
-Triệu Kim An gật đầu:"ta cho ngươi tiền, ngươi liền tự mình hoa, đừng cầm đi ra phụ cấp gia dụng, hiểu chưa?"
+Đoàn Thu Bình ngước nhìn con trai: "Kim An..."
 
-"ân."
+Triệu Kim An gật đầu, nhấn mạnh từng chữ: "Con đưa tiền cho mẹ là để mẹ tự chi tiêu cho bản thân, tuyệt đối đừng đem ra bù đắp cho chi tiêu trong nhà bên đó, mẹ hiểu chưa?"
 
-Đoạn thu bình gật đầu, hai tay bắt lấy Triệu Kim An cánh tay nhỏ giọng nói:"ta đã biết."
+"Ừ."
 
-"còn nhớ rõ ngày đó ta hỏi tống đẹp lúa sao?"
+Đoàn Thu Bình gật đầu, hai tay nắm chặt lấy cánh tay Triệu Kim An, khẽ đáp: "Mẹ biết rồi."
 
-"ân."
+"Mẹ còn nhớ hôm trước con hỏi Tống Uyển Hòa câu gì không?"
 
-Đoạn thu bình chính xác đối với tống đẹp lúa có rồi khúc mắc, ngày đó Triệu Kim An xem như"tru tâm chi ngôn", đoạn thu bình gả tới đối với tống đẹp lúa chiếu cố như thế, tống đẹp lúa lại tại"dưỡng lão"về vấn đề do dự.
+"Mẹ nhớ."
 
-Đổi thành ai cũng biết thất vọng đau khổ.
+Trong lòng Đoàn Thu Bình quả thực đã có vết gợn với Tống Uyển Hòa. Hôm đó những lời Triệu Kim An hỏi chẳng khác nào "đâm trúng tim đen". Đoàn Thu Bình gả sang bên ấy, chăm sóc con gái riêng của chồng chu đáo tận tình như thế, vậy mà khi chạm đến vấn đề "phụng dưỡng lúc về già", Tống Uyển Hòa lại ngập ngừng, do dự.
 
-Cứ việc sau khi trở về, tống đẹp lúa hướng đoạn thu bình giải thích, nhưng người phản ứng đầu tiên chân thật nhất.
+Rơi vào hoàn cảnh ấy, là ai thì cũng phải lạnh lòng.
 
-Triệu Kim An lái xe đưa các nàng trở về, lần này đoạn thu bình không có la Triệu Kim An ngủ trong nhà, chỉ ôm ngủ say tống gia nguyệt đưa mắt nhìn nhi tử rời đi, chậm chạp không có lên lầu.
+Dù sau khi về nhà, Tống Uyển Hòa có giải thích thế nào đi nữa, nhưng phản ứng đầu tiên của một con người luôn là điều chân thật nhất.
 
-Đến Triệu gia thôn đã rạng sáng 1 2 giờ rưỡi, yên tĩnh.
+Triệu Kim An lái xe đưa hai mẹ con về. Lần này Đoàn Thu Bình không nài nỉ anh lên nhà ngủ nữa, bà chỉ lặng lẽ bế Tống Gia Nguyệt đã ngủ say trong lòng, dõi mắt nhìn chiếc xe của con trai rời đi, đứng dưới trời đêm rất lâu mới chịu bước lên lầu.
 
-Đen kịt một màu.
+...
 
-Chuyển qua một ngã rẽ, lại có vài chiếc đèn là sáng.
+Khi Triệu Kim An về đến thôn Triệu gia thì trời đã nửa đêm mười hai giờ rưỡi.
 
-Phía trước bãi có mấy đạo bóng người, nhìn thấy đèn xe, có người lấy tay điện lung lay.
+Cả ngôi làng chìm trong màn đêm tĩnh mịch, bốn bề tối om như mực.
 
-Còn có đạo tiểu nhân ảnh tại sườn dốc miệng chạy tới chạy lui.
+Thế nhưng vừa rẽ qua một khúc cua, phía trước bỗng hiện ra vài ánh đèn sáng rực.
 
-"muộn như vậy còn chưa ngủ."
+Trên khoảng sân trước nhà có mấy bóng người đang đứng đợi. Nhìn thấy ánh đèn pha ô tô rọi tới, có người liền giơ đèn pin quơ qua quơ lại đón đường.
 
-Triệu Kim An chậm rãi lái lên sườn dốc, Triệu Duyệt Thiên vui vẻ nhảy dựng lên:"ca ca!"
+Dưới dốc đường còn có một bóng dáng nhỏ nhắn đang nhảy chân sáo chạy đi chạy lại đầy phấn khích.
 
-Nãi nãi, thẩm thẩm, thúc thúc, còn có Doãn Hiểu Lan muộn như vậy cũng tại.
+"Muộn thế này rồi mà còn chưa chịu đi ngủ."
 
-Triệu Kim An trong lòng ấm áp, xuống xe ôm lấy Triệu Duyệt Thiên:"muộn như vậy không gục, cái mũi thật dài."
+Triệu Kim An rà phanh cho xe từ từ bò lên con dốc. Triệu Duyệt Duyệt nhảy cẫng lên reo hò: "Anh ơi!"
 
-"ăn cái gì sao? Ta đi cấp ngươi phía dưới đầu, có canh gà."
+Bà nội, thím hai, chú hai, và cả Doãn Hiểu Lan nữa, muộn thế này mà mọi người vẫn tề tựu đông đủ đứng đợi anh.
 
-Nãi nãi nhìn thấy cháu trai an tâm.
+Trong lòng Triệu Kim An dâng lên một luồng hơi ấm ngập tràn. Anh mở cửa bước xuống xe, bế bổng Triệu Duyệt Duyệt lên: "Muộn thế này không ngủ là mũi dài ra như yêu quái đấy nhé."
 
-"nãi nãi, ta trên đường ăn no rồi."
+"Cháu ăn gì chưa? Để bà vào bếp nấu cho bát mì sợi, trong nồi còn sẵn nước luộc gà đấy."
 
-Triệu Kim An mở cóp sau xe:"thẩm thẩm, nhanh tiết kiệm quả táo cùng đông táo, ngươi cất kỹ."
+Bà nội vừa nhìn thấy đứa cháu đích tôn bình an trở về là tảng đá trong lòng lập tức buông xuống.
 
-"vẫn là chúng ta nhà Kim An biết chuyện."
+"Bà ơi, trên đường đi cháu ăn no căng bụng rồi ạ."
 
-Nhìn xem đầy rương phía sau của quả táo cùng đông táo, vương kim như đụng vào cản trở Triệu Quốc Hoa:"không giống người nào đó đi công tác lâu như vậy, trở về cái gì đều không mang."
+Triệu Kim An mở cốp xe phía sau ra: "Thím ơi, táo với táo tàu mùa đông của đất Thiểm Tây đây, thím cất vào nhà đi nhé."
 
-Triệu Quốc Hoa:......
+"Đúng là Kim An nhà mình lúc nào cũng chu đáo, hiểu chuyện nhất!"
 
-Ta ngồi xe lửa, không phải mang theo chút quả táo sao? Cháu ngươi lái xe ta có thể so?
+Nhìn cả cốp xe chất đầy táo đỏ và táo tàu tươi ngon, Vương Kim Như liền huých mạnh vào người Triệu Quốc Hoa đang đứng chắn lối một cái: "Chẳng bù cho ai kia đi công tác cả buổi trời, lúc về chẳng thấy mang được cái tích sự gì."
 
-"thất thần làm cái gì!? Mau tới chuyển a."
+Triệu Quốc Hoa cạn lời: "..."
 
-Tại vương kim như trước mặt, Triệu Quốc Hoa không có chút nào dám phản kháng.
+Tôi đi tàu hỏa chen chúc, chẳng phải cũng xách về được mấy cân táo đấy thôi? Cháu trai bà lái cả chiếc ô tô riêng thế kia thì tôi so làm sao được?
 
-Doãn Hiểu Lan che miệng cười trộm.
+"Còn đứng ngây ra đấy làm gì!? Mau qua đây bê đồ vào nhà đi chứ!"
 
-"Hiểu Lan, ngươi lấy chút về nhà trước kia hàng, Kim An mua nhiều lắm."
+Trước mặt Vương Kim Như, Triệu Quốc Hoa chẳng bao giờ dám ho he nửa lời phản kháng.
 
-"úc."
+Doãn Hiểu Lan đứng bên cạnh lấy tay che miệng cười thầm.
 
-Vương kim như có chút tham tiền, đối với Doãn Hiểu Lan lại rất lớn phương, Doãn Hiểu Lan dạy Triệu Duyệt Thiên bài tập, có chuyện gì đều thứ nhất đến giúp đỡ, có Doãn Hiểu Lan tại, vương kim như bát đều không cần tẩy.
+"Hiểu Lan à, em lấy một ít đem về nhà mà sắm Tết nhé, Kim An nó mua nhiều quá trời."
 
-Phòng bếp của vệ sinh, Doãn Hiểu Lan đều sẽ yên lặng làm xong.
+"Dạ vâng ạ."
 
-Thậm chí tô Miến quốc khánh tới, Doãn Hiểu Lan còn chiếu cố tô xa, cho tô xa làm đồ vật ăn.
+Vương Kim Như ngày thường có tính mê tiền và hay tằn tiện, nhưng đối với Doãn Hiểu Lan thì lại cực kỳ hào phóng, xởi lởi. Doãn Hiểu Lan kèm cặp Triệu Duyệt Duyệt học bài, trong nhà có việc gì cũng là người đầu tiên xắn tay áo chạy sang đỡ đần. Có Doãn Hiểu Lan ở đây, Vương Kim Như thậm chí chẳng phải đụng tay vào rửa một cái bát.
 
-Triệu Kim An ôm Triệu Duyệt Thiên, đối với Doãn Hiểu Lan nhỏ giọng nói:"đông táo ăn ngon, gọi lớn lệ đông táo rất nổi danh, ngươi lấy thêm điểm."
+Mọi ngóc ngách, vệ sinh trong gian bếp, Doãn Hiểu Lan đều lẳng lặng dọn dẹp sạch bóng đâu ra đấy.
 
-"ngô ~"
+Thậm chí đợt Quốc khánh Tô Miến về đây chơi, cũng là Doãn Hiểu Lan chăm sóc chu đáo, nấu nướng từng bữa cho Tô Miến ăn.
 
-Doãn Hiểu Lan đối với mấy cái này không có hứng thú, nàng đếm trên đầu ngón tay chờ Triệu Kim An trở về.
+Triệu Kim An một tay bế Triệu Duyệt Duyệt, khẽ quay sang nói nhỏ với Doãn Hiểu Lan: "Táo tàu này ngon lắm, gọi là táo tàu mùa đông Đại Lệ nổi tiếng lắm đấy, chị lấy nhiều nhiều một chút nhé."
 
-Không đầy một lát trên đường lại có hai cái đèn pin, triệu có tài cùng triệu kiên nhẫn hai vợ chồng tới.
+"Dạ~"
 
-"Kim An, tiểu thẩm thẩm nhỉ?"
+Doãn Hiểu Lan thực ra chẳng mấy để tâm đến đồ ăn ngon hay của lạ, những ngày qua cô chỉ biết đếm từng ngón tay ngóng đợi ngày Triệu Kim An trở về mà thôi.
 
-Triệu kiên nhẫn vừa lên tới liền hỏi:"vừa mới có xe từ cửa ra vào đi qua, ta liền biết là ngươi trở về."
+Lát sau, trên con đường làng lại xuất hiện thêm hai luồng ánh đèn pin lấp loáng, hai vợ chồng Triệu Hữu Tài và Triệu Hữu Hằng cũng lục tục kéo sang.
 
-Triệu Kim An:......
+"Kim An, thím nhỏ đâu rồi em?"
 
-"ta cũng là các ngươi thúc, liền hô danh tự?"
+Triệu Hữu Hằng vừa bước lên sân đã háo hức hỏi ngay: "Vừa nãy nghe tiếng ô tô chạy qua trước cửa là anh biết ngay chú mày đã về rồi."
 
-"không có ta, các ngươi ở đâu ra tiểu thẩm thẩm?"
+Triệu Kim An dở khóc dở cười: "..."
 
-Không có thấy tô xa, triệu kiên nhẫn cùng triệu có tài mang theo thất vọng liền trở về.
+"Tôi cũng là bậc chú của các ông đấy nhé, mở miệng ra là gọi trống không thế à?"
 
-Nãi nãi gọi hắn lại nhóm hai huynh đệ, vương kim như một người ôm rương quả táo cho bọn hắn, triệu có tài một người có thể đồ tết đều không mua những thứ này, có tiền, vương kim như trở nên hào phóng rất nhiều.
+"Không có tôi thì các ông lấy đâu ra thím nhỏ mà ngóng?"
 
-Trừ rồi Triệu Quốc Hoa tiền lương tăng tới 3 ngàn.
+Không thấy bóng dáng Tô Miến đâu, Triệu Hữu Hằng và Triệu Hữu Tài thoáng chút thất vọng, toan quay người đi về.
 
-Tốt a, vương kim như có chút không nhìn trúng, nàng có KFC của thu vào.
+Bà nội vội cất tiếng gọi hai anh em lại. Vương Kim Như hào phóng bê hẳn cho mỗi nhà một thùng táo to tướng. Cảnh ngộ như Triệu Hữu Tài gà trống nuôi con một mình, có khi tiền sắm Tết cũng chẳng dám mua những thứ hoa quả đắt đỏ thế này. Giờ nhà có của ăn của để rồi, tính tình Vương Kim Như cũng trở nên rộng rãi hơn hẳn.
 
-Dùng Triệu Quốc Hoa lời mà nói, ngươi thẩm thẩm bây giờ là tiểu phú bà rồi, ta bây giờ tại nhà một điểm địa vị cũng không có.
+Ngoài việc lương của Triệu Quốc Hoa tăng lên ba nghìn tệ một tháng...
 
-Triệu kiên nhẫn hai vợ chồng khách khí rất lâu, nói cầm một điểm là được rồi.
+Thôi được rồi, thực ra Vương Kim Như giờ chẳng thèm để mắt đến ba nghìn tệ tiền lương kia nữa, thím đang nắm cả nguồn thu khổng lồ từ cửa hàng KFC cơ mà.
 
-Vương kim như quả thực là muốn bọn hắn ôm một rương trở về, còn cầm điểm đông táo.
+Nói theo cách của Triệu Quốc Hoa thì: Thím của cháu giờ thành tiểu phú bà rồi, chú ở cái nhà này chẳng còn chút địa vị nào nữa.
 
-Nãi nãi đi phòng bếp, Triệu Kim An không có cách nào uống bát canh gà mới đi tắm rửa.
+Vợ chồng Triệu Hữu Hằng khách khí chối từ mãi, bảo chỉ xin lấy vài quả ăn lấy thảo là được.
 
-Từ phòng vệ sinh đi ra, Doãn Hiểu Lan cùng vương kim như đều tại Triệu Kim An gian phòng.
+Vương Kim Như dứt khoát bắt họ phải ôm cả thùng về, lại còn nhét thêm cho một túi táo tàu mùa đông nữa.
 
-Nãi nãi đứng cửa.
+Bà nội đã đi vào bếp múc canh, Triệu Kim An không còn cách nào khác đành phải húp hết bát canh gà nóng hổi rồi mới đi tắm rửa.
 
-"Kim An, chăn mền cho ngươi phơi mấy ngày."
+Vừa từ phòng tắm bước ra, anh đã thấy Doãn Hiểu Lan và Vương Kim Như đều đang ở trong phòng ngủ của mình.
 
-Vương kim như vỗ vỗ chăn mền cười nói:"ngươi nghe, solar; shiny; sunny hương vị."
+Bà nội thì đứng tựa ở cửa nhìn vào.
 
-".... Đã trễ thế như vậy, nãi nãi, thẩm thẩm, các ngươi nhanh đi ngủ đi."
+"Kim An, chăn đệm thím đem phơi nắng cho cháu suốt mấy hôm liền đấy."
 
-Triệu Kim An nhìn xem thời gian, 1: 3 0, nãi nãi bình thường cũng là 8 điểm nhiều liền ngủ.
+Vương Kim Như vỗ vỗ lên chiếc chăn bông ấm áp, cười tít mắt: "Cháu ngửi thử xem, thơm phức mùi nắng luôn nhé."
 
-"đây không phải muốn cùng ngươi nhiều lời hội thoại sao! Ai bảo ngươi muộn như vậy mới đến!?"
+"... Muộn lắm rồi, bà với thím mau đi ngủ đi thôi ạ."
 
-Vương kim như dữ dằn.
+Triệu Kim An nhìn đồng hồ, đã là một giờ rưỡi sáng. Bình thường bà nội chỉ hơn tám giờ tối là đã lên giường đi ngủ rồi.
 
-Triệu Kim An liền dựa vào cửa ra vào cười.
+"Người ta chẳng qua là muốn nói chuyện với cháu thêm một lúc thôi mà! Ai bảo cháu đi đứng kiểu gì mà muộn thế này mới mò về tới nơi cơ chứ!?"
 
-"liền biết cười!"
+Vương Kim Như lại giở giọng hung dữ quen thuộc.
 
-Vương kim như mới sẽ không quản nhiều như vậy, dùng sức đập quyền Triệu Kim An, nhìn xem anh tuấn chất tử chính nàng cũng cười:"thiếu đối với nữ hài tử cười, biết không!?"
+Triệu Kim An chỉ đứng dựa vào khung cửa tủm tỉm cười.
 
-Nãi nãi trừng nàng mắt.
+"Chỉ được cái cười trừ là giỏi!"
 
-"cắt, bảo bối của chính ngươi cháu trai dáng dấp ra sao không biết sao? Còn ưa thích đối với người cười, về sau có ngươi nhức đầu của."
+Vương Kim Như chẳng thèm kiêng nể gì, giơ tay đấm thụp một cái vào vai Triệu Kim An. Nhìn đứa cháu trai khôi ngô tuấn tú ngời ngời, chính thím cũng không nhịn được mà bật cười: "Sau này bớt bớt cái thói cười với mấy đứa con gái lại nghe chưa!?"
 
-Vương kim như xẹp lép miệng, nói xong nhanh như chớp đi.
+Bà nội đứng ngoài cửa trừng mắt lườm thím một cái.
 
-Nãi nãi quay người trừng không được rồi.
+"Xì, bà tưởng cháu đích tôn bảo bối của bà trông như thế nào mà bà không biết à? Đã đẹp trai lại còn hay cười với người ta, sau này có ngày bà đau đầu cho mà xem."
 
-Doãn Hiểu Lan liền che miệng cười, nàng cảm thấy vương kim như nói có đạo lý.
+Vương Kim Như bĩu môi lẩm bẩm, nói xong liền co cẳng chuồn thẳng.
 
-Nãi nãi nhìn cháu trai một hồi, mới cùng Doãn Hiểu Lan rời đi.
+Bà nội quay người lại thì thím đã chạy biến đâu mất dạng, chẳng kịp mắng câu nào.
 
-"chờ...."
+Doãn Hiểu Lan đứng một bên lấy tay che miệng cười khúc khích, cô cảm thấy lời thím Vương nói quả thật rất có lý.
 
-Doãn Hiểu Lan dừng bước, Triệu Kim An đi tới nhỏ giọng vấn đạo:"ngươi không có mua quần áo mới?"
+Bà nội đứng nhìn cháu trai âu yếm một lúc rồi mới cùng Doãn Hiểu Lan bước ra ngoài.
 
-Nãi nãi đứng tại cửa chính.
+"Chờ..."
 
-Triệu Kim An lấy ra một xấp tiền, lần này so hai ngàn nhiều.
+Doãn Hiểu Lan khựng bước lại. Triệu Kim An bước nhanh tới gần, khẽ hỏi: "Chị vẫn chưa sắm quần áo mới à?"
 
-"Kim An....."
+Bà nội đứng ở cửa chính nhìn lại.
 
-Doãn Hiểu Lan quay đầu nhìn về phía nãi nãi, nãi nãi gật đầu, lại là câu nói kia:"cho ngươi, ngươi liền cầm lấy, ngươi còn muốn về nhà ngoại."
+Triệu Kim An lấy từ trong túi ra một xấp tiền dày, lần này nhiều hơn lần trước hai nghìn tệ rất nhiều.
 
-Doãn Hiểu Lan cúi đầu tiếp tiền:"Kim An.... Cám ơn ngươi
+"Kim An..."
+
+Doãn Hiểu Lan bối rối quay đầu nhìn bà nội. Bà nội khẽ gật đầu, lại là câu nói quen thuộc đầy bao dung: "Nó đưa thì cháu cứ cầm lấy, cháu còn phải về thăm nhà mẹ đẻ nữa mà."
+
+Doãn Hiểu Lan cúi đầu, hai tay run run đón lấy xấp tiền: "Kim An... cảm ơn em."

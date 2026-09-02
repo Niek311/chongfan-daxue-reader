@@ -1,229 +1,227 @@
-# Chương 129: Không công bằng!
+# Chương 129: Thế là không công bằng!
 
-Tại trương tuệ cùng Trương Vân thiến mấy người chăm chú, Triệu Kim An ôm hai rương nước khoáng tới.
+> **Tiêu đề gốc**: 第129章 不公平！
 
-"Triệu Kim An....."
+Dưới ánh mắt dõi theo của Trương Tuệ, Trương Vân Thiến và mọi người xung quanh, Triệu Kim An thoăn thoắt bê hai thùng nước khoáng đặt xuống quầy.
 
-Mấy người mặc hồng áo vest nhỏ của nữ sinh đều hô người, làm mấy ngày người tình nguyện các nàng đều biết Triệu Kim An rồi.
+"Triệu Kim An..."
 
-Còn biết rồi Triệu Kim An là bên cạnh sư lớn.
+Mấy bạn nữ mặc áo gi lê đỏ tình nguyện viên đều ríu rít cất tiếng chào. Làm việc chung mấy ngày nay, họ đều đã quen mặt và biết anh là sinh viên của trường Đại học Sư phạm kế bên.
 
-"Triệu Kim An, khát nước sao? Uống nước."
+"Kim An, cậu có khát không? Uống ngụm nước này."
 
-Có cái nữ sinh còn vặn ra một bình nước khoáng đưa cho Triệu Kim An.
+Một cô bạn còn nhanh nhảu vặn nắp sẵn một chai nước khoáng đưa tận tay cho Triệu Kim An.
 
-Triệu Kim An cười nói:"trời nóng như vậy, các ngươi khổ cực."
+Triệu Kim An mỉm cười đón lấy: "Trời nắng gắt thế này, các cậu vất vả quá."
 
-"cái này có gì cực khổ!"
+"Vất vả gì đâu cậu ơi!"
 
-"đúng a, có che dù lại phơi không đến thái dương."
+"Đúng đó, có ô dù che mát rượi, chẳng bị nắng chiếu chút nào."
 
-"Triệu Kim An, ngươi liền chờ tại chúng ta ở đây, không đi những địa phương khác, chúng ta liền không khổ cực rồi."
+"Kim An này, hay là cậu cứ ở lại điểm này của bọn mình đi, đừng chạy qua mấy chỗ khác nữa, thế là tụi mình hết thấy mệt ngay!"
 
-Mấy nữ sinh ha ha ha cười không ngừng, nữ sinh có khi cứ như vậy, có rồi mấy cái tụ cùng một chỗ lòng can đảm cũng rất lớn.
+Mấy cô gái được thể khúc khích cười rộ lên. Đám con gái đôi khi là vậy, hễ tụ tập thành nhóm đông vui là trở nên bạo dạn khác thường, thậm chí còn chủ động trêu ghẹo, buông lời tán tỉnh con trai.
 
-Thế mà chủ động đùa giỡn với nam sinh.
+Họ không rõ chức vụ cụ thể của Triệu Kim An trong công ty là gì, chỉ thấy anh và Thẩm Tử Ngôn đều không phải mặc áo gi lê đỏ đồng phục — dĩ nhiên lát nữa lên sóng truyền hình thì Thẩm Tử Ngôn nhất định sẽ khoác vào.
 
-Các nàng không rõ ràng Triệu Kim An ở cái này công ty cụ thể chức vị, nhưng Triệu Kim An cùng thẩm tử nói không mặc đồ đỏ sắc áo vest nhỏ, đương nhiên, phỏng vấn thẩm tử nói nhất định sẽ mặc vào.
+Mộc Dao đứng cách đó không xa, đôi nắm tay nhỏ siết chặt lại, trong lòng ấm ức chỉ muốn lao tới mắng cho đám con gái kia một trận là lũ hồ ly tinh lẳng lơ!
 
-Mộc Dao nắm tay nhỏ nắm chặt nhanh của, rất muốn tiến lên mắng các nàng hồ ly tinh!
+Đường Hiểu Tình và Diêu Sân thì đã quá quen với cảnh tượng này.
 
-Đường Hiểu nắng ấm diêu tân đã thấy có lạ hay không.
-
-Diêu tân có khi còn có thể tham dự vào, làm người tình nguyện cái này cũng là niềm vui thú.
+Đôi khi Diêu Sân còn hào hứng hùa vào trêu cùng, làm tình nguyện viên thì niềm vui chính là những phút giây rôm rả ấy.
 
 "Triệu Kim An!"
 
-Nhìn một hồi, trương tuệ vẫn là hô.
+Quan sát một hồi lâu, cuối cùng Trương Tuệ cũng không nhịn được mà cất tiếng gọi.
 
-Triệu Kim An lúc này mới quay người nhìn về phía trương tuệ, nhàn nhạt cười nói:"a di, ngươi tốt."
+Triệu Kim An lúc này mới quay người lại, nhìn về phía Trương Tuệ, nở một nụ cười nhàn nhạt: "Cháu chào bác ạ."
 
-Trương tuệ:.......
+Trương Tuệ: "..."
 
-Ngươi tối hôm qua mới kéo negro; sable ta, bây giờ lại như vậy tự nhiên?
+Tối qua vừa dứt khoát chặn số người ta, giờ chạm mặt lại có thể thản nhiên như không có chuyện gì xảy ra thế này sao?
 
-Người nào đi.
+Cái thằng nhóc này rốt cuộc là hạng người gì vậy chứ?
 
-Trương tuệ ngẩn người:"ngươi tốt."
+Trương Tuệ thoáng khựng lại một nhịp rồi đáp: "Chào cháu."
 
-Nàng tối hôm qua còn tưởng rằng Triệu Kim An trong lòng có khí, tức giận chính mình mới có thể kéo đen.
+Đêm qua bà còn đinh ninh rằng trong lòng Triệu Kim An vẫn còn ấm ức, tức giận vì chuyện cũ nên mới bực tức chặn số của bà.
 
-Sinh khí mới tốt, sinh khí mới nói rõ quan tâm.
+Giận dỗi là tốt, bởi có giận dỗi mới chứng tỏ trong lòng vẫn còn để tâm, còn tha thiết.
 
-Trương tuệ cũng không biết vì cái gì, mới gặp lại Triệu Kim An cảm thấy hắn lại lớn lên, rời đi tư cách tinh đi tới tỉnh lị quận cát, có thể trương tuệ trong lòng của cảm giác ưu việt tiêu tan rất nhiều.
+Nhưng chẳng hiểu sao, lần này gặp lại Triệu Kim An, bà cảm thấy cậu thanh niên này dường như lại trưởng thành thêm một bậc. Rời khỏi thị xã Tư Tinh nhỏ hẹp để bước chân lên chốn đô hội phồn hoa của thành phố Quận Sa, có lẽ cảm giác ưu việt ngút ngàn bấy lâu trong lòng Trương Tuệ đã bị bào mòn đi không ít.
 
-Tại tư cách tinh, mỗi cái đơn vị của người đứng đầu trương tuệ đều kêu ra tên, có thể còn có thể đánh lên một tiếng gọi, đi tới tỉnh lị tự nhiên tâm lý liền sẽ có biến hóa.
+Ở Tư Tinh, hầu như thủ trưởng của các cơ quan ban ngành Trương Tuệ đều đọc vanh vách họ tên, chạm mặt nhau còn có thể bắt tay chào hỏi đôi ba câu; nhưng khi đã lên tới thủ phủ tỉnh lỵ này, tâm lý con người ắt sẽ tự khắc sinh ra những biến chuyển vô hình.
 
-Nói điểm trực bạch, tại tư cách tinh, trương tuệ có thể tại hiệu trưởng văn phòng cùng hiệu trưởng nói chuyện phiếm.
+Nói một cách trần trụi, ở Tư Tinh, Trương Tuệ có thể đàng hoàng ngồi vắt chân trò chuyện trong phòng làm việc của hiệu trưởng trường chuyên; nhưng một khi đã lên tới Quận Sa, đừng nói đến hiệu trưởng của Đại học Trung Nam, ngay cả một vị viện trưởng khoa bà cũng chẳng có cơ hội diện kiến.
 
-Tới tỉnh lị quận cát, đừng nói bên trong southwardly hiệu trưởng, viện trưởng đều không thấy được.
+"Triệu Kim An, bác cháu mình nói chuyện riêng vài câu được không?"
 
-"Triệu Kim An, có thể phiếm vài câu sao?"
+Trương Tuệ cao một mét sáu mốt, dáng người thanh mảnh, toát lên vẻ thanh cao lãnh đạm. Bà diện chiếc quần âu đen kết hợp áo sơ mi trang nhã, trên tay khoác chiếc túi xách hàng hiệu màu đen; thế nhưng khuôn ngực đẫy đà căng tròn lấp ló sau lớp vải sơ mi lại có phần đối lập với khí chất lạnh lùng, nghiêm nghị bên ngoài.
 
-Trương tuệ 1 6 1 của kích thước, lạnh lùng, quần tây áo sơmi vác lấy một cái màu đen bóp đầm, nhưng trước ngực áo sơmi căng phồng lại cùng nàng lạnh lùng của khí chất có chút không hợp.
+Khi bà nói với Trương Vân Thiến rằng "anh rể em đố dám léng phéng", âu cũng là bởi bà vô cùng tự tin vào vóc dáng và sức hút đàn bà của chính mình.
 
-Nàng đối với Trương Vân thiến nói"tỷ phu ngươi không dám làm loạn", cũng là đối với mình tư thái rất tự tin.
+"Nói chuyện riêng ạ?"
 
-"đơn độc phiếm vài câu?"
+Triệu Kim An liếc nhìn Khổng Triết Vũ, rồi lại đưa mắt nhìn Mộc Dao một cái, sau đó khẽ gật đầu.
 
-Triệu Kim An mắt nhìn lỗ triết vũ, lại nhìn mắt Mộc Dao nhẹ gật đầu.
+Anh cũng có chút tò mò, không hiểu đến nước này rồi thì Trương Tuệ còn muốn tìm mình để nói những chuyện gì nữa?
 
-Hắn có chút hiếu kì lúc này, trương tuệ còn tìm chính mình trò chuyện cái gì?
+Trương Vân Thiến ngập ngừng một lát rồi cũng cất bước đi theo sau chị gái.
 
-Trương Vân thiến do dự sẽ, theo tới.
+"Triệu Kim An, cháu đi làm thêm thời sinh viên chỉ phụ trách chân giao hàng thôi à?"
 
-"Triệu Kim An, ngươi đại học kiêm chức liền phụ trách đưa hàng?"
+Lần này giọng điệu của Trương Vân Thiến đã hòa nhã hơn rất nhiều, không còn mang cái vẻ chanh chua, khó nghe như đợt gặp gỡ trong khách sạn năm ngoái nữa.
 
-Lần này Trương Vân thiến của ngữ khí vẫn là tốt, không giống lần trước tại khách sạn, nói chuyện khó nghe như vậy.
+Hai chị em Trương Vân Thiến và Trương Tuệ có nét mặt khá giống nhau, chỉ có điều Trương Vân Thiến thấp hơn một chút, chỉ cao tầm một mét năm mươi lăm.
 
-Trương Vân thiến cùng trương tuệ hai tỷ muội dáng dấp có điểm giống, chính là Trương Vân thiến chiều cao thấp chút, chỉ có 1 5 5 của kích thước.
+"Triệu Kim An, bác chưa bao giờ mở miệng ép cháu và Dao Dao phải chia tay nhau cả."
 
-"Triệu Kim An, ta cho tới bây giờ không nói muốn ngươi cùng Dao Dao chia tay."
+Trương Tuệ đi thẳng vào vấn đề.
 
-Trương tuệ nói thẳng.
+Triệu Kim An chỉ bình thản nhìn bà, ánh mắt như muốn bảo bà cứ việc nói tiếp.
 
-Triệu Kim An liền nhiền lấy trương tuệ, ý là nói đi xuống.
+"Bác không hề ngăn cấm cháu và Dao Dao qua lại."
 
-"ta không có ngăn cản ngươi cùng Dao Dao."
+Trương Tuệ khéo léo phân trần: "Bác chỉ bảo hai đứa cùng xuất thân từ một quê, lại là bạn học cùng lớp cấp ba... Bác thấy cháu chững chạc hơn Dao Dao nhiều, nên bác hy vọng cháu có thể giống như một người anh trai, hết lòng bảo ban chăm sóc cho con bé."
 
-Trương tuệ giải thích nói:"ta chỉ nói là các ngươi tới từ một chỗ, lại là bạn học cùng lớp..... Ta nói là ngươi so Dao Dao đã thành thục, hi vọng ngươi có thể giống ca ca chiếu cố Dao Dao."
+"Cháu thử nhớ lại cho kỹ xem, hôm ở khách sạn bác có phải đã nói đúng như thế không?"
 
-"ngươi nghiêm túc nhớ lại một chút, ngày đó ta tại khách sạn có phải hay không nói như vậy?"
+Nghe mà xem, những lời lẽ ấy mới êm tai và kín kẽ làm sao, quả thực không để lọt một kẽ hở nào.
 
-Nghe một chút, lời nói này bao nhiêu xinh đẹp, đơn giản giọt nước không lọt.
+Có lẽ bởi ở kiếp này Triệu Kim An đã hoàn toàn tuột khỏi tầm kiểm soát của bà. Trương Tuệ vốn là mẫu phụ nữ có dục vọng kiểm soát cực kỳ mạnh mẽ. Ở kiếp trước, có lẽ bà cũng từng nghĩ rằng một chàng trai tuấn tú, ngoan ngoãn và biết nghe lời như Triệu Kim An chịu làm con rể của bà thì cũng không phải là chuyện không thể chấp nhận.
 
-Đại khái là một thế này Triệu Kim An thoát ly chưởng khống, trương tuệ là một cái khống chế dục rất mạnh nữ nhân, đại khái ở kiếp trước cũng nghĩ qua Triệu Kim An đẹp như thế như vậy nghe lời vì chính mình con rể cũng không phải không thể.
+Triệu Kim An nhớ lại kiếp trước, nhưng kiếp này rõ ràng đã xuất hiện thêm những người như Khổng Triết Vũ kia mà.
 
-Triệu Kim An nhớ tới ở kiếp trước, nhưng này một thế xuất hiện lỗ triết vũ dạng này người a.
+Thấy Triệu Kim An trầm ngâm, Trương Tuệ liền bồi thêm: "Dù có chia tay đi chăng nữa thì hai đứa vẫn có thể làm bạn bè tốt của nhau được cơ mà? Vậy mà cháu lại chặn số của cả Dao Dao lẫn bác."
 
-Gặp Triệu Kim An đang suy nghĩ, trương tuệ liền tiếp tục nói:"coi như chia tay cũng có thể làm bạn, ngươi đem Dao Dao cùng ta đều kéo đen."
+Nói đến đây, giọng Trương Tuệ thoáng gợn lên chút bực bội.
 
-Giảng đến nơi đây, trương tuệ có chừng điểm sinh khí.
+Gương mặt Triệu Kim An bỗng trở nên vô cùng nghiêm túc: "Một khi đã chia tay thì không thể làm bạn bè được nữa. Làm như thế đối với cháu là không công bằng."
 
-Triệu Kim An vẻ mặt thành thật:"chia tay cũng không phải là bằng hữu, đối với ta như vậy tới nói không công bằng."
+"Cái gì? Không công bằng cái gì cơ?"
 
-"cái gì? Cái gì không công bằng?"
+"Hơn nữa, làm như vậy cũng là không công bằng với người bạn trai tương lai của Mộc Dao."
 
-"còn có, đối với nàng tương lai bạn trai tới nói cũng không công bằng."
+"Cháu đang nói cái quái gì thế?"
 
-"ngươi đang nói cái gì?"
+Cả Trương Tuệ lẫn Trương Vân Thiến đều ngơ ngác nhìn anh, vẻ mặt đầy khó hiểu.
 
-Trương tuệ cùng Trương Vân thiến vẻ mặt vô cùng nghi hoặc.
+Triệu Kim An nhìn thẳng vào mắt Trương Tuệ, từng câu từng chữ rành rọt: "Nếu là bạn gái của cháu, cháu tuyệt đối sẽ không bao giờ chấp nhận cô ấy có một người bạn khác giới mập mờ như thế, và càng không thể nào dung thứ cho việc cô ấy có một người gọi là 'anh trai kết nghĩa' kè kè bên cạnh."
 
-Triệu Kim An nhìn xem trương tuệ, tiếp đó nói:"nếu như là bạn gái của ta, ta sẽ không tiếp nhận nàng có cái bằng hữu như vậy, càng không thể tiếp nhận nàng có cái cái gì cái gọi là ca ca."
+Nghe đến đây, cả Trương Tuệ và Trương Vân Thiến đều đã vỡ lẽ.
 
-Lần này trương tuệ cùng Trương Vân thiến nghe rõ.
+Đúng vậy, trên đời này có thằng đàn ông nào lại rộng lượng đến mức chấp nhận để bạn gái mình có một người "anh trai mưa" như thế?
 
-Đúng vậy a, có mấy cái nam sinh có thể khoan nhượng bạn gái mình có cái dạng này ca ca?
+Triệu Kim An nhớ lại những cay đắng của kiếp trước, giọng anh đanh lại: "Cháu đi tìm bạn gái để yêu thương, chứ không phải đi tìm một đứa em gái để nhận nuôi. Bác muốn cháu phải như một người anh trai chăm sóc chu đáo cho con gái bác, để rồi con gái bác có thể phủi tay rút lui bất cứ lúc nào, đúng không?"
 
-Triệu Kim An nhớ tới ở kiếp trước nói:"ta là tìm bạn gái, không phải tìm muội muội, ngươi muốn ta giống ca ca chiếu cố con gái của ngươi, con gái của ngươi lại có thể tùy thời thoát thân có phải hay không?"
+"Như vậy đối với cháu chẳng phải là quá bất công hay sao?"
 
-"đối với ta như vậy tới nói có phải hay không rất không công bằng?"
+"Cháu làm thế để mưu cầu cái gì chứ?"
 
-"ta mưu đồ gì?"
+"Nếu cháu muốn chăm sóc em gái, tự khắc cháu đã có em gái ruột của mình rồi."
 
-"ta phải chiếu cố muội muội, chính ta có muội muội."
+Triệu Kim An lại chợt nhớ đến Đoạn Thu Bình. Bà ta năm xưa cũng từng ép anh phải mở miệng gọi Tống Siêu Văn một tiếng "chú" thân thương.
 
-Triệu Kim An liền nghĩ tới đoạn thu bình, đoạn thu bình cũng nghĩ chính mình hô tống siêu văn hô thúc thúc.
+Anh thực lòng không thể nào hiểu nổi logic quái đản của những con người này.
 
-Hắn là thực sự không hiểu rõ những người này ăn khớp.
+Ngược lại, Trương Tuệ cũng vạn lần không ngờ một chàng trai trẻ tuổi như Triệu Kim An lại sở hữu tư duy logic sắc bén, đanh thép và thẳng thắn đến nhường này.
 
-Đồng dạng, trương tuệ cũng không nghĩ đến Triệu Kim An còn còn trẻ như vậy, ăn khớp cứ như vậy rõ ràng.
+Triệu Kim An cúi nhìn người phụ nữ chỉ đứng cao ngang ngực mình, nói tiếp: "Trong lòng bác chưa từng công nhận, và ngoài miệng bác cũng chưa bao giờ thừa nhận cháu là bạn trai của Mộc Dao. Bác thử nói xem, như thế có công bằng với cháu không?"
 
-Triệu Kim An nhìn xem đến bộ ngực mình vị trí của trương tuệ nói:"trong lòng ngươi không có thừa nhận, ngoài miệng cũng chưa từng thừa nhận qua ta là Mộc Dao của bạn trai, ngươi nói đúng ta tới nói công bằng sao?"
+"Cháu và Mộc Dao vốn dĩ là người yêu của nhau, chính bác là người đã cố tình làm nhòe đi ranh giới của mối quan hệ ấy."
 
-"ta cùng Mộc Dao vốn là nam nữ bằng hữu, là ngươi đem chúng ta quan hệ mơ hồ."
+Kiếp này đối với anh, mọi chuyện đã chẳng còn quan trọng nữa.
 
-Một thế này không quan trọng.
+Những lời này, là Triệu Kim An đang thay mặt cho chính bản thân mình của kiếp trước để "đòi lại một sự công bằng" mà thôi.
 
-Những lời này là Triệu Kim An thay ở kiếp trước của chính mình"lấy"của.
+Lương tâm Trương Tuệ bỗng chốc chột dạ, bà ngượng ngùng né tránh ánh mắt kiên định của Triệu Kim An.
 
-Trương tuệ chột dạ, không dám nhìn Triệu Kim An của con mắt.
+Mộc Dao tuổi đời còn quá trẻ nên chưa hiểu hết sự đời. Hồi nghỉ hè, trước khi bước chân vào khách sạn, Trương Tuệ từng hứa với con gái sẽ không chia rẽ tình cảm của hai đứa, nhưng thâm tâm bà quả thực đã chủ ý dùng những lời lẽ khéo léo để "làm mờ nhạt" mối quan hệ yêu đương của chúng.
 
-Mộc Dao còn trẻ không hiểu nhiều, nghỉ hè tại đi trước tửu điếm trương tuệ đáp ứng nữ nhi không chia rẽ nàng và Triệu Kim An của, nhưng quả thật có ý đem các nàng hai của quan hệ"mơ hồ"rồi.
+Lăn lộn trong chốn quan trường bao nhiêu năm trời, mấy ngón đòn tâm lý này đối với Trương Tuệ chỉ là trò vặt vãnh dễ như trở bàn tay.
 
-Tại bên trong thể chế chờ đợi nhiều năm như vậy, chút mánh khóe này trương tuệ hạ bút thành văn.
+Chưa từng thừa nhận, đồng nghĩa với việc bất cứ lúc nào cũng có thể đường hoàng "rút lui êm thấm", không ai có thể dị nghị hay trách cứ được nửa lời.
 
-Không có thừa nhận, tựu tùy lúc có thể"thoát thân", ai cũng không thể nói cái gì.
+Ở cái thị xã Tư Tinh bé hạt tiêu ấy, Trương Tuệ và Mộc Nhân Cường dầu gì cũng là những người có chút máu mặt, họ vô cùng coi trọng thể diện cũng như thanh danh của gia đình và con gái. Bằng cách ấy, họ có thể thản nhiên tuyên bố với thiên hạ rằng con gái mình chưa từng yêu đương với ai.
 
-Tại tư cách tinh cái này 1 8 tuyến tiểu thành thị, trương tuệ cùng mộc nhân mạnh cũng coi như có chút mặt mũi, quan tâm chính mình cùng nữ nhi của danh tiếng, các nàng liền có thể nói nữ nhi không có đàm luận bạn trai.
+Triệu Kim An liếc sang Trương Vân Thiến, rồi lại quay sang nhìn Trương Tuệ, buông thêm một câu: "Bác thử đi hỏi Khổng Triết Vũ mà xem, hỏi xem cậu ta có bận lòng khi bạn gái mình có một người 'anh trai' như cháu bên cạnh không? Nếu cậu ta bảo không bận tâm, vậy thì cháu cũng chẳng thèm để bụng."
 
-Triệu Kim An mắt nhìn Trương Vân thiến, lại đối trương tuệ nói:"ngươi hỏi lỗ triết vũ, hỏi hắn ngại hay không bạn gái mình có cái dạng này ca ca? Nếu như hắn không ngại, vậy ta cũng không để ý."
+Trương Tuệ: "..."
 
-Trương tuệ:.......
+Trương Vân Thiến: "..."
 
-Trương Vân thiến: 6 2 6 4 7 7   7 7 6 4 6 3
+Cái gì mà "cậu ta không bận tâm thì cháu cũng chẳng để bụng" chứ?
 
-Cái gì gọi là hắn không ngại, vậy ta cũng không để ý?
+Bà bỗng giật mình nhận ra, giọng điệu của Triệu Kim An tuy nhẹ nhàng, bình thản nhưng sức sát thương và độ công kích lại khủng khiếp vô cùng!
 
-Nàng đột nhiên phát giác Triệu Kim An bình bình đạm đạm thật có lực công kích!
+"Triệu Kim An, Dao Dao nó chưa hề đồng ý nhận lời cậu ta đâu."
 
-"Triệu Kim An, Dao Dao không có đáp ứng hắn."
+Chẳng hiểu vì lý do gì, Trương Tuệ lại buột miệng phân bua một câu như thế.
 
-Trương tuệ cũng không biết vì cái gì, giải bày một câu.
+"Chuyện đó không còn quan trọng nữa rồi."
 
-"không trọng yếu."
+Triệu Kim An không muốn tiếp tục hao tâm tổn trí vào những chuyện vụn vặt này, càng không muốn phải đấu trí so tài với Trương Tuệ. Anh đưa mắt nhìn về phía Mộc Dao đang đứng ngơ ngác đằng xa với ánh mắt tội nghiệp.
 
-Triệu Kim An không muốn tinh thần bên trong hao tổn, không muốn cùng trương tuệ đấu trí đấu dũng, hắn mắt nhìn cách đó không xa giương mắt Mộc Dao.
+"Kim An..."
 
-"Kim An...."
+Mộc Dao mấp máy môi muốn bước lại gần, bước chân cô đã khẽ nhích lên một nhịp.
 
-Mộc Dao há há mồm muốn tới đây, cước bộ đều động.
+Nhưng Triệu Kim An đã dứt khoát xoay người rảo bước quay về phía chiếc xe van.
 
-Triệu Kim An quay người hướng đi xe taxi.
+Đường Hiểu Tình vừa lon ton chạy theo vừa đưa mắt nhìn Mộc Dao. Cô là người cảm thấy khó hiểu nhất về hành động của Mộc Dao.
 
-Đường Hiểu tinh một đường chạy chậm một đường nhìn xem Mộc Dao, nàng là rất không rõ Mộc Dao của.
+Nếu Triệu Kim An là bạn trai của cô, cô sẵn sàng làm tất cả mọi thứ vì anh, dù có phải chịu bao nhiêu đắng cay, vất vả nhọc nhằn cô cũng cam lòng.
 
-Nếu như Triệu Kim An là mình bạn trai, nàng cái gì đều nguyện ý, khổ đi nữa mệt mỏi đi nữa cái gì đều nguyện ý.
+Đây không phải là nói về Triệu Kim An thành đạt của hiện tại, mà ngay từ những ngày đầu bỡ ngỡ bước chân vào năm nhất đại học... cô chỉ thầm trách bản thân quá nghèo khó, không đủ tiền để mua tặng anh những bao thuốc lá Phù Dung Xanh đắt tiền như Trần Trạch hay hút mà thôi.
 
-Đây không phải nói bây giờ của Triệu Kim An, Đường Hiểu tinh từ đại nhất khai giảng..... Chỉ cảm thấy mình không thể cho Triệu Kim An mua trần trạch quất loại kia lam phù.
+Dõi mắt nhìn theo bóng chiếc xe van dần lăn bánh rời đi, ngọn lửa kiêu hãnh ngút ngàn trong lòng Trương Tuệ bỗng chốc tắt ngấm. Vừa nãy bà còn khen ngợi Từ Mạn Mạn có mắt nhìn người, vừa biết được có một chàng công tử lái Mercedes xịn sò đang theo đuổi con gái mình.
 
-Nhìn xem xe taxi rời đi, trương tuệ đột nhiên thiếu một cỗ lòng dạ kình, nàng nói Từ Mạn Mạn có ánh mắt, vừa mới còn biết rồi có cái chạy Mercedes-Benz của nam sinh truy nữ nhi của mình.
+Cậu công tử ấy xét về gia thế có lẽ còn vượt trội hơn cả bạn trai của Từ Mạn Mạn.
 
-Nam sinh này có thể so Từ Mạn Mạn của bạn trai ưu tú hơn.
+Trương Tuệ vốn là mẫu phụ nữ luôn giữ cho mình một tâm thế kiêu hãnh ngút trời, vậy mà vào chính khoảnh khắc này, nhuệ khí trong lòng bà bỗng tan biến sạch sành sanh.
 
-Trương tuệ là cái một mực lòng dạ kình rất cao nữ nhân, trong chớp nhoáng này không có lòng dạ kình.
+...
 
-Ban đêm.
+Đêm về khuya.
 
-Trương tuệ có chút ngủ không được, khoác lên tơ lụa áo ngủ đến phòng khách, do dự sẽ đánh điện thoại cho mộc nhân mạnh.
+Trương Tuệ trằn trọc mãi mà không sao chợp mắt nổi. Bà khoác chiếc áo choàng ngủ bằng lụa mềm mại bước ra phòng khách, ngập ngừng một hồi lâu rồi quyết định bấm máy gọi về cho Mộc Nhân Cường.
 
-Điện thoại vang lên chừng mấy tiếng mới kết nối.
+Chuông điện thoại reo rất nhiều hồi mới có người bắt máy.
 
-"lão bà, thế nào? Muộn như vậy còn chưa ngủ."
+"Bà xã à, có chuyện gì thế em? Khuya khoắt thế này rồi mà chưa ngủ sao?"
 
-"ngươi ở đâu?"
+"Anh đang ở đâu đấy?"
 
-"ở nhà a, có chuyện gì sao?"
+"Anh ở nhà chứ ở đâu, có chuyện gì thế em?"
 
-Trương tuệ nói:"ta hôm nay trông thấy Triệu Kim An rồi."
+Trương Tuệ cất giọng: "Hôm nay em vừa gặp lại Triệu Kim An."
 
-"ai?"
+"Ai cơ?"
 
-Mộc nhân mạnh một chút không nhớ tới Triệu Kim An là ai.
+Mộc Nhân Cường nhất thời chưa nhớ ra Triệu Kim An là ai.
 
-"Triệu gia thôn, Dao Dao nghỉ hè nói người bạn trai kia!"
+"Thằng nhóc ở làng họ Triệu ấy, cái đứa hồi hè yêu đương với con bé Dao Dao nhà mình đấy!"
 
-Trương tuệ cũng không biết vì cái gì có điểm tâm phiền, ngữ khí không tốt lắm.
+Chẳng hiểu vì sao trong lòng Trương Tuệ bỗng dâng lên nỗi bực dọc vô cớ, giọng điệu bà có phần gắt gỏng.
 
-Mộc nhân mạnh nói:"a, là có chuyện gì không? Có phải là hắn hay không mỗi ngày tìm chúng ta nhà Dao Dao?"
+Mộc Nhân Cường ồ lên một tiếng: "À, có chuyện gì sao em? Có phải nó lại ngày ngày bám riết lấy con bé Dao Dao nhà mình không?"
 
-"..... Không có gì, ngươi ngủ."
+"... Không có gì đâu, anh ngủ tiếp đi."
 
-Trương tuệ chần chờ một chút nói, nàng cảm giác có chút đàn gảy tai trâu.
+Trương Tuệ ngập ngừng một lát rồi buông lời, bà cảm thấy mình nói chuyện với chồng chẳng khác nào đàn gảy tai trâu.
 
-Phòng khách im ắng, Trương Vân thiến ngủ thiếp đi.
+Căn phòng khách chìm vào tĩnh mịch, Trương Vân Thiến trong phòng ngủ đã say giấc nồng từ lâu.
 
-Nhìn xem trong gương chính mình, da thịt trắng noãn, tửu hồng sắc của áo ngủ, coi như ngạo nhân tư thái, trương tuệ thưởng thức một hồi lâu, nàng nhớ tới ban ngày Triệu Kim An.
+Đứng trước tấm gương lớn, ngắm nhìn làn da trắng ngần, chiếc áo choàng ngủ màu đỏ rượu vang tôn lên vóc dáng nảy nở đầy đặn và quyến rũ của mình, Trương Tuệ đứng chiêm ngưỡng rất lâu. Trong tâm trí bà bỗng chốc hiện lên hình bóng chững chạc của Triệu Kim An ban ngày.
 
-Nhớ tới Triệu Kim An nếu là thật trở thành chính mình con rể, cùng Mộc Dao tại quận cát mua bộ ba phòng ngủ hai phòng khách.....
+Bà bất giác nghĩ đến viễn cảnh nếu như Triệu Kim An thực sự trở thành con rể của mình, sau này cùng Mộc Dao mua một căn hộ ba phòng ngủ khang trang tại Quận Sa...
 
-Nghĩ đi nghĩ lại, trương tuệ đột nhiên cảm thấy Triệu Kim An thuận mắt nhiều lắm.
+Càng nghĩ, Trương Tuệ bỗng thấy Triệu Kim An thuận mắt hơn biết bao nhiêu phần.
 
-Trời tối người yên.
+Đêm thanh vắng, bốn bề tĩnh lặng.
 
-Nàng tại suy nghĩ huyễn tưởng, nếu như là lỗ triết vũ, mình là không muốn cùng nữ nhi nữ tế ở chung.
+Bà bắt đầu mường tượng và vẽ ra bao nhiêu viễn cảnh trong đầu. Nếu là Khổng Triết Vũ, bà chưa từng có ý định sẽ dọn về sống chung một mái nhà với con gái và con rể.
 
-Thì càng đừng lấy âu mạnh.
+Còn về phần Âu Cường thì càng không cần phải bàn tới.
 
-Nhưng nếu như là Triệu Kim An, trương tuệ suy nghĩ một hồi phát hiện mình có loại xúc động cùng các nàng ở một
+Thế nhưng nếu người đó là Triệu Kim An... Trương Tuệ nghĩ ngợi một hồi rồi bỗng giật mình nhận ra, trong sâu thẳm tâm can, bà lại có một thôi thúc mãnh liệt muốn được dọn về sống chung dưới một mái nhà với hai đứa...

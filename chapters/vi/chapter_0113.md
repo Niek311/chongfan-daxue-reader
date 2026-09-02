@@ -1,191 +1,191 @@
-# Chương 113: Ngã môn rất tốt.
+# Chương 113: Chúng tôi rất ổn
 
-Đường Hiểu tinh xuống xe từng cái hô người, còn lấy ra đồ uống.
+> **Tiêu đề gốc**: 第113章 我们很好。
 
-Thân thích hỗ trợ lấy đồ lên xe, lưu đẹp nga liền chậu rửa mặt thùng nước những thứ này đều chuẩn bị đưa đến quận cát đi, như vậy thì lại tránh khỏi dùng tiền đi mua.
+Đường Hiểu Tình vừa bước xuống xe là liền lễ phép chào hỏi từng người một, rồi lấy nước ngọt ra mời mọi người uống.
 
-Đơn vĩ tay chân rất nhanh, lại tại toa xe đem đồ vật chỉnh lý tốt.
+Bà con họ hàng xúm vào giúp khuân vác đồ đạc lên xe. Lưu Mỹ Nga đến cả chậu rửa mặt, xô nước bằng nhựa cũng muốn gom hết mang lên Quận Sa, tính toán làm vậy thì lên trút trên kia đỡ phải tốn tiền sắm sửa lại từ đầu.
 
-Phải ly khai nhà, lưu đẹp nga làm cơm, giết hai con gà khoản đãi đơn vĩ cùng những thứ này thân thích.
+Đơn Vĩ nhanh tay lẹ mắt, khéo léo sắp xếp gọn gàng từng món đồ vào sâu trong thùng xe van.
 
-Trong bữa tiệc.
+Sắp sửa rời khỏi quê nhà, Lưu Mỹ Nga làm cơm, thịt hai con gà béo đãi Đơn Vĩ cùng bà con họ hàng lối xóm.
 
-Các thân thích có chút trầm mặc, có người giữ lại, còn có chút muốn nói lại thôi.
+Trong bữa cơm.
 
-Thẳng đến lên xe, có người mở miệng.
+Mọi người có vẻ hơi trầm lặng, có người buông lời giữ lại, có người lại ngập ngừng muốn nói lại thôi.
 
-"đẹp nga, cái kia.... Tình Tình đến trường, ngươi cho mượn 1 ngàn 2, vẫn là cao trung thời điểm, có nhanh 3 năm...."
+Mãi cho đến lúc sắp sửa lên xe, rốt cuộc cũng có người mở miệng lên tiếng.
 
-Lưu đẹp nga giật mình.
+"Mỹ Nga này, cái chuyện... hồi con bé Tình đi học ấy, chị có vay tôi một nghìn hai, từ hồi nó học cấp ba lận, tính đến nay cũng ngót nghét gần ba năm rồi đấy nhỉ..."
 
-Lại có người mở miệng:"Tình Tình lên đại học, ngươi mới đến mượn của 8 trăm, còn nhớ chứ."
+Lưu Mỹ Nga sững người chết lặng.
 
-Nhìn xem những thứ này thân thích hàng xóm, Đường Hiểu tinh sửng sốt sẽ, một mặt thành khẩn nói mình sẽ trả, còn thở dài từng việc cảm tạ các nàng, hơn nữa cam đoan nhất định sẽ trả!
+Lại có một người khác tiếp lời: "Lúc con bé Tình lên đại học, chị mới sang nhà em vay tám trăm, chị còn nhớ chứ?"
 
-"đẹp nga, Tình Tình, đại nương không phải là không tin tưởng ngươi, chỉ là các ngươi đều đi thành phố lớn rồi...."
+Nhìn những gương mặt họ hàng, láng giềng thân quen trước mắt, Đường Hiểu Tình ngẩn ra một lúc. Cô gái nhỏ vội vàng chắp tay cúi đầu, tha thiết bày tỏ mình nhất định sẽ trả, cảm ơn từng người một và cam đoan sẽ không thiếu một đồng!
 
-"đúng a, chúng ta kinh tế đều không dư dả, trước đây vay tiền cũng là cắn răng....."
+"Mỹ Nga à, cháu Tình à, không phải bác đây không tin tưởng hai mẹ con đâu. Ngặt nỗi hai người đều dọn lên thành phố lớn ở cả rồi..."
 
-Lưu đẹp nga minh bạch.
+"Đúng thế đấy, kinh tế nhà ai cũng chẳng dư dả gì, ngày trước cắn răng cho vay cũng là gom góp từng đồng..."
 
-Các nàng là sợ tự chạy, số tiền này liền muốn không trở lại.
+Lưu Mỹ Nga đã hiểu ra tất cả.
 
-Nếu như mình chờ trong thôn, Đường Hiểu tinh lại luôn là muốn về nhà.
+Họ sợ hai mẹ con bà đi rồi sẽ trốn luôn, món nợ kia sẽ chẳng bao giờ đòi lại được nữa.
 
-Đường Hiểu tinh không ngừng cảm tạ những thứ này thân thích, hơn nữa làm cam đoan.
+Nếu bà còn ở lại trong làng, con bé Tình dù đi đâu rồi cũng sẽ phải quay về nhà.
 
-Những thứ này thân thích hàng xóm, có chút lấy ra giấy vay nợ, có chút không có giấy vay nợ.
+Đường Hiểu Tình liên tục cúi đầu cảm ơn từng người họ hàng, hết lời bảo đảm sẽ hoàn trả đầy đủ.
 
-Lưu đẹp nga cùng Đường Hiểu tinh bắt đầu cho là những thứ này thân thích cũng là tới tiễn đưa own, bây giờ nhìn unless đem tiền trả lại rồi, các nàng liền sẽ không để tự mình đi.
+Đám bà con láng giềng, người thì rút trong túi ra mảnh giấy vay nợ cũ nát, người thì không có giấy tờ gì.
 
-Lưu đẹp nga nhìn một hồi nói:"Tình Tình, ngươi trở về đi, ta thì không đi được."
+Ban đầu hai mẹ con Lưu Mỹ Nga và Đường Hiểu Tình cứ ngỡ bà con đến đông đủ là để tiễn chân mình, giờ mới vỡ lẽ: nếu hôm nay không trả hết sạch tiền nợ, bọn họ sẽ chẳng để hai mẹ con bước chân rời khỏi làng.
 
-Đường Hiểu tinh cúi đầu, không nói.
+Lưu Mỹ Nga nhìn quanh một hồi, cay đắng nói: "Tình à, con quay về thành phố đi, mẹ không đi nữa đâu."
 
-Đơn vĩ một mực nhìn lấy, nói:"thiếu nợ bao nhiêu tiền."
+Đường Hiểu Tình cúi gằm mặt xuống, nghẹn ngào không nói nên lời.
 
-Thân thích líu ríu nói một hồi, cái này mấy trăm, cái kia 1 ngàn.
+Đơn Vĩ đứng một bên chứng kiến từ đầu đến cuối, bèn cất tiếng hỏi: "Tổng cộng nợ bao nhiêu tiền?"
 
-Lưu đẹp nga từ trên xe của một cái túi lấy ra một cái vở, nói:"các ngươi yên tâm, ta cùng Tình Tình một mực nhớ kỹ các ngươi hảo, chỉ cần Tình Tình kiếm tiền, chúng ta nhất định sẽ trả!"
+Đám họ hàng nhao nhao kể lể, người này mấy trăm, người kia một nghìn.
 
-Đơn vĩ cảm thấy tiền không nhiều, chính mình liền lái xe ra ngoài quỹ hợp tác xã tín dụng lấy một chuyến.
+Lưu Mỹ Nga từ trong chiếc túi xách trên xe lấy ra một cuốn sổ tay nhỏ, run run nói: "Mọi người cứ yên tâm, mẹ con tôi lúc nào cũng ghi nhớ ân tình của mọi người. Chỉ cần con bé Tình kiếm ra tiền, mẹ con tôi nhất định sẽ trả đủ từng hào!"
 
-Lão bản kêu mình tới đón người, không có khả năng người không có nhận ra ngoài.
+Đơn Vĩ nghĩ bụng số tiền chắc cũng chẳng đáng là bao, định bụng tự lái xe ra quỹ tín dụng nông thôn gần nhất rút tiền mặt trả giúp.
 
-Kết quả xem xét lưu đẹp nga nhớ của sổ sách, bảy tám phần cộng lại có gần tới 2 vạn.
+Dù sao ông chủ đã giao nhiệm vụ đi đón người, anh không thể để chuyến đi này thất bại, không đón được người về.
 
-Đường Hiểu tinh cúi đầu nói:"có chút cho mượn tiền thân thích không đến, từ, từ cao trung học phí liền bắt đầu....."
+Nhưng khi liếc nhìn cuốn sổ ghi chép chi li của Lưu Mỹ Nga, các khoản gom lại lắt nhắt cộng dồn lên tới gần hai vạn tệ!
 
-Cũng không thể nói đến rồi của người liền hỏng, các nàng trước đây vay tiền chính là hảo tâm.
+Đường Hiểu Tình cúi đầu lí nhí: "Có một số họ hàng từng cho vay nhưng hôm nay không đến... Tiền nợ này bắt đầu từ... từ tiền học phí cấp ba gom góp lại..."
 
-Nhưng cũng có chút người cảm thấy mấy trăm khối tiền coi như xong, không có tới chặn lấy trả tiền.
+Cũng không thể nói những người có mặt ở đây là người xấu, ban đầu họ chịu mở lòng cho vay tiền lúc ngặt nghèo cũng xuất phát từ lòng tốt.
 
-"ân."
+Nhưng trong làng cũng có người nghĩ rằng vài trăm tệ coi như cho luôn, không nỡ kéo đến vây chặt cửa đòi nợ như thế này.
 
-Đơn vĩ gật đầu, lấy điện thoại di động ra không tín hiệu liền hỏi nơi nào có thể gọi điện thoại.
+"Ừ."
 
-Hắn không có tích trữ 2 vạn khối tiền, chỉ có thể đánh Triệu Kim An điện thoại.
+Đơn Vĩ gật đầu. Anh rút điện thoại ra thì thấy mất sóng, bèn hỏi quanh xem ở đâu có thể gọi điện thoại bàn.
 
-Đường Hiểu tinh cũng biết đơn vĩ đi cho ai gọi điện thoại.
+Bản thân anh đi làm tích cóp cũng chưa để ra được hai vạn tệ, chuyện này bắt buộc phải gọi điện xin ý kiến Triệu Kim An.
 
-Nàng đột nhiên cảm thấy chính mình giống như vướng víu.
+Đường Hiểu Tình cũng biết Đơn Vĩ đi gọi điện cho ai.
 
-Đại khái 1 5 phút, đơn vĩ từ nhỏ canteen trở về.
+Cô bỗng thấy bản thân mình sao mà giống một gánh nặng nhọc nhằn đến thế.
 
-Hắn không đối Đường Hiểu tinh nói, mà là đối với lưu đẹp nga nói.
+Khoảng 15 phút sau, Đơn Vĩ từ tiệm tạp hóa đầu làng quay trở lại.
 
-"lão bản nhường ngươi đem tiền đều rồi, cái kia chút không đến của cũng trả, nói cho mượn nhiều năm như vậy tiền, phải trả người khác lợi tức, so lãi suất ngân hàng cao điểm, cứ dựa theo 1 0 cái điểm tính toán."
+Anh không nói với Đường Hiểu Tình, mà quay sang nói thẳng với Lưu Mỹ Nga:
 
-"ngươi mỗi người bao nhiêu tính được, ta bây giờ lái xe ra ngoài lấy tiền."
+"Ông chủ bảo bác thanh toán hết sạch nợ nần cho tất cả mọi người đi, cả những người hôm nay không tới đòi cũng trả hết luôn. Ông chủ bảo mượn tiền người ta bao nhiêu năm nay rồi, phải trả thêm cả tiền lãi cho người ta nữa, tính mức lãi suất cao hơn ngân hàng một chút, cứ tính chuẩn theo 10%."
 
-Nói xong, đơn vĩ liền lái xe đi gần nhất trên trấn quỹ hợp tác xã tín dụng lấy tiền.
+"Bác ngồi tính lại xem mỗi người cả gốc lẫn lãi là bao nhiêu, bây giờ cháu lái xe ra thị trấn rút tiền."
 
-Nghe được còn có lợi tức, những người này trong lòng rất vui vẻ, ngoài miệng lại đối Đường Hiểu nắng ấm lưu đẹp nga nói không phải là không tin tưởng các ngươi cái gì, còn nói Đường Hiểu tinh lên đại học có tiền đồ.
+Dứt lời, Đơn Vĩ liền nổ máy lái xe chạy thẳng ra quỹ tín dụng ở thị trấn gần nhất để rút tiền mặt.
 
-Triệu Kim An mượn Du Phỉ của tiền, 1 tháng cũng cho 3 trăm lợi tức.
+Nghe thấy trả nợ còn được cộng thêm cả tiền lãi sòng phẳng, đám họ hàng trong bụng mừng như mở cờ, miệng lại luôn mồm xoa dịu với Đường Hiểu Tình và Lưu Mỹ Nga rằng không phải bọn họ không tin tưởng gì hai mẹ con, rồi tấm tắc khen con bé Tình đỗ đại học đúng là có tiền đồ rạng rỡ.
 
-Hắn tiếp vào đơn vĩ điện thoại đại khái hiểu, ở kiếp trước Đường Hiểu tinh vì cái gì tốt nghiệp đại học không có lưu lại quận cát rồi.
+Hồi Triệu Kim An mượn tiền Du Phi, chỉ trong vòng một tháng anh cũng trả thêm 300 tệ tiền lãi.
 
-Giằng co rất lâu, đơn vĩ chỉ có thể ở trên xe ngủ một lát.
+Nhận được điện thoại của Đơn Vĩ, anh lập tức hiểu ra vì sao kiếp trước sau khi tốt nghiệp đại học, Đường Hiểu Tình lại không chọn ở lại Quận Sa.
 
-Thứ hai thiên tài lái xe trở về quận cát.
+Lằng nhằng giải quyết xong xuôi mọi chuyện thì trời đã tối muộn, Đơn Vĩ đành phải ngả lưng chợp mắt một giấc trên xe.
 
-Đường Hiểu tinh vặn chai nước suối để mụ mụ ngồi tay lái phụ, chính mình ngồi phía sau.
+Mãi đến sáng hôm sau, anh mới lái xe đưa hai mẹ con quay trở lại Quận Sa.
 
-Cùng tới thời điểm không tầm thường, Đường Hiểu tinh không nói.
+Đường Hiểu Tình vặn nắp chai nước khoáng đưa cho mẹ ngồi ở ghế phụ, còn bản thân thì lẳng lặng ngồi ở hàng ghế sau.
 
-Lưu đẹp nga cũng không nói chuyện.
+Khác hẳn với vẻ háo hức, rạng rỡ lúc đi, suốt dọc đường về Đường Hiểu Tình chẳng buồn hé răng nói nửa lời.
 
-Hai mẹ con nhìn xem ngoài cửa sổ xe, ra thôn rồi tại quay đầu.
+Lưu Mỹ Nga cũng ngồi im thin thít.
 
-Đơn vĩ nghiêm túc lái xe, hắn cũng không biết nói chút gì hảo.
+Hai mẹ con lặng lẽ nhìn qua khung cửa kính, xe đã lăn bánh ra khỏi địa phận làng mà vẫn ngoái đầu nhìn lại mãi.
 
-Có thể lưu đẹp nga cùng Đường Hiểu tinh tâm tình rất phức tạp đi.
+Đơn Vĩ tập trung lái xe, anh cũng chẳng biết nên lựa lời thế nào để an ủi.
 
-Các nàng không nghĩ tới không trả tiền lại, cũng không thể trách các nàng, nhưng đại gia là thân thích a, dạng này.... Trong lòng chắc chắn sẽ có điểm điểm không thoải mái.
+Có lẽ trong lòng hai mẹ con Lưu Mỹ Nga và Đường Hiểu Tình lúc này đang ngổn ngang trăm mối tơ vò.
 
-Còn có sinh sống nhiều năm như vậy, sẽ có không muốn.
+Họ chưa từng có ý định quỵt nợ của ai, cũng không thể trách cứ bà con làng xóm, nhưng dẫu sao cũng là máu mủ họ hàng tối lửa tắt đèn có nhau... Bị đối xử như vậy, trong thâm tâm khó tránh khỏi cảm giác tủi hờn, xót xa.
 
-Một đường không nói chuyện.
+Lại thêm nỗi bịn rịn không nỡ rời xa mảnh đất chôn nhau cắt rốn đã gắn bó cả cuộc đời.
 
-Tối hôm qua hai mẹ con một đêm không ngủ, trên xe ngủ thiếp đi.
+Cả quãng đường dài trôi qua trong im lặng.
 
-Nhanh đến quận cát rồi, lưu đẹp nga mở mắt ra, nàng còn là lần đầu tiên tới tỉnh lị loại này thành phố lớn.
+Đêm qua hai mẹ con thức trắng cả đêm, lên xe mệt quá liền thiếp đi lúc nào không hay.
 
-Tiến vào nội thành, Đường Hiểu tinh một đường giới thiệu, thẳng đến đại học thành mướn cửa phòng.
+Khi xe sắp vào địa phận Quận Sa, Lưu Mỹ Nga mới mở mắt choàng tỉnh. Đây là lần đầu tiên trong đời bà được đặt chân đến một thành phố lớn là thủ phủ của tỉnh như thế này.
 
-"đến rồi!"
+Vào tới nội thành, Đường Hiểu Tình vừa đi vừa cất giọng giới thiệu từng góc phố cho mẹ, cho đến khi xe dừng trước cửa căn nhà trọ thuê ở khu làng đại học.
 
-Đơn vĩ cố ý giọng nói nhẹ nhàng một giọng nói.
+"Đến nơi rồi!" Đơn Vĩ cố ý cất giọng vui vẻ, xua tan bầu không khí ảm đạm.
 
-"cám ơn ngươi, đơn sư phó."
+"Cảm ơn chú, cảm ơn chú Đơn nhiều lắm."
 
-Lưu đẹp nga cùng Đường Hiểu tinh chuẩn bị xuống xe khuân đồ, tâm tình của các nàng còn không có điều chỉnh xong.
+Lưu Mỹ Nga và Đường Hiểu Tình bước xuống xe chuẩn bị dỡ đồ, tâm trạng của họ vẫn chưa thể nguôi ngoai hoàn toàn.
 
-Đơn vĩ không có khả năng đem công lao nắm ở trên người mình, nói:"không có việc gì, cũng là lão bản phân phó."
+Đơn Vĩ không dám nhận công lao về mình, vội nói: "Không có gì đâu bác, đều là do ông chủ dặn dò cháu cả đấy ạ."
 
-Lưu đẹp nga gật đầu"ân"một tiếng.
+Lưu Mỹ Nga gật đầu "Dạ" một tiếng.
 
-Đơn vĩ cũng biết.
+Đơn Vĩ cũng hiểu.
 
-Loại chuyện này bất luận kẻ nào gặp phải đều có thể phải cần một khoảng thời gian tới tiêu tan.
+Gặp phải chuyện bẽ bàng như thế, bất kỳ ai cũng cần có một khoảng thời gian để lòng mình lắng lại và nguôi ngoai.
 
-Đường Hiểu nắng ấm lưu đẹp nga bắt đầu giữ im lặng khuân đồ.
+Đường Hiểu Tình và Lưu Mỹ Nga lẳng lặng bắt tay vào chuyển đồ đạc.
 
-Đơn vĩ hỗ trợ.
+Đơn Vĩ cũng xắn tay áo vào phụ giúp.
 
-Trừ rồi bản in cả trang báo của đồ dùng trong nhà, vườn rau bên trong trồng thái lưu đẹp nga cùng Đường Hiểu tinh đều mang tới một chút, tiết kiệm vừa qua tới liền muốn mua thức ăn.
+Ngoại trừ mấy món đồ nội thất cồng kềnh, đến cả rau xanh hái ngoài vườn nhà Lưu Mỹ Nga và Đường Hiểu Tình cũng mang theo một ít, để vừa lên tới nơi chưa kịp đi chợ thì đã có cái ăn.
 
-Xe taxi chất đầy.
+Cả chiếc xe van chất đầy ắp không còn một chỗ trống.
 
-Nếu như mở chính là xe hàng nhỏ, xe hàng nhỏ cũng có thể bịt kín.
+Nếu hôm nay lái một chiếc xe tải nhỏ thì e rằng chiếc xe tải cũng sẽ được nhồi nhét chật ních.
 
-"Đường Hiểu tinh."
+"Đường Hiểu Tình!"
 
-Lúc này đáy vực siêu nhận tới, hắn tới thì phải giúp vội vàng, đối với lưu đẹp nga nói:"a di, ngươi tốt, ta cùng Đường Hiểu tinh là bạn học cùng lớp, ta gọi đáy vực siêu nhận."
+Đúng lúc này Cốc Siêu Thừa bất ngờ xuất hiện. Cậu ta hăm hở chạy lại định đỡ lấy đồ đạc, đon đả chào Lưu Mỹ Nga: "Cháu chào bác gái ạ, cháu là bạn học cùng lớp với Đường Hiểu Tình, cháu tên là Cốc Siêu Thừa."
 
-Đáy vực siêu nhận hỏi Đường Hiểu tinh bạn cùng phòng, hắn nói:"ta hôm qua liền ở chỗ này chờ các ngươi."
+Cốc Siêu Thừa đã hỏi thăm địa chỉ từ bạn cùng phòng của Đường Hiểu Tình. Cậu ta sốt sắng khoe: "Hôm qua cháu đã đứng ở đây đợi hai bác cháu suốt đấy ạ."
 
-Lưu đẹp nga có chút sững sờ.
+Lưu Mỹ Nga hơi ngẩn người ra.
 
-Đáy vực siêu nhận phát giác a di rất xinh đẹp của, Đường Hiểu nắng ấm lưu đẹp nga khuôn mặt có 7, 8 phần tương tự, dáng người cũng rất giống như, mẫu nữ vóc dáng không cao bộ xương rất nhỏ.
+Cốc Siêu Thừa chợt nhận ra bác gái trông còn khá ưa nhìn. Đường Hiểu Tình và Lưu Mỹ Nga có gương mặt giống nhau đến bảy, tám phần, vóc dáng cũng rất tương đồng. Cả hai mẹ con đều thấp người, khung xương nhỏ nhắn.
 
-Là loại kia xinh xắn lanh lợi của nữ nhân, nhưng trong này có thể thực sự là di truyền....
+Đó là nét đẹp của những người phụ nữ nhỏ nhắn, thanh tú, nhưng vòng một căng tràn kia có lẽ đúng là do di truyền...
 
-Đáy vực siêu nhận càng thêm nhiệt tình rồi, nói:"a di, ngươi nghỉ ngơi, ta tới chuyển."
+Cốc Siêu Thừa càng thêm phần nhiệt tình, vồn vã: "Bác gái cứ nghỉ ngơi đi ạ, để cháu khuân vác cho!"
 
-Lưu đẹp nga không nói chuyện, thì nhìn hướng nữ nhi.
+Lưu Mỹ Nga không nói gì, chỉ quay sang đưa mắt nhìn con gái.
 
-Đường Hiểu tinh không có tâm tình gì, liền nói:"đáy vực siêu nhận cám ơn ngươi, nhưng ta thật không cần hỗ trợ của ngươi, ngươi đi đi."
+Đường Hiểu Tình lúc này chẳng có tâm trạng nào, bèn lạnh lùng nói: "Cốc Siêu Thừa, cảm ơn cậu, nhưng tôi thực sự không cần cậu giúp đâu. Cậu về đi."
 
-Lần này đáy vực siêu nhận lúng túng.
+Cốc Siêu Thừa thoáng chốc sượng sùng, bối rối ra mặt.
 
-Đường Hiểu tinh nói:"đáy vực siêu nhận, ta không nghĩ yêu đương."
+Đường Hiểu Tình dứt khoát: "Cốc Siêu Thừa, tôi không có ý định yêu đương gì đâu."
 
-Đáy vực siêu nhận nói:"Đường Hiểu tinh, ta cũng tìm nghỉ hè công việc, ta nghỉ hè lưu lại."
+Cốc Siêu Thừa cuống quýt phân bua: "Đường Hiểu Tình, tớ cũng đã tìm được việc làm thêm trong hè rồi, kỳ nghỉ này tớ sẽ ở lại đây."
 
-Hắn lại nhìn về phía lưu đẹp nga, nói:"a di, ta, ta...."
+Cậu ta lại quay sang nhìn Lưu Mỹ Nga, ấp úng: "Bác gái ơi, cháu... cháu..."
 
-Đường Hiểu tinh plump đồ vật, nói:"đáy vực siêu nhận ngươi cái gì cũng không biết, ngươi vĩnh viễn cũng sẽ không biết, ngươi muốn đại học yêu đương, ngươi đi tìm cô gái khác sinh đi."
+Đường Hiểu Tình bỗng nhiên đặt mạnh thùng đồ xuống đất, nhìn thẳng vào mắt cậu ta: "Cốc Siêu Thừa, cậu chẳng hiểu cái gì cả, và cậu sẽ vĩnh viễn không bao giờ hiểu được đâu! Nếu cậu muốn tìm người yêu thời đại học thì đi tìm cô gái khác đi."
 
-"đừng đến tìm ta."
+"Đừng bao giờ đến tìm tôi nữa."
 
-Đáy vực siêu nhận ngẩn người:"ngươi có thể nói cho ta sao? Ta nghĩ giải ngươi."
+Cốc Siêu Thừa ngẩn ngơ: "Cậu có thể nói cho tớ biết được không? Tớ thực lòng muốn thấu hiểu cậu mà."
 
-Đường Hiểu tinh hít sâu, thật không suy nghĩ nhiều nói cái gì, liền nói:"ngươi đi tìm người khác đi, lớp chúng ta có rất nhiều nữ sinh, đại học thành có rất nhiều nữ sinh."
+Đường Hiểu Tình hít sâu một hơi, thực sự không muốn phí lời đôi co thêm nữa, chỉ buông một câu: "Cậu đi tìm người khác đi. Lớp mình có rất nhiều bạn nữ, cả khu đại học này cũng có vô vàn con gái."
 
-Đáy vực siêu nhận cũng không ngốc, kịp phản ứng.
+Cốc Siêu Thừa cũng không phải kẻ ngốc nghếch, cậu ta lập tức hiểu ra vấn đề.
 
-"Đường Hiểu tinh, ngươi nói là nghèo khó sinh sao, ta biết, ta không có trải qua, nhưng ta biết."
+"Đường Hiểu Tình, ý cậu là chuyện sinh viên nghèo khó khăn đúng không? Tớ hiểu mà, tuy tớ chưa từng trải qua hoàn cảnh đó nhưng tớ hiểu được mà."
 
-Đường Hiểu tinh đột nhiên cảm thấy đáy vực siêu nhận thật là trẻ con, không có trải qua có thể biết cái gì, liền lấy chuyện lần này tới nói..... Triệu Kim An đi nhà ăn tìm Đường Hiểu tinh của đêm đó.
+Đường Hiểu Tình bỗng thấy Cốc Siêu Thừa sao mà ấu trĩ và nực cười đến thế. Chưa từng nếm trải mùi vị cơ cực bần hàn thì làm sao mà hiểu thấu được? Cứ nhìn ngay vào biến cố vừa xảy ra ở quê nhà mà xem... Nhớ lại cái đêm Triệu Kim An đến nhà ăn tìm cô.
 
-Đường Hiểu tinh hỏi Triệu Kim An.
+Đêm hôm đó, cô đã nghẹn ngào hỏi Triệu Kim An một câu:
 
-"Triệu Kim An, người như ta có phải hay không không có tư cách yêu đương?"
+"Triệu Kim An, một người như tôi... có phải không có tư cách để yêu đương không?"
 
-Vấn đề như vậy, nếu như đêm đó là đáy vực siêu nhận, Đường Hiểu tinh cũng sẽ không hỏi đáy vực siêu nhận.
+Một câu hỏi trĩu nặng tâm tư như thế, nếu đổi lại người đứng trước mặt cô đêm ấy là Cốc Siêu Thừa, cô sẽ tuyệt đối không bao giờ mở miệng hỏi cậu ta.
 
-Lúc này lưu đẹp nga mở miệng, nàng nói:"đáy vực đồng học, ngươi trở về đi, cám ơn hảo ý của ngươi."
+Đúng lúc này, Lưu Mỹ Nga lên tiếng phá tan bầu không khí gượng gạo: "Cậu Cốc này, cháu về đi nhé, cảm ơn lòng tốt của cháu."
 
-"ngã môn rất tốt
+"Hai mẹ con bác hiện tại rất ổn."

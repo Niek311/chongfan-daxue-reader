@@ -1,225 +1,193 @@
-# Chương 110: Khó khăn nhất thời kì đi qua.
+# Chương 110: Giai đoạn khó khăn nhất đã qua rồi
 
-Một bên khác.
+> **Tiêu đề gốc**: 第110章 最困难的时期过去了。
 
-Ruộng vũ hạo thua, hắn đánh xong tranh tài gọi điện thoại cho ở xa Hỗ thị đi học âu mạnh.
+Ở một diễn biến khác.
 
-"âu mạnh, ta vừa mới tranh tài trông thấy Triệu Kim An rồi, không có thấy Mộc Dao."
+Điền Vũ Hạo sau khi nhận thất bại ở trận đấu bóng rổ, liền rút điện thoại gọi điện cho Âu Cường đang theo học đại học tận Thượng Hải xa xôi.
 
-"ngươi nói là các nàng chia tay?"
+"Âu Cường, lúc nãy đánh bóng tao thấy Triệu Kim An, mà tuyệt nhiên chẳng thấy bóng dáng Mộc Dao đâu cả."
 
-"không rõ ràng, ta hỏi Du Phỉ, Du Phỉ không nói, bất quá Triệu Kim An bên cạnh lại có rất xinh đẹp nữ sinh....."
+"Ý mày là hai đứa nó chia tay nhau rồi à?"
 
-Ruộng vũ hạo chua chát, thẩm tử nói là ngự tỷ loại hình nữ sinh, cái này nữ sinh càng có thể thỏa mãn nam sinh của chinh phục dục.
+"Tao cũng không rõ lắm, hỏi Du Phi mà nó cứ ậm ờ không chịu nói. Cơ mà bên cạnh Triệu Kim An lại có một em gái khác xinh đẹp tuyệt trần..."
 
-Triệu Kim An của Q Q lại nhận được Lâm Thanh Tuyết của vài tấm hình.
+Giọng điệu Điền Vũ Hạo chua loét, nồng nặc mùi ghen tị. Thẩm Tử Ngôn vốn thuộc mẫu con gái mang khí chất ngự tỷ kiêu sa, đài các — kiểu phụ nữ này lại càng dễ khơi dậy khao khát chinh phục mãnh liệt trong lòng cánh đàn ông.
 
-Lần này ảnh chụp càng vũ mị.
+Hòm thư QQ của Triệu Kim An lại vừa nhận thêm mấy tấm hình do Lâm Thanh Tuyết gửi sang.
 
-Màu đen đường viền viền ren, Lâm Thanh Tuyết nằm nghiêng trên giường, sự nghiệp tuyến như ẩn như hiện, tiếc là tia sáng không tốt lắm.
+Lần này những bức ảnh còn mang vẻ đằm thắm, khêu gợi hơn trước bội phần.
 
-Còn có tại phòng tắm cầm điện thoại trong gương chụp của, ngay tại lúc này điện thoại pixel không cao.
+Viền ren đen điệu đà, Lâm Thanh Tuyết tạo dáng nằm nghiêng trên giường ngủ, đường cong rãnh ngực đẫy đà thoắt ẩn thoắt hiện đầy mê hoặc, chỉ tiếc là ánh sáng trong phòng hơi tù mù.
 
-Triệu Kim An xem xong liền xóa bỏ rồi, hắn cảm thấy có chút có lỗi với lưu xông phong.
+Lại còn có cả ảnh chụp trước gương trong phòng tắm bằng điện thoại, ngặt nỗi độ phân giải camera điện thoại thời này còn quá thấp nên độ nét chưa được như ý.
 
-Nhưng nhìn ra mà nói, Lâm Thanh Tuyết cùng Đường Hiểu tinh của quy mô cũng không cùng nhau trên dưới.
+Triệu Kim An xem lướt qua một lượt rồi bấm xóa ngay lập tức. Hắn cảm thấy trong lòng có đôi chút áy náy với cậu bạn Lưu Sấm Phong. Nhưng nếu chỉ ước lượng bằng mắt thường, quy mô vòng một của Lâm Thanh Tuyết và Đường Hiểu Tình có lẽ cũng phải một chín một mười, ngang ngửa nhau chứ chẳng chơi.
 
-Đường Hiểu tinh nói thẩm tử giảng hòa Từ Mạn Mạn làm người tình nguyện cũng không có đòi tiền.
+Đường Hiểu Tình thông báo rằng cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn tham gia làm tình nguyện viên đợt này đều kiên quyết không chịu nhận tiền công. Cô đã tận tay đưa gửi nhưng hai người họ đều một mực từ chối.
 
-Nàng cho, nhưng Từ Mạn Mạn cùng thẩm tử nói cũng không có thu.
+Triệu Kim An đưa mắt nhìn Đường Hiểu Tình đang ngồi ngoan ngoãn trên ghế sô pha. Hắn chợt nhớ tới lời tuyên bố của Cốc Siêu Thừa ban chiều. Dù sao đi nữa, hắn cũng chẳng thể chạy tới trước mặt Cốc Siêu Thừa mà cấm đoán: Mày không được phép theo đuổi Đường Hiểu Tình; càng không có tư cách gì để ra lệnh cho Đường Hiểu Tình: Cậu tuyệt đối không được yêu đương với đứa con trai nào khác.
 
-Triệu Kim An liền nhiền lấy ngồi trên ghế sa lon Đường Hiểu tinh, hắn nhớ tới đáy vực siêu nhận, cũng không thể đối với đáy vực siêu nhận nói, không cho phép ngươi truy Đường Hiểu tinh đi?
+Đường Hiểu Tình khẽ đưa tay xoa xoa hai gò má, ngập ngừng hỏi: "Triệu Kim An, công việc sau này của tớ... chỉ phụ trách ở Quận Sa thôi đúng không?"
 
-Cũng không thể mệnh lệnh Đường Hiểu tinh, không cho phép ngươi cùng nam sinh khác yêu đương.
+Đội ngũ nhân viên kinh doanh của công ty vừa có đợt điều chỉnh lớn, phạm vi phủ sóng mở rộng ra toàn bộ các địa bàn trong tỉnh Tương Nam. Đường Hiểu Tình hiện đang nắm giữ vị trí giám sát trưng bày thị trường, cô không rõ liệu bản thân có nằm trong diện phải điều chuyển hay phân chia lại địa bàn công tác hay không.
 
-Đường Hiểu tinh sờ lên chính mình gương mặt:"Triệu Kim An, ta sau này công việc.... Là chỉ ở quận cát sao?"
+Triệu Kim An mỉm cười: "Chẳng phải cậu từng hỏi bao giờ công ty mới kiếm được tiền sao? Giám đốc Lạc bảo cậu làm việc rất chăm chỉ, cẩn thận, nên mức lương của cậu đã được duyệt tăng lên hai nghìn tệ rồi đấy."
 
-Công ty nghiệp vụ viên làm biến động, mở rộng đến rồi toàn bộ tỉnh Tương Nam, Đường Hiểu tinh là thị trường trưng bày giám sát viên, nàng không biết mình là không phải cũng có điều chỉnh phân chia.
+"Thế thì..."
 
-Triệu Kim An nói:"ngươi không phải hỏi công ty lúc nào kiếm tiền sao, lạc luôn nói ngươi công việc an tâm, tiền lương của ngươi tăng tới hai ngàn."
+Trong lồng ngực Đường Hiểu Tình dâng lên niềm xúc động rạo rực khôn xiết. Cô thực sự không ngờ mức lương của mình lại có thể chạm mốc hai nghìn tệ nhanh chóng đến như vậy.
 
-"cái kia....."
+"Triệu Kim An, tớ muốn đón mẹ lên Quận Sa sống cùng, như thế thì đợt nghỉ hè này tớ không cần phải bắt xe về quê nữa rồi."
 
-Đường Hiểu tinh ẩn ẩn có chút kích động, nàng không nghĩ tới tiền lương nhanh như vậy liền đã tăng tới hai ngàn.
+Đúng lúc ấy, Chu Sở Hân đẩy cửa bước vào.
 
-"Triệu Kim An, ta muốn đem ta mụ mụ tiếp vào quận cát tới, như thế ta nghỉ hè cũng không nên trở lại."
+Dạo gần đây cô nàng suốt ngày phải túc trực ở kho bãi ga Nam, chịu trách nhiệm điều phối hàng hóa và trực nghe điện thoại giao dịch.
 
-Đúng lúc này, chu sở hân đẩy cửa đi vào.
+"Kim An, công ty dạo này đã đủ sức nuôi nổi một cô thư ký riêng chưa thế?"
 
-Nàng trong khoảng thời gian này một mực tại trạm dừng thương khố, phụ trách điều hàng nghe điện thoại.
+Chu Sở Hân trước sau vẫn luôn đau đáu ước mơ được trở thành thư ký riêng bên cạnh Triệu Kim An.
 
-"Kim An, công ty bây giờ nuôi được bí thư sao?"
+Triệu Kim An liếc nhìn cô: "Lần sau bước vào văn phòng chị phải nhớ gõ cửa trước."
 
-Chu sở hân tâm tâm niệm niệm đã muốn làm Triệu Kim An thư ký.
+Chu Sở Hân đưa mắt nhìn Đường Hiểu Tình đang ngồi trên ghế sô pha, nở một nụ cười đầy ẩn ý mờ ám: "Chẳng lẽ hai người ở trong văn phòng vừa mới... Thôi yên tâm đi, chị đây có lỡ nhìn thấy cũng tuyệt đối không đi buôn chuyện linh tinh đâu, khoản này chị hiểu rõ mà."
 
-Triệu Kim An nói:"ngươi tiến văn phòng phải gõ cửa trước."
+Triệu Kim An: "..."
 
-Chu sở hân mắt nhìn trên ghế sa lon Đường Hiểu tinh, một mặt cười quái dị:"chẳng lẽ các ngươi ở văn phòng.... Yên tâm, ta nhìn thấy cũng sẽ không nói lung tung, cái này ta hiểu."
+Mặt Đường Hiểu Tình lập tức đỏ bừng như quả cà chua chín, lí nhí cất giọng như tiếng muỗi kêu: "Chị Sở Hân, chị đừng có nói bậy bạ mà."
 
-Triệu Kim An:......
+"Ai dà, chuyện thường tình thế này có gì đâu mà phải ngượng!" Chu Sở Hân cười ha hả vô cùng phóng khoáng: "Chỉ cần Kim An mở lời một tiếng, chị đây lúc nào cũng sẵn lòng chiều tới bến, ở đâu cũng xong tuốt: trong văn phòng, ngoài nhà kho, trên xe Audi hay thậm chí trên sàn xe van..."
 
-Đường Hiểu tinh mắc cỡ đỏ bừng khuôn mặt, tiếng như mảnh muỗi:"Hân tỷ, ngươi chớ nói lung tung."
+Đường Hiểu Tình: "..."
 
-"ai nha, cái này có gì."
+Đàn chị năm ba trên đại học bạo dạn đến mức này cơ à?
 
-Chu sở hân tùy tiện cười nói:"ta chỉ cần Kim An mở miệng, tùy thời nguyện ý, ở nơi nào cũng có thể, văn phòng, thương khố, Audi, xe taxi......"
+Toàn thốt ra những lời lẽ như lang như hổ thế này!
 
-Đường Hiểu tinh:......
+Lại còn văn phòng, nhà kho, xe Audi, xe van...
 
-Năm thứ ba đại học học tỷ như vậy dũng sao?
+Đường Hiểu Tình trong đầu nghĩ cũng chưa từng dám nghĩ tới, cái chuyện riêng tư ấy chẳng phải người ta chỉ làm khi đã tắt đèn tối om trên giường thôi sao?
 
-Cái này đều cái gì hổ lang chi từ?
+"Chu Sở Hân, cậu bớt ăn nói lung tung lại hộ tớ cái!"
 
-Còn có văn phòng, thương khố, Audi, xe taxi....
+Nghe thấy tiếng Chu Sở Hân oang oang ngoài cửa, Triệu Bác Lan liền bước từ phòng bên ra. Cô thừa hiểu tính nết quái đản của cô bạn cùng phòng này: người yêu thì chưa từng có lấy một mảnh vắt vai, nhưng trong ký túc xá lại là chuyên gia đầu ngành chuyên bàn luận về phim cấp ba của Nhật Bản.
 
-Đường Hiểu tinh không hề nghĩ tới, loại sự tình này không phải đều là tắt đèn trên giường sao?
+Chu Sở Hân thực sự cũng đã đến lúc phải tìm một công ty nghiêm túc để đi thực tập, hết kỳ nghỉ hè này là cô nàng chính thức bước sang năm thứ tư đại học rồi.
 
-"chu sở hân, ngươi đừng nói lung tung!"
+Triệu Kim An đứng ở ngoài hành lang tầng hai cất giọng dặn Đan Vĩ ra chợ mua thêm ít đồ ăn tươi ngon về bồi dưỡng cho mọi người.
 
-Nghe được chu sở hân trở về, Triệu Bác lan liền đi ra, nàng biết mình cùng phòng đức hạnh gì, bạn trai không có nói qua, lại tại ký túc xá trò chuyện màn ảnh nhỏ của nữ nhân.
+Dạo gần đây ai nấy đều phải vất vả cực nhọc, nhiều phòng ban trong công ty vẫn chưa được kiện toàn nhân sự, Chu Sở Hân phải cắm chốt tại nhà kho bao thầu đủ thứ việc vặt vãnh, mà quan trọng nhất là khâu điều phối và giao hàng cho khách.
 
-Chu sở hân chính xác muốn tìm công ty thực tập, cái này học kỳ vừa để xuống giả liền năm thứ tư đại học.
+Triệu Kim An dặn dò mua nhiều món thịt cá thịnh soạn một chút, nhớ mua thêm một cái chân giò heo lớn về hầm cho mềm.
 
-Triệu Kim An tại lầu hai hành lang hô đơn vĩ mua ít thức ăn trở về.
+Đan Vĩ nấu nướng rất cừ khôi, tay nghề làm bếp của Đường Hiểu Tình và Đan Na Tề cũng vô cùng khéo léo. Quan trọng nhất là ai nấy đều tháo vát, chăm chỉ. Cả nhóm cũng chẳng thiết tha gì chuyện ra ngoài quán xá ăn tiệm, tự tay ra chợ mua nguyên liệu tươi sống về nấu nướng vừa thơm ngon lại đảm bảo vệ sinh.
 
-Trong khoảng thời gian này tất cả mọi người khổ cực, công ty rất nhiều bộ môn đều không có, chu sở hân vẫn tại thương khố, cái gì việc vặt đều phải làm, chủ yếu nhất là điều hành đưa hàng.
+Trong bữa cơm thân mật.
 
-Triệu Kim An nói mua thêm một chút món ngon, mua một cái nhân vật chính trở về.
+Triệu Bác Lan vẫn không quên nhắc tới công việc: "Hiện tại ở Quận Sa có 4 chiếc xe van mà chạy vẫn không tài nào xuể được, chạy một chuyến giao hàng sang Lưu Dương hay Ninh Hương là coi như mất đứt nửa ngày trời, công ty ít nhất phải mua thêm hai chiếc nữa mới đáp ứng nổi."
 
-Đơn vĩ rất biết làm đồ ăn, Đường Hiểu nắng ấm đơn na cùng trù nghệ cũng rất tốt.
+Chu Sở Hân gật đầu lia lịa phụ họa theo, bảo một ngày cô nhận được cơ man nào là cuộc gọi giục chở hàng tới, số tiền bán lẻ dẫu không quá lớn — chỗ này vài thùng nước khoáng, chỗ kia dăm ba két nước giải khát — nhưng người chạy giao hàng bở cả hơi tai cũng không kịp chuyến.
 
-Chủ yếu nhất là chịu khó.
+Bầu không khí bữa cơm hôm nay vô cùng vui vẻ và rộn rã, việc các nơi tới tấp gọi giao hàng là minh chứng rõ ràng nhất cho thấy guồng quay công ty đã bắt đầu sinh ra lợi nhuận thực tế.
 
-Các nàng cũng không muốn đi bên ngoài phía dưới tiệm ăn, mình mua nguyên liệu nấu ăn mới mẻ sạch sẽ.
+Đường Hiểu Tình khẽ nêu ra một khó khăn trước mắt: tuyển nhân viên kinh doanh chạy thị trường thì dễ, nhưng tuyển được người vừa biết kinh doanh lại vừa biết lái xe ô tô thì lại muôn phần khó khăn.
 
-Trong bữa tiệc.
+Quả thực, vào những năm 2007, số người có bằng lái xe ô tô trong xã hội còn rất hiếm hoi, người dân nói chung vẫn chưa hình thành ý thức chủ động đi học lái xe. Thời điểm này thi lấy bằng lái xe vô cùng đơn giản, nhưng chẳng mấy ai dám mơ tưởng đến ngày bản thân có đủ tiền sắm một chiếc xe hơi riêng.
 
-Triệu Bác lan không quên công việc, nói:"bây giờ quận cát 4 mặt bàn xe tải không giúp được, lưu dương hòa thà hương đi một chuyến gần nửa thiên, ít nhất còn muốn mua hai đài."
+Đan Vĩ bèn lên tiếng: "Ông chủ, tôi lái xe rất vững, lại thông thuộc từng ngõ ngách ở Quận Sa. Về khoản chở hàng gấp thì Chu Sở Hân cứ việc gọi điện trực tiếp cho tôi."
 
-Chu sở hân phụ họa theo, nói mình một ngày muốn tiếp rất nhiều giao hàng điện thoại, tiền là không nhiều, ở đây mấy rương nước khoáng, nơi đó mấy món đồ uống, căn bản không chạy nổi tới.
+Triệu Kim An khẽ gật đầu đồng ý.
 
-Lần này ăn cơm bầu không khí rất tốt, khắp nơi đưa hàng liền đại biểu công ty bắt đầu kiếm tiền.
+Nhìn những con người đang ngồi quây quần bên mâm cơm, mọi người lúc này đều chung một ý chí, đồng lòng dốc sức, ai nấy đều hừng hực nhiệt huyết và tràn trề khí thế phấn đấu.
 
-Đường Hiểu tinh chỉ ra trong đó khó xử, nói nghiệp vụ viên hảo chiêu, nhưng là lại phải biết lái xe của không tốt chiêu.
+Chu Sở Hân lại ngứa nghề nhắc lại chuyện xin làm thư ký.
 
-Chính xác, 2 0 0 7 năm có bằng lái của người không nhiều, không có kiểm tra bằng lái của ý thức.
+Triệu Kim An bảo cứ tập trung lo cho xong sự kiện Cúp Trăn Nhiên đợt này đã, để công ty tuyển dụng hoàn thiện những vị trí nhân sự thiết yếu, sau đó chị hãy chịu khó đi theo Đường Hiểu Tình bám sát thị trường một thời gian. Bất kể sau này ngồi ở vị trí nào đi nữa, bản thân cũng phải am tường thị trường thực tế và nắm vững quy trình vận hành của công ty.
 
-Bây giờ kiểm tra bằng lái rất đơn giản, nhưng không có người sẽ nghĩ tới chính mình cũng có mua xe cá nhân của một ngày.
+Dù sao đi nữa thì Chu Sở Hân cũng đã tìm được một bến đỗ thực tập lý tưởng, không còn phải lo lắng ôm hồ sơ đi rải khắp các hội chợ việc làm nữa.
 
-Đơn vĩ nói:"lão bản, ta biết lái xe, đối với quận cát lại quen thuộc, sẽ đưa hàng mà nói, chu sở hân ngươi liền gọi điện thoại cho ta."
+Triệu Kim An dùng đũa gắp một miếng chân giò béo ngậy bỏ vào trong bát của Đường Hiểu Tình.
 
-Triệu Kim An gật gật đầu.
+Mọi người ngồi quanh bàn nhìn thấy cử chỉ ấy cũng không ai trêu chọc gì, họ đều thấu hiểu hoàn cảnh gia đình Đường Hiểu Tình rất đỗi khó khăn, thân hình cô lại quá đỗi mảnh mai gầy guộc, quả thực rất cần ăn nhiều chất dinh dưỡng để bồi bổ cho cơ thể thêm phần đẫy đà.
 
-Nhìn xem ăn cơm mấy người, đại gia bây giờ có lực hướng về một chỗ làm cho, từng cái nhiệt tình mười phần.
+"Cơ mà... cái chỗ đó của em ấy sao lại có thể khủng đến mức ấy được nhỉ?"
 
-Chu sở hân vừa cũ chuyện nhắc lại.
+Chu Sở Hân lén cúi đầu liếc nhìn vòng một của chính mình, quả thực vóc dáng của Đường Hiểu Tình có phần "phạm quy", chẳng tuân theo bất cứ quy luật tự nhiên nào cả.
 
-Triệu Kim An nói làm việc trước xong lần này đạt đến nhiên ly, công ty đem nên thu người chiêu tề, ngươi lại theo Đường Hiểu tinh chạy trốn thị trường, không quản cái nào cương vị, ngươi cũng nên đối với thị trường quen thuộc.
+Đường Hiểu Tình chỉ biết cúi gằm mặt nhìn miếng chân giò nằm gọn trong bát cơm, Triệu Kim An lần nào gắp thức ăn cũng chỉ gắp riêng cho mỗi mình cô.
 
-Đối với công ty công việc quá trình quen thuộc.
+"Mọi người chưa ai đi thi lấy bằng lái xe à?" Triệu Kim An cất tiếng hỏi.
 
-Bất quá chu sở hân cũng coi như tìm xong công ty, không cần khắp nơi ném sơ yếu lý lịch rồi.
+Triệu Bác Lan đáp mình đã đăng ký ở trường dạy lái xe rồi, chỉ là dạo này bận rộn việc công ty quá nên chưa thu xếp được thời gian đi tập lái.
 
-Triệu Kim An kẹp một khối béo mập nhân vật chính thả Đường Hiểu tinh trong chén.
+Đường Hiểu Tình cũng lí nhí bảo mình đã nộp hồ sơ đăng ký.
 
-Mọi người xem thấy không nói gì, các nàng đều biết Đường Hiểu tinh điều kiện gia đình thật không tốt, thân thể quá đơn bạc, là muốn ăn nhiều một chút béo mập béo lên điểm.
+Triệu Kim An mỉm cười nhìn Đường Hiểu Tình: "Thi xong bằng lái rồi, cậu có thể tự tin tự mình lái xe van đi giao hàng được rồi đấy."
 
-"chính là.... Nàng nơi đó tại sao có thể lớn như vậy?"
+Chu Sở Hân bĩu môi hờn dỗi: "Em còn tưởng thi xong bằng lái là được ngồi lên cầm lái chiếc Audi sang xịn của anh cơ đấy."
 
-Chu sở hân cúi đầu nhìn một chút own, Đường Hiểu tinh của dáng người có chút"làm trái quy tắc", không nói khoa học đạo lý.
+Cả mâm cơm rộ lên những tràng cười sảng khoái, ngay cả Đan Vĩ cũng không nén nổi nụ cười.
 
-Đường Hiểu tinh liền cúi đầu nhìn xem trong chén của nhân vật chính, Triệu Kim An mỗi lần đều chỉ cho mình gắp thức ăn.
+Triệu Kim An nghiêm túc nói: "Sau này tiền lương của mọi người đều sẽ thừa sức tự tay mua cho mình một chiếc xe hơi riêng."
 
-"các ngươi không có đi thi bằng lái sao?"
+Tự mua xe hơi riêng ư!?
 
-Triệu Kim An hỏi.
+Chẳng một ai tin điều viển vông đó là sự thật, nhưng họ cũng không buồn lên tiếng phản bác lời Triệu Kim An, chỉ thầm nghĩ trong bụng rằng vị giám đốc trẻ tuổi này giờ cũng đã bắt đầu học được ngón nghề "vẽ bánh vẽ" để truyền lửa cho nhân viên rồi.
 
-Triệu Bác lan đi nói giá báo tường tên, chính là gần nhất không có thời gian đi luyện xe.
+Triệu Kim An quay sang dặn dò Đan Vĩ: "Đường Hiểu Tình muốn đón mẹ lên Quận Sa sinh sống, ngày mai anh lái chiếc Audi chở em ấy về quê đón bác lên nhé."
 
-Đường Hiểu tinh cũng nói báo danh.
+"Vâng, thưa ông chủ."
 
-Triệu Kim An đối với Đường Hiểu tinh cười nói:"thi bằng lái, ngươi liền có thể mở xe taxi giao hàng."
+Đan Vĩ gật đầu nhận lệnh. Trong lòng anh bỗng dâng lên một cảm giác rằng Triệu Kim An dạo này dường như đã có thêm nhiều "tính người" hơn trước.
 
-Chu sở hân xẹp lép miệng:"ta còn tưởng rằng thi bằng lái có thể mở ngươi Audi."
+Anh là người đầu tiên theo chân Triệu Kim An từ những ngày đầu khởi nghiệp, kề cận suốt mấy tháng trời, Đan Vĩ chỉ cảm thấy Triệu Kim An đối với bà nội, đối với thím của hắn mới thực lòng để tâm săn sóc, còn những người ngoài dường như chẳng có ai đủ sức khiến hắn phải bận tâm lo nghĩ.
 
-Mấy người cười ra tiếng, liền đơn vĩ cũng cười.
+"Triệu Kim An..."
 
-Triệu Kim An nói:"các ngươi sau này tiền lương cũng có thể tự mua xe."
+Đường Hiểu Tình ngẩng đầu lên nhìn hắn, rồi lại bối rối cúi đầu xuống.
 
-Tự mua xe!?
+Khóe mắt cô bỗng chốc đỏ hoe rưng rưng ngấn lệ. Vừa ban nãy cô vẫn còn đang loay hoay trong mớ bòng bong suy nghĩ xem làm cách nào để đưa mẹ lên Quận Sa, bởi vì dọn nhà thì thể nào cũng phải thu dọn bao nhiêu đồ đạc lỉnh kỉnh. Mẹ cô ốm yếu quanh năm không xách nổi vật nặng, hai người phụ nữ thân cô thế cô... cả chặng đường dài phải chuyển từ xe buýt nhỏ sang tàu hỏa chật chội...
 
-Không ai tin, nhưng các nàng cũng không phản bác Triệu Kim An, chỉ coi Triệu Kim An cũng biết cho nhân viên bánh vẽ tẩy não.
+***
 
-Triệu Kim An lại đối đơn vĩ nói:"Đường Hiểu tinh muốn đi tiếp mẹ của nàng mẹ tới quận cát, ngươi lái xe đi tiếp một chút."
+Sáng ngày hôm sau, Đường Hiểu Tình lập tức tất tả đi tìm thuê nhà trọ.
 
-"tốt, lão bản."
+Ước mơ lớn nhất trong cuộc đời cô là sau khi tốt nghiệp đại học có thể đón mẹ lên thành phố Quận Sa phụng dưỡng, thật không ngờ mới chỉ học năm thứ nhất đại học thôi mà ước mơ cháy bỏng ấy đã sớm trở thành hiện thực.
 
-Đơn vĩ gật đầu, đột nhiên cảm thấy Triệu Kim An nhiều một chút mùi nhân loại.
+Sau khi chốt thuê xong căn phòng trọ ưng ý, cô còn phải đi sắm sửa thêm một số vật dụng sinh hoạt thiết yếu hàng ngày. Đường Hiểu Tình bèn gọi điện thoại về số máy bàn của tiệm tạp hóa trong làng:
 
-Hắn là sớm nhất một cái đi theo Triệu Kim An của, theo mấy tháng, đơn vĩ chỉ cảm thấy Triệu Kim An đối với mình nãi nãi, thẩm thẩm các nàng dụng tâm, những người khác tựa hồ cũng không đáng hắn dùng tâm.
+"Thím Năm ơi, thím chạy qua nhà cháu nhắn với mẹ cháu một tiếng được không ạ?"
 
-"Triệu Kim An...."
+Đan Vĩ lái xe ô tô con về đón nên chắc chắn chuyến đi sẽ hoàn thành ngay trong ngày. Đường Hiểu Tình dặn dò: "Cháu muốn đón mẹ cháu lên Quận Sa ở cùng, thím bảo mẹ cháu thu dọn trước đồ đạc thiết yếu trong nhà, xem có thứ gì nhất định phải mang theo..."
 
-Đường Hiểu tinh ngẩng đầu, lại cúi đầu.
+"Mày vẫn còn đang là sinh viên đi học, đón mẹ mày lên thành phố lớn liệu có nuôi nổi bà ấy không đấy con ơi?"
 
-Hốc mắt có chút phiếm hồng, nàng vừa mới vẫn tại muốn làm sao tiếp mụ mụ tới quận cát, cũng nên thu thập vài thứ.
+...
 
-Mụ mụ lấy không được vật nặng, hai nữ nhân.... Một đường tiểu xe buýt, xe lửa...
+Chẳng biết Cốc Siêu Thừa nghe ngóng từ đâu được tin Đường Hiểu Tình đang tìm thuê phòng trọ bên ngoài để đón mẹ lên Quận Sa sống cùng, lại bắt gặp cô đang lúi húi mua sắm đồ đạc.
 
-Ngày hôm sau, Đường Hiểu tinh lập tức liền đi tìm phòng ở thuê.
+Cốc Siêu Thừa liền nhanh chân chạy tới chặn trước cửa siêu thị, khuôn mặt tràn trề vẻ ân cần, săn đón, vội vàng chìa tay ra toan đón lấy những túi đồ Đường Hiểu Tình đang xách trên tay:
 
-Giấc mộng của nàng chính là tốt nghiệp đại học đem mụ mụ tiếp vào quận cát tới, không nghĩ tới mới đại nhất liền thực hiện.
+"Đường Hiểu Tình, để tớ xách giúp cậu cho. Bác gái sắp lên Quận Sa rồi đúng không?"
 
-Thuê phòng ở còn muốn mua chút sinh hoạt nhu yếu phẩm, Đường Hiểu tinh gọi điện thoại đến hắn trong thôn quầy bán quà vặt của máy riêng.
+Cốc Siêu Thừa đã tính toán đâu ra đấy trong đầu, thậm chí sẵn sàng dốc trọn bầu tâm huyết. Bác gái sức khỏe chẳng phải rất yếu ớt sao? Mình sẽ cùng Đường Hiểu Tình chung tay chăm sóc bác thật chu đáo.
 
-"ngũ thẩm, ngươi có thể chạy nhà ta một chuyến sao?"
+Càng nghĩ, Cốc Siêu Thừa càng tự cảm động sâu sắc trước tấm chân tình cao cả của chính mình: Thời sinh viên đại học mà dám cùng bạn gái gánh vác, chăm sóc người mẹ ốm yếu của cô ấy! Thử hỏi một mối tình thời thanh xuân son trẻ và cảm động lay động lòng người nhường ấy, ai mà không rung động cho được?
 
-Đơn vĩ lái xe đi, chắc chắn cùng ngày phải trở về, Đường Hiểu tinh nói:"ta muốn đem ta mẹ tiếp vào quận cát tới, ngươi nói cho nàng trước tiên chỉnh đốn xuống đồ trong nhà, có cái gì nhất định muốn mang của...."
+Nhìn vẻ nhiệt tình thái quá của Cốc Siêu Thừa, Đường Hiểu Tình phần nào đã lờ mờ nhận ra ẩn ý phía sau. Cô hoảng sợ vội vàng lùi lại, xua tay lia lịa:
 
-"ngươi tại đến trường, đem ngươi mẹ tiếp vào thành phố lớn đi nuôi công việc sao?"
+"Không cần đâu, không cần phiền cậu giúp đâu!"
 
-......
+Những người có xuất thân nghèo khó như cô, nội tâm thực chất lại càng vô cùng nhạy cảm và mong manh. Đường Hiểu Tình rất sợ người ngoài vô duyên vô cớ đối xử quá tốt với mình, cô sẽ cảm thấy hoang mang, sợ hãi.
 
-Cũng không biết đáy vực siêu nhận từ nơi nào biết Đường Hiểu tinh ở bên ngoài thuê phòng, chuẩn bị đem mụ mụ tiếp vào quận cát tới, nhìn thấy Đường Hiểu tinh tại đặt mua đồ vật.
+Bởi vì chỉ cần một chút ân huệ nhỏ nhoi thôi, trong lòng cô cũng sẽ tự động khuếch đại lên gấp trăm ngàn lần.
 
-Đáy vực siêu nhận tại cửa siêu thị tìm được Đường Hiểu tinh, một mặt tha thiết, đưa tay liền đi tiếp Đường Hiểu tinh trong tay xách theo đồ vật.
+Đường Hiểu Tình và Triệu Kim An thực ra có những nét rất giống nhau, trong hành trình trưởng thành họ đã phải chịu đựng quá nhiều thiếu thốn và tổn thương. Cho nên họ rất e sợ người ngoài bỗng dưng ban phát lòng tốt cho mình, bởi vì khi đó bạn sẽ luôn có cảm giác mắc nợ người ta, trong lòng sẽ lập tức dựng lên bức tường phòng thủ cảnh giác, có chút bài xích tự nhiên.
 
-"Đường Hiểu tinh, ta giúp ngươi, a di có phải hay không muốn tới quận cát rồi?"
+Cốc Siêu Thừa đứng chết trân tại chỗ, há hốc miệng ấp úng: "Đường Hiểu Tình, tớ thực lòng chỉ muốn giúp cậu thôi mà... Tình hình sức khỏe của bác gái... tớ đều biết cả rồi, tớ, tớ..."
 
-Đáy vực siêu nhận cũng muốn tốt, thậm chí không đếm xỉa đến.
+Cốc Siêu Thừa cảm thấy bản thân đã biểu đạt vô cùng chân thành và rõ ràng. Ý của cậu ta là sẽ không bao giờ chê bai người mẹ đau ốm của Đường Hiểu Tình — chuyện tế nhị này tuy khó có thể nói toạc móng heo ra miệng, nhưng đôi bên đều phải tự hiểu ngầm với nhau chứ.
 
-A di không phải cơ thể không tốt sao?
+Đường Hiểu Tình hơi ngơ ngác, cuộc sống hiện tại của cô đã đủ đầy và tốt đẹp lắm rồi mà.
 
-Chính mình liền cùng Đường Hiểu tinh cùng một chỗ chiếu cố nàng.
-
-Nghĩ đi nghĩ lại, đáy vực siêu nhận bị chính mình cảm động.
-
-Đại học liền cùng bạn gái cùng một chỗ chiếu cố bạn gái cơ thể không tốt mụ mụ!
-
-Liền hỏi cái này dạng của đại học tình yêu không làm cho người xúc động sao?
-
-Nhìn xem nhiệt tình đáy vực siêu nhận, Đường Hiểu tinh có chừng chỉ ra trắng.
-
-Nàng dọa đến vội vàng khoát tay cự tuyệt.
-
-"không cần, không cần ngươi hỗ trợ!"
-
-Người càng là như vậy, kỳ thực nội tâm càng mẫn cảm.
-
-Đường Hiểu tinh không muốn người khác đối với mình tốt như vậy, sẽ có chút sợ.
-
-Bởi vì một chút hảo, liền sẽ tại nội tâm vô hạn phóng đại.
-
-Đường Hiểu nắng ấm Triệu Kim An kỳ thực có điểm giống, các nàng thiếu sót rất nhiều.
-
-Cho nên bọn họ sợ ngoại nhân đối với mình hảo, bởi vì ngươi sẽ cảm thấy thiếu người của, nội tâm liền sẽ cảnh giác, sẽ có chút bài xích.
-
-Đáy vực siêu nhận ngây người tại chỗ, há to miệng:"Đường Hiểu tinh, ta chỉ muốn giúp ngươi.... A di tình huống.. Ta biết, ta, ta...."
-
-Đáy vực siêu nhận cảm thấy mình biểu đạt minh bạch, cũng rất thành khẩn.
-
-Hắn ý tứ thì sẽ không ghét bỏ Đường Hiểu tinh của mụ mụ, nhưng cái này khó mà nói ra miệng, song phương có thể nghe hiểu là được.
-
-Đường Hiểu tinh có chút mộng, mình bây giờ rất khá a.
-
-Khó khăn nhất thời kì đều đi qua
+Giai đoạn khó khăn nhất, tăm tối nhất trong cuộc đời cô... thực ra đều đã trôi qua cả rồi.

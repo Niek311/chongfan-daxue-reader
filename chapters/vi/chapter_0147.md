@@ -1,183 +1,183 @@
-# Chương 147: Ở kiếp trước xem không hiểu, một thế này cũng xem
+# Chương 147: Kiếp trước nhìn không thấu, kiếp này cũng chẳng hiểu nổi.
 
-không hiểu.
+> **Tiêu đề gốc**: 第147章 上一世看不懂，这一世也看不懂。
 
-Tiếp xuống ba ngày, mâm lớn tiếp tục chuyến về.
+Ba ngày tiếp theo, thị trường chứng khoán tiếp tục lao dốc không phanh.
 
-Chuyên gia gì hô đều không dùng, cơ quan vẫn như cũ bảo trì lạc quan.
+Chuyên gia nào lên tiếng trấn an cũng vô ích, dù các tổ chức tài chính lớn vẫn ngoan cố giữ thái độ lạc quan tếu.
 
-Trần trạch giống như sương đánh của quả cà.
+Trần Trạch lúc này chẳng khác nào quả cà tím bị sương muối đánh cho héo rũ.
 
-Ban đêm máy tính lạnh nhạt thờ ơ màn hình tập trung tinh thần, ban ngày phòng học không gặp người.
+Đêm đến, màn hình laptop sáng trưng, anh ta dán chặt mắt vào biểu đồ nến với vẻ mặt thẫn thờ vô hồn; ban ngày thì chẳng thấy bóng dáng đâu trên giảng đường.
 
-Đáy vực siêu nhận cùng lưu xông phong cũng biết chuyện gì xảy ra, tại ký túc xá tận lực không trêu chọc hắn.
+Lưu Sấm Phong và Cốc Siêu Thừa cũng lờ mờ hiểu ra sự tình, ở trong phòng ký túc xá đều cố gắng giữ kẽ, tránh chạm vào nỗi đau của anh ta.
 
-"trạch nhà của anh mày sẽ không phá sản đi?"
+"Gia đình anh Trạch không đến mức phá sản đấy chứ?"
 
-Lưu xông phong cẩn thận từng li từng tí vấn đạo.
+Lưu Sấm Phong dè dặt, khẽ khàng hỏi.
 
-Đáy vực siêu nhận lắc đầu:"không biết, đầu tư cổ phiếu không đến mức, chính là thua thiệt ít tiền, nhà khác nhà máy tại, so với chúng ta mạnh hơn nhiều."
+Cốc Siêu Thừa lắc đầu: "Ai mà biết được, chơi cổ phiếu chắc chưa đến mức tán gia bại sản đâu, cùng lắm là lỗ chút tiền thôi. Nhà người ta xưởng sản xuất vẫn còn sờ sờ ra đó, ăn đứt cánh mình rồi."
 
-Lưu xông phong gật đầu:"chính xác, trạch ca tốt nghiệp liền kế thừa gia nghiệp, chúng ta còn muốn tìm công việc."
+Lưu Sấm Phong gật gù: "Cũng đúng, anh Trạch tốt nghiệp xong là về kế thừa cơ nghiệp bạc tỷ của gia đình, còn tụi mình thì vẫn phải đôn đáo đi rải hồ sơ xin việc."
 
-Bọn hắn đêm đó còn hâm mộ trần trạch đầu tư cổ phiếu kiếm tiền, bây giờ không hâm mộ.
+Đêm nọ hai người họ còn thèm thuồng ghen tị khi thấy Trần Trạch kiếm bộn tiền từ chứng khoán, giờ thì chẳng còn chút ham muốn nào nữa.
 
-Ấn chứng câu nói kia, liền thấy tặc ăn thịt, không gặp tặc bị đánh.
+Đúng là ứng nghiệm với câu nói: chỉ thấy kẻ cắp ăn thịt, đâu thấy kẻ cắp chịu đòn.
 
-Lợi nuận cao tự nhiên kèm theo nguy hiểm cao.
+Lợi nhuận càng cao thì rủi ro đi kèm lại càng khủng khiếp.
 
-Trần trạch chính xác nhìn hiểu chuyện, mỗi ngày rất dậy sớm giường liền lái xe đi, đại khái là đi nhà máy.
+Trần Trạch dạo này trông có vẻ biết điều và chín chắn hơn hẳn, sáng nào cũng dậy từ rất sớm rồi lái xe đi mất hút, có lẽ là chạy về phụ giúp việc ở xưởng.
 
-Đây là Từ Mạn Mạn của mụ mụ lương Tuệ Trân đánh giá của.
+Đó là lời nhận xét từ bà Lương Tuệ Trân, mẹ của Từ Mạn Mạn.
 
-Triệu Kim An lại biết, thị trường chứng khoán chỉ là bắt đầu, 2 0 0 8 năm mới là gian nan nhất của một năm.
+Thế nhưng Triệu Kim An hiểu rất rõ, cơn bão sụp đổ trên thị trường chứng khoán mới chỉ là khúc dạo đầu, năm 2008 sắp tới mới thực sự là chuỗi ngày đen tối và khó khăn cùng cực nhất.
 
-Châu tam giác cùng Trường Tam Giác không biết có bao nhiêu nhà máy phải đóng cửa đóng cửa.
+Khu vực đồng bằng Châu Giang và đồng bằng Trường Giang không biết sẽ có bao nhiêu nhà máy, xí nghiệp phải ngậm ngùi đóng cửa phá sản.
 
-Cái này không phải cố gắng liền có thể thay đổi của.
+Đây là tai ương mang tính toàn cầu, chẳng phải cứ nỗ lực phấn đấu là có thể xoay chuyển càn khôn.
 
-Có thể nằm ngửa, không phát triển không khuếch trương, chỉ chỏ đơn đặt hàng, ngược lại có thêm con đường sống.
+Có khi chọn cách "nằm yên", không vội vàng mở rộng quy mô, không ôm đồm nhận thêm đơn hàng rủi ro, lại vô tình mở ra cho mình một con đường sống sót qua cơn bão tố.
 
-"Kim An, cha mẹ ta muốn ta thay các nàng nói với ngươi âm thanh vạn phần cảm tạ."
+"Kim An, ba mẹ mình nhờ mình chuyển lời cảm ơn sâu sắc nhất tới cậu."
 
-Lầu hai hành lang, thẩm tử nói hai tay cắm vào túi thổn thức nói:"lại liền ngã ba ngày, cục đá trong lòng rơi xuống đất, không xoắn xuýt rất tốt, nói thực ra ta trong khoảng thời gian này cũng rất do dự."
+Nơi hành lang tầng hai lộng gió, Thẩm Tử Ngôn đút hai tay vào túi áo khoác, cất giọng đầy bùi ngùi: "Thị trường lại giảm liền ba phiên rồi, tảng đá đè nặng trong lòng rốt cuộc cũng rơi xuống. Không phải băn khoăn trăn trở nữa, cảm giác thật nhẹ nhõm. Thú thật với cậu, suốt thời gian qua bản thân mình cũng dao động ghê gớm."
 
-"không phải là không tin tưởng ngươi.... Là không thể tin được."
+"Không phải mình không tin tưởng cậu... mà là không dám tin."
 
-"buôn bán bên ngoài cũng rất ít có trước tiên đánh tiền đặt cọc của, tương đương chính mình đem khách hàng đẩy ra phía ngoài, giao cho đồng hành đối thủ cạnh tranh."
+"Làm mảng ngoại thương hiếm có đối tác nào chịu thanh toán trước một trăm phần trăm tiền hàng, làm thế chẳng khác nào tự tay đẩy khách hàng sang cho các đối thủ cạnh tranh khác."
 
 Triệu Kim An gật đầu.
 
-Hắn lý giải, đổi thành chính mình không có tiên tri, cũng sẽ không tin tưởng.
+Anh hoàn toàn thấu hiểu. Đặt vào vị trí của Thẩm gia, nếu không sở hữu ký ức tiên tri của kiếp trước thì bất kỳ ai cũng chẳng dám tin vào điều tưởng như điên rồ ấy.
 
-Triệu Kim An liền nhiền lấy thẩm tử nói.
+Triệu Kim An cứ thế lặng lẽ nhìn Thẩm Tử Ngôn.
 
-"ngươi nhìn ta cái gì?"
+"Cậu nhìn mình làm gì thế?"
 
-Thẩm tử nói sờ mặt mình một cái gò má, lại cúi đầu, nút áo cài chắc.
+Thẩm Tử Ngôn đưa tay sờ lên má, rồi lại cúi đầu nhìn xuống, cúc áo khoác vẫn được cài chỉnh tề.
 
-"cha mẹ ngươi liền ngoài miệng nói cảm tạ?"
+"Ba mẹ cậu chỉ cảm ơn suông bằng mồm thôi à?"
 
-Triệu Kim An cười nói:"không có chút gì biểu thị?"
+Triệu Kim An cười đùa: "Không có chút biểu hiện thực tế nào sao?"
 
-Thẩm tử nói liền cười.
+Thẩm Tử Ngôn bật cười khúc khích.
 
-Các nàng đều biết đây không phải một câu"cảm tạ"của chuyện, không phải đưa chút lễ vật quý trọng của chuyện, chuyện nhỏ mua một cái lễ vật quý trọng liền xong việc, lễ vật giá trị còn cao hơn tại ân tình.
+Cả hai người bọn họ đều thừa hiểu, đây tuyệt đối không phải là chuyện có thể giải quyết bằng một câu "cảm ơn" hay mua vài món quà đắt tiền. Với những chuyện vặt vãnh, tặng một món quà giá trị vượt xa ân tình là xong xuôi.
 
-Chút ơn huệ này lõi đời, thẩm vĩnh đàm cùng lục hồng tiêu ngang dọc cửa hàng nhiều năm như vậy quá đã hiểu.
+Chút đạo lý đối nhân xử thế nơi thương trường ấy, những người lão luyện lăn lộn mấy chục năm như Thẩm Vĩnh Đàm và Lục Mai Tiêu sao có thể không thấu suốt.
 
-Có thể..... Đây là nhân tình to lớn.
+Thế nhưng... đây là món ân tình lớn tày trời.
 
-Liên quan đến công ty chiến lược điều chỉnh, tặng quà liền ngược lại lộ ra không hiểu chuyện rồi.
+Nó liên quan trực tiếp đến sự sống còn trong việc điều chỉnh toàn bộ chiến lược của cả một tập đoàn. Trong tình huống này, nếu vội vã mang quà cáp tầm thường đến tặng thì ngược lại chỉ tỏ ra nông cạn và thiếu hiểu biết.
 
-Triệu Kim An hiếm thấy lấy ra điếu thuốc nhóm lửa, cảm khái câu:"lập tức 1 2 nguyệt, muốn 2 0 0 8 năm."
+Triệu Kim An hiếm hoi rút một điếu thuốc ra châm lửa, phả làn khói trắng vào không trung rồi cảm thán: "Sắp bước sang tháng Mười Hai rồi, chuẩn bị đón năm 2008."
 
-Thẩm tử nói tiếp lấy lời nói:"thế vận hội?"
+Thẩm Tử Ngôn lập tức bắt kịp dòng suy nghĩ: "Cậu đang nghĩ về Thế vận hội Olympic à?"
 
-Triệu Kim An:......
+Triệu Kim An ngẩn người: "..."
 
-"ngươi tư duy nhảy vọt quá lớn."
+"Nhảy số nhanh thế?"
 
-"không phải ta nhảy vọt lớn, là ngươi...."
+"Không phải mình nhảy số nhanh, mà là do cậu..."
 
-Thẩm tử nói ánh mắt tán thưởng nhìn xem Triệu Kim An lắc đầu:"ngươi không phải muốn nhìn thế vận hội, ngươi là đang nghĩ đạt đến nhiên có thể hay không trở thành thế vận hội của tài trợ nhãn hiệu."
+Thẩm Tử Ngôn đưa ánh mắt đầy vẻ tán thưởng nhìn Triệu Kim An, khẽ lắc đầu: "Cậu đâu phải đang mong ngóng xem thi đấu thể thao, cậu đang toan tính xem liệu Trăn Nhiên có thể trở thành thương hiệu tài trợ cho Olympic hay không."
 
-"quốc gia vì tổ chức lần này Olympic cố gắng nhiều năm như vậy.... Có rồi tầng này quang hoàn, đạt đến nhiên không chỉ là lượng tiêu thụ...."
+"Đất nước ta đã nỗ lực biết bao năm trời vì kỳ Thế vận hội này... Nếu khoác lên mình vầng hào quang của Olympic, Trăn Nhiên đâu chỉ đơn thuần là bùng nổ doanh số..."
 
-Triệu Kim An:......
+Triệu Kim An cạn lời: "..."
 
-"ngươi có thể đi, ta không có muốn cùng ngươi nói chuyện rồi."
+"Cậu đi được rồi đấy, tôi chẳng muốn nói chuyện với cậu nữa đâu."
 
-Thẩm tử nói liền che miệng nở nụ cười, cười rất sung sướng.
+Thẩm Tử Ngôn liền đưa tay che miệng bật cười rúc rích, nụ cười vô cùng rạng rỡ và sảng khoái.
 
-Nàng biết mình đã đoán đúng.
+Cô biết mình đã đoán trúng phóc tim đen của anh.
 
-Đoán đúng lão bản tâm tư, lão bản tại nhân viên trước mặt liền không có thần bí như vậy khó lường, tại chức tràng coi như hiểu cũng muốn chờ lãnh đạo mở đầu, chính mình lại làm ra một bộ biểu tình tỉnh ngộ.
+Đoán đúng tâm tư của ông chủ thì ông chủ sẽ chẳng còn vẻ bí hiểm, khó lường trước mặt nhân viên nữa. Nơi chốn công sở, người thông minh dẫu có nhìn thấu tâm can lãnh đạo thì cũng phải đợi sếp mở lời trước, rồi mới vờ làm ra vẻ sực tỉnh ngộ ra.
 
-Có thể thẩm tử nói liền thích xem Triệu Kim An dạng này.
+Nhưng Thẩm Tử Ngôn lại cực kỳ thích cái cảm giác được nhìn thấy dáng vẻ bối rối này của Triệu Kim An.
 
-Triệu Kim An đang nhớ lại, ấn tượng khắc sâu nhất chính là kim long cá, 1: 1: 1 câu này quảng cáo từ.
+Triệu Kim An khẽ lục lọi lại miền ký ức của kiếp trước. Ấn tượng sâu đậm nhất trong anh về kỳ Olympic năm đó là dầu ăn Kim Long Ngư với câu khẩu hiệu nổi tiếng "Tỉ lệ 1:1:1".
 
-Còn có không tính đồng hành, cũng đều tính toán đồ uống của mấy nhà xí nghiệp, Bách Uy bia, Tsingtao Beer, Yến kinh bia, Trường Thành rượu nho, Elie, Coca Cola.
+Ngoài ra còn có những doanh nghiệp dù không cùng ngành nhưng đều thuộc mảng đồ uống như bia Budweiser, bia Thanh Đảo, bia Yến Kinh, rượu vang Trường Thành, sữa Y Lợi, Coca-Cola.
 
-Còn có mình dùng bột giặt, lập trắng.
+Lại còn cả hãng bột giặt Lập Bạch mà gia đình anh vẫn thường dùng.
 
-Không nói cái kia chút bên trong chữ đầu xí nghiệp, lần này thế vận hội quá nhiều nhà tài trợ rồi.
+Chưa kể đến hàng loạt tập đoàn nhà nước khổng lồ mang đầu chữ "Trung", kỳ Olympic lần này quy tụ quá nhiều nhà tài trợ sừng sỏ.
 
-Nhà tài trợ danh ngạch là nhiều, nhưng cạnh tranh chắc chắn tương đối kịch liệt.
+Suất tài trợ tuy nhiều, nhưng cuộc cạnh tranh chắc chắn sẽ vô cùng khốc liệt.
 
-Trừ rồi tiền, tổ ủy hội còn có thể cân nhắc bản thân xí nghiệp của nổi tiếng.
+Bởi lẽ ngoài vấn đề tiền bạc, ban tổ chức còn xem xét kỹ lưỡng cả mức độ uy tín và danh tiếng vốn có của doanh nghiệp.
 
-Đây là mặt hướng toàn thế giới, không phải ai bỏ tiền liền cho ngươi bên trên.
+Đây là sự kiện mang tầm vóc toàn cầu, hướng ra toàn thế giới, đâu phải cứ ai vung tiền ra là được chen chân vào.
 
-Triệu Kim An còn nhớ rõ ở kiếp trước thân áo thành công, chính mình kích động nhảy dựng lên, Triệu gia thôn của người đều mở mày mở mặt vui vẻ ra mặt, người của cái niên đại này tràn đầy tình yêu nước nghi ngờ.
+Triệu Kim An vẫn nhớ như in ở kiếp trước, khi tin tức giành quyền đăng cai Olympic được công bố, bản thân anh đã nhảy cẫng lên vì sung sướng. Cả làng họ Triệu ai nấy đều nở mày nở mặt, hân hoan rạng rỡ. Con người ở thời đại này tràn ngập lòng tự hào và tinh thần yêu nước nồng nàn.
 
-Rõ ràng liền trồng cái kia vài mẫu đất, không có tiền gì.... Nhưng giống như tại chính mình thôn tổ chức một dạng.
+Rõ ràng quanh năm suốt tháng chỉ cắm mặt vào mấy sào ruộng nghèo nàn, trong túi chẳng có mấy đồng bạc... nhưng cảm giác tự hào cứ như thể sự kiện thể thao vĩ đại ấy đang được tổ chức ngay tại sân đình làng mình vậy.
 
-"Kim An, ngươi còn suy nghĩ công ty như thế nào phát triển...."
+"Kim An, trong khi cậu đang trăn trở tính toán xem công ty sẽ vươn mình bành trướng ra sao..."
 
-Thẩm tử nói nhìn xem Triệu Kim An xuất phát từ nội tâm nói:"chúng ta lại suy nghĩ như thế nào co vào phòng ngự, nếu quả thật như ngươi đoán trước như thế, nhà ta xem như rất may mắn."
+Thẩm Tử Ngôn nhìn Triệu Kim An, cất lời từ tận đáy lòng: "Thì gia đình mình lại chỉ biết co cụm phòng thủ. Nếu mọi chuyện thực sự diễn ra đúng như những gì cậu dự đoán, thì gia đình mình đã quá đỗi may mắn rồi."
 
-"cái kia chút còn không có một tia cảnh giác của.... Không biết sẽ có bao nhiêu thảm."
+"Còn những doanh nghiệp ngoài kia vẫn chưa mảy may có chút phòng bị nào... chẳng biết rồi đây kết cục sẽ thê thảm đến nhường nào nữa."
 
-Thẩm tử nói nghĩ nghĩ, vẫn là nói.
+Thẩm Tử Ngôn ngập ngừng một lát, rồi vẫn quyết định nói ra:
 
-"trần trạch nhà tất cả đều là buôn bán bên ngoài, Mạn Mạn mỗi ngày tra tư liệu, ta là có ngươi nhắc nhở, không biết Mạn Mạn có thể hay không coi trọng."
+"Nhà Trần Trạch làm ăn hoàn toàn dựa vào xuất khẩu. Dạo này Mạn Mạn ngày nào cũng cắm cúi tra cứu tài liệu. Mình thì có cậu cảnh báo trước, không biết Mạn Mạn có thực sự lưu tâm đến chuyện này hay không."
 
-"ta cùng nàng đề cập qua quan tâm kỹ càng đẹp cỗ, Mạn Mạn thông minh như vậy hẳn là hiểu, ta cũng không tốt nói rõ, dù sao trần trạch nhà không giống nhà ta, nhà hắn liền làm buôn bán bên ngoài."
+"Mình từng gợi ý với cô ấy nên chú ý theo dõi sàn chứng khoán Mỹ nhiều hơn. Mạn Mạn thông minh như thế chắc chắn sẽ hiểu ra. Mình cũng không tiện nói thẳng toẹt, dù sao nhà Trần Trạch cũng không giống nhà mình, họ sống chết đều nhờ vào các đơn hàng ngoại thương."
 
-"ngươi nói các nàng sẽ nghe sao?"
+"Cậu có nói thì liệu người ta có chịu nghe không?"
 
-Triệu Kim An liền hỏi một câu.
+Triệu Kim An bâng quơ hỏi lại một câu.
 
-Thẩm tử nói lắc đầu cười khổ:"là ta ta cũng sẽ không, dù sao bây giờ không thấy, đoán chừng Mạn Mạn nhắc nhở, trần trạch cùng mẹ hắn cũng sẽ không nghe, nhà các nàng chỉ có buôn bán bên ngoài."
+Thẩm Tử Ngôn cười khổ lắc đầu: "Đổi lại là mình thì mình cũng chẳng nghe đâu. Dù sao lúc này mọi thứ vẫn chưa hiển hiện rõ ràng. Mình đoán dẫu Mạn Mạn có nhắc nhở thì Trần Trạch và mẹ anh ta cũng sẽ bỏ ngoài tai thôi, cơ nghiệp nhà họ chỉ có mỗi mảng xuất khẩu."
 
-"không có phát sinh chính là nói chuyện giật gân."
+"Chuyện chưa xảy ra thì người ta chỉ coi lời cảnh báo là chuyện giật gân, nói quá."
 
-Thẩm tử nói bật cười một tiếng:"một phần vạn chỉ là thị trường chứng khoán ngã, ai cũng phụ không được trách, trần trạch ta là không dám nói, ta vẫn nhắc lại một câu Mạn Mạn, muốn nàng chú ý một chút."
+Thẩm Tử Ngôn khẽ thở dài: "Ngộ nhỡ chỉ là cú sụt giảm đơn thuần của chứng khoán thì chẳng ai gánh nổi trách nhiệm này. Với Trần Trạch thì mình không dám nhiều lời, nhưng mình vẫn muốn nhắc Mạn Mạn thêm một câu, bảo cô ấy nên cẩn trọng lưu ý."
 
-Triệu Kim An gật gật đầu, từ chối cho ý kiến.
+Triệu Kim An gật đầu, không tỏ rõ thái độ đồng tình hay phản đối.
 
-"thị trường chứng khoán sau chính là Phòng thị rồi."
+"Sau thị trường chứng khoán, sẽ đến lượt thị trường bất động sản."
 
-"Triệu Kim An....."
+"Triệu Kim An..."
 
-Thẩm tử nói sửng sốt một hồi lâu:"Mạn Mạn rất thông minh, nàng hẳn là sớm đã có chỗ cảnh giác, nàng còn nhắc nhở qua ta một lần, bảo ta hô trong nhà nhiều chú ý công ty trở về kiểu."
+Thẩm Tử Ngôn sững sờ mất một lúc lâu: "Mạn Mạn rất thông minh, chắc hẳn cô ấy đã sớm nảy sinh lòng cảnh giác rồi. Cô ấy còn từng nhắc nhở mình một lần, bảo mình nhắc người nhà chú ý theo dõi sát sao tiến độ thu hồi dòng tiền công nợ của công ty."
 
-Triệu Kim An cũng có chút ngoài ý muốn:"lúc nào?"
+Triệu Kim An cũng hơi bất ngờ: "Khi nào thế?"
 
-"4 ngày trước."
+"Bốn ngày trước."
 
-Thẩm tử nói vừa nói vừa gật đầu:"mâm lớn còn không có rớt phá 5 ngàn điểm, Mạn Mạn có thể không nghĩ xa như vậy, nhưng có cảnh giác đã rất lợi hại."
+Thẩm Tử Ngôn vừa nói vừa gật đầu: "Lúc ấy chỉ số chung còn chưa đâm thủng mốc 5.000 điểm. Có thể Mạn Mạn chưa nhìn xa trông rộng đến mức ấy, nhưng giữ được sự nhạy bén cảnh giác như vậy đã là quá đỗi xuất sắc rồi."
 
-Triệu Kim An cũng gật đầu, biểu thị tán thành.
+Triệu Kim An cũng gật đầu tỏ ý công nhận.
 
-Từ Mạn Mạn từ nghỉ hè cũng chỉ nhìn chằm chằm công ty tiêu thụ cùng trở về kiểu, cái này hơn một tháng lại bù lại tương quan tri thức, có thể từ tiêu thụ đơn đặt hàng cùng trở về kiểu tốc độ.....
+Từ Mạn Mạn ngay từ kỳ nghỉ hè đã dán mắt theo dõi sát sao doanh số bán hàng và tiến độ thu hồi công nợ của công ty, hơn một tháng qua lại điên cuồng bồi đắp thêm kiến thức kinh tế. Rất có thể từ những biến động nhỏ trong đơn đặt hàng và tốc độ hoàn tiền chậm trễ của đối tác, cô đã tự mình ngửi thấy mùi nguy hiểm...
 
-Thẩm tử nói còn nói trong khoảng thời gian này Từ Mạn Mạn khoáng rất nhiều khóa, lão sư còn phát hiện nhiều lần.
+Thẩm Tử Ngôn lại kể thêm rằng quãng thời gian gần đây Từ Mạn Mạn trốn học rất nhiều buổi, giáo viên trên giảng đường đã phát hiện điểm danh vắng mặt mấy lần.
 
-Triệu Kim An cũng chỉ là gật đầu.
+Triệu Kim An nghe xong cũng chỉ khẽ gật đầu.
 
-Hắn cũng xem không hiểu Từ Mạn Mạn, không hiểu nữ nhân này.
+Anh quả thực nhìn không thấu Từ Mạn Mạn, không thể nào hiểu nổi người phụ nữ này.
 
-Ở kiếp trước xem không hiểu, một thế này cũng xem không hiểu.
+Kiếp trước nhìn không thấu, kiếp này cũng chẳng hiểu nổi.
 
-Hắn cùng Từ Mạn Mạn chỉ có một đầu tin nhắn có thể có chút"vượt tuyến", nhưng xem như bằng hữu, dù là dân mạng hỏi một câu cũng không thương phong nhã.
+Giữa anh và Từ Mạn Mạn chỉ duy nhất có một tin nhắn có phần hơi "vượt ranh giới", nhưng dưới danh nghĩa bạn bè, hay thậm chí là bạn bè trên mạng xã hội hỏi thăm nhau một câu thì cũng chẳng có gì to tát.
 
-Khác cũng là sơ giao.
+Ngoài ra, giữa hai người trước giờ chỉ là mối quan hệ gật đầu chào hỏi xã giao.
 
-Triệu Kim An biết kết quả, không chú ý sau này hướng đi.
+Triệu Kim An đã biết trước kết cục của thời cuộc, anh không muốn bận tâm theo dõi thêm những diễn biến tiếp theo nữa.
 
-Lạc cẩn chi một chiếc điện thoại, hắn cùng đơn vĩ đi nhanh bớt, Bửu Kê.
+Nhận được một cuộc điện thoại của Lạc Cẩn Chi, anh lập tức cùng Đan Vĩ lên đường đi tới thành phố Bảo Kê, tỉnh Thiểm Tây.
 
-Đây là Triệu Kim An cùng lạc cẩn chi chọn lựa đệ nhị chỗ nguồn nước mà.
+Đây là địa điểm nguồn nước thứ hai mà Triệu Kim An và Lạc Cẩn Chi cất công lựa chọn.
 
-Sâm thành tại nam, Bửu Kê tính toán tại bắc.
+Sâm Châu nằm ở phương Nam, còn Bảo Kê tọa lạc tại phương Bắc.
 
-Bửu Kê, lông mày huyện, núi Thái Bạch.
+Thái Bạch Sơn, huyện Mi, thành phố Bảo Kê.
 
-Nơi này nguồn nước chủ phong là Tần Lĩnh, tự nhiên không ô nhiễm.
+Nguồn nước nơi đây bắt nguồn từ đỉnh núi chính của dãy Tần Lĩnh hùng vĩ, hoàn toàn tự nhiên và thuần khiết, không vướng chút bụi trần ô nhiễm.
 
-Nói đúng ra thuộc về nước suối, Đông Giang hồ thuộc về tầng sâu hồ nước thủy, còn có đập chứa nước thủy cùng băng xuyên tan thủy.
+Nói một cách chính xác, đây là nguồn nước suối vùng núi đá tự nhiên, trong khi hồ Đông Giang thuộc loại nước tầng sâu hồ thủy điện, ngoài ra trên thị trường còn có nước hồ chứa và nước băng tan.
 
-Tỉ như mới tiết kiệm Thiên Sơn, là thuộc về băng xuyên tan thủy, Trường Bạch sơn thuộc về tầng sâu từ tuôn ra nước suối
+Chẳng hạn như vùng núi Thiên Sơn ở Tân Cương thuộc loại nước băng tuyết tan chảy, còn dãy Trường Bạch Sơn nổi tiếng với nguồn nước khoáng ngầm tự phun trào từ lòng đất sâu...

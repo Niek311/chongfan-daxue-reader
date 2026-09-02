@@ -1,247 +1,251 @@
-# Chương 119: Không Vất Vả
+# Chương 119: Không vất vả
 
-Quay lại văn phòng, Triệu Kim An mở tài khoản chứng khoán ra.
+> **Tiêu đề gốc**: 第119章 不辛苦。
 
-Hắn vẫn luôn nắm giữ cổ phiếu Vạn Khoa mà không đảo danh mục, dòng tiền luân chuyển cuối cùng cũng đã tìm đến nhóm ngành bất động sản, số dư trong tài khoản đã lên tới 12.56 triệu.
+Trở về phòng làm việc, Triệu Kim An mở máy tính đăng nhập vào tài khoản chứng khoán cá nhân.
 
-Đây là buổi tiệc cuồng hoan cuối cùng của đợt thị trường bò tót này.
+Suốt thời gian qua anh vẫn kiên định nắm giữ toàn bộ cổ phiếu Vạn Khoa mà không hề đảo danh mục. Cuối cùng dòng tiền luân chuyển trên thị trường cũng đã tìm đến nhóm ngành bất động sản, đẩy tổng giá trị tài sản trong tài khoản của anh cán mốc 12,56 triệu tệ.
 
-Hiện tại ai ai cũng là "thần chứng khoán", nhưng đợi đến tháng Mười thì sẽ chẳng còn vị thần nào nữa.
+Đây chính là bữa tiệc cuồng hoan tột cùng cuối cùng của cơn sóng thị trường bò tót (Bull Market) lịch sử năm 2007.
 
-Chỉ còn lại một nhóm người đứng gác đỉnh tít trên cao, có những người mười bảy năm trôi qua vẫn chưa thể về bờ.
+Thời điểm này, ra đường gặp ai ai cũng tự xưng là "thần chứng khoán", nhưng chỉ cần đợi bước sang tháng Mười, khi thị trường lập đỉnh lịch sử 6124 điểm rồi lao dốc không phanh, sẽ chẳng còn bất kỳ vị thần thánh nào tồn tại nữa.
 
-Sâm Thành.
+Nơi sàn diễn ấy sẽ chỉ còn trơ trọi lại một lớp nhà đầu tư ngơ ngác đứng trên đỉnh đọt hứng gió lạnh, có những người suốt 17 năm đằng đẵng trôi qua vẫn mãi mãi chưa thể về bờ.
 
-Du Phỉ ở làng đại học, Âu Cường ở đại học Phục Đán, Lý Lị ở đại học Nông nghiệp, Điền Vũ Hạo ở đại học Lâm nghiệp đều đã trở về.
+***
 
-Họ mới thực sự là những sinh viên đại học đúng nghĩa.
+Tại thành phố Sâm Châu.
 
-Biết tin Triệu Kim An không về, Âu Cường đi nghe ngóng khắp nơi mới biết Triệu Kim An nghỉ hè vẫn ở lại Quận Sa làm thêm, còn hóng hớt được chuyện Mộc Dao và Triệu Kim An đã chia tay.
+Những cô cậu sinh viên như Mộc Dao và Du Phi ở Làng Đại học Quận Sa, Âu Cường học tại Đại học Phúc Đán, Lý Lợi ở Đại học Nông nghiệp, hay Điền Vũ Hạo ở Đại học Lâm Nghiệp Khoa Kỹ... đều đã lục tục trở về quê nhà nghỉ hè.
 
-Có vài bạn học cũ đến trường thăm các giáo viên từng dạy mình.
+Họ mới thực sự là những cô cậu sinh viên đại học đúng nghĩa, tận hưởng trọn vẹn những tháng ngày thanh xuân nhàn nhã.
 
-Những giáo viên này thường sẽ hỏi thăm những học sinh có thành tích học tập tốt, hoặc là những đứa cực kỳ nghịch ngợm.
+Sau khi biết tin Triệu Kim An không về quê, Âu Cường đã lân la dò hỏi khắp nơi, lúc này mới vỡ lẽ Triệu Kim An kỳ nghỉ hè này vẫn bám trụ lại Quận Sa làm thêm kiếm sống, đồng thời cũng nghe ngóng được tin Mộc Dao và Triệu Kim An đã sớm đường ai nấy đi.
 
-Ngược lại, những học sinh kiểu trung quy trung củ thì họ không có mấy ấn tượng.
+Nhân dịp nghỉ hè, một vài cựu học sinh đã rủ nhau quay trở lại trường trung học cũ để thăm hỏi các thầy cô giáo từng giảng dạy mình năm xưa.
 
-Triệu Kim An cũng thuộc diện có thành tích học tập khá, chỉ là ở lớp chọn thì không quá nổi bật.
+Những người thầy người cô đứng trên bục giảng thường chỉ nhớ mặt gọi tên hai kiểu học trò: một là những đứa học lực xuất sắc vượt trội đứng đầu khối, hai là những thành phần cá biệt nghịch ngợm quậy phá nhất lớp.
 
-Các giáo viên cũ đều đã biết chuyện Triệu Kim An mới năm nhất đã ở lại trường làm thêm, họ cũng không quá bất ngờ.
+Còn những học sinh có thành tích học tập bình bình, tính cách lặng lẽ thì trong tâm trí thầy cô thường không để lại quá nhiều ấn tượng sâu đậm.
 
-Chỉ có Trình Tử Liên là quan tâm nhiều hơn đến chuyện tình cảm của Triệu Kim An, khi biết hắn và Mộc Dao chia tay, cô có chút ngạc nhiên.
+Triệu Kim An vốn thuộc diện học lực khá, chỉ có điều khi được xếp vào lớp chọn trọng điểm của trường thì thành tích của anh không quá nổi bật để vươn lên nhóm dẫn đầu.
 
-Không phải ngạc nhiên vì họ chia tay, mà là mới lên năm nhất đã chia tay rồi.
+Khi biết tin Triệu Kim An ngay từ năm nhất đại học đã phải vừa học vừa bươn chải làm thêm ngoài xã hội, các thầy cô giáo cũ cũng không lấy làm quá đỗi ngạc nhiên.
 
-Văn phòng tổ bộ môn.
+Duy chỉ có cô giáo Trình Tử Liên là đặc biệt quan tâm sâu sắc đến chuyện tình cảm của Triệu Kim An. Khi nghe tin anh và Mộc Dao đã chia tay, cô không khỏi thoáng chút bất ngờ.
 
-Lớp chọn khối 12 thì không có nghỉ hè.
+Điều làm cô ngạc nhiên không phải là việc hai người chia tay, mà là họ lại kết thúc quá nhanh chóng ngay khi vừa bước chân vào cánh cổng đại học như vậy.
 
-Giáo viên chủ nhiệm cũ là thầy Lý cười nói: "Không ngờ người thành thật như Triệu Kim An mà sau khi thi đại học xong đã ở bên Mộc Dao, rồi lại chia tay nhanh đến thế."
+Tại văn phòng tổ chuyên môn khối 12.
 
-"Tôi nghe xong cũng thấy hơi kinh ngạc."
+Các lớp chọn khối 12 chuẩn bị bước vào kỳ thi đại học vốn dĩ không hề có khái niệm nghỉ hè.
 
-Một giáo viên khác gõ gõ cuốn giáo án: "Triệu Kim An sống thản nhiên quá, hồi trước ở lớp 209 chỉ có mỗi mình cậu ta là lên lớp 12 rồi mà vẫn không thấy lo lắng gì, nếu không thì... vẫn là nên tự nâng cao bản thân mình lên."
+Thầy Lý – giáo viên chủ nhiệm năm xưa – vừa lật giở giáo án vừa cười nói: "Thầy thật không ngờ một cậu học trò thật thà, ít nói như Triệu Kim An, vừa thi đại học xong là đã cưa đổ được hoa khôi Mộc Dao, thế mà cũng nhanh chóng chia tay đến vậy."
 
-"Mà nhắc mới nhớ, sau khi khóa này tốt nghiệp, trường mình cũng xuất hiện thêm mấy em hoa khôi rồi nhỉ?"
+"Lúc mới nghe tin thầy cũng thấy khá bất ngờ đấy."
 
-"Hồi trước có con bé Mộc Dao kia... thì chẳng có gì phải tranh chấp cả."
+Một giáo viên khác gõ nhẹ cuốn sổ ghi điểm xuống mặt bàn: "Triệu Kim An tính tình quá đỗi an phận và bàng quan với mọi thứ. Hồi ở lớp 209, cả lớp bước vào năm cuối ai nấy đều căng thẳng như dây đàn, duy chỉ có cậu ta là lúc nào cũng dửng dưng như không. Bản thân tuổi trẻ mà không có chí tiến thủ thì sau này khó làm nên chuyện lớn lắm, vẫn cần phải nỗ lực nâng cao bản thân nhiều hơn."
 
-"Mộc Dao sao?"
+"Mà nhắc mới nhớ, kể từ sau khi cái khóa của bọn chúng ra trường, trường Nhất Trung chúng ta dạo này hình như xuất hiện thêm mấy cô bé hoa khôi mới rồi thì phải?"
 
-Trình Tử Liên mỉm cười: "Là Triệu Kim An chứ, Triệu Kim An trong đám học sinh nam mới là người không có đối thủ, nếu không thì sau khi thi đại học xong Mộc Dao đã đồng ý làm bạn gái cậu ta chắc?"
+"Ngày trước có con bé Mộc Dao ở đó... thì vị trí hoa khôi của trường làm gì có ai tranh giành nổi."
 
-Thầy Lý nói: "Cô Trình, cô khá quan tâm đến Triệu Kim An đấy, cậu ta không đến thăm cô sao?"
+"Mộc Dao á?"
 
-Mấy giáo viên khác cũng bật cười.
+Trình Tử Liên khẽ mỉm cười tiếp lời: "Phải nói là Triệu Kim An mới đúng chứ. Xét về diện mạo trong đám nam sinh toàn trường năm đó, Triệu Kim An mới là người không có đối thủ cạnh tranh, nếu không thì vừa thi tốt nghiệp xong làm sao Mộc Dao lại vội vã nhận lời làm bạn gái cậu ta nhanh đến thế?"
 
-Có một cô giáo nhìn Trình Tử Liên, nụ cười còn mang theo chút ẩn ý.
+Thầy Lý cười trêu: "Cô Trình này, năm xưa cô quan tâm chăm sóc Triệu Kim An chu đáo nhất trường đấy, đợt này nó về không ghé qua thăm cô à?"
 
-Việc Trình Tử Liên đặc biệt quan tâm đến Triệu Kim An, bọn họ đều biết chút ít.
+Mấy thầy cô giáo khác trong phòng làm việc cũng đồng loạt bật cười phụ họa.
 
-Cũng vì không nghe thấy thêm lời ra tiếng vào nào quá đáng nên mới thôi.
+Một cô giáo đồng nghiệp trẻ tuổi liếc nhìn Trình Tử Liên một cái đầy ẩn ý, nụ cười trên môi có phần mập mờ, mờ ám.
 
-Cứ như vậy, cũng là phụ nữ với nhau, cô Liêu cũng nghi ngờ Trình Tử Liên đã "ăn" Triệu Kim An rồi.
+Chuyện Trình Tử Liên năm xưa đặc biệt ưu ái, chăm sóc Triệu Kim An ra mặt, các giáo viên trong tổ ai nấy đều nghe loáng thoáng ít nhiều.
 
-"Ăn" mấy lần thì không biết, cô Liêu nghe nói hè năm ngoái Triệu Kim An có tới thăm Trình Tử Liên, ai mà biết được trong căn hộ hai phòng ngủ kia, Trình Tử Liên đã "ăn" mấy lần.
+Chỉ là không ai nghe thấy những lời đồn thổi quá mức quá trớn mà thôi.
 
-Với cái tuổi của Trình Tử Liên, cộng thêm vóc dáng đó... cô Liêu nhẩm tính ít nhất cũng phải ba lần.
+Dẫu vậy, cùng là phụ nữ với nhau, cô giáo Liêu vẫn thầm hoài nghi không biết chừng Trình Tử Liên đã sớm "nếm thử" chàng học trò tuấn tú này rồi cũng nên.
 
-Không đủ ba lần thì chắc chắn sẽ không thả cho Triệu Kim An đi.
+Đã "ăn" bao nhiêu lần thì không ai rõ, nhưng cô Liêu từng nghe kể mùa hè năm ngoái Triệu Kim An từng đến tận nhà riêng thăm Trình Tử Liên, ai mà biết được trong căn hộ hai phòng ngủ kín đáo ấy, Trình Tử Liên đã "thưởng thức" cậu học trò này mấy bận.
 
-Trình Tử Liên mới thấy hơi giận.
+Ở vào cái độ tuổi hồi xuân rực rỡ ấy, lại sở hữu thân hình nở nang, quyến rũ chết người kia... Cô Liêu đồ rằng ít nhất cũng phải ba lần.
 
-Triệu Kim An ngoài việc nhắn tin chúc mừng vào dịp lễ tết cho cô, thì đợt nghỉ đông quay về cũng không đến trường thăm cô lấy một lần.
+Không đủ ba lần thì dễ gì Trình Tử Liên chịu mở cửa cho Triệu Kim An rời đi.
 
-Biết hoàn cảnh của Triệu Kim An, Trình Tử Liên đã chuẩn bị sẵn bao lì xì rồi.
+Nghĩ đến đây, Trình Tử Liên trong lòng lại dấy lên đôi chút hờn dỗi, bực bội.
 
-Lần trước đưa lì xì hai ngàn tệ, cô đã ôm một cái rồi bảo cứ coi như là con trai mình, vậy mà Triệu Kim An nhất quyết không chịu đến.
+Triệu Kim An cái thằng nhóc vô tâm ấy, ngoại trừ những dịp lễ tết gửi cho cô vài dòng tin nhắn chúc mừng ngắn ngủn ra, thì đợt nghỉ đông vừa rồi về quê cũng tuyệt nhiên chẳng thèm bước chân tới trường thăm cô lấy một lần.
 
-Trình Tử Liên có lương, có tiền thưởng, lại có thêm tiền dạy thêm, hai ngàn tệ đối với cô thực sự không đáng là bao.
+Hiểu rõ hoàn cảnh gia đình khó khăn của anh, Trình Tử Liên thậm chí đã chuẩn bị sẵn một phong bao lì xì đỏ chót từ trước.
 
-Đoạn Thu Bình cũng có chút giận dỗi.
+Lần trước cô đã nhét cho anh phong bao hai ngàn tệ, ôm chặt anh vào lòng mà bảo rằng cứ coi cô như người mẹ thứ hai là được, vậy mà thằng nhóc cứng đầu ấy dứt khoát không chịu đến nhận.
 
-Nhưng bà lại chẳng biết trút giận vào ai.
+Trình Tử Liên có lương cứng ổn định, có tiền thưởng thi đua, lại có thêm thu nhập từ việc dạy thêm, hai ngàn tệ đối với cô thực sự chẳng đáng là bao.
 
-Biết Triệu Kim An nghỉ hè không về mà ở lại Quận Sa làm thuê, lại còn biết hắn bắt đầu làm thêm từ hồi năm nhất, Đoạn Thu Bình chắc chắn là thấy xót con trai.
+***
 
-Dù cho Triệu Kim An nghỉ đông có lái chiếc Audi về làng thì bà vẫn xót con.
+Đoạn Thu Bình cũng đang mang trong mình một nỗi bực bội, ấm ức.
 
-Bà đâu có biết chiếc Audi đó là do chính Triệu Kim An tự mua.
+Chỉ có điều bà không biết phải trút cơn giận này vào đâu.
 
-Bà lén lút gọi điện cho Vương Kim Như sau lưng Tống Siêu Văn, giọng điệu không được tốt cho lắm.
+Khi biết tin con trai nghỉ hè không về quê mà ở lại Quận Sa làm thuê kiếm sống, lại nghe ngóng được chuyện Triệu Kim An ngay từ năm nhất đại học đã phải cày cuốc làm thêm bên ngoài, Đoạn Thu Bình dĩ nhiên không khỏi xót xa cho khúc ruột của mình.
 
-Chuyện của kiếp trước không xảy ra, bọn họ ai cũng không biết.
+Cho dù đợt Tết vừa rồi Triệu Kim An có tự lái chiếc xe sang Audi bóng lộn về làng, thì tấm lòng người làm mẹ như bà vẫn không tránh khỏi cảm giác nhói lòng, thương con vất vả.
 
-Nhưng ở kiếp này, trước khi Triệu Kim An nhập học năm nhất, Đoạn Thu Bình đã về Triệu Kim An Gia thôn gửi năm ngàn tệ tiền học phí.
+Bà đâu thể nào ngờ được rằng chiếc xe Audi tiền tỷ ấy lại chính là tài sản do chính tay con trai mình mua được.
 
-Nhưng đối phương không nhận.
+Bà lén chồng là Tống Siêu Văn gọi điện thoại về quê cho cô em dâu Vương Kim Như, giọng điệu trong máy có phần gắt gỏng, trách móc.
 
-Vương Kim Như nói trong làng có tiền thưởng, Triệu Quốc Hoa lại chuyển ngược về ba ngàn tệ.
+Những chuyện cay đắng của kiếp trước chưa từng xảy ra ở kiếp này, nên chẳng một ai trong số họ hay biết.
 
-Thế là giờ mới có chuyện để nói.
+Thế nhưng ở kiếp này, trước ngày Triệu Kim An chuẩn bị nhập học năm nhất, Đoạn Thu Bình đã đích thân lặn lội về Triệu Gia Thôn mang theo 5.000 tệ tiền học phí đưa cho con.
 
-Không có tiền thì cứ nhận đi chứ, để Triệu Kim An đừng có từ năm nhất đã phải ra ngoài làm thêm như thế.
+Nhưng nhà bên đó nhất quyết không chịu nhận.
 
-Đoạn Thu Bình cũng không mắng chửi Vương Kim Như, chỉ là giọng điệu không tốt, có chút ý vị trút giận.
+Vương Kim Như khi ấy bảo rằng chính quyền thôn có quỹ khuyến học khen thưởng, rồi chú Triệu Quốc Hoa cũng gửi thêm 3.000 tệ về lo cho cháu.
 
-Chủ yếu nhất là tết vừa rồi Triệu Kim An dẫn một cô bạn gái như thế về nhà mà không nói với bà một tiếng, bà nội và thím lại chẳng thèm quản, Đoạn Thu Bình cảm thấy mình là người mẹ này...
+Giờ đây mọi chuyện lại bị đem ra xới xáo.
 
-Nhưng Vương Kim Như là ai chứ.
+Nếu nhà nghèo không có tiền thì cứ việc cầm lấy 5.000 tệ kia đi, để cho Triệu Kim An đỡ phải vừa bước chân vào giảng đường đại học đã phải đầu tắt mặt tối bươn chải kiếm sống bên ngoài như thế.
 
-Kiếp trước bà chính là người dám đối đầu trực diện với mẹ vợ của Triệu Kim An, bà chẳng bao giờ nuông chiều ai cả.
+Đoạn Thu Bình không dám mắng mỏ thẳng mặt Vương Kim Như, nhưng lời ăn tiếng nói thì hằn học, lộ rõ vẻ hờn mát, trút giận.
 
-Vương Kim Như liền nói, được thôi, Đoạn Thu Bình chị giỏi giang thế thì cứ tính từ lúc Kim An lên cấp hai đi, đã tốn bao nhiêu tiền bạc và công sức, rồi cả tiền học phí và sinh hoạt phí cấp ba nữa.
+Điều khiến bà canh cánh trong lòng nhất chính là dịp Tết vừa rồi, Triệu Kim An dẫn một cô bạn gái xinh đẹp, giàu có như thế về ra mắt cả làng mà tuyệt nhiên không thèm báo trước cho mẹ ruột lấy một lời, trong khi bà nội và thím dâu lại thản nhiên như không, khiến Đoạn Thu Bình cảm thấy tư cách làm mẹ của mình bị gạt phăng sang một bên...
 
-Còn nữa, tiền học phí và sinh hoạt phí ba năm đại học tới đây, có phải chị định bao trọn gói hết không?
+Thế nhưng Vương Kim Như là ai cơ chứ?
 
-Đoạn Thu Bình ấp úng nửa ngày, không dám ho he gì nữa.
+Kiếp trước bà từng một mình đứng ra đấu khẩu tay đôi, đè bẹp cả bà mẹ vợ ghê gớm của Triệu Kim An, thì đời nào bà chịu nhẫn nhịn để người khác bắt nạt?
 
-Cái miệng này của Vương Kim Như nào có chịu tha cho người, bà nói tiếp: "Chị cũng là người làm mẹ, đừng có tưởng cứ gửi tí tiền rồi mặc kệ mọi thứ khác là con trai có thể trưởng thành nên người được chắc?
+Vương Kim Như lập tức đốp chát lại ngay: "Được thôi, chị dâu Đoạn Thu Bình giỏi giang, bản lĩnh lắm cơ mà! Thế thì chị tính toán sòng phẳng từ hồi thằng Kim An bắt đầu học cấp hai cho đến hết cấp ba xem, nhà này đã phải tốn bao nhiêu tiền của, công sức chăm bẵm nó, tiền học phí sinh hoạt suốt bao nhiêu năm trời!"
 
-Mới gửi có năm ngàn bạc mà đã dám nổi cáu với tôi rồi!
+"Chưa hết đâu nhé, tiền học phí và sinh hoạt phí trong suốt ba năm đại học sắp tới của nó, liệu chị có dám đứng ra bao trọn gói toàn bộ từ A đến Z không hả?"
 
-Kim An làm thêm ở trường thì chị thấy xót!
+Đoạn Thu Bình ở đầu dây bên kia ấp a ấp úng suốt một hồi lâu, nghẹn họng không dám thốt thêm lời nào.
 
-Chúng tôi đúng là không có bản lĩnh.
+Cái miệng của Vương Kim Như xưa nay nổi tiếng đanh đá, đâu chịu buông tha dễ dàng, bà tiếp tục dội gáo nước lạnh: "Chị cũng là người mang nặng đẻ đau sinh ra con cái, chị tưởng cứ vứt ra vài đồng bạc lẻ rồi mặc kệ mọi sự đời là con trai chị tự khắc lớn khôn thành tài được đấy chắc?"
 
-Chị không muốn Kim An làm thêm chứ gì, được thôi, chị đi hỏi Tống Siêu Văn xem, coi ông ta có chịu bỏ ra tất cả số tiền từ trước đến giờ không, rồi cả tiền học phí sinh hoạt phí ba năm tới nữa!
+"Mới mang về được có 5.000 tệ còm cõi mà đã dám lên mặt trút giận lên đầu tôi à!"
 
-Xem Tống Siêu Văn có nỡ không!
+"Thấy thằng Kim An đi làm thêm ở trường thì chị mới bày đặt xót xa, thương hại!"
 
-Lúc Kim An học cấp ba thì ông ta chạy đâu mất tiêu rồi? Lên đại học một cái là đến gửi tiền học phí ngay.
+"Bọn tôi đây là phận nông dân thấp cổ bé họng, không có bản lĩnh làm ra tiền bạc."
 
-Đừng có mà tính toán quá chi li như thế!!!"
+"Nếu chị không muốn thằng Kim An phải chịu khổ đi làm thêm, thì tốt thôi, chị về mà hỏi thẳng cái ông Tống Siêu Văn nhà chị xem, xem ông ta có bằng lòng móc hầu bao thanh toán hết toàn bộ các khoản nợ tiền ăn học từ trước đến nay cho thằng bé không, rồi gánh luôn tiền học phí ba năm đại học tới nữa!"
 
-Cúp điện thoại xong, Vương Kim Như trông rất đắc ý.
+"Để xem Tống Siêu Văn có dám xót tiền mà nhả ra không nhé!"
 
-Thấy điệu bộ này của vợ, Triệu Quốc Hoa bèn hỏi một câu: "Chị dâu à?"
+"Cái hồi thằng Kim An còng lưng học cấp ba thì bóng dáng chị trốn tít ở xó nào? Đợi đến khi nó đỗ vào trường đại học danh giá rồi mới vác mặt mang tiền học phí đến làm màu làm mè."
 
-Vương Kim Như càng đắc ý hơn: "Tôi cứ không nói cho chị ta biết bây giờ Kim An có tiền đồ thế nào đấy."
+"Bàn tính khôn lỏi trong đầu chị đừng có gõ to quá người ta cười cho thối mũi đấy nhé!!!"
 
-Triệu Quốc Hoa cười hắc một tiếng, thầm nghĩ bà thì biết cái gì, thế này mà đã gọi là có tiền đồ sao? Đợi đến lúc bà biết Kim An là ông chủ lớn của công ty, không biết bà sẽ thành ra cái vẻ gì nữa.
+Nói xong một tràng sướng miệng, Vương Kim Như thẳng tay cúp máy cái "rụp", vẻ mặt vô cùng đắc thắng và hể hả.
 
-Cả cái làng Triệu Kim An Gia này sẽ "gà bay chó chạy", đến con chuột dưới cống cũng sẽ biết cho mà xem.
+Nhìn cái điệu bộ vênh váo của vợ, Triệu Quốc Hoa đang ngồi bên cạnh khẽ thở dài, cất giọng cằn nhằn: "Lại là chị dâu gọi đấy à?"
 
-"Kim An gửi chỗ tôi ba mươi ngàn tệ đấy."
+Vương Kim Như càng thêm đắc ý: "Tôi cứ nhất quyết giấu tiệt, không thèm nói cho bà ta biết thằng Kim An nhà này bây giờ giỏi giang và thành đạt đến mức nào đâu."
 
-Vương Kim Như cười nói: "Đợi ngày nào chị dâu về, tôi sẽ nói cho chị ta biết để tức chết chị ta luôn, Kim An kiếm được tiền là giao cho tôi quản lý chứ không phải người mẹ như chị ta.
+Triệu Quốc Hoa bật cười nhạt, thầm nghĩ bà thì biết cái quái gì mà khoe khoang, thế này mà đã gọi là thành đạt ư? Đợi đến ngày bà biết được thằng cháu đích tôn của dòng họ Triệu đang là tổng giám đốc nắm trong tay cả một tập đoàn lớn, không biết cái miệng của bà sẽ còn nổ tung trời đến mức độ nào nữa.
 
-Còn nữa, Tô Miền, cô bé đó còn tặng Thiên Thiên một suất KFC, Tống Gia Nguyệt nhà chị ta có không?"
+Cả cái làng Triệu Gia Thôn này chắc chắn sẽ bị bà quậy cho gà bay chó sủa, đến cả lũ chuột dưới cống rãnh cũng phải thuộc lòng câu chuyện thành công của Triệu Kim An.
 
-Nói đến đây, Vương Kim Như càng thêm đắc thắng.
+"Thằng Kim An nó gửi tôi giữ hộ ba vạn tệ tiền mặt đấy nhé."
 
-"Được rồi."
+Vương Kim Như cười tít mắt khoe: "Đợi hôm nào chị dâu về quê, tôi sẽ đem chuyện này ra kể cho bà ta tức nổ đom đóm mắt chơi. Thằng Kim An kiếm được tiền là đem về đưa cho thím dâu cất giữ, chứ tuyệt đối không thèm đưa cho cái người mang danh mẹ ruột như bà ta đâu nhé."
 
-Triệu Quốc Hoa quá hiểu những người phụ nữ này, không thể nào nói lý lẽ với họ được, ông bảo: "Bà cứ suốt ngày chọc tức chị dâu làm gì?"
+"Chưa hết đâu, con bé Tô Miến xinh đẹp kia hôm nọ còn gửi tặng bé Thiên Thiên nhà mình cả một phần gà rán KFC thơm phức, thử hỏi cái con bé Tống Gia Nguyệt nhà bà ta có được miếng nào không?"
 
-"Là tôi chọc tức chị ta chắc!?"
+Càng nói, Vương Kim Như lại càng tỏ ra đắc ý, vênh vang tột độ.
 
-"Là do bọn họ tính toán quá kỹ thì có!"
+"Thôi đi bà ơi."
 
-Triệu Quốc Hoa biết mình lại lỡ lời, đáng lẽ câu này không nên nói ra.
+Triệu Quốc Hoa quá hiểu tính nết của cánh đàn bà, một khi đã hơn thua thì chẳng bao giờ chịu lắng nghe lý lẽ, ông bèn khuyên can: "Bà cứ suốt ngày tìm cách chọc tức chị dâu làm cái gì cơ chứ?"
 
-Vương Kim Như có chút phẫn nộ: "Kim An từ cấp hai đến cấp ba, Tống Siêu Văn còn chẳng thấy mặt mũi đâu, giờ nuôi lớn rồi, đỗ đại học xịn rồi thì lại đem tiền học phí đến.
+"Là tôi cố tình chọc tức bà ta đấy chắc!?"
 
-Bọn họ tính toán cái gì? Đừng tưởng tôi không biết."
+"Là do mẹ con nhà bọn họ tính toán quá khôn lỏi đấy chứ!"
 
-Triệu Quốc Hoa ôn tồn nói: "Chị dâu vẫn hay dúi tiền cho Kim An mà, lễ tết sinh nhật cũng mua quần áo cho nó."
+Triệu Quốc Hoa tự biết mình đã lỡ lời, đáng lẽ không nên chen ngang vào câu chuyện của phụ nữ làm gì.
 
-Vương Kim Như hừ một tiếng: "Chị ta là mẹ, chẳng lẽ không nên làm thế sao?"
+Vương Kim Như vẫn chưa nguôi cơn bức xúc: "Thằng Kim An từ lúc học cấp hai lên cấp ba, cái bóng của ông Tống Siêu Văn chưa từng xuất hiện lấy nửa lần. Bây giờ thấy người ta nuôi nấng thằng bé khôn lớn, đỗ đạt vào trường đại học hàng đầu rồi thì mới nhảy vào đòi mang tiền học phí đến nhận công."
 
-"Phải phải phải, bà nói gì cũng đúng hết."
+"Trong bụng bọn họ mưu tính những trò bẩn thỉu gì, đừng tưởng tôi mù mà không nhìn ra nhé."
 
-Triệu Quốc Hoa quyết định không tiếp lời nữa.
+Triệu Quốc Hoa đành lựa lời dỗ dành: "Dẫu sao thì chị dâu thỉnh thoảng vẫn lén giúi cho thằng Kim An vài đồng bạc lẻ, tết nhất hay sinh nhật cũng mua cho nó bộ quần áo mới đấy thôi."
 
-Vương Kim Như vẫn lầm bầm: "Chúng ta thắt lưng buộc bụng bao nhiêu năm nay, mấy năm đó bà nội đến quả trứng gà cũng đem đi bán lấy tiền, tôi muốn mua cho Thiên Thiên cái váy đẹp còn không nỡ... Ông ta Tống Siêu Văn lại muốn hớt tay trên, trên đời này làm gì có chuyện tốt như thế..."
+Vương Kim Như hừ lạnh một tiếng: "Bà ta là mẹ đẻ sinh ra nó, làm mấy việc cỏn con ấy chẳng phải là bổn phận đương nhiên hay sao?"
 
-Triệu Quốc Hoa bắt đầu ngáy khò khò, giả vờ ngủ say.
+"Phải rồi, phải rồi, bà nói cái gì cũng đúng cả."
 
-Sâm Thành.
+Triệu Quốc Hoa quyết định ngậm chặt miệng không tranh cãi thêm, quay lưng kéo chăn vờ ngáy khò khò đi ngủ.
 
-Đang là mùa hè, các quán ăn đêm làm ăn rất khấm khá.
+Vương Kim Như vẫn chưa chịu dừng lại, lẩm bẩm một mình: "Bao nhiêu năm qua cả nhà này phải thắt lưng buộc bụng chắt bóp từng đồng, bà nội nó mấy năm liền đến quả trứng gà nhà đẻ cũng không dám ăn mà phải đem ra chợ bán lấy tiền gom góp cho nó ăn học, tôi đến mua cái váy mới cho con bé Thiên Thiên còn tiếc đứt ruột... Thế mà cái lão Tống Siêu Văn kia lại muốn nhảy vào ăn sẵn hớt tay trên, trên đời này làm quái gì có chuyện ngon ăn như thế..."
 
-Đoạn Thu Bình ra phụ việc, Tống Gia Nguyệt bốn tuổi ngồi trên chiếc ghế nhỏ, tay cầm một xiên thịt.
+***
 
-"Uyển Hòa tan làm lại đi đâu chơi rồi?"
+Tại thành phố Sâm Châu.
 
-Tống Siêu Văn ngoảnh lại nhìn con gái nhỏ, nói: "Bọn trẻ bây giờ tan làm chắc là đi chơi với đồng nghiệp rồi."
+Mùa hè đến, các quán nướng vỉa hè về đêm làm ăn vô cùng phát đạt.
 
-"Biết rõ nhà mình bận rộn mà tan làm cũng không về sớm một chút để trông Gia Nguyệt."
+Đoạn Thu Bình dắt theo cô con gái nhỏ Tống Gia Nguyệt mới bốn tuổi ra quán phụ giúp chồng. Cô bé ngoan ngoãn ngồi trên chiếc ghế nhựa nhỏ, hai tay cầm que thịt nướng gặm ngon lành.
 
-"Cái tuổi của chúng nó ai mà chẳng thế."
+"Con bé Uyển Hòa tan ca lại chạy đi đâu chơi bời rồi thế ông?"
 
-Tống Siêu Văn cười hì hì nói.
+Tống Siêu Văn ngoái đầu nhìn cô con gái út một cái, cười xòa đáp: "Tụi trẻ con vừa tan sở chắc lại rủ rê đồng nghiệp đi chơi phố phường thôi mà."
+
+"Biết rõ bố mẹ bận rộn buôn bán tối mắt tối mũi thế này mà tan ca cũng không chịu về sớm đỡ đần trông em giúp một tay."
+
+"Thanh niên ở độ tuổi của chúng nó đứa nào mà chẳng ham chơi như thế." Tống Siêu Văn cười xòa giảng hòa.
 
 "..."
 
-Đoạn Thu Bình định nói gì đó nhưng lại nuốt ngược vào trong.
+Đoạn Thu Bình mấp máy môi toan nói thêm điều gì đó, nhưng rồi lại nuốt ngược những lời bực dọc vào trong.
 
-Nhìn Tống Gia Nguyệt đang ngó nghiêng xung quanh, bà thầm nghĩ nếu là Triệu Kim An thì chắc chắn sẽ không như vậy, hắn sẽ về sớm để trông em gái cho hẳn hoi.
+Nhìn con bé Tống Gia Nguyệt đang ngơ ngác ngó nghiêng xung quanh, trong lòng bà bỗng dâng lên niềm chua xót; nếu đổi lại là Triệu Kim An, chắc chắn thằng bé sẽ không bao giờ ham chơi vô tâm như thế, nó nhất định sẽ chủ động về sớm giúp mẹ chăm sóc, bế bồng em gái chu đáo.
 
-Bà lại nhìn sang Tống Siêu Văn đang nướng thịt, chợt nhớ tới lời Vương Kim Như nói, Tống Siêu Văn rất tiết kiệm, lúc đó Tống Uyển Hòa cũng đang học trung cấp, bảo ông ta nuôi Triệu Kim An học cấp hai cấp ba...
+Bà lại đưa mắt nhìn người chồng đang cặm cụi nướng thịt bên bếp than hồng, bên tai văng vẳng những lời đay nghiến sắc như dao của Vương Kim Như ban nãy... Tống Siêu Văn vốn dĩ là người đàn ông rất biết tằn tiện chi tiêu, thời điểm đó con gái lớn Tống Uyển Hòa cũng đang theo học trường trung cấp nghề, bảo ông ta phải móc tiền túi ra nuôi nấng con riêng của vợ ăn học suốt từ cấp hai lên cấp ba...
 
-Sau này lại có thêm Tống Gia Nguyệt... chẳng có người đàn ông nào lại đi nuôi con người khác trước cả.
+Rồi sau đó lại sinh thêm bé Tống Gia Nguyệt... Trên cõi đời này làm gì có người đàn ông nào chịu hy sinh tiền của để nuôi nấng con của kẻ khác trước con ruột của mình cơ chứ.
 
-"Tôi đưa Gia Nguyệt về trước đây."
+"Tôi dắt con bé Gia Nguyệt về nhà trước đây."
 
-Đoạn Thu Bình đột nhiên mất hết hứng thú, dắt tay Tống Gia Nguyệt đi về nhà.
+Đoạn Thu Bình bỗng nhiên mất hết hứng thú làm việc, đưa tay nắm lấy bàn tay nhỏ bé của Tống Gia Nguyệt dắt đi.
 
-Tống Siêu Văn: "..."
+Tống Siêu Văn ngơ ngác nhìn theo: "..."
 
-Nhìn đồng hồ mới có mười rưỡi, mới dọn hàng ra được một tiếng đồng hồ.
+Ông liếc nhìn đồng hồ, mới có mười giờ rưỡi đêm, quán nướng mới dọn hàng ra được chưa đầy một tiếng đồng hồ.
 
-Trên đường về nhà, Đoạn Thu Bình không nói lời nào, một lúc lâu sau bà mới cúi đầu hỏi: "Gia Nguyệt, con có biết con còn có một người anh trai không?"
+Trên con đường đêm vắng vẻ dẫn về nhà, Đoạn Thu Bình lặng lẽ bước đi không nói nửa lời. Mãi một lúc sau, bà mới khẽ cúi đầu hỏi con gái nhỏ: "Gia Nguyệt này, con có biết là con còn có một người anh trai nữa không?"
 
-Tống Gia Nguyệt ngẩng đầu lên, vẻ mặt ngơ ngác.
+Tống Gia Nguyệt ngước đôi mắt tròn xoe ngơ ngác nhìn mẹ, khuôn mặt ngây thơ chẳng hiểu gì.
 
-Đoạn Thu Bình suy nghĩ một lát rồi đột nhiên cầm điện thoại lên gọi cho Triệu Kim An.
+Đoạn Thu Bình ngẫm nghĩ một hồi, rồi bất giác rút chiếc điện thoại di động ra bấm số gọi cho Triệu Kim An.
 
-Điện thoại nhanh chóng được kết nối.
+Chuông reo vài hồi thì đầu dây bên kia kết nối.
 
-"Kim An, con làm thêm ở ngoài có vất vả không?"
+"Kim An à, con ở ngoài đó vừa học vừa làm thêm có vất vả lắm không con?"
 
-"Không vất vả ạ."
+"Dạ không vất vả đâu mẹ."
 
-Đoạn Thu Bình vốn dĩ cảm xúc đã không ổn định, một tay dắt Tống Gia Nguyệt, một tay áp điện thoại vào tai.
+Tâm trạng Đoạn Thu Bình vốn dĩ đang rất rối bời và nhạy cảm, một tay dắt con gái nhỏ, một tay áp chặt điện thoại vào tai.
 
-Nghe con trai nói không vất vả, trong lòng bà càng thêm khó chịu.
+Nghe thấy giọng nói trầm ấm của con trai bảo "không vất vả", nơi lồng ngực bà lại càng thêm thắt lại, đau nhói khôn nguôi.
 
-Triệu Kim An quan tâm hỏi một câu: "Đầu dây bên kia hơi ồn, mẹ ra phụ hàng à?"
+Triệu Kim An ở đầu dây bên kia cất lời hỏi han: "Mẹ ơi, con nghe thấy tiếng xe cộ ồn ào quá, mẹ vừa ra quán nướng phụ giúp dọn hàng ạ?"
 
-"Ừ."
+"Ừ..."
 
-Đoạn Thu Bình cúi đầu nhìn Tống Gia Nguyệt, thử nói: "Gia Nguyệt cũng ở đây, Kim An con có muốn... Gia Nguyệt, gọi anh đi con."
+Đoạn Thu Bình cúi nhìn con bé Tống Gia Nguyệt đang ngước nhìn mình, ngập ngừng gợi ý: "Gia Nguyệt cũng đang ở đây này con... Kim An, con có muốn... để em Gia Nguyệt gọi một tiếng anh trai không con?"
 
-"Thôi ạ."
+"Thôi mẹ ạ."
 
-Triệu Kim An bình thản nói: "Mẹ cũng về nhà nghỉ ngơi sớm đi, cũng muộn rồi."
+Giọng Triệu Kim An vang lên vô cùng bình thản và nhẹ nhàng: "Trời khuya rồi, mẹ cũng dắt em về nhà nghỉ ngơi sớm đi nhé."
 
-Nói xong, điện thoại liền bị ngắt.
+Nói dứt lời, cuộc gọi liền ngắt kết nối.
 
-Nhìn màn hình điện thoại đã tắt ngóm, Đoạn Thu Bình thấy trong lòng đau xót khôn nguôi, vì có Tống Gia Nguyệt ở đó nên bà phải cố kìm nén không để nước mắt trào ra.
+Nhìn màn hình điện thoại phát ra những tiếng "tút... tút... tút" vô cảm, cõi lòng Đoạn Thu Bình quặn thắt lại trong nỗi xót xa và tủi hổ vô bờ. Vì có sự hiện diện của con bé Gia Nguyệt bên cạnh, bà đành cắn chặt môi cố kìm nén những giọt nước mắt không cho trào ra ngoài.
 
-Nghĩ đến Tống Uyển Hòa cái gì cũng không quản, chỉ biết lo cho bản thân mình.
+Nghĩ đến cảnh con bé Tống Uyển Hòa vô tâm vô tư chẳng đoái hoài gì đến gia đình, chỉ biết sống cho riêng mình.
 
-Mà con trai bà, mới năm nhất đã phải làm thêm ở trường, vậy mà còn bảo không vất vả.
+Trong khi đứa con trai ruột thịt của bà, ngay từ năm nhất đại học đã phải tự mình bươn chải kiếm sống nơi xứ người, vậy mà vẫn luôn miệng nói rằng "không vất vả".
 
-Đoạn Thu Bình vẫn là phải lén tránh mặt Tống Gia Nguyệt để lau đi vệt nước nơi khóe mắt.
+Đoạn Thu Bình vội vàng quay mặt đi, lén đưa tay áo lên lau vội giọt nước mắt lăn dài trên gò má.

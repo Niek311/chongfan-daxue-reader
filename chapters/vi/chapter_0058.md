@@ -1,201 +1,253 @@
-# Chương 58: Triệu Kim An Là Bạn Trai Tôi!
+# Chương 58: Triệu Kim An là bạn trai tớ!
 
-Trung Nam, phòng 406.
+> **Tiêu đề gốc**: 第58章 赵今安是我男朋友！
 
-Chẳng biết vì sao, hôm nay Từ Mạn Mạn lại lục lọi tủ quần áo một hồi, còn trang điểm nhẹ.
+Đại học Trung Nam, phòng ký túc xá 406.
 
-Nàng và Trần Trạch đã đến mức này rồi, vốn chẳng cần thiết phải cố ý làm vậy nữa.
+Chẳng hiểu vì lý do gì, Từ Mạn Mạn hôm nay lại đứng lục lọi tủ quần áo hồi lâu, rồi còn cẩn thận dặm lại một lớp phấn trang điểm nhẹ nhàng.
 
-Nhìn mình trong gương, Từ Mạn Mạn tô thêm chút son bóng, Diêu Tân liền lao tới ôm lấy nàng rồi reo lên: "Oa, Mạn Mạn, hôm nay cậu xinh quá đi."
+Giữa cô và Trần Trạch vốn dĩ đã quá quen thuộc, chẳng còn cần thiết phải cầu kỳ chau chuốt đến mức này.
 
-Thẩm Tử Ngôn cũng đang trang điểm, nàng liếc nhìn Từ Mạn Mạn, trêu chọc một câu: "Mạn Mạn, cậu với Trần Trạch nhìn nhau mãi mà chưa chán à?"
+Ngắm nhìn bóng hình mình phản chiếu trong gương, Từ Mạn Mạn khẽ thoa thêm chút son bóng lên môi. Diêu Tân thấy vậy liền nhào tới ôm chầm lấy cô ríu rít:
 
-Dì của Mộc Dao làm về mỹ phẩm, nên hũ lớn chai nhỏ của nàng là nhiều nhất.
+— Oa, Mạn Mạn ơi hôm nay cậu xinh lung linh luôn á!
 
-Ban đầu nàng không muốn đi, chỉ vì nể mặt Từ Mạn Mạn nên mới đồng ý tham gia buổi liên nghị này.
+Thẩm Tử Ngôn cũng đang ngồi trước bàn trang điểm, cô liếc nhìn Từ Mạn Mạn rồi buông một câu đùa vui:
 
-Cho đến khi từ miệng Diêu Tân thốt ra ba chữ "Triệu Kim An".
+— Mạn Mạn à, cậu với Trần Trạch ngày nào cũng dính lấy nhau, chẳng lẽ ngắm mãi mà vẫn chưa thấy chán à?
 
-Mộc Dao bỗng nhiên quay phắt người lại: "Diêu Tân, cậu nói ai cơ!?"
+Có người dì ruột làm trong ngành mỹ phẩm nên Mộc Dao là người sở hữu nhiều chai chai lọ lọ dưỡng da, trang điểm nhất phòng.
 
-Thấy vẻ mặt của Mộc Dao, ba cô gái kia ngẩn ngơ cả người.
+Ban đầu cô nàng vốn chẳng mấy mặn mà với buổi hẹn này, chỉ vì nể mặt Từ Mạn Mạn nên mới miễn cưỡng nhận lời tham gia buổi tiệc giao lưu giữa hai phòng ký túc xá.
 
-Cậu bị làm sao vậy? Phản ứng kiểu gì thế này?
+Cho đến khi cái tên “Triệu Kim An” thốt ra từ khóe môi của Diêu Tân.
 
-Mộc Dao hỏi Diêu Tân: "Làm sao các cậu quen biết Triệu Kim An? Có phải Triệu Kim An của Học viện Thương mại thuộc Sư Đại không!?"
+Mộc Dao thoắt cái quay phắt người lại, giọng nói đanh lên:
 
-Diêu Tân ngơ ngác gật đầu, bảo là quen biết vào hôm kết thúc quân sự.
+— Diêu Tân, cậu vừa nhắc đến ai cơ?!
 
-Vành mắt Mộc Dao lập tức đỏ hoe, nàng nhìn ba người bạn cùng phòng, cuối cùng nhìn về phía Thẩm Tử Ngôn và Từ Mạn Mạn, đột nhiên gào lên một cách vô lý: "Triệu Kim An là bạn trai tôi!!"
+Thấy phản ứng dữ dội bất thường của Mộc Dao, ba cô gái còn lại trong phòng đưa mắt nhìn nhau đầy ngơ ngác.
 
-Cả ký túc xá rơi vào im lặng!
+Rốt cuộc là có chuyện gì mà cậu phải làm quá lên như thế?
 
-Từ Mạn Mạn vô thức siết chặt thỏi son bóng, nhìn Mộc Dao, đôi bàn tay lại giấu ra sau lưng.
+Mộc Dao dồn dập gặng hỏi Diêu Tân:
 
-Thẩm Tử Ngôn nhìn sang Diêu Tân, trước đó không lâu Diêu Tân mới bảo "Mộc Dao và Triệu Kim An không xứng đôi", bọn họ chỉ biết Mộc Dao và bạn trai cãi nhau.
+— Sao các cậu lại quen biết Triệu Kim An? Có phải là Triệu Kim An bên Học viện Thương mại Đại học Sư phạm không?!
 
-Hơn nữa còn cãi rất dữ dội, đến mức chặn số nhau.
+Diêu Tân ngơ ngác gật đầu, đáp rằng quen biết nhau vào đúng cái hôm vừa kết thúc đợt huấn luyện quân sự.
 
-Nhưng cậu gào với bọn tôi làm cái gì?
+Vành mắt Mộc Dao lập tức đỏ hoe. Cô nàng đảo mắt nhìn lướt qua ba người bạn cùng phòng, cuối cùng dừng lại, dán chặt ánh nhìn vào Thẩm Tử Ngôn và Từ Mạn Mạn, bất thình lình gào thét lên một cách vô cớ:
 
-"Các cậu, các cậu sao lại có thể như vậy?"
+— Triệu Kim An là bạn trai tớ mà!!
 
-Mộc Dao cũng cảm thấy tủi thân lắm chứ, rốt cuộc mình đã làm sai chuyện gì mà Triệu Kim An lại chặn số mình tuyệt tình đến thế.
+Cả căn phòng ký túc xá chìm vào một khoảng lặng chết chóc!
 
-Từ Mạn Mạn đã có bạn trai, nên Mộc Dao cứ chằm chằm nhìn vào Thẩm Tử Ngôn.
+Từ Mạn Mạn bất giác siết chặt thỏi son bóng trong lòng bàn tay, ngước nhìn Mộc Dao rồi lặng lẽ giấu tay ra sau lưng.
 
-Diêu Tân thì bị nàng phớt lờ.
+Thẩm Tử Ngôn đưa mắt nhìn sang Diêu Tân. Cách đây không lâu, chính Diêu Tân vừa mới quả quyết bảo rằng “Mộc Dao và Triệu Kim An không hợp nhau”. Cả phòng bọn họ trước giờ chỉ biết Mộc Dao đang cãi nhau to với bạn trai.
 
-Bị Mộc Dao nhìn chằm chằm như vậy, Thẩm Tử Ngôn không hiểu sao lại thấy chột dạ trong thoáng chốc, nàng thả lỏng tâm thái nói: "Bọn tôi mới gặp nhau có một lần, hôm đó cậu về nhà dì rồi."
+Lại còn là trận cãi vã nảy lửa đến mức chặn số, xóa liên lạc của nhau nữa chứ.
+
+Chỉ là... cớ sao cậu lại trút giận, gào thét vào mặt chúng tớ?
+
+— Các... các cậu sao lại đối xử với tớ như thế chứ?
+
+Mộc Dao cảm thấy tủi thân vô cùng. Rốt cuộc mình đã làm sai chuyện gì mà Triệu Kim An lại tuyệt tình, nhẫn tâm chặn số liên lạc của mình như thế?
+
+Biết Từ Mạn Mạn đã có bạn trai đàng hoàng, ánh mắt Mộc Dao bèn chuyển hướng, chằm chằm ghim thẳng vào Thẩm Tử Ngôn.
+
+Diêu Tân hoàn toàn bị gạt ra ngoài rìa.
+
+Bị Mộc Dao nhìn trừng trừng bằng ánh mắt ấy, Thẩm Tử Ngôn bỗng dâng lên một thoáng chột dạ không rõ nguyên do. Cô hít sâu một hơi, lấy lại vẻ thản nhiên rồi phân bua:
+
+— Bọn tớ mới chỉ gặp mặt cậu ấy đúng một lần thôi, hôm đó cậu vừa vặn về nhà dì ruột chơi cơ mà.
 
 Thẩm Tử Ngôn đã nói dối.
 
-Diêu Tân tiếp lời: "Dao Dao, bọn tớ không biết Triệu Kim An là bạn trai cậu, không hề cố ý giấu cậu đâu, tại cậu cứ thích sang phòng 411 tìm Du Phỉ chơi đấy chứ."
+Diêu Tân cũng vội vã đỡ lời:
 
-Bầu không khí trong phòng dịu lại.
+— Dao Dao à, tụi này đâu có biết Triệu Kim An là bạn trai cậu đâu, bọn tớ đâu cố ý giấu giếm cậu làm gì. Tại dạo này cậu cứ thích chạy sang phòng 411 tìm Du Phi chơi miết đấy chứ.
 
-Mộc Dao bắt đầu trang điểm, lại lục tủ tìm quần áo, miệng thì giục giã: "Các cậu chờ tớ một lát."
+Bầu không khí căng thẳng trong phòng bấy giờ mới dần dần dịu bớt.
 
-Từ Mạn Mạn gửi một tin nhắn cho Trần Trạch.
+Mộc Dao vội vàng ngồi vào bàn dặm lại phấn trang điểm, rồi hấp tấp chạy đến tủ quần áo chọn đồ, miệng rối rít giục:
 
-[Bạn trai của Mộc Dao là Triệu Kim An.]
+— Các cậu đợi tớ một chút nhé!
 
-"Cái đệt! Kim An có bạn gái!!!"
+Ở một góc phòng, Từ Mạn Mạn lặng lẽ rút điện thoại ra, gửi cho Trần Trạch một dòng tin nhắn:
 
-Nhận được tin nhắn của Trần Trạch, Lưu Sấm Phong ngây người ra: "Lão Cốc, bạn gái của Kim An là Mộc Dao đấy!"
+【Bạn trai của Mộc Dao chính là Triệu Kim An.】
 
-Cốc Siêu Thừa càng sững sờ hơn, vội ghé mắt sang xem tin nhắn.
+...
 
-Trong bốn cô gái ở phòng 406, Cốc Siêu Thừa thích nhất là Mộc Dao, Lưu Sấm Phong giọng chua loét: "Tôi bảo sao Kim An cứ hững hờ với Lý Lộ và Đường Hiểu Tình, hóa ra bạn gái lại là đại mỹ nhân như Mộc Dao."
+— Đệt mợ! Kim An có bạn gái rồi chúng mày ơi!!!
 
-"Không được, tôi phải gọi điện hỏi cho ra lẽ, hắn giấu kỹ quá."
+Vừa nhận được tin nhắn chuyển tiếp từ Trần Trạch, Lưu Sùng Phong tròn mắt há hốc mồm kinh ngạc:
 
-Vừa nói, Lưu Sấm Phong vừa gọi điện cho Triệu Kim An.
+— Lão Cốc ơi, bạn gái của Kim An chính là Mộc Dao đấy!
 
-Ba phút sau, năm chữ "Bọn tôi chia tay rồi" liền truyền đi khắp nơi.
+Cốc Siêu Thừa nghe xong cũng đờ đẫn cả người, vội nghé sát đầu vào màn hình xem tin nhắn.
 
-Ngoại trừ Mộc Dao đang bận trang điểm, Từ Mạn Mạn nhìn tin nhắn Trần Trạch gửi tới, thực ra bọn họ đã thấy lạ từ lâu, đôi trẻ này cãi nhau gì mà lâu quá vậy?
+Trong số bốn cô gái của phòng 406, người mà Cốc Siêu Thừa thầm thương trộm nhớ nhất chính là Mộc Dao. Giọng điệu của Lưu Sùng Phong lúc này chua loét như vừa nuốt phải chanh:
 
-Hồi còn quân sự, bốn cô gái nằm trên giường từng tán dẫu chuyện này.
+— Thảo nào mà thằng Kim An cứ lạnh lùng, ngó lơ Lý Lộ với Đường Hiểu Tình, hóa ra người yêu của nó lại là đại mỹ nhân tầm cỡ như Mộc Dao. Không được rồi, tao phải gọi điện tra khảo thằng này một trận mới được, giấu giếm kỹ như mèo giấu cứt ấy!
 
-Từ Mạn Mạn nói nhà Trần Trạch chỉ làm ăn nhỏ, cũng không giàu lắm, chẳng có gì đáng ngưỡng mộ.
+Dứt lời, Lưu Sùng Phong liền bấm số gọi ngay cho Triệu Kim An.
 
-Diêu Tân liền hỏi Mộc Dao.
+Ba phút sau, năm chữ rành rọt “Bọn tôi chia tay rồi” đã nhanh chóng lan truyền khắp nơi.
 
-Mộc Dao không thích người khác hỏi vấn đề này, nàng nhìn giường của Từ Mạn Mạn rồi ậm ừ: "Nhà tớ cũng chỉ làm ăn nhỏ thôi, không có gì để nói cả."
+Ngoại trừ Mộc Dao vẫn đang mải mê đứng trước gương tô son điểm phấn, Từ Mạn Mạn nhìn chằm chằm vào tin nhắn Trần Trạch vừa gửi tới. Thật ra đám con gái bọn họ đã thấy kỳ lạ từ lâu rồi, đôi lứa giận hờn vu vơ mà có thể chiến tranh lạnh kéo dài đến tận ngần ấy thời gian sao?
 
-Bây giờ.
+Trong đợt huấn luyện quân sự, bốn cô gái từng nằm trên giường tâm sự tỉ tê thâu đêm suốt sáng.
 
-Diêu Tân cười hì hì trêu: "Dao Dao, cậu còn bảo nhà Triệu Kim An chỉ làm ăn nhỏ? Chị họ hắn lái hẳn xe Land Rover đấy nhé, nhà ai làm ăn nhỏ mà mua nổi Land Rover?"
+Từ Mạn Mạn từng khiêm tốn bảo rằng nhà Trần Trạch cũng chỉ buôn bán kinh doanh nhỏ lẻ, chẳng phải đại gia giàu có gì cho cam, không có gì đáng để ghen tị ngưỡng mộ.
 
-Mộc Dao hơi ngẩn người, Land Rover gì cơ?
+Diêu Tân khi ấy liền quay sang gặng hỏi Mộc Dao.
 
-Chị họ, chị họ nào, sao mình lại không biết?
+Mộc Dao vốn rất ghét người khác đào sâu vào hoàn cảnh gia đình mình, cô nàng liếc nhìn sang giường của Từ Mạn Mạn rồi ậm ừ qua quýt:
 
-Diêu Tân giả vờ thở dài thườn thượt: "Chậc, bạn trai các cậu ai nấy đều là phú nhị đại, mà sao ai cũng khiêm tốn thế không biết."
+— Nhà tớ cũng chỉ làm ăn buôn bán nhỏ thôi, chẳng có gì đáng để kể đâu.
 
-Thẩm Tử Ngôn liếc nhìn Mộc Dao, vừa lục tủ quần áo vừa thản nhiên nói: "Land Rover Range Rover tùy cấu hình, giá phải từ một triệu rưỡi trở lên, phụ nữ lái loại xe này hiếm lắm."
+Còn lúc này đây.
 
-Chỉ có Từ Mạn Mạn là vẫn luôn nhìn chằm chằm Mộc Dao.
+Diêu Tân cười hì hì trêu chọc:
 
-Mộc Dao vẫn đang thẫn thờ.
+— Dao Dao này, hôm trước cậu còn bảo nhà Triệu Kim An chỉ làm ăn nhỏ thôi á? Chị họ cậu ấy lái hẳn con xe Range Rover bạc tỷ đấy nhé! Nhà làm ăn nhỏ nào mà mua nổi chiếc xe sang chảnh cỡ đó cơ chứ?
 
-Chiếc BMW của dì nàng còn chưa đến bốn trăm nghìn, nhà Triệu Kim An nàng cũng đã từng đến, chưa nghe nói hắn có chị họ nào cả, Đoạn Thu Bình tái giá nghe bảo cũng bình thường thôi.
+Mộc Dao thoáng ngẩn người ra. Xe Range Rover là xe gì?
 
-À, đúng rồi, có một người chị không cùng huyết thống.
+Chị họ... chị họ nào? Sao mình lại chưa từng nghe nói bao giờ nhỉ?
 
-Hình như họ Tống.
+Diêu Tân giả vờ thở dài thườn thượt:
 
-Chẳng phải chị ta đang bán thuốc ở một hiệu thuốc tại Sâm Châu sao?
+— Ai chà chà, bạn trai của các cậu người nào người nấy đều là phú nhị đại ngầm, mà ai cũng khiêm tốn giấu nghề thế không biết.
 
-Land Rover ở đâu ra, bán cả đời cũng không mua nổi!
+Thẩm Tử Ngôn liếc nhìn Mộc Dao một cái, vừa lật giở đống quần áo vừa cất giọng thản nhiên:
 
-Tất cả những chuyện này đều do Trương Tuệ và Mộc Nhân Cường kể lại, Mộc Dao đã ghi tạc vào lòng.
+— Xe Land Rover Range Rover thì còn tùy vào từng phiên bản và trang bị, nhưng giá thấp nhất cũng phải từ 1,5 triệu tệ trở lên. Phụ nữ mà cầm lái dòng xe hầm hố này quả thực vô cùng hiếm thấy.
 
-Bên kia, Triệu Kim An đang ngồi ở hàng ghế sau chiếc Audi, cúp điện thoại, hắn không nhớ ra Mộc Dao và Từ Mạn Mạn là bạn cùng phòng, hắn chỉ nhớ bạn cùng phòng của Mộc Dao có một người họ Vương.
+Chỉ có duy nhất Từ Mạn Mạn là vẫn im lặng, ánh mắt không rời khỏi Mộc Dao.
 
-Đơn Vĩ liếc nhìn gương chiếu hậu, vừa rồi hắn nghe thấy Triệu Kim An nói "Bọn tôi chia tay rồi".
+Mộc Dao vẫn đang chìm trong cơn ngơ ngác tột độ.
 
-Hèn chi...
+Chiếc BMW của dì ruột cô cũng chỉ chưa đầy 400.000 tệ. Nhà Triệu Kim An thì cô cũng đã từng ghé qua rồi, làm gì nghe nói có người chị họ nào giàu có nhường ấy? Người mẹ kế Đoàn Thu Bình sau khi tái giá nghe đâu cũng lấy một gia đình hết sức bình thường.
 
-Lúc gần đến nơi, Triệu Kim An phát hiện Lưu Sấm Phong và Cốc Siêu Thừa đang đứng bên lề đường, liền bảo: "Dừng xe."
+À, đúng rồi, hình như anh ấy có một người chị gái không cùng huyết thống...
 
-Đơn Vĩ định xuống mở cửa xe, nhưng Triệu Kim An bảo không cần.
+Hình như mang họ Tống.
 
-Thấy Triệu Kim An từ xa đi tới, Lưu Sấm Phong lao lên đấm một cái: "Cái đệt, Kim An, bạn gái ông là Mộc Dao à, mà này, hai người chia tay thật rồi sao?"
+Nhưng chẳng phải người đó chỉ là một nhân viên quèn đứng bán thuốc ở một hiệu thuốc nhỏ tận đất Sầm Châu hay sao?
 
-"Ông đành lòng à?"
+Đào đâu ra chiếc xe Range Rover bạc triệu chứ, có cày cuốc cả đời cũng chẳng mơ mua nổi một cái bánh xe!
 
-Đơn Vĩ lái xe bám theo ở khoảng cách bốn, năm mươi mét.
+Tất cả những điều này đều là do mẹ cô — bà Trương Tuệ và bố cô — ông Mộc Nhân Cường từng bàn tán trước mặt cô, và Mộc Dao đã ghi nhớ sâu sắc trong lòng.
 
-Cốc Siêu Thừa nhìn chằm chằm Triệu Kim An không nói gì, hắn không hiểu nổi Mộc Dao xinh đẹp như vậy, vì sao Triệu Kim An lại đòi chia tay.
+...
 
-Trần Trạch cũng suy nghĩ suốt dọc đường, hắn còn mang Mộc Dao và Từ Mạn Mạn ra so sánh, nhận thấy Mộc Dao thanh xuân linh động, rất hợp để yêu đương, trái lại Từ Mạn Mạn thiếu đi chút thú vị của những cô gái trẻ.
+Ở phía bên kia, Triệu Kim An đang ngồi ở hàng ghế sau của chiếc Audi, sau khi ngắt cuộc gọi, anh hoàn toàn không nhớ ra chuyện Mộc Dao và Từ Mạn Mạn lại ở chung một phòng ký túc xá. Trong ký ức kiếp trước của anh, bạn cùng phòng của Mộc Dao dường như có một người mang họ Vương cơ mà.
 
-Sau khi lên xe, Mộc Dao đã nóng lòng hỏi ngay: "Trần Trạch, Kim An có đi không?"
+Đơn Vĩ đưa mắt liếc nhìn gương chiếu hậu, ban nãy gã vừa nghe thấy ông chủ thốt lên câu “Bọn tôi chia tay rồi”.
 
-"Yên tâm, ba người bọn họ đang trên đường tới rồi."
+Hóa ra là vậy...
 
-Trần Trạch liếc gương chiếu hậu, thực sự không hiểu nổi, nhìn Mộc Dao sốt sắng thế kia, xinh đẹp như vậy mà cũng nỡ đòi chia tay.
+Khi xe gần đến nơi, Triệu Kim An thoáng thấy bóng dáng Lưu Sùng Phong và Cốc Siêu Thừa đang ngơ ngác đi bộ bên lề đường, liền cất tiếng:
 
-Mẹ nó, đẹp trai thì thực sự có thể muốn làm gì thì làm sao!
+— Dừng xe ở đây.
 
-Mười phút sau, Trần Trạch vừa xuống xe vừa gọi điện cho Lưu Sấm Phong, dẫn mọi người bước vào nhà hàng Hiên Tụ Đức. Đập vào mắt là từng hàng bể nước lớn, bên trong chứa đủ loại cá, tôm và cua.
+Đơn Vĩ lại định vòng ra mở cửa xe nhưng Triệu Kim An đã bảo không cần.
 
-Mộc Dao và Từ Mạn Mạn không có phản ứng gì, Diêu Tân thì khẽ hỏi: "Ở đây không đắt chứ?"
+Thấy Triệu Kim An từ đằng xa thong thả rảo bước đi tới, Lưu Sùng Phong liền lao tới đấm nhẹ vào vai anh một cú:
 
-"Trần Trạch, chẳng phải đã bảo là tìm một quán bình thường thôi sao?"
+— Đệch mợ, Kim An ơi là Kim An, bạn gái mày hóa ra là Mộc Dao à! Mà này, hai đứa mày chia tay thật rồi đấy à?
 
-Thẩm Tử Ngôn nói to, chẳng mấy bận tâm đến những khách hàng và phục vụ đang chọn hải sản xung quanh, nàng cảm thấy Trần Trạch hơi thiếu cân nhắc đến khả năng tài chính của những người khác rồi.
+— Mày nỡ lòng nào buông tay một đại mỹ nhân như thế hả?
 
-Những người nghe thấy vậy liền quay đầu nhìn mấy người trẻ tuổi trông như sinh viên.
+Đơn Vĩ lái chiếc Audi chầm chậm bám theo sau ở khoảng cách bốn, năm mươi mét.
 
-Trần Trạch vỗ ngực bảo để hắn trả tiền cũng không sao.
+Cốc Siêu Thừa chỉ lặng lẽ dán chặt ánh mắt vào Triệu Kim An mà không thốt nên lời. Cậu ta không tài nào hiểu nổi, một cô gái xinh đẹp rạng ngời như Mộc Dao, cớ sao Triệu Kim An lại có thể nhẫn tâm nói ra hai chữ chia tay dễ dàng đến thế.
 
-Kết quả là Mộc Dao và Diêu Tân đều đòi chia theo đầu người (AA), Mộc Dao còn bảo phần của Triệu Kim An để nàng trả. Thẩm Tử Ngôn suy nghĩ một chút rồi bảo bọn họ cứ vào phòng bao trước, nàng ở lại gọi món.
+Trần Trạch lái xe chở đám con gái đi trước, suốt dọc đường gã cũng không ngừng suy nghĩ về chuyện này. Gã còn thầm đặt Mộc Dao và Từ Mạn Mạn lên bàn cân so sánh, nhận thấy Mộc Dao mang nét thanh xuân tràn đầy sức sống, quả thực rất thích hợp để yêu đương hẹn hò; còn Từ Mạn Mạn thì lại quá đỗi đoan trang, chững chạc, thiếu đi chút gia vị nũng nịu, ngọt ngào của những cô gái mới lớn.
 
-Lúc chỉ còn lại Trần Trạch, Thẩm Tử Ngôn nói ngắn gọn dứt khoát: "Phần của mấy bạn nam thì ông trả, phần của Diêu Tân tôi sẽ trả, còn nếu chia đầu người thì cứ bảo là hết hơn ba trăm nghìn thôi."
+Vừa bước lên xe, Mộc Dao đã nóng lòng gặng hỏi:
 
-"..."
+— Trần Trạch, Kim An có đi không anh?
 
-Trần Trạch cầm thực đơn, há miệng định nói gì đó: "Hay là bà gọi món đi?"
+— Yên tâm đi, ba đứa bọn nó đang trên đường tới rồi.
 
-"Không sao, ông cứ tùy ý mà gọi."
+Trần Trạch liếc mắt nhìn gương chiếu hậu, trong lòng thực sự cảm thấy khó hiểu đến cùng cực. Nhìn cái bộ dạng cuống cuồng, sốt sắng của Mộc Dao kìa, một cô gái xinh đẹp nghiêng nước nghiêng thành như thế mà người ta vẫn nỡ lòng nói lời chia tay.
 
-Thẩm Tử Ngôn nói xong liền tiêu sái rời đi.
+Mẹ kiếp, đẹp trai thì thực sự có quyền muốn làm gì thì làm hay sao?!
 
-Phía bên kia, Triệu Kim An hai tay đút túi quần, dáng vẻ khá thong dong. Lưu Sấm Phong thì muốn đi nhanh một chút nhưng lại không biết đường, hắn vừa cúp điện thoại của Trần Trạch, bảo là bọn họ đã tới rồi.
+Mười phút sau, Trần Trạch vừa bước xuống xe vừa bấm số gọi cho Lưu Sùng Phong, dẫn cả đoàn người bước vào sảnh lớn của nhà hàng Hiên Tụ Đức. Đập vào mắt mọi người là từng hàng bể kính khổng lồ nuôi đầy các loại cá tôm, cua biển tươi sống đang bơi lội tung tăng.
 
-"Kim An, chúng ta không phải đi dạo phố đâu."
+Mộc Dao và Từ Mạn Mạn không có phản ứng gì đặc biệt, nhưng Diêu Tân thì khẽ kéo áo thì thào hỏi nhỏ:
 
-Triệu Kim An chỉ một hướng, bảo là ngay phía trước thôi, còn nói các ông bắt taxi cũng chỉ mất khoảng mười một, mười hai nghìn.
+— Ăn ở đây... liệu có đắt đỏ lắm không các cậu?
 
-Lưu Sấm Phong lầm bầm: "Thế thì lãng phí quá."
+— Trần Trạch này, chẳng phải lúc đầu đã bảo là tìm một quán ăn bình dân vừa túi tiền thôi hay sao?
 
-Triệu Kim An ngẩn ra một lúc rồi bảo: "Ông sau này đúng là kiểu người đạp xe đạp đi bar đấy."
+Thẩm Tử Ngôn cất giọng nói thẳng thừng, chẳng thèm bận tâm đến ánh mắt của những thực khách và nhân viên phục vụ đang đứng lựa hải sản xung quanh. Cô cảm thấy Trần Trạch làm như vậy là có phần thiếu tinh tế, không hề đoái hoài gì đến khả năng kinh tế của những người còn lại trong nhóm.
 
-Hiên Tụ Đức đèn đuốc sáng trưng, thấp thoáng thấy bóng người trong đại sảnh, tiếng chạm cốc rộn ràng, hơi thở trần gian nồng đậm.
+Nghe thấy lời cô nói, mấy vị khách gần đó đồng loạt ngoảnh đầu lại nhìn mấy cô cậu sinh viên trẻ tuổi.
 
-Nằm ngay cạnh sông Tương, nhà hàng có ba tầng, toàn bộ là cửa kính sát đất cỡ lớn.
+Trần Trạch vội vã vỗ ngực nhận hết về mình, bảo rằng bữa này cứ để gã đứng ra thanh toán toàn bộ, không có vấn đề gì cả.
 
-Thực tế nơi đây không nhắm đến đối tượng sinh viên, bên trong có hải sản, nếu Trần Trạch gọi nhiều hải sản thì e là bốn trăm nghìn một bàn cũng không thấm vào đâu.
+Thế nhưng cả Mộc Dao và Diêu Tân đều kiên quyết đòi chia đều (Campuchia). Mộc Dao còn hào phóng nói thêm rằng phần của Triệu Kim An cứ để cô gánh thay. Thẩm Tử Ngôn ngẫm nghĩ một thoáng, liền bảo hai người họ cứ đi lên phòng bao trước, còn mình thì nán lại dưới sảnh để gọi món cùng Trần Trạch.
 
-Phòng bao còn có mức tiêu thụ tối thiểu.
+Đến khi chỉ còn lại hai người, Thẩm Tử Ngôn liền cất giọng ngắn gọn, dứt khoát:
 
-Không biết hải sản ở các thành phố ven biển có đắt không, chứ ở Quận Sa này, cứ dính đến hải sản là chẳng bao giờ rẻ.
+— Phần tiền của bên con trai cậu lo, phần của Diêu Tân để tôi trả. Lát nữa nếu có ai hỏi về chuyện chia tiền, cậu cứ bảo tổng bữa ăn này hết hơn ba trăm tệ là được.
 
-Lưu Sấm Phong và Cốc Siêu Thừa rảo bước đi lên phía trước, Lưu Sấm Phong vừa đi vừa nói: "Kim An, sao ông không mua lấy một chiếc xe như Trạch ca nhỉ?"
+— ...
 
-"Ông xem Trạch ca có chiếc BMW, được các bạn nữ săn đón thế nào kìa."
+Trần Trạch cầm cuốn thực đơn trên tay, há hốc mồm ấp úng:
 
-Lưu Sấm Phong bảo nếu nhà mình mà giàu như thế thì sẽ mua một chiếc xe còn xịn hơn cả của Trần Trạch. Xem ra hắn thực sự rất ngưỡng mộ Trần Trạch, nhưng nói đi cũng phải nói lại, có mấy ai mà không ngưỡng mộ?
+— Hay là... hay là để cậu chọn món luôn nhé?
 
-Triệu Kim An nói: "Nhà tôi không có tiền, còn nghèo hơn cả nhà ông đấy."
+— Không cần đâu, cậu cứ tự nhiên gọi món đi.
 
-"Làm sao có thể chứ!?"
+Thẩm Tử Ngôn dứt lời liền quay người sải bước rời đi đầy phong thái.
 
-Lưu Sấm Phong bật cười ha hả, bảo những người giàu các ông là thích than nghèo nhất, trong làng hắn cũng có một người, rõ ràng rất giàu nhưng lúc nào cũng bảo mình không có tiền, chỉ sợ có người hỏi vay.
+Ở một góc đường khác, Triệu Kim An đút hai tay vào túi quần, thong thả tản bộ vô cùng nhàn nhã. Lưu Sùng Phong thì sốt ruột muốn đi cho thật nhanh nhưng lại chẳng biết đường xá ra sao. Gã vừa dập máy cuộc gọi của Trần Trạch liền thông báo rằng đám con gái đã tới nơi cả rồi.
 
-"Kim An, tôi thấy ông nên học tập Trạch ca đi."
+— Kim An à, chúng mình đi ăn cơm chứ có phải đi dạo mát ngắm cảnh đâu!
 
-Vừa nói chuyện thì bọn họ đã tới nơi.
+Triệu Kim An đưa tay chỉ về một hướng phía trước, bảo rằng quán ăn nằm ngay khúc cua đằng kia, rồi bồi thêm một câu:
+
+— Ban nãy hai cậu bắt một chuyến taxi đi thì cùng lắm cũng chỉ tốn có mười một, mười hai tệ chứ mấy.
+
+Lưu Sùng Phong càu nhàu:
+
+— Thế thì lãng phí tiền bạc quá!
+
+Triệu Kim An ngẩn người ra nhìn gã một lát, rồi bật cười bảo:
+
+— Sau này cậu đích thị là cái kiểu người đạp xe cào cào đi quẩy quán bar đấy.
+
+Tòa nhà của nhà hàng Hiên Tụ Đức lúc này rực rỡ ánh đèn hoa lệ. Qua những ô cửa kính lớn sát đất, có thể thấp thoáng nhìn thấy bóng người tấp nập bên trong đại sảnh, tiếng chén thù chén tạc rôm rả, tràn ngập phong vị xa hoa của chốn đô hội.
+
+Nhà hàng nằm sát bên bờ sông Tương thơ mộng, quy mô gồm ba tầng lầu bề thế, toàn bộ mặt tiền đều được ốp kính trong suốt sang trọng.
+
+Nơi này trên thực tế vốn không nhắm tới đối tượng khách hàng là sinh viên nghèo, bên trong chuyên phục vụ các món hải sản cao cấp. Nếu Trần Trạch gọi nhiều đồ biển tươi sống, thì một bàn ăn giá bốn trăm tệ e rằng còn xa mới đủ trả.
+
+Chưa kể các phòng bao riêng còn áp dụng mức tiêu dùng tối thiểu.
+
+Chẳng rõ ở các thành phố ven biển thì giá hải sản ra sao, chứ riêng ở mảnh đất Quận Sa này, hễ cứ dính dáng đến hai chữ “hải sản” thì tuyệt đối không bao giờ có giá rẻ.
+
+Lưu Sùng Phong và Cốc Siêu Thừa vội vã rảo bước nhanh hơn về phía trước. Lưu Sùng Phong vừa đi vừa tấm tắc trầm trồ:
+
+— Kim An này, sao mày không học theo anh Trạch sắm lấy một chiếc ô tô mà đi? Mày nhìn anh Trạch có con BMW oách thế kia, đám con gái ai mà chẳng mê như điếu đổ.
+
+Lưu Sùng Phong bảo nếu nhà mình mà giàu có như vậy thì nhất định sẽ mua một chiếc xe còn xịn sò hơn cả xe của Trần Trạch. Xem ra gã thực sự vô cùng ngưỡng mộ và thèm muốn gia cảnh của Trần Trạch, nhưng nghĩ đi nghĩ lại, ở cái tuổi này có mấy ai là không khao khát điều đó cơ chứ?
+
+Triệu Kim An điềm đạm bảo:
+
+— Nhà tớ không có tiền đâu, còn nghèo hơn cả nhà cậu nữa đấy.
+
+— Làm sao mà có chuyện đó được?!
+
+Lưu Sùng Phong bật cười phá lên khoái trá, gã bảo cái đám nhà giàu các cậu là chúa hay khóc nghèo than khổ. Ở làng tao cũng có một lão y hệt như thế, rõ ràng trong nhà tiền đè chết người nhưng mở miệng ra là kêu nghèo rớt mồng tơi, chỉ sợ người ta đến gõ cửa vay tiền.
+
+— Kim An à, tao thấy mày thực sự nên học tập anh Trạch một chút đấy!
+
+Trong lúc trò chuyện rôm rả, cả ba người đã bước chân tới trước sảnh lớn của nhà hàng.

@@ -1,245 +1,251 @@
-# Chương 87: Mái Hiên Không Chắn Nổi Gió Lạnh
+# Chương 87: Mái bạt che chẳng ngăn nổi gió lạnh
 
-Trà đen đá từng tài trợ cho giải bóng rổ 3V3, thể lệ đơn giản linh hoạt, phủ sóng hàng trăm trường đại học trên cả nước, nhờ đó mà danh tiếng của trà đen đá lập tức tăng vọt.
+> **Tiêu đề gốc**: 第87章 雨棚挡不住寒风。
 
-"Thế mà chị còn làm loại 0 đường, 0 béo, 0 calo? Chẳng phải mấy cô nàng văn phòng mới thích loại đó sao?"
+Năm xưa, thương hiệu Trà Đen Đá từng tài trợ cho các giải bóng rổ 3 đấu 3. Nhờ thể thức thi đấu đơn giản, linh hoạt và độ phủ sóng rộng khắp hàng trăm trường đại học trên cả nước, thương hiệu Trà Đen Đá đã lập tức bùng nổ danh tiếng chỉ sau một đêm.
 
-"Công nghệ không có vấn đề gì chứ?"
+"Thế sao cậu lại đòi làm loại '0 đường, 0 calo, 0 chất béo'? Chẳng phải thứ đó chỉ có mấy cô nàng văn phòng công sở mới thích thôi sao?"
 
-"Coca-Cola xưng danh bí phương trăm năm, chẳng phải vẫn có Pepsi đó sao, trong nước còn có cả Very Cola nữa."
+"Quy trình công nghệ sản xuất có gặp vướng mắc gì không?"
 
-Lạc Cẩn Chi rất tự tin: "Chỉ là họ sản xuất quy mô lớn, kiểm soát giá thành nên giá bán luôn bị ép xuống rất thấp. Chúng ta bán hai tệ rưỡi thì chẳng có lãi, nếu không thì sớm đã có vô số người nhảy vào tranh giành thị trường này rồi."
+"Đến như Coca-Cola tuyên bố nắm giữ công thức bí mật trăm năm mà người ta vẫn làm ra được Pepsi-Cola đấy thôi, trong nước mình cũng có cả Phi Thường Khả Lạc nữa là."
 
-"Giải bóng rổ lần này có phải trường Sư Đại các cậu muốn lấy giải nhất không?"
+Lạc Cẩn Chi vô cùng tự tin: "Chẳng qua các hãng lớn họ sản xuất quy mô công nghiệp, tối ưu hóa chi phí đến mức tối đa nên giá thành lúc nào cũng bị đè xuống rất thấp. Chúng ta mà bán hai tệ rưỡi một chai thì coi như cầm chắc không có đồng lãi nào, bằng không thì người ta đã sớm lao vào tranh giành miếng bánh béo bở này từ lâu rồi."
 
-Lạc Cẩn Chi mỉm cười hỏi.
+"Thế giải bóng rổ sắp tới có phải trường Đại học Sư phạm của cậu ẵm chắc giải nhất không đấy?"
 
-Triệu Bác Lan cũng nhìn về phía Triệu Kim An, việc họ có suy nghĩ như vậy cũng không lạ.
+Lạc Cẩn Chi mỉm cười trêu chọc.
 
-Triệu Kim An cười đáp: "Cạnh tranh công bằng thôi."
+Triệu Bác Lan đứng bên cạnh cũng tò mò liếc nhìn Triệu Kim An. Việc hai người phụ nữ có suy nghĩ ấy cũng chẳng có gì lạ.
 
-"Cậu là bên tổ chức đấy!"
+Triệu Kim An bật cười lắc đầu: "Cạnh tranh công bằng chứ."
 
-Các trường đại học trên cả nước nếu không có tiền thì có lẽ không thể tổ chức ngay được, nhưng riêng các trường ở Quận Sa thì vấn đề không lớn, không tốn quá nhiều tiền, Sư Đại lấy hạng nhất cũng không tính là quá đột ngột.
+"Cậu là ban tổ chức kiêm nhà tài trợ đấy nhé!"
 
-Triệu Kim An lấy mấy thùng đồ uống bỏ vào cốp xe, trước khi đi Lạc Cẩn Chi bất ngờ nhét cho hắn một phong bao lì xì, nói: "Cậu là em trai chị, đây là tiền mừng tuổi cá nhân chị cho cậu, không liên quan đến công việc."
+Nếu tổ chức trên quy mô toàn quốc thì lúc này chưa đủ kinh phí, nhưng nếu chỉ gói gọn trong phạm vi các trường đại học ở thành phố Quận Sa thì hoàn toàn nằm trong tầm tay, chi phí chẳng đáng là bao. Trường Đại học Sư phạm mà có giật giải nhất thì cũng chẳng ai dám bảo là vô lý.
 
-Kết quả là lúc vừa định lên xe.
+Triệu Kim An khênh mấy thùng nước ngọt bỏ vào cốp sau xe. Trước lúc cậu chuẩn bị lên xe ra về, Lạc Cẩn Chi bỗng nhiên dúi vào tay cậu một chiếc bao lì xì đỏ chót, bảo: "Cậu là em trai tôi, đây là tiền mừng tuổi cá nhân tôi tặng riêng cho cậu, hoàn toàn không liên quan gì đến công việc đâu đấy nhé."
 
-Lạc Cẩn Chi lại nghiến răng nghiến lợi: "Kim An, cậu mà dám chơi xỏ chị, đời này chị sẽ không bao giờ tha thứ cho cậu đâu!"
+Nào ngờ vừa bước chân tới cửa xe, Lạc Cẩn Chi bỗng nghiến răng ken két, gằn giọng: "Kim An, nếu cậu dám giở trò đâm sau lưng tôi thì cả đời này tôi tuyệt đối không bao giờ tha thứ cho cậu đâu!"
+
+Triệu Kim An dở khóc dở cười: "..."
+
+"Tôi giở trò gì với chị bao giờ chứ?"
+
+"Bây giờ cổ phần của cậu trong công ty nhiều hơn cả tôi rồi... Tóm lại là cậu không được đối xử tệ bạc với tôi như cách cậu đã làm với Đan Vĩ đâu đấy."
+
+Lạc Cẩn Chi nép sát người vào Triệu Kim An, ánh mắt tha thiết như đang nằng nặc đòi một lời hứa hẹn chắc nịch.
+
+Triệu Kim An mỉm cười bảo: "Sau này chị sẽ là nữ tỷ phú đứng đầu bảng xếp hạng Forbes đấy."
+
+Đứng ở một bên, Triệu Bác Lan khẽ bĩu môi thầm nghĩ, người đàn bà này sớm muộn gì cũng "nuốt chửng" Kim An cho mà xem, khéo chừng ngay lúc này trong lòng ả đã thèm muốn đến phát điên lên rồi ấy chứ.
+
+Lại còn cả thím dâu Chương Ngọc Ni nữa, ánh mắt ả ta nhìn Kim An... cứ như muốn kéo thành sợi tơ dính chặt lấy người ta vậy.
+
+Haizz, cái ông chú này của mình đúng là...
+
+Chuyện của Doãn Hiểu Lan thì khỏi cần phải bàn nữa, cả cô ấy lẫn Chương Ngọc Ni đều là những người phụ nữ đã có gia đình, đã nếm mùi đàn bà con gái rồi. Có biết phụ nữ tuổi xuân thì đang lúc mặn mà khát khao chuyện chăn gối là thế nào không, mấy cô vợ trẻ thiếu hơi chồng thế này khéo vắt kiệt sức Kim An mất thôi.
+
+...
+
+Lúc Triệu Kim An lái xe chở Triệu Bác Lan về đến đầu làng, Chương Ngọc Ni lại đứng trước cửa nhà đưa mắt nhìn theo chiếc xe lướt qua.
+
+Sinh viên đại học, lái chiếc Audi A6 bóng loáng, khuôn mặt lại tuấn tú ngời ngời. Nhớ lại cái gật đầu mỉm cười cùng câu chào "chào chị" đầy nhã nhặn của Triệu Kim An lúc trước, trái tim người thiếu phụ trẻ mới bước chân về làm dâu như Chương Ngọc Ni không khỏi rộn ràng, xao xuyến.
+
+Lại còn lịch thiệp, có ăn có học đến thế, gặp mặt là cất lời chào hỏi đàng hoàng, khác xa một trời một vực với đám thanh niên bỗ bã, cộc cằn trong làng họ Triệu này.
+
+Ngày Tết Nguyên Đán đã cận kề.
+
+Những người con làng họ Triệu đi làm ăn xa xứ ở phương Nam cũng lục tục kéo nhau trở về quê ăn Tết.
+
+Tuyệt nhiên không có lấy một ai lái được chiếc xe hơi nào về làng.
+
+Đám thanh niên này vừa ùa về, làng họ Triệu lập tức náo nhiệt, ồn ã hẳn lên.
+
+Việc đầu tiên là tiệm tạp hóa trong làng bỗng đắt hàng như tôm tươi, khách vào mua thuốc lá và trầu cau nườm nượp không ngớt.
+
+Hễ mở miệng ra là nhất định không phải thuốc lá Hoàng Phù Dung thì không thèm hút!
+
+Việc thứ hai chính là tụ tập sát phạt nhau: bài Xì tố ba lá, đánh Đấu Ngưu thâu đêm suốt sáng.
+
+Từng gã khoác trên mình những bộ đồ công nhân may sẵn sặc sỡ, mấy chục con người chen chúc quây kín quanh một chiếc bàn gỗ nhỏ.
+
+Năm nay không phải mày làm thuê cho tao thì cũng là tao cày cuốc làm thuê nuôi mày!
+
+Triệu Kim An không hề tham gia vào mấy trò đỏ đen sát phạt ấy. Cậu lái xe lên phố huyện mua một loạt cây giống ăn quả về, cặm cụi cuốc đất trồng cây ở mảnh vườn rau sau nhà.
+
+"Kim An, cháu trồng xen cả đào vàng lẫn cam đường thế này liệu cây có sống nổi không đấy?"
+
+"Cứ trồng thử xem sao thím, toàn là giống ghép cả đấy, lúc mua người ta bảo chỉ hai năm là bắt đầu bói quả rồi."
+
+Vương Kim Như cùng Doãn Hiểu Lan đều có mặt ở vườn rau phụ giúp, còn Triệu Kim An thì vung từng nhát cuốc dứt khoát xới đất.
+
+Chẳng mấy chốc, Triệu Bác Lan và Chương Ngọc Ni cũng ríu rít kéo nhau sang chơi.
+
+Triệu Bác Lan lại càng thêm chắc chắn với suy đoán trong lòng mình. Rõ ràng con ả Chương Ngọc Ni này sang đây là để ngắm trộm Triệu Kim An. Xét theo vai vế trong họ thì mày phải gọi người ta bằng ông chú đấy, đúng là có chút "đại nghịch bất đạo" rồi!
+
+Triệu Kim An lại đảo mắt nhìn sang mấy gốc trà shan tuyết già cỗi, cậu ngắt thử vài chiếc lá già bỏ vào miệng nhai nhai nếm thử.
+
+Chương Ngọc Ni liền lân la bước lại gần, nhỏ nhẹ bảo: "Nhà tôi có sẵn lá trà ngon lắm, tự tay tôi hái ở vườn nhà mang về sao đấy, cậu có muốn lấy không? Lát nữa tôi gói một ít mang sang cho cậu nhé."
+
+Triệu Bác Lan đảo mắt nhìn trời, trong số những người ở đây chỉ có mỗi mình cô là hiểu thấu Triệu Kim An đang mưu tính chuyện gì.
+
+Triệu Trí Dũng thì vác cuốc hùng hục leo lên đồi, bắt đầu sự nghiệp đào măng mùa đông vĩ đại của mình.
+
+Buổi chiều, Triệu Kim An lại lái xe chở Vương Kim Như và Doãn Hiểu Lan lên phố huyện sắm Tết. Doãn Hiểu Lan ngồi ở ghế phụ phía trước, còn Vương Kim Như dắt bé Triệu Duyệt Thiến ngồi ở băng ghế sau, trời mùa đông rét căm căm mà bà nhất quyết không chịu kéo cửa kính xe lên.
+
+"Thím ơi, gió lùa thế này bé Thiến Thiến sẽ bị cảm lạnh mất đấy!"
+
+Doãn Hiểu Lan lấy tay che miệng cười thầm.
+
+Vương Kim Như thì chỉ sợ người trong thiên hạ không nhìn thấy cảnh tượng cháu trai mình vừa về làng đã lái hẳn xe hơi sang trọng chở bà lên phố huyện dạo chơi.
+
+Thế vẫn chưa thấm vào đâu.
+
+Suốt cả dọc đường đi, hễ gặp bất kỳ ai quen mặt là bà lại nhao đầu ra cửa sổ vẫy tay chào đon đả, gặp người nào cũng bô bô khoe khoang rằng Kim An nó chở tôi đi dạo phố, còn bảo lát nữa sẽ mua cho tôi mấy bộ quần áo mới tinh để diện Tết nữa đấy.
+
+Triệu Kim An thấy vậy thì dứt khoát rà chân phanh cho xe chạy chầm chậm lại, chiều theo tâm lý muốn khoe khoang, hãnh diện của thím mình.
+
+Thực ra chuyện này cũng rất dễ hiểu, cháu trai đỗ đạt thành tài thì khoe ra còn nở mày nở mặt hơn cả con ruột nhiều.
+
+Bà nội thì dù có khuyên thế nào cũng nhất quyết không chịu đi cùng, bà cụ bảo già từng này tuổi đầu rồi còn ham hố gì mua sắm quần áo mới nữa.
+
+"Kim An, chúng ta ghé vào chợ đầu mối bán buôn ấy, đồ đạc trong đấy rẻ hơn ngoài phố nhiều lắm."
+
+Vương Kim Như đã quen thói tằn tiện, tính toán từng đồng từng cắc.
+
+Lần này Triệu Kim An đã đặc biệt dặn dò cả nhà phải đợi bằng được cậu về rồi mới cùng đi sắm đồ Tết.
+
+Chợ đầu mối đông nghẹt người, biển người chen chúc nhau không lọt một kẽ hở. Không khí Tết những năm này quả thực vô cùng đậm đà phong vị truyền thống, đã rất nhiều năm rồi Triệu Kim An không được tận hưởng lại cảm giác ấm áp, náo nức thế này. Ở kiếp trước, những ngày cận Tết đều là do Trần Thanh Trĩ đặt mua hàng trên mạng gửi về.
+
+"Kim An, mấy hộp bánh kẹo kia là của hiệu Từ Phúc Ký đấy, đắt đỏ lắm, chúng ta cứ mua mấy loại nhãn hiệu bình dân linh tinh ở góc kia là được rồi."
 
 Triệu Kim An: "..."
 
-"Tôi chơi xỏ chị chỗ nào chứ?"
+Bánh kẹo Từ Phúc Ký mà cũng bị coi là đắt đỏ sao? Mấy nhãn hiệu linh tinh là nhãn hiệu gì chứ!?
 
-"Bây giờ cổ phần công ty cậu nhiều hơn chị... Nói chung cậu không được đối xử với chị như đối xử với Đơn Vĩ."
+"Triệu Duyệt Thiến! Con chỉ được phép lấy một gói thôi đấy nhé!"
 
-Lạc Cẩn Chi áp sát Triệu Kim An, giống như đang muốn một câu trả lời.
+Trước các quầy hàng đông nghịt người chen chúc, Vương Kim Như và Doãn Hiểu Lan mỗi người xách một chiếc túi nilon lớn, chen lấn thoăn thoắt chẳng khác nào đang đi cướp hàng. Những người xung quanh cũng chẳng khá hơn là bao, thế nhưng trong cảnh hỗn loạn ấy, Vương Kim Như vẫn không quên để mắt trông chừng Triệu Kim An và con gái nhỏ.
 
-Triệu Kim An nói: "Sau này chị sẽ là nữ tỷ phú trên bảng xếp hạng Forbes."
+Bé Triệu Duyệt Thiến đang dùng hai cánh tay bé xíu ôm chặt cứng hai gói quà Tết Vượng Vượng to bự vào lòng. Triệu Kim An liền tiện tay với thêm hai gói nữa, rồi rút tiền ra thanh toán trước cho chủ quầy.
 
-Triệu Bác Lan đứng bên cạnh bĩu môi, người phụ nữ này sớm muộn gì cũng "ăn" mất Kim An, có lẽ bây giờ đã muốn ăn rồi.
+Cậu còn lập tức bóc ngay một gói bánh thơm phức đưa cho con bé để dỗ dành.
 
-Còn có Chương Ngọc Ni nữa, nhìn ánh mắt cô ta nhìn Kim An kìa... cứ như muốn chảy nước tới nơi.
+"Anh hai ơi..."
 
-Chao ôi, cái vị thúc công này của mình...
+"Muốn ăn thì cứ ăn đi em, anh trả tiền hết rồi mà."
 
-Doãn Hiểu Lan thì không nói, nhưng cô ấy và Chương Ngọc Ni đều là phụ nữ đã có chồng cả rồi, biết thế nào là thiếu phụ không, cái nhu cầu sinh lý của mấy cô vợ trẻ này, đúng là muốn vắt kiệt Kim An mà.
+Triệu Duyệt Thiến rụt rè lén liếc nhìn mẹ một cái. Nhìn thấy cảnh tượng đó, lồng ngực Triệu Kim An bỗng dâng lên một nỗi xót xa nghẹn ngào. Bao nhiêu năm qua, gia đình này đã phải sống trong cảnh tằn tiện, kham khổ đến nhường nào.
 
-Chương Ngọc Ni lại thấy Triệu Kim An lái xe chở Triệu Bác Lan về, đi ngang qua cửa nhà mình.
+Nhưng không tằn tiện thì làm sao gánh gồng nổi!
 
-Sinh viên đại học, lái xe Audi A6, ngoại hình lại đẹp trai, nhớ lại lúc Triệu Kim An mỉm cười chào mình "Chào chị", Chương Ngọc Ni vừa mới gả cho người ta không lâu đã thấy lòng dạ rạo rực.
+Trong nhà trên có mẹ già, dưới có con thơ, bao nhiêu miệng ăn chỉ trông chờ vào đồng lương công nhân còm cõi của một mình chú Triệu Quốc Hoa gửi về.
 
-Lại còn lịch sự như thế, chào hỏi đều dùng "Chào chị", thật khác hẳn với đám thanh niên trong Triệu Kim An Gia thôn.
+Vương Kim Như dở khóc dở cười: "..."
 
-Gần đến Tết.
+"Hai anh em chúng mày đúng là sang đây để phá đám tao mà!"
 
-Những người đi làm thuê bên ngoài của Triệu Kim An Gia thôn lục tục trở về.
+"Thím à, thím cứ chọn toàn bộ bánh kẹo của Từ Phúc Ký mà mua."
 
-Không có ai lái xe hơi về cả.
+Triệu Kim An ghé sát tai thím, thì thào nói nhỏ: "Cháu kiếm được tiền rồi, năm nay cả nhà mình sẽ ăn một cái Tết thật đủ đầy, tươm tất, từ nay về sau chúng ta không cần phải tằn tiện khổ sở như trước nữa đâu."
 
-Những người này vừa về, Triệu Kim An Gia thôn trở nên vô cùng náo nhiệt.
+"Có tiền thì cũng không được phép hoang phí!"
 
-Thứ nhất là số người đến tiệm tạp hóa mua thuốc lá và trầu cau đông hơn hẳn.
-
-Không phải Hoàng Phù thì không hút!
-
-Thứ hai, đánh bài "Zha Jin Hua", đấu ngưu.
-
-Từng người mặc "đồng phục tỉnh", vài chục người vây quanh một cái bàn.
-
-Năm nay không phải anh làm thuê cho tôi, thì là tôi làm thuê cho anh!
-
-Triệu Kim An không tham gia vào những việc đó, hắn lái xe đi mua cây giống, trồng cây ăn quả ở vườn rau.
-
-"Kim An, cháu vừa trồng đào vàng vừa trồng cam đường thế này liệu có sống nổi không?"
-
-"Thử xem ạ, đều là cây ghép cả, lúc mua người ta bảo hai năm là có quả rồi."
-
-Vương Kim Như và Doãn Hiểu Lan đều ở vườn rau, Triệu Kim An thì vung cuốc.
-
-Chẳng mấy chốc Triệu Bác Lan và Chương Ngọc Ni cũng tới.
-
-Triệu Bác Lan càng thêm khẳng định suy nghĩ trong lòng, Chương Ngọc Ni rõ ràng là đến để ngắm Triệu Kim An, cô gọi người ta là thúc công đấy, thật đúng là "đại nghịch bất đạo"!
-
-Triệu Kim An lại nhìn trúng mấy cây chè, hái vài lá già bỏ vào miệng nhai nhai.
-
-Chương Ngọc Ni tiến lại gần nói: "Nhà cháu có trà đấy, tự hái ở vườn nhà mình, thúc có muốn không? Để cháu lấy cho thúc một ít."
-
-Triệu Bác Lan đảo mắt trắng dã, chỉ có cô mới biết Triệu Kim An đang làm gì.
-
-Triệu Chí Dũng vác cuốc lên núi, bắt đầu sự nghiệp đào măng mùa đông vĩ đại của mình.
-
-Triệu Kim An lại lái xe chở Vương Kim Như và Doãn Hiểu Lan ra khỏi thôn, Doãn Hiểu Lan ngồi ghế phụ, Vương Kim Như bế Tiểu Duyệt Thiên ngồi hàng ghế sau, giữa mùa đông lạnh giá mà cũng không chịu đóng cửa sổ xe.
-
-"Thím, Tiểu Duyệt Thiên sắp bị lạnh đến cảm mạo rồi kìa!"
-
-Doãn Hiểu Lan che miệng cười trộm.
-
-Vương Kim Như chỉ sợ người khác không nhìn thấy cháu trai mình về lái xe chở mình lên phố.
-
-Đã thế thì thôi đi.
-
-Bà còn dọc đường chào hỏi, thấy người là khoe Kim An đưa tôi đi dạo phố, còn muốn mua quần áo mới mặc Tết cho tôi nữa.
-
-Triệu Kim An đành lái chậm lại một chút, thỏa mãn tâm lý khoe khoang của Vương Kim Như.
-
-Thực ra cũng rất dễ hiểu, cháu trai đôi khi còn đáng để khoe hơn cả con trai.
-
-Bà nội thì nhất quyết không chịu đi, nói già chừng này rồi còn mua quần áo mới làm gì.
-
-"Kim An, đi chợ đầu mối ấy, đồ ở đó rẻ hơn nhiều."
-
-Vương Kim Như đã quen tính toán chi li.
-
-Triệu Kim An đặc biệt dặn dò đợi mình về mới mua đồ Tết.
-
-Chợ đầu mối người đông như kiến, Tết bây giờ vẫn còn đậm không khí Tết lắm, Triệu Kim An đã nhiều năm rồi không được cảm nhận lại, trước đây toàn là Trần Thanh Trĩ mua sắm trên mạng.
-
-"Kim An, đó là của hãng Hsu Fu Chi, hơi đắt đấy, chúng ta mua loại nhãn hiệu lạ là được rồi."
-
-Triệu Kim An: "..."
-
-Hsu Fu Chi mà cũng tính là hơi đắt sao? Nhãn hiệu lạ!?
-
-"Triệu Duyệt Thiên! Con lấy một túi thôi!"
-
-Trước sạp hàng chen chúc đầy người, Vương Kim Như và Doãn Hiểu Lan mỗi người cầm một cái túi như đang đi cướp hàng, những người khác cũng chẳng khác là bao, vậy mà Vương Kim Như vẫn còn để mắt được tới Triệu Kim An và Triệu Duyệt Thiên.
-
-Triệu Duyệt Thiên ôm khư khư hai gói quà lớn của Want Want, Triệu Kim An lại lấy thêm hai gói nữa, thanh toán tiền trước.
-
-Hắn còn bóc ngay tại chỗ một gói để dỗ dành Triệu Duyệt Thiên.
-
-"Anh trai..."
-
-"Muốn ăn thì cứ ăn đi, anh trả tiền rồi."
-
-Triệu Duyệt Thiên nhìn trộm mẹ một cái, Triệu Kim An thấy lòng thắt lại, những năm qua gia đình sống tiết kiệm quá rồi.
-
-Không tiết kiệm không được!
-
-Trong nhà trên có già dưới có trẻ, chỉ có một mình Triệu Quốc Hoa đi làm thuê kiếm tiền.
-
-Vương Kim Như: "..."
-
-"Hai anh em bay đúng là đến để phá đám mà!"
-
-"Thím, mọi người cứ mua Hsu Fu Chi đi."
-
-Triệu Kim An ghé sát tai nói nhỏ: "Cháu có tiền rồi, năm nay ăn một cái Tết thật ngon, chúng ta đừng tiết kiệm như vậy nữa."
-
-"Có tiền cũng không được lãng phí!"
-
-Vương Kim Như huých Triệu Kim An một cái, nhưng vẫn nghe theo lời hắn, lúc cúi đầu chọn đồ, Vương Kim Như khẽ quệt nước mắt, cuối cùng bà cũng không chọn nhiều, vẫn lấy loại nhãn hiệu lạ.
+Vương Kim Như khẽ huých tay vào người Triệu Kim An một cái, nhưng rốt cuộc bà vẫn nghe theo lời dặn của cháu. Lúc cúi đầu chọn lựa hàng họ, Vương Kim Như len lén đưa tay quẹt nhanh giọt nước mắt chực trào nơi khóe mi. Nhưng cuối cùng bà cũng chẳng nỡ chọn nhiều, vẫn len lén nhặt thêm mấy món đồ nhãn hiệu bình dân giá rẻ bỏ vào giỏ.
 
 "Reng reng reng!"
 
-Lúc này điện thoại vang lên, Vương Kim Như liếc nhìn một cái, lập tức kéo chặt Triệu Kim An.
+Đúng lúc này, chuông điện thoại trong túi Triệu Kim An bỗng vang lên dồn dập. Vương Kim Như liếc mắt nhìn thấy tên người gọi hiện trên màn hình, sắc mặt bà lập tức biến đổi, vội vàng túm chặt lấy cánh tay Triệu Kim An.
 
-"Không được đến nhà họ ăn Tết đâu đấy!"
+"Không được sang bên nhà bọn họ ăn Tết đâu đấy!"
 
-Vương Kim Như đột nhiên trở nên căng thẳng: "Bà nội cũng sẽ không đồng ý đâu, cháu muốn đi thì đi chúc Tết một chút thôi, chẳng có lý nào cháu lớn chừng này rồi, thi đỗ đại học... Chắc chắn họ nghe người trong thôn kể lại rồi."
+Giọng Vương Kim Như bỗng trở nên căng thẳng tột độ: "Bà nội cũng tuyệt đối không bao giờ đồng ý đâu. Cháu mà có muốn đi thì đợi đến mùng mấy Tết sang chúc Tết một lát rồi về, chứ chẳng có lý lẽ nào nuôi cháu lớn ngần này, thi đỗ đại học vẻ vang... Chắc chắn là bọn họ nghe người trong làng đồn ầm lên rồi chứ gì."
 
-"Không có chuyện vớ bẫm thế đâu, trên đời này làm gì có chuyện tốt như vậy!"
+"Làm gì có kiểu hớt tay trên, trục lợi trắng trợn như thế, trên đời này làm gì có chuyện ngon ăn thế được!"
 
-Vương Kim Như tính tình thẳng thắn, có gì nói nấy.
+Vương Kim Như vốn tính bộc trực, ruột để ngoài da, nghĩ gì là nói tuột ra nấy.
 
-Sâm Thành.
+...
 
-Sắp Tết rồi, Tống Siêu Văn chiều nào cũng dọn hàng, chỉ dựa vào dịp trước Tết để kiếm thêm chút tiền.
+Tại thành phố Sâm Thành.
 
-Tống Gia Nguyệt ngồi trên một cái ghế đẩu nhỏ, tay cầm một xiên đồ nướng không cho ớt.
+Tết nhất cận kề, vừa mới đầu giờ chiều mà Tống Siêu Văn đã tất bật dọn quầy hàng nướng ra góc phố, chỉ mong kiếm thêm được chút tiền trang trải trước Tết.
 
-Mái hiên không chắn nổi gió lạnh, con bé bị lạnh đến mức cứ nhìn dáo dác xung quanh.
+Bé Tống Gia Nguyệt ngồi co ro trên chiếc ghế đẩu nhỏ, hai bàn tay mũm mĩm cầm một xiên thịt nướng không ớt.
 
-"Mẹ ơi, chị đâu rồi ạ?"
+Tấm bạt che mưa rách nát chẳng thể nào ngăn nổi những cơn gió đông buốt giá lùa qua từng khe hở, cô bé lạnh đến mức co ro, đôi mắt tròn xoe ngơ ngác nhìn quanh.
 
-"Gia Nguyệt ngoan, chị tan làm là sẽ tới đón con về nhà ngay."
+"Mẹ ơi, chị gái đâu rồi ạ?"
 
-Đoạn Thu Bình nhìn đồng hồ, Tống Uyển Hòa đã tan làm nửa tiếng rồi, sao vẫn chưa thấy tới?
+"Bé Nguyệt ngoan nào, chị vừa tan ca là sẽ chạy đến đón con về nhà ngay thôi."
 
-Tống Siêu Văn vừa bận rộn vừa hỏi: "Kim An vẫn không chịu tới sao?"
+Đoạn Thu Bình nhìn đồng hồ, Tống Uyển Hòa đã hết giờ làm việc hơn nửa tiếng đồng hồ rồi, sao giờ này vẫn chưa thấy bóng dáng con bé đâu nhỉ?
 
-Đoạn Thu Bình gật đầu, có chút thất lạc.
+Tống Siêu Văn vừa thoăn thoắt lật những xiên thịt trên bếp than hồng vừa cất tiếng hỏi: "Thằng bé Kim An nó vẫn không chịu sang đây ăn Tết à em?"
 
-Tay nướng xiên của Tống Siêu Văn khựng lại một chút.
+Đoạn Thu Bình khẽ gật đầu, trong ánh mắt thoáng hiện nét buồn bã, hụt hẫng khôn nguôi.
 
-Người ở Triệu Kim An Gia thôn đông như vậy, họ thực sự có nghe nói Triệu Kim An lái xe Audi về, tối qua Tống Uyển Hòa còn trêu Gia Nguyệt rằng, con có một người anh trai rất giàu có đấy.
+Bàn tay đang lật xiên thịt của Tống Siêu Văn bỗng khựng lại trong giây lát.
 
-Gần đến đêm giao thừa.
+Người làng họ Triệu qua lại buôn bán nhiều, bọn họ quả thực đã nghe người ta kháo nhau rằng Triệu Kim An lần này tự lái hẳn chiếc xe hơi Audi sang trọng về quê ăn Tết. Tối hôm qua Tống Uyển Hòa còn vừa cười vừa nói đùa với bé Gia Nguyệt rằng: "Bé Nguyệt này, em có một người anh trai giàu có lắm đấy nhé."
 
-Triệu Quốc Hoa đã về, Triệu Kim An lái xe ra ga tàu hỏa đón người.
+...
 
-Hai chú cháu trên xe đã trò chuyện rất nhiều.
+Ngày ba mươi Tết cận kề.
 
-Về đến nhà, Vương Kim Như đang thịt gà bên cạnh bể nước, bà nội ở trong bếp chuẩn bị bữa tối, Triệu Quốc Hoa và Triệu Kim An ra vườn rau, Triệu Quốc Hoa nói: "Lúc quân sự cháu hỏi chú trồng cây ăn quả gì thì hợp, không ngờ cháu lại trồng thật."
+Triệu Quốc Hoa cuối cùng cũng được nghỉ làm về quê, Triệu Kim An đích thân lái xe ra tận ga tàu hỏa để đón chú.
 
-Triệu Chí Dũng nói Triệu Kim An không biết trồng, cậu ta rất rành mấy việc này.
+Hai chú cháu ngồi trên xe tâm sự với nhau rất nhiều chuyện.
 
-Triệu Quốc Hoa liền hỏi Triệu Chí Dũng: "Nghe nói thằng nhóc nhà cậu về là ngày nào cũng đi đào măng mùa đông à? Kiếm được bao nhiêu tiền rồi?"
+Về đến nhà, Vương Kim Như đang ngồi bên bể nước vặt lông gà, bà nội tất bật chuẩn bị cơm tối trong gian bếp, còn Triệu Quốc Hoa cùng Triệu Kim An thong thả rảo bước ra mảnh vườn rau. Triệu Quốc Hoa bảo: "Hồi đợt tập quân sự cháu gọi điện hỏi chú xem đất này hợp trồng loại cây ăn quả nào, không ngờ cháu lại mua cây về trồng thật đấy."
 
-Triệu Chí Dũng gãi đầu: "Cũng không nhiều lắm, chỉ bán được 1 ngàn 3 thôi ạ."
+Triệu Trí Dũng đứng cạnh chen vào bảo Kim An nó chẳng biết kỹ thuật trồng trọt gì đâu, mấy chuyện này phải để chuyên gia như cậu ta ra tay mới chuẩn.
 
-Triệu Quốc Hoa ngẩn người, bật cười một tiếng: "Mới có mấy ngày mà kiếm còn nhiều hơn cả chú đi làm thuê."
+Triệu Quốc Hoa liền quay sang hỏi Triệu Trí Dũng: "Nghe nói thằng nhóc mày mấy hôm nay ngày nào cũng vác cuốc lên đồi đào măng mùa đông hả? Kiếm được bao nhiêu tiền rồi?"
 
-Chú lại nhìn sang Triệu Kim An: "Nghe thím cháu nói, mẹ cháu gọi mấy cuộc điện thoại bảo cháu qua ăn Tết à?"
+Triệu Trí Dũng gãi đầu cười hề hề: "Cũng chẳng được bao nhiêu đâu chú, cháu mới bán được có một nghìn ba trăm tệ thôi ạ."
 
-Triệu Kim An gật đầu.
+Triệu Quốc Hoa ngẩn người một thoáng, rồi bật cười lắc đầu: "Mới có mấy ngày ngắn ngủi mà mày kiếm còn nhiều hơn cả tháng lương công nhân của chú nữa đấy."
 
-Triệu Quốc Hoa im lặng một lúc rồi nói: "Đừng quản thím cháu, cháu muốn đi thì cứ đi."
+Nói đoạn, ông quay sang nhìn Triệu Kim An: "Nghe thím mày bảo, mẹ cháu gọi mấy cuộc điện thoại bảo cháu sang bên đó ăn Tết à?"
+
+Triệu Kim An khẽ gật đầu.
+
+Triệu Quốc Hoa im lặng trầm ngâm một lúc lâu, rồi chậm rãi bảo: "Cháu đừng bận tâm đến những lời cằn nhằn của thím cháu làm gì, trong lòng cháu muốn đi thì cứ việc đi."
 
 "Reng reng reng."
 
-Lúc này điện thoại vang lên, nhìn thấy tên người gọi, Triệu Kim An sững sờ, hắn bắt máy rồi quay người đi thẳng.
+Đúng lúc này, chuông điện thoại trong túi Triệu Kim An lại vang lên. Nhìn thấy cái tên hiển thị trên màn hình, Triệu Kim An bỗng sững người chết lặng. Cậu vội vàng bấm nút nghe rồi lập tức xoay người rảo bước thật nhanh ra phía cổng.
 
-"Có chuyện gì thế?" Triệu Quốc Hoa rất tò mò.
+"Có chuyện gì thế cháu?" Triệu Quốc Hoa ngơ ngác nhìn theo.
 
-"Kim An, cháu đi đâu đấy?"
+"Kim An, mày định đi đâu đấy!?"
 
-Triệu Chí Dũng vứt cuốc xuống đuổi theo.
+Triệu Trí Dũng lập tức vứt phắt chiếc cuốc xuống đất, co cẳng đuổi theo bén gót.
 
-"Kim An, sắp ăn cơm rồi, cháu còn đi đâu nữa!?"
+"Kim An, sắp dọn cơm ăn đến nơi rồi, cháu còn chạy đi đâu nữa hả!?"
 
-Vương Kim Như đứng dậy hét lớn, thấy Triệu Quốc Khánh lại mắng: "Vừa về là chạy ra vườn rau, sắp ăn cơm rồi mà Kim An lại chạy mất rồi!"
+Vương Kim Như từ bên bể nước đứng bật dậy gào to tướng, vừa nhìn thấy Triệu Quốc Hoa đứng ngơ ngác ở đấy bà lại cất giọng mắng té tát: "Ông vừa về đến nhà là chạy tót ra vườn rau, cơm nước dọn ra đến nơi rồi thì thằng Kim An nó lại chạy mất hút!"
 
-Triệu Kim An bước chân vội vã.
+Triệu Kim An bước chân vội vã như bay.
 
-Triệu Chí Dũng đuổi theo gọi: "Kim An, mày đi đâu thế!?"
+Triệu Trí Dũng thở hổn hển đuổi theo sau gặng hỏi: "Kim An, rốt cuộc là mày chạy đi đâu thế hả!?"
 
-"Tô Miền tới rồi."
+"Tô Miến đến rồi."
 
-Triệu Chí Dũng phanh gấp một cái:    
+Triệu Trí Dũng phanh gấp một cái khựng lại giữa đường, hai mắt trợn tròn xoe: ⊙▂⊙
 
-"Tao không nghe lầm chứ!?"
+"Tao... tao có nghe nhầm không đấy!?"
 
-Bản thân Triệu Kim An cũng đang thấy đầu to ra, không biết Tô Miền lại giở trò gì, lần trước là đi gặp người bạn thân nhất...
+Chính bản thân Triệu Kim An lúc này cũng đang đau đầu muốn nổ tung, cậu thực sự không thể nào hiểu nổi cô nàng Tô Miến này rốt cuộc đang muốn giở trò gì nữa. Lần trước thì đòi gặp mặt người bạn thân nhất của cậu...
 
-Màn đêm buông xuống.
+Màn đêm buông xuống thật nhanh.
 
-Khói bếp tỏa ra từ mỗi nhà trong Triệu Kim An Gia thôn, Triệu Kim An và Triệu Chí Dũng chạy lên dốc nghiêng.
+Từng làn khói bếp từ các mái nhà trong làng họ Triệu bảng lảng bay lên trong ráng chiều. Triệu Kim An và Triệu Trí Dũng hổn hển chạy ngược lên con dốc dẫn ra đường lớn.
 
-Bên lề đường, Tô Miền lại chỉ có một mình.
+Bên vệ đường quốc lộ, bóng dáng Tô Miến lại đang ngồi trơ trọi một mình.
 
-Triệu Kim An đứng cách đó khoảng 4, 5 mét, hít một hơi thật sâu: "Sao cô lại tới đây?"
+Triệu Kim An dừng lại cách cô chừng bốn, năm mét, hít một hơi thật sâu rồi cất giọng: "Sao em lại đến đây?"
 
-Tô Miền ngồi trên xe lăn nói: "Họ đi rồi, chỉ còn lại mình tôi thôi, anh phải quản tôi đấy."
+Tô Miến ngồi trên chiếc xe lăn, ngước khuôn mặt thanh tú lên nhìn cậu rồi thản nhiên bảo: "Bọn họ đi cả rồi, chỉ còn lại mỗi mình em ở đây thôi, anh phải chịu trách nhiệm lo cho em đấy."

@@ -1,253 +1,255 @@
-# Chương 30: Thâm Cư Giản Xuất
+# Chương 30: Kín cổng cao tường
 
-Triệu Kim An vốn rất ít lời, nhưng tréo ngoe là mấy bà cô lại cứ thích tìm hắn để tán chuyện.
+> **Tiêu đề gốc**: 第30章 深居简出。
 
-Quá đáng hơn, họ còn dứt khoát đặt sọt của mình cạnh sọt của Triệu Kim An, cùng nhau chen chúc dưới bóng râm của một tán cây.
+Triệu Kim An vốn là người ít nói, thế nhưng mấy người phụ nữ trong làng lại chỉ thích xúm lại tìm cậu để trút bầu tâm sự.
 
-Triệu Kim An cũng thấy khó hiểu, không biết tại sao mình lại được lòng những người phụ nữ lớn tuổi đến vậy.
+Quá đáng hơn nữa là họ dứt khoát bê luôn thúng mẹt của mình sang đặt cạnh sạp dưa của Triệu Kim An, rồi cùng nhau rúc vào chung một bóng râm mát rượi dưới tán cây lớn ven đường.
 
-Đặc biệt là những người đàn bà đã có gia đình.
+Bản thân Triệu Kim An cũng cảm thấy vô cùng khó hiểu, chẳng biết vì cớ gì mà mình lại có sức hút mãnh liệt với những người phụ nữ lớn tuổi đến thế.
 
-Nhất là cái bà tên Điền Thúy Phượng kia, dì à, dì đã hơn năm mươi tuổi, là người sắp làm bà nội đến nơi rồi đấy.
+Đặc biệt là mấy thím, mấy cô đã có gia đình chồng con đề huề.
 
-Có lẽ cũng tại Triệu Kim An thường xuyên "thâm cư giản xuất", không giống như Triệu Chí Dũng suốt ngày cưỡi mô tô lượn lờ khắp thôn.
+Nhất là cái thím tên Điền Thúy Phụng kia, thím ơi là thím, thím đã ngoài năm mươi tuổi, lên chức bà nội rồi cơ mà.
 
-Đừng nói là những bậc trưởng bối trong thôn, ngay cả những nàng dâu mới gả vào Triệu Kim An Gia thôn chưa lâu, lần đầu tiên nhìn thấy Triệu Kim An, đại khái cũng sẽ tưởng hắn không phải người làng này.
+Âu cũng là do tính tình Triệu Kim An xưa nay quen lối sống "kín cổng cao tường", chẳng giống như Triệu Trí Dũng tối ngày cưỡi chiếc xe máy phành phạch lượn lờ khắp các ngõ ngách trong làng.
 
-Có lần Triệu Kim An đi học về, còn bị hai nàng dâu trẻ trong thôn "tốt bụng" chặn đường hỏi xem tìm ai.
+Đừng nói là những bậc trưởng bối lâu năm trong làng, ngay cả mấy nàng dâu mới gả về làng họ Triệu chưa được bao lâu, lần đầu tiên nhìn thấy Triệu Kim An đi lại trong làng khéo còn lầm tưởng cậu là người ở nơi khác mới tới.
 
-"Kim An trông xinh xẻo thật đấy, cứ như cô vợ nhỏ vậy."
+Có lần Triệu Kim An đi học về, còn bị hai cô con dâu trẻ trong làng "tốt bụng" chặn đường hỏi han xem cậu muốn tìm nhà ai.
 
-Triệu Kim An: . . . . . .
+"Thằng bé Kim An này mặt mũi khôi ngô, nét nào ra nét nấy, da dẻ trắng trẻo xinh xắn y như một cô dâu nhỏ ấy nhỉ."
 
-Dì à, dì khen người ta kiểu này... có lịch sự không hả?
+Triệu Kim An: "..."
 
-Mấy người đàn bà cười thành một đoàn, họ dường như rất thích "trêu ghẹo" đám hậu sinh trong thôn như thế này, nhưng nhà ai muốn cưới vợ, cậy nhờ làm mai cũng đều dựa vào những người này cả.
+Thím ơi, thím dùng từ khen ngợi người ta kiểu này... có lịch sự chút nào không đấy?
 
-Trong thôn quả thật không thể thiếu họ!
+Mấy người đàn bà nghe xong cười ngả nghiêng thành một đoàn. Dường như họ khoái nhất cái trò trêu chọc, chọc ghẹo đám thanh niên trai tráng trong làng thế này, nhưng trong làng hễ có nhà nào muốn cưới vợ gả chồng, muốn đánh tiếng dạm ngõ thì cũng đều phải cậy nhờ vào cái miệng nhanh nhảu của những người này mà lo liệu.
 
-"Kim An, dì có đứa cháu gái, sinh ra đã linh lợi, mọng nước lắm..."
+Làng quê quả thực không thể nào thiếu vắng bóng dáng của những bà mối mát tay như họ!
 
-Điền Thúy Phượng vừa nói vừa nắm lấy tay Triệu Kim An: "Đợi năm nay nó sang chúc Tết, dì giới thiệu cho hai đứa làm quen, con bé đó làm việc chăm chỉ lắm..."
+"Kim An này, thím có đứa cháu gái bên ngoại, tướng mạo sinh ra xinh xắn mọng nước như giọt sương..."
 
-Triệu Kim An định rụt tay lại nhưng bị giữ chặt, chỉ đành gật đầu nói: "Dạ được, nhưng dì Điền ơi, cháu mới lên đại học mà..."
+Điền Thúy Phụng vừa thao thao bất tuyệt vừa vươn tay nắm chặt lấy bàn tay Triệu Kim An: "Đợi dịp Tết năm nay nó sang chúc Tết, thím sẽ làm mối giới thiệu cho hai đứa làm quen. Đứa cháu gái ấy của thím chịu thương chịu khó, tháo vát mọi việc đồng áng lắm..."
 
-Bên cạnh, Doãn Hiểu Lan đang bế Triệu Duyệt Thiên, liếc nhìn Triệu Kim An một cái, che miệng nhịn cười.
+Triệu Kim An muốn rụt tay về nhưng bị thím túm chặt cứng, đành bất đắc dĩ gật đầu ứng phó: "Dạ vâng, nhưng thím Điền ơi, cháu mới vừa chân ướt chân ráo lên đại học thôi mà..."
 
-"Dì Điền, cháu gái dì bao nhiêu tuổi rồi?"
+Doãn Hiểu Lan đang ngồi một bên bế bé Triệu Duyệt Thiến, khẽ liếc trộm Triệu Kim An một cái rồi vội lấy tay che miệng, nhịn không nổi mà bật cười khúc khích.
 
-Triệu Chí Dũng ghé sát lại, nhe răng hỏi.
+"Thím Điền ơi, thế đứa cháu gái rượu ấy của thím năm nay bao nhiêu tuổi rồi?"
 
-"Hình như đang học lớp chín, thành tích học tập cực kỳ tốt luôn."
+Triệu Trí Dũng hớn hở xán lại gần, nhe răng cười hề hề gặng hỏi.
 
-Điền Thúy Phượng oang oang cái mồm: "Sau này có thể thi vào cùng một trường đại học với Kim An!"
+"Hình như mới lên lớp 9 thôi, mà thành tích học tập đỉnh chóp lắm đấy nhé."
 
-Triệu Chí Dũng gãi đầu: "Dì Điền, dì có gấp quá không đấy? Lớp chín thì mới bao nhiêu tuổi chứ?"
+Điền Thúy Phụng oang oang cái giọng sang sảng: "Sau này con bé có thể thi đỗ vào cùng một trường đại học với Kim An nhà mình cơ đấy!"
 
-"Ha ha ha ha. . . ."
+Triệu Trí Dũng gãi gãi đầu: "Thím Điền, thím có sốt ruột quá trớn không đấy? Học lớp 9 thì mới có nứt mắt mười bốn, mười lăm tuổi chứ mấy?"
 
-Mọi người cười ồ lên, có người bảo: "Điền Thúy Phượng, đứa cháu gái đó tôi thấy rồi, bà cũng tâm đen quá đấy, cũng đâu phải con gái bà đâu mà đi lừa gẫm Kim An nhà chúng ta như thế."
+"Hahaha..."
 
-Điền Thúy Phượng liền cãi nhau với người đó, bảo con gái tôi mà không gả đi sớm thì tôi đã cướp Kim An về nhà rồi.
+Cả đám người lại được mẻ cười nghiêng ngả. Có người bên cạnh bĩu môi trêu: "Điền Thúy Phụng ơi là Điền Thúy Phụng, cái con bé cháu gái ngoại nhà bà tôi từng gặp qua rồi nhé, lòng dạ bà đen tối vừa thôi chứ, có phải con gái ruột của bà đâu mà bà nỡ lòng nào đem ra dắt mũi thằng bé Kim An nhà chúng tôi thế hả."
 
-Người kia lại vặn lại: "Bà nội cậu ấy sẽ đến nhà bà đòi người đấy, hạng như con gái bà mà đòi xứng với Kim An nhà chúng ta sao, Kim An nhà chúng ta giờ là sinh viên đại học rồi."
+Thế là Điền Thúy Phụng lập tức quay sang đấu khẩu tay đôi với người kia, bảo rằng tại con gái tôi lấy chồng sớm quá, chứ không thì tôi đã bắt cóc thằng Kim An về làm rể quý từ lâu rồi.
 
-Bên lề đường tiếng cười nói không ngớt.
+Người kia lập tức đốp chát lại, bảo nếu bà dám làm thế thì bà nội nó vác gậy sang tận nhà bà đòi người cho mà xem, cái ngữ con gái bà mà đòi trèo cao với tới thằng Kim An nhà này à, thằng Kim An nhà chúng tôi giờ là sinh viên đại học danh giá đàng hoàng đấy nhé.
 
-Triệu Kim An cũng cười theo.
+Bên lề đường nhựa rộn rã những tiếng cười đùa rôm rả, vô tư lự.
 
-Điền Thúy Phượng cười lớn bảo: "Các bà nhìn xem, Kim An cười lên trông có giống cô vợ nhỏ không cơ chứ."
+Triệu Kim An cũng khẽ mỉm cười theo những câu chuyện phiếm không đầu không cuối ấy.
 
-Nhìn những người dân làng chân chất này, Triệu Kim An di di một viên đá nhỏ, thầm nghĩ nếu có khả năng thì sẽ giúp họ... làm giàu.
+Điền Thúy Phụng thấy thế lại vỗ đùi cười ngặt nghẽo: "Mấy người nhìn xem, thằng Kim An nó cười lên trông có giống hệt một cô dâu nhỏ thẹn thùng không cơ chứ."
 
-"Bíp —— bíp ——"
+Nhìn những người bà con lối xóm chất phác, mộc mạc trước mắt, Triệu Kim An dùng mũi giày khẽ nghiền một viên đá cuội nhỏ dưới chân, thầm nghĩ trong bụng, nếu sau này có cơ hội và năng lực, nhất định mình sẽ tìm cách giúp đỡ bà con quê hương cùng nhau làm giàu, đổi đời.
 
-Lúc này, một chiếc Land Rover Range Rover đi ngang qua rồi dừng lại bên lề đường, bấm còi.
+"Bíp —— Bíp ——"
 
-Có khách sỉ rồi.
+Đúng lúc này, một chiếc xe SUV Land Rover Range Rover hầm hố lướt qua rồi bất ngờ tấp vào lề đường, bấm còi inh ỏi hai tiếng.
 
-Vì là người cùng thôn, họ chỉ bán ít dưa hấu và lê, gặp khách sỉ thường sẽ mua cả sọt rồi xếp vào cốp xe.
+Có khách sộp đến mở hàng rồi.
 
-Mọi người thường xuyên bày hàng bên lề đường, thường thì chủ xe ưng của ai, mọi người xung quanh sẽ giúp nói vài câu, không bao giờ xảy ra tình trạng "cạnh tranh không lành mạnh".
+Bởi vì đều là người cùng một làng với nhau, hàng quán cũng chỉ bày bán chút dưa hấu và lê ngọt nhà trồng, hễ gặp được khách mua sỉ là họ sẵn sàng gom cả thúng cả sọt khuân bỏ gọn gàng vào cốp sau xe hơi.
 
-Đây cũng có thể coi là kinh nghiệm buôn bán mà họ đúc rút ra suốt nhiều năm qua.
+Mọi người thường xuyên ngồi bán hàng rong bên mép đường, thông thường hễ chủ xe ưng ý sạp hàng của ai thì những người xung quanh đều xúm lại đon đả nói giúp vài câu, tuyệt nhiên không bao giờ có chuyện chèn ép, cạnh tranh xấu xí hay tranh giành khách của nhau.
 
-Triệu Kim An lại càng chẳng quan tâm, thái độ rất tùy duyên.
+Đây cũng được coi là một thứ "triết lý kinh doanh" đúc kết qua bao năm tháng mưu sinh của họ.
 
-Nhưng những nữ chủ xe sau khi xuống xe, ngó đông ngó tây, hầu như đều sẽ chạy thẳng về phía Triệu Kim An.
+Triệu Kim An lại càng chẳng hề bận tâm, phong thái bán hàng vô cùng thong dong, tùy duyên.
 
-Cảm giác giống như bỏ ra vài chục hay một trăm tệ để "donat", đổi lại được mấy quả dưa hấu và ít lê vậy.
+Thế nhưng mấy vị nữ tài xế sau khi bước xuống xe, ngó nghiêng nhìn quanh một hồi là y như rằng chín phần mười đều sẽ rảo bước thẳng tiến về phía sạp dưa của Triệu Kim An.
 
-Còn Triệu Kim An bày hàng bên lề đường thì hơi giống như livestream thời sau, lượng người xem rất ít, chỉ để đợi một người có duyên (một bà chị giàu có nào đó).
+Cảm giác ấy có đôi phần giống như việc bỏ ra dăm ba chục, một trăm tệ tiền mặt để "donate thưởng" cho trai đẹp, mà lại còn đổi về được mấy quả dưa hấu mọng nước cùng một túi lê ngọt lịm.
 
-"Là nữ sao?"
+Còn cái cảnh Triệu Kim An ngồi bán hàng rong ngoài vỉa hè thế này, lại mang máng bóng dáng của những buổi livestream bán hàng ở thời đại sau này: lượng người xem trong phòng livestream tuy lèo tèo vài ba mống, nhưng chỉ cần ngồi đợi một người hữu duyên (một phú bà lắm tiền nhiều của) ghé ngang qua là đủ ấm no.
 
-Tài xế vừa xuống xe, mấy bà cô đã mất hết hứng thú.
+"Là phụ nữ lái xe à?"
 
-Khỏi cần hỏi, chắc chắn lại là đến mua của Triệu Kim An.
+Vừa thấy bóng dáng người tài xế bước xuống, mấy thím mấy cô trong làng lập tức ỉu xìu, mất hết cả hứng thú chèo kéo.
 
-"Triệu Kim An!?"
+Chẳng cần đoán cũng biết, chắc chắn lại chạy sang mua ủng hộ cho thằng bé Kim An rồi.
 
-Người tới đeo một chiếc kính râm to bản, mặc quần tây ống nhỏ, sơ mi trắng. Cô tháo kính râm xuống, cười hỏi: "Cậu làm gì ở đây thế?"
+"Triệu Kim An?!"
 
-"Bán dưa hấu."
+Người phụ nữ vừa bước xuống xe đeo một cặp kính râm to bản thời thượng, diện chiếc quần tây ống côn tôn dáng cùng áo sơ mi trắng thanh lịch, chỉn chu. Cô tháo chiếc kính râm xuống, nở nụ cười rạng rỡ đầy thích thú cất tiếng hỏi: "Cậu làm cái gì ở đây thế này?"
 
-"Bán dưa hấu!? Ha ha ha."
+"Tôi bán dưa hấu."
 
-Lạc Cẩn Chi ngẩn ra, nhìn Triệu Kim An đang bị mấy bà cô bao vây, đột nhiên bật cười.
+"Bán dưa hấu á?! Hahaha..."
 
-Cô không phải cười nhạo Triệu Kim An bán dưa bên lề đường, chỉ đơn giản là muốn cười thôi.
+Lạc Cẩn Chi ngẩn người ra mất một nhịp, rồi nhìn quanh thấy Triệu Kim An đang bị cả một bầy phụ nữ trung niên vây kín ở giữa, cô không kìm được mà bật cười khúc khích thành tiếng.
 
-"Người đàn bà này là ai thế?"
+Cô tuyệt đối không hề có ý chế giễu chuyện Triệu Kim An ngồi bán dưa rong ngoài lề đường, chỉ đơn thuần là thấy cảnh tượng này quá đỗi hài hước và thú vị mà thôi.
 
-"Sao cô ta lại quen Kim An? Không đúng, sao họ lại quen nhau?"
+"Người phụ nữ này là ai thế nhỉ?"
 
-Doãn Hiểu Lan và Triệu Chí Dũng nhìn Lạc Cẩn Chi, rồi lại nhìn chiếc Land Rover bên đường. Năm 2006, Land Rover Range Rover là hàng hiếm, giá cực kỳ đắt đỏ.
+"Sao cô ta lại quen biết Kim An được? Mà không đúng, hai người họ quen nhau từ bao giờ thế?"
 
-Bày hàng bên lề đường cũng phải có chút nhãn quang để biết xe nào là xe quý.
+Doãn Hiểu Lan và Triệu Trí Dũng hết nhìn Lạc Cẩn Chi lại đưa mắt ngắm nghía chiếc xe Land Rover Range Rover bóng lộn đỗ bên mép đường. Vào năm 2006, dòng xe Range Rover nhập khẩu này vô cùng hiếm hoi trên đường phố, giá bán đắt đỏ đến mức người bình thường chẳng dám mơ tới.
 
-Nói thật, đúng là người của hai thế giới khác nhau.
+Ngồi bán hàng rong bên đường riết rồi người ta cũng tự trang bị cho mình chút nhãn lực tinh tường, liếc qua là biết loại xe nào thuộc hàng đắt tiền của giới thượng lưu.
 
-Ở Triệu Kim An Gia thôn năm 2006, trưởng thôn có chiếc Toyota cũ thôi đã là oai lắm rồi.
+Nói một cách thành thật, người ta và bọn họ rõ ràng thuộc về hai thế giới hoàn toàn tách biệt.
 
-"Kim An, ai thế?"
+Ở cái làng họ Triệu năm 2006 này, ông trưởng thôn tậu được chiếc Toyota cũ mèm thôi đã đủ khiến cả làng lác mắt nể phục rồi.
 
-Triệu Chí Dũng nhỏ giọng hỏi.
+"Kim An, ai thế mày?"
 
-"Ừm.... Một bà chủ."
+Triệu Trí Dũng ghé sát tai thì thào hỏi nhỏ.
 
-Triệu Kim An không ngờ lại gặp Lạc Cẩn Chi ở đây. Lạc Cẩn Chi vốn định đến Triệu Kim An Gia thôn tìm hắn, cô cũng không ngờ hắn lại đang bày hàng bán dưa bên lề đường.
+"Ừm... một bà chủ doanh nghiệp."
 
-Ba triệu tệ và việc bày hàng bán dưa bên lề đường quả là một sự tương phản quá lớn.
+Triệu Kim An cũng không ngờ bản thân lại tình cờ chạm mặt Lạc Cẩn Chi ở chốn này. Vốn dĩ Lạc Cẩn Chi cất công lái xe về tận làng họ Triệu là để tìm Triệu Kim An, bản thân cô cũng chẳng thể ngờ nổi cậu thiếu niên này lại đang ngồi chồm hổm ngoài lề đường bán dưa hấu rong.
 
-Đã vậy còn là một tân sinh viên đại học.
+Con số ba triệu tệ tiền mặt đem ra đặt cọc đàm phán với cái cảnh ngồi vỉa hè bán dưa hấu quả thực tạo nên một sự tương phản, chênh lệch quá đỗi sâu sắc.
 
-Khi có ai đó đột ngột chạy đến đòi mua lại công ty của mình, hẳn bạn cũng sẽ đi tìm hiểu lai lịch của đối phương.
+Đã thế người ta lại còn là một cậu học trò vừa thi đỗ đại học nữa chứ.
 
-Lạc Cẩn Chi càng lúc càng tò mò về Triệu Kim An, có sơ yếu lý lịch trong tay thì việc điều tra một người là quá đơn giản.
+Bất cứ ai đang yên đang lành bỗng có người chạy tới gõ cửa đòi vung tiền mua đứt công ty của mình, việc đầu tiên bạn làm chắc chắn cũng là âm thầm điều tra, dò xét lai lịch gốc gác của đối phương.
 
-Điều kỳ lạ là, người này chạy đến đòi mua công ty, sau đó thì chẳng thấy đâu nữa, không hề có động thái gì tiếp theo.
+Lạc Cẩn Chi càng lúc càng cảm thấy tò mò tột độ về Triệu Kim An. Khi đã có trong tay bản sơ yếu lý lịch trích ngang của cậu, việc cho người điều tra một người thực sự quá đỗi dễ dàng.
 
-Thử hỏi có ai bàn chuyện làm ăn kiểu đó không?
+Điều kỳ quặc nhất là, cái người này đột ngột hùng hổ chạy đến đòi mua công ty của cô, sau đó thì... bặt vô âm tín, không hề có thêm bất kỳ động tĩnh hay hồi âm nào tiếp theo nữa.
 
-"Lạc tổng, ăn dưa không?"
+Thử hỏi trên đời này có ai đi đàm phán chuyện làm ăn kinh doanh theo cái kiểu cợt nhả như thế bao giờ không?
 
-"Cho tôi một miếng."
+"Chị Lạc, chị có ăn dưa hấu không?"
 
-Hiện tại cũng vậy, trong khi những người khác đều ngơ ngác, Triệu Kim An lại tỏ ra rất tự nhiên.
+"Cắt cho tôi một miếng nào."
 
-"Cậu ta không hề tò mò về sự xuất hiện đột ngột của mình chút nào sao? Hay là phản xạ của cậu ta quá chậm?"
+Lúc này cũng y như vậy, trong khi những người xung quanh đều tròn xoe mắt sững sờ thì Triệu Kim An lại giữ vẻ mặt vô cùng bình thản, tự nhiên.
 
-Lạc Cẩn Chi nhận lấy một miếng dưa, nhìn sọt tre dưới đất hỏi: "Dưa hấu bán thế nào?"
+"Cậu nhóc này chẳng lẽ không hề thấy tò mò trước sự xuất hiện đột ngột của mình sao? Hay là cái dây thần kinh phản xạ của cậu ta dài quá mức quy định rồi?"
 
-"Năm hào một cân."
+Lạc Cẩn Chi đón lấy miếng dưa hấu đỏ au mọng nước, đưa mắt nhìn những chiếc sọt tre đặt dưới đất rồi cất tiếng hỏi: "Dưa hấu bán thế nào đây cậu?"
 
-"Còn lê vàng thì sao? Đây là lê vàng phải không?"
+"Năm hào một cân ạ."
 
-"Vâng, nhà trồng, một tệ một cân."
+"Thế còn lê hoa vàng? Đây là giống lê hoa vàng đúng không?"
 
-"Ngọt không?"
+"Vâng, lê nhà tự trồng đấy ạ, một tệ một cân."
 
-"Ngọt, bà nội tôi trồng mà."
+"Có ngọt không đấy?"
 
-Hai người một hỏi một đáp, đây là kiểu câu hỏi gì vậy?
+"Ngọt lịm, lê do chính tay bà nội tôi trồng mà."
 
-Khách hàng hỏi ngọt không, có ai lại trả lời là không ngọt chứ?
+Hai người cứ thế một hỏi một đáp thong thả. Đây mà là câu hỏi của người đi mua hàng sao?
 
-Nhưng cái Lạc Cẩn Chi nghe lại là vế sau: "Bà nội tôi trồng". Qua điều tra, cô biết cha của Triệu Kim An đã qua đời vì tai nạn từ khi hắn còn học tiểu học.
+Khách hàng hỏi hoa quả có ngọt hay không, thử hỏi trên đời này có người bán hàng nào dại dột trả lời là không ngọt bao giờ?
 
-Điều này cho thấy bà nội có vị trí rất quan trọng trong lòng Triệu Kim An.
+Thế nhưng điều Lạc Cẩn Chi chú ý lắng nghe lại chính là vế sau của câu nói — "Lê do chính tay bà nội tôi trồng". Đã cất công điều tra lai lịch thì cô thừa biết cha của Triệu Kim An đã không may qua đời vì tai nạn từ hồi cậu còn học tiểu học.
 
-—— Bà nội trồng, nên chắc chắn là ngọt.
+Điều đó chứng tỏ vị trí của người bà nội trong lòng Triệu Kim An vô cùng thiêng liêng và nặng ký.
 
-Đồng thời cũng cho thấy bản tính của Triệu Kim An hẳn là không tồi, là một người rất biết ơn.
+— Quả do chính tay bà nội trồng, chắc chắn phải là quả ngọt lành nhất.
 
-Lạc Cẩn Chi nhìn Triệu Kim An với nụ cười như một người chị gái, lại hỏi: "Chỗ dưa và lê này của cậu, một trăm tệ đủ chưa?"
+Đồng thời, điều này cũng chứng minh tâm tính của Triệu Kim An bản chất không hề xấu xa, mà là một người sống rất có tình có nghĩa, biết trước biết sau và giàu lòng biết ơn.
 
-"Cũng tầm đó."
+Lạc Cẩn Chi nở nụ cười dịu dàng như một người chị gái lớn nhìn Triệu Kim An, lại cất tiếng hỏi: "Chỗ dưa hấu với lê này của cậu, một trăm tệ đã đủ tiền mua hết chưa?"
 
-"Vậy tôi mua hết, cả những thứ này nữa, mọi người có thể cân lên."
+"Dạ ngần ấy là vừa đủ rồi ạ."
 
-"Không cần đâu, không cần cân đâu!"
+"Vậy tôi bao trọn toàn bộ chỗ này nhé. Còn cả đống hoa quả của các cô các thím đằng kia nữa, mọi người mau mang lại đây cân xem hết bao nhiêu tiền nào."
 
-Mấy bà cô phấn khởi hẳn lên, vội vàng vơ lấy túi dứa.
+"Ôi dào ôi, không cần cân kẹo gì đâu cô ơi!"
 
-Vốn dĩ nhà họ cũng không trồng quá nhiều, chỉ là ăn không hết mới mang ra đổi lấy ít tiền, dù có dôi ra mấy cân cũng chỉ là vài tệ, quan trọng nhất là đổi được tiền mặt.
+Mấy người phụ nữ trong làng mừng rỡ ra mặt, vội vã chạy đi vớ lấy mấy cái bao tải dứa thoăn thoắt gom hàng.
 
-"Kim An, đại ông chủ nào thế?"
+Vốn dĩ nhà họ đâu có trồng trọt theo quy mô trang trại bạt ngàn gì, chỉ là hoa quả trong vườn ăn không xuể nên mới hái mang ra đường kiếm thêm vài đồng tiền lẻ mua mắm mua muối, dẫu có dôi ra vài ba cân cũng chỉ đáng giá vài ba đồng bạc lẻ, quan trọng nhất là bán tống bán tháo thu được tiền tươi về tay ngay tức khắc.
 
-Điền Thúy Phượng vừa đóng gói vừa nhỏ giọng hỏi.
+"Kim An ơi, bà chủ lớn ở đâu mà xộp thế cháu?"
 
-Doãn Hiểu Lan nhìn Lạc Cẩn Chi đang đi về phía chiếc Land Rover, nhưng tai lại dỏng lên nghe câu trả lời của Triệu Kim An, dường như có chút ghen tuông.
+Điền Thúy Phụng vừa thoăn thoắt nhét dưa vào bao tải vừa ghé tai thì thào hỏi nhỏ.
 
-Triệu Chí Dũng cũng rất cuống quýt, Triệu Kim An quen biết những ai, anh ta đều biết hết mà.
+Doãn Hiểu Lan đưa mắt dõi theo từng cử chỉ của Lạc Cẩn Chi đang thong thả bước về phía chiếc xe Land Rover, nhưng đôi tai lại dỏng lên chăm chú lắng nghe câu trả lời của Triệu Kim An, trong lòng dường như thoáng dâng lên một chút vị chua ghen tuông nhàn nhạt.
 
-"Kim An, Kim An. . . . Land Rover đấy!"
+Triệu Trí Dũng cũng sốt ruột không kém, Triệu Kim An quen biết những ai, hắn vốn là đứa nắm rõ như lòng bàn tay cơ mà.
 
-"Hè này tao đi làm thêm..."
+"Kim An, Kim An... Xe Land Rover xịn đét đấy mày ơi!"
 
-Đang nói chuyện, Lạc Cẩn Chi vẫy tay với Triệu Kim An: "Triệu Kim An, lại đây dội nước cho tôi!"
+"Kỳ nghỉ hè tao có đi tìm việc làm thêm hè..."
 
-"Kỹ tính thật đấy, ăn miếng dưa xong còn dùng nước khoáng rửa tay."
+Đang dở câu chuyện, Lạc Cẩn Chi bỗng đứng bên cạnh xe vẫy vẫy tay gọi Triệu Kim An: "Triệu Kim An, lại đây cầm chai nước rót hộ tôi rửa tay cái nào!"
 
-Họ không biết Lạc Cẩn Chi chính là người bán nước khoáng, hơn nữa, thế này thì có gì là kỹ tính đâu?
+"Đúng là người thành phố có khác, sang chảnh gớm nhỉ, ăn xong miếng dưa hấu mà cũng phải lấy nước khoáng đóng chai ra rửa tay cơ đấy."
 
-Chỉ là thấy Lạc Cẩn Chi dường như đối xử với Triệu Kim An rất tốt, Điền Thúy Phượng lại bắt đầu càm ràm.
+Họ làm sao biết được Lạc Cẩn Chi vốn dĩ chính là bà chủ lớn của công ty sản xuất nước khoáng, vả lại, chuyện đó thì có gì mà gọi là sang chảnh quá mức?
 
-"Đúng là đẹp trai thì có lợi thật."
+Chỉ là nhìn thấy Lạc Cẩn Chi dường như đối xử vô cùng ưu ái, thân thiết với Triệu Kim An, Điền Thúy Phụng lại không kìm được mà buông lời cảm thán:
 
-"Dì à, Kim An là soái, 'xinh' là dùng để miêu tả con gái."
+"Đấy, người sinh ra có tướng mạo khôi ngô, xinh xẻo đúng là sướng thật đấy."
 
-Doãn Hiểu Lan đính chính.
+"Thím ơi, Kim An là con trai thì phải gọi là đẹp trai, tuấn tú chứ, từ 'xinh xẻo' là để hình dung con gái bọn cháu mà."
 
-"Kim An chính là xinh, cô không tin thì cứ hỏi mấy người bọn họ đi."
+Doãn Hiểu Lan lên tiếng đính chính lại.
 
-Điền Thúy Phượng cười nói.
+"Thằng Kim An nhà này là xinh xẻo thật sự, mày không tin cứ mở miệng hỏi mấy người bọn họ mà xem."
 
-Doãn Hiểu Lan cũng cười, nhưng mắt vẫn dán vào Triệu Kim An và Lạc Cẩn Chi, nghĩ thầm: Cô không đổi tay được à, tại sao cứ phải bắt Kim An dội nước cho cô chứ?
+Điền Thúy Phụng cười ha hả bảo.
 
-"Ha ha ha, Kim An đúng là sinh viên đại học có khác, các bà xem, đi làm thêm mà ông chủ còn đích thân tìm đến tận nơi, cho nên nói vẫn phải học hành cho nhiều vào."
+Doãn Hiểu Lan cũng khẽ mỉm cười theo, nhưng đôi mắt vẫn chăm chú dõi theo từng hành động của Triệu Kim An và Lạc Cẩn Chi đằng xa. Chị không biết tự đổi tay cầm chai nước được hay sao mà cứ nhất thiết phải bắt Kim An đứng rót nước cho chị rửa tay thế không biết?
 
-"Thôn chúng ta năm nay có mấy sinh viên đại học nhỉ?"
+"Hahaha, thằng Kim An nhà mình dẫu sao cũng là sinh viên đại học đàng hoàng, mấy bà xem đấy, đi xin việc làm thêm hè thôi mà đích thân bà chủ lớn phải lái xe sang về tận làng đón rước thế kia cơ mà. Cho nên người ta mới bảo con người ta sống ở đời là phải chịu khó học hành, đọc nhiều sách vở vào."
 
-"Ba người."
+"Năm nay làng mình có mấy đứa đỗ đại học ấy nhỉ?"
 
-Triệu Chí Dũng bấm đốt ngón tay, không đúng, phải có sáu bảy người chứ.
+"Được ba đứa."
 
-"Còn tao thì sao?"
+Triệu Trí Dũng xòe mấy ngón tay ra đếm đếm, ủa không đúng nha, tính cả làng phải có sáu, bảy đứa đỗ lận mà.
 
-Mấy bà cô liếc anh ta một cái, ý bảo: "Cái bằng cao đẳng của mày mà cũng tính à?"
+"Thế còn cháu thì sao các thím?"
 
-"Mỹ nữ boss ơi, cốp sau không nhét vào được nữa, đầy rồi!"
+Mấy người phụ nữ đồng loạt liếc xéo hắn một cái, ánh mắt như muốn bảo: Cái loại đỗ trường cao đẳng nghề như mày thì cũng tính là sinh viên đại học được chắc?
 
-"Vậy thì để ở ghế sau đi."
+"Bà chủ xinh đẹp ơi, cốp sau xe nhét đầy ắp rồi, không còn chỗ nhét thêm nữa đâu!"
 
-Lạc Cẩn Chi mở cửa xe, nhìn Triệu Kim An nói: "Coi như mua về làm phúc lợi cho nhà máy vậy."
+"Vậy thì cứ chất hết lên hàng ghế sau đi."
 
-"Triệu Kim An đi với tôi một chuyến nhé, trò chuyện chút không?"
+Lạc Cẩn Chi mở toang cánh cửa sau của xe, nhìn Triệu Kim An mỉm cười nói: "Coi như tôi mua chỗ hoa quả này về làm quà phúc lợi phát cho công nhân viên dưới xưởng vậy."
 
-Câu này là nói cho những người có mặt ở đó nghe. Lạc Cẩn Chi đến Triệu Kim An Gia thôn thuần túy là vì tò mò, gặp được Triệu Kim An đang bày hàng bên đường là đã thỏa mãn được sự tò mò của cô rồi.
+"Triệu Kim An, đi cùng tôi một chuyến nhé, chúng ta tìm chỗ ngồi nói chuyện chút đi?"
 
-Việc có vào trong thôn nữa hay không, trong lòng cô đã có tính toán.
+Câu nói này là cô cố tình cất cao giọng nói cho tất cả những người đang có mặt ở đó cùng nghe. Lạc Cẩn Chi cất công lái xe về tận làng họ Triệu thực chất chỉ là vì tính hiếu kỳ thuần túy muốn khám phá về cậu thiếu niên này, nay vừa đến đầu làng đã bắt gặp cảnh Triệu Kim An ngồi bán dưa rong vỉa hè thì cơ bản sự tò mò của cô đã được thỏa mãn trọn vẹn rồi.
 
-Triệu Kim An chọn một quả lê vàng vừa to vừa tròn đưa cho Triệu Duyệt Thiên, rồi nói với Doãn Hiểu Lan: "Chị dâu, chị nói với bà nội một tiếng giúp em nhé."
+Còn việc có cần thiết phải lái xe vào sâu trong làng họ Triệu nữa hay không, trong lòng cô đã tự có đáp án.
 
-"Được."
+Triệu Kim An cẩn thận chọn một quả lê hoa vàng to tròn, mọng nước nhất dúi vào tay bé Triệu Duyệt Thiến, rồi quay sang nói với Doãn Hiểu Lan: "Chị dâu, lát chị về nhà nói với bà nội một tiếng giúp em nhé."
 
-Thanh toán xong, năm trăm tệ, Lạc Cẩn Chi vòng qua ghế lái, mở cửa xe gọi lớn: "Triệu Kim An, lên xe!"
+"Ừ, em cứ đi đi."
 
-"Ngồi ghế phụ ấy!"
+Thanh toán xong xuôi năm trăm tệ tiền mặt, Lạc Cẩn Chi vòng qua phía ghế lái, mở cửa xe rồi cất giọng giục: "Triệu Kim An, lên xe mau!"
 
-Lạc Cẩn Chi lại chỉ huy Triệu Kim An khi hắn đang định ngồi vào ghế sau.
+"Ngồi lên ghế phụ đằng trước này!"
 
-Triệu Kim An thuần thục mở cửa ghế phụ lên xe, cứ thế rời đi.
+Lạc Cẩn Chi lại tiếp tục ra lệnh chỉ huy khi thấy Triệu Kim An đang định mở cửa chui vào hàng ghế sau.
 
-Mấy người đứng đờ ra tại chỗ, nhìn theo hướng chiếc Land Rover rời đi, Triệu Chí Dũng lẩm bẩm: "Sao tao không biết là Kim An đi làm thêm từ lúc nào nhỉ?"
+Triệu Kim An thuần thục kéo cửa bước lên ngồi ngay ngắn ở ghế phụ phía trước, chiếc xe sang cứ thế êm ái lăn bánh rời đi.
 
-"Anh bảo sau này sẽ đưa cháu lên Quận Sa đi học."
+Mấy người còn lại đứng chôn chân ngơ ngác tại chỗ, dõi mắt nhìn theo bóng chiếc xe Range Rover khuất dần sau khúc quanh. Triệu Trí Dũng gãi đầu lẩm bẩm trong miệng: "Sao tao lại không biết chuyện thằng Kim An đi tìm việc làm thêm hè từ bao giờ nhỉ?"
 
-Triệu Duyệt Thiên một tay ôm quả lê vàng, một tay cầm cây kem que năm hào, ngây thơ nói.
+"Anh Kim An bảo sau này sẽ đón cháu lên Quận Sa học trường lớn đấy."
 
-"Không đúng nha, kỳ nghỉ hè kết thúc rồi, Kim An không đi học đại học nữa sao?"
+Bé Triệu Duyệt Thiến một tay ôm chặt quả lê hoa vàng to tướng, tay kia cầm que kem đá năm hào mát lạnh, ngây thơ cất giọng non nớt khoe với mọi người.
 
-. . . . . . .
+"Ơ kìa, nhưng mà kỳ nghỉ hè sắp hết sạch rồi, thằng bé Kim An nó không đi học đại học nữa hay sao?..."
+
+...

@@ -1,197 +1,193 @@
-# Chương 31: Thẳng nam....
+# Chương 31: Trai thẳng sắt đá
 
-2 0 0 6 năm trên đường xe cá nhân còn không nhiều, lạc cẩn chi một tay dựng tay lái một tay đương vị, gặp Triệu Kim An sau khi lên xe thông thạo thắt chặt dây an toàn.
+> **Tiêu đề gốc**: 第31章 直男....
 
-Thật là kỳ quái.
+Vào năm 2006, xe hơi cá nhân trên đường phố vẫn còn là của hiếm. Lạc Cẩn Chi một tay đặt trên vô lăng, tay kia nắm cần số, khẽ liếc nhìn Triệu Kim An vừa lên xe đã thuần thục kéo dây an toàn cài vào chốt đánh "tách" một tiếng.
 
-Lần thứ nhất ngồi xe cá nhân của người không có cái ý thức này đi, coi như sờ đến dây an toàn cũng không biết where cắm.
+Thật kỳ lạ.
 
-"Triệu Kim An, ngươi rất tuân theo quy củ?"
+Người lần đầu ngồi xe hơi riêng thường làm gì có ý thức này, thậm chí nếu có mò thấy dây an toàn cũng chẳng biết cắm vào đâu.
 
-Lạc cẩn chi cúi đầu nhìn một chút dây an toàn then cài cửa vị trí.
+"Triệu Kim An, cậu chấp hành quy củ gớm nhỉ?"
 
-Bây giờ của giao thông pháp quy còn không có nghiêm khắc như vậy, tay lái phụ hệ không cài dây an toàn không có nhiều như vậy camera, càng sẽ không tiền phạt trừ điểm.
+Lạc Cẩn Chi cúi đầu nhìn thoáng qua vị trí chốt khóa dây an toàn.
 
-Lạc cẩn chi mặt ngoài hỏi là dây an toàn, kì thực biểu đạt là, Thái Thú quy củ người thích hợp làm ăn sao?
+Thời điểm này luật giao thông đường bộ vẫn chưa quá khắt khe, camera giám sát việc thắt dây an toàn ở ghế phụ chưa nhan nhản như sau này, càng không bị trừ điểm phạt tiền gắt gao.
 
-Thời đại này chuyển phát nhanh ngành nghề, mấy người kia chuyển phát nhanh công ty địa bàn cũng là lão bản dẫn người đánh ra.
+Bề ngoài Lạc Cẩn Chi hỏi về chuyện dây an toàn, nhưng thực chất là đang bóng gió: Một kẻ quá mức khuôn phép, liệu có thích hợp để làm kinh doanh?
 
-Chớ nói chi là mỗi cái thành thị cái kia chút làm khối đất buôn bán.
+Ở cái thời buổi này, ngành chuyển phát nhanh hay những công ty vận tải, san lấp mặt bằng ở các đô thị, địa bàn nào mà chẳng do đám ông chủ dẫn quân đi giành giật, đấm đá mà thành.
 
-"an toàn đệ nhất."
+"An toàn là trên hết."
 
-Triệu Kim An tránh nặng tìm nhẹ:"lạc cuối cùng, ngươi vừa mới đậu xe vị trí, là phụ thân ta cưỡi motor lao xuống của vị trí."
+Triệu Kim An nhẹ nhàng chuyển hướng câu chuyện: "Lạc tổng, chỗ cô vừa dừng xe ban nãy, chính là nơi bố tôi chạy xe máy lao thẳng xuống đèo đấy."
 
-"an toàn đệ nhất?"
+"An toàn là trên hết?"
 
-Một lời hai ý nghĩa? Lạc cẩn chi ngoài ý muốn nhìn một chút Triệu Kim An, Triệu Kim An tựa hồ nghe không hiểu, lại trở về đáp giải thích trong lòng mình mấy cái nghi hoặc.
+Một câu nói hai tầng ý nghĩa sao? Lạc Cẩn Chi ngạc nhiên liếc nhìn cậu. Triệu Kim An làm như không hiểu ánh mắt ấy, nhưng câu trả lời lại ngầm giải tỏa không ít mối nghi ngờ trong lòng cô.
 
-"Triệu Kim An, ngươi vì cái gì không cho ta gọi điện thoại?"
+"Triệu Kim An, sao cậu không gọi điện thoại cho tôi?"
 
-"ngươi lại không bán công ty, ta gọi điện thoại cho ngươi làm cái gì?"
+"Cô đâu có bán công ty, tôi gọi cho cô làm gì?"
 
-Lạc cẩn chi: · · · · · ·
+Lạc Cẩn Chi: "..."
 
-Tức giận đến lòng buồn bực.
+Tức đến nghẹn lồng ngực.
 
-Đây là sắt thép thẳng nam sao, dạng này người có thể tìm tới bạn gái sao?
+Tên này rốt cuộc là loại trai thẳng đực rựa gì thế này? Kiểu người như vậy mà cũng tìm được bạn gái sao?
 
-Trắng sinh một bộ khuôn mặt tốt!
+Uổng phí cho một gương mặt khôi ngô tuấn tú!
 
-Triệu Kim An lại mở miệng:"chủ ta động liên hệ ngươi, ngươi coi như muốn bán công ty cũng sẽ thừa cơ cố tình nâng giá, nhưng mà, ta lại không có nhiều tiền như vậy, mua không nổi công ty ngươi."
+Triệu Kim An lại thản nhiên bồi thêm một câu: "Tôi chủ động liên hệ trước, cho dù cô có muốn bán thì cũng sẽ nhân cơ hội ép giá nâng giá. Mà ngặt nỗi, tôi lại chẳng có nhiều tiền đến thế, không mua nổi công ty của cô."
 
-Lạc cẩn chi: · · · · · ·
+Lạc Cẩn Chi cạn lời: "..."
 
-Nàng triệt để bị Triệu Kim An của ngây thơ (ngu đần) khuất phục.
+Cô hoàn toàn bị sự ngây thơ (pha chút ngốc nghếch) của Triệu Kim An đánh bại.
 
-"Triệu Kim An, ngươi cái gì đều cùng ta nói? Liền không có nhiều tiền như vậy đều nói cho ta? Vậy ngươi còn thế nào cùng ta đàm luận?"
+"Triệu Kim An, chuyện gì cậu cũng bộc bạch hết với tôi sao? Ngay cả việc mình không có tiền cũng khai sạch? Thế thì cậu còn đàm phán với tôi kiểu gì nữa?"
 
-"đây không phải rõ ràng sao?"
+"Chuyện đó chẳng phải đã rõ như ban ngày rồi sao?"
 
-"cái gì rõ ràng?"
+"Rõ cái gì cơ?"
 
-"ai chủ động, ai liền rơi xuống hạ phong, đạo lý này ngươi sẽ không hiểu sao?"
+"Ai chủ động trước thì người đó rơi vào thế hạ phong. Đạo lý đơn giản thế này chẳng lẽ cô không hiểu?"
 
-Lạc cẩn chi suýt chút nữa thì cười gập cả người, Triệu Kim An lại vẻ mặt thành thật:"ngươi nói lục tục ngo ngoe đối với công ty đưa vào cũng không chỉ 3 0 0 vạn, vậy ngươi chắc chắn sẽ không bán rẻ cho ta."
+Lạc Cẩn Chi suýt chút nữa bật cười nghiêng ngả, nhưng Triệu Kim An vẫn giữ vẻ mặt nghiêm túc: "Cô bảo trước sau gì cô cũng đã đổ vào công ty hơn ba triệu tệ, vậy chắc chắn cô sẽ không chịu bán rẻ cho tôi."
 
-"cho nên, ngươi coi như muốn bán cho ta, ta bây giờ cũng lấy ra không ra nhiều tiền như vậy."
+"Thế nên, dù cô có muốn bán, hiện tại tôi cũng chẳng moi đâu ra ngần ấy tiền."
 
-"còn có."
+"Hơn nữa..."
 
-"còn có?"
+"Hơn nữa cái gì?"
 
-Lạc cẩn chi đã chăm chú mấy phần, nàng đột nhiên phát giác Triệu Kim An nói có mấy phần đạo lý, thật đúng là thành của khả ái?
+Lạc Cẩn Chi thoáng nghiêm nét mặt. Cô bỗng nhận ra lời Triệu Kim An nói quả thật có vài phần hữu lý, lại còn chân thành đến mức đáng yêu.
 
-"ngươi mở của Land Rover."
+"Cô đi xe Land Rover."
 
-Triệu Kim An sờ lên chốt cửa:"chín phần mười mới, chứng minh vốn của công ty không tới không phải bán công ty cổ phần không thể."
+Triệu Kim An đưa tay sờ nhẹ vào tay nắm cửa xe: "Xe mới đến chín phần, chứng tỏ dòng tiền của công ty vẫn chưa đến mức kiệt quệ buộc phải bán tống bán tháo cổ phần."
 
-Lạc cẩn chi nhẹ gật đầu biểu thị tán thành.
+Lạc Cẩn Chi gật đầu, thừa nhận phân tích của cậu.
 
-"cho nên, lạc cuối cùng ngươi hôm nay tới tìm ta, vì cái gì?"
+"Vậy nên, Lạc tổng hôm nay cất công đến tìm tôi, là vì chuyện gì?"
 
-Triệu Kim An quay đầu nhìn về phía lạc cẩn chi, lạc cẩn chi một mặt giảo hoạt:"Triệu Kim An, nếu như ta bây giờ bán cho công ty ngươi, ngươi có thể lấy ra 3 0 0 vạn sao?"
+Triệu Kim An quay sang nhìn thẳng vào mắt Lạc Cẩn Chi. Cô nở một nụ cười tinh quái: "Triệu Kim An, nếu bây giờ tôi bán công ty cho cậu, cậu có móc ra nổi ba triệu không?"
 
-Đối với Triệu Kim An của điều tra cũng là điều tra hộ tịch, tra không được hắn mua cúp thế giới.
+Việc điều tra về Triệu Kim An trước đó chỉ dừng lại ở sổ hộ khẩu gia đình, đương nhiên cô không thể nào biết được cậu vừa trúng một khoản kếch xù từ World Cup.
 
-"nếu như công ty ngươi bán cho ta, lúc nào ký hợp đồng, ta lúc nào cho ngươi chuyển tiền."
+"Nếu cô chịu bán, lúc nào ký hợp đồng, lúc đó tôi sẽ chuyển tiền."
 
-Triệu Kim An đâu ra đấy.
+Triệu Kim An đáp rành rọt từng chữ.
 
-Lạc cẩn chi nghiêm túc nhìn hắn mấy giây, thu liễm ý cười, một cước chân ga.
+Lạc Cẩn Chi chăm chú nhìn cậu vài giây, nụ cười trên môi dần thu lại, chân nhấn mạnh chân ga.
 
-"dẫn ngươi đi cái địa phương."
+"Dẫn cậu đến một nơi."
 
-Lái xe đến nội thành 1 5 phút, từ cảnh khu tiến vào đi, lại là 1 0 phút, qua một cái trạm thủy điện, một cái chỗ ngã ba xuống gặp được nhà máy nước phòng.
+Lái xe vào khu vực nội thành mất mười lăm phút, chạy tiếp vào khu danh thắng thêm mười phút nữa, đi qua một trạm thủy điện nhỏ rồi rẽ xuống một ngã ba dốc là thấy xưởng sản xuất nước đóng chai hiện ra trước mắt.
 
-Cửa ra vào ngừng lại một đài xe hàng nhỏ, có vài tên công nhân đang tại chứa lên xe.
+Trước cổng xưởng có một chiếc xe tải nhỏ đang đỗ, mấy người công nhân đang bốc hàng lên xe.
 
-"Lưu sư phó, tới, mua cho các ngươi điểm dưa hấu quả lê!"
+"Bác Lưu, qua đây! Cháu có mua ít dưa hấu với lê cho mọi người này!"
 
-Lạc cẩn chi xuống xe, hướng vài tên công nhân vẫy tay.
+Lạc Cẩn Chi bước xuống xe, vẫy tay gọi đám công nhân.
 
-Lưu sư phó cùng vài tên công nhân chạy tới, một bên khuân đồ, nhìn mấy lần Triệu Kim An:"lạc cuối cùng, ai vậy? Ngươi biểu đệ?"
+Bác Lưu cùng mấy người thợ chạy lại, vừa bê hoa quả vừa tò mò liếc nhìn Triệu Kim An: "Lạc tổng, ai đây? Em họ cháu à?"
 
-"a? Đúng, ta biểu đệ, sinh viên."
+"Dạ? À vâng, em họ cháu, sinh viên đại học đấy ạ."
 
-Lạc cẩn chi vung lên một chòm tóc, tại solar; shiny; sunny chiếu rọi xuống rạng ngời rực rỡ.
+Lạc Cẩn Chi vén nhẹ lọn tóc mai ra sau tai, dưới ánh nắng trưa rực rỡ, góc nghiêng của cô bừng sáng lấp lánh.
 
-Đặc biệt là lau điểm son môi của bờ môi, rất mê người.
+Đặc biệt là đôi môi thoa một lớp son nhẹ, vô cùng quyến rũ và hút mắt.
 
-Triệu Kim An nhìn mấy lần nhà máy, lại nhìn về phía xuống lộ, từ chỗ ngã ba đi lên đã đến Đông Giang cảnh hồ khu.
+Triệu Kim An ngắm nhìn khu nhà xưởng một lượt, rồi nhìn con đường dốc dẫn lên trên, chỉ cần đi ngược từ ngã ba lên là sẽ tới thẳng khu du lịch hồ Đông Giang.
 
-"sinh viên, còn có mấy ngày liền khai giảng trình diện đi?"
+"Cậu sinh viên, còn mấy ngày nữa là nhập học rồi nhỉ?"
 
-Lạc cẩn chi đột nhiên mở miệng hỏi.
+Lạc Cẩn Chi bất chợt lên tiếng hỏi.
 
-"ân."
+"Vâng."
 
-Cái này cũng là Triệu Kim An chỗ không rõ, lạc cẩn chi lúc này tìm đến mình làm cái gì?
+Đây cũng chính là điều Triệu Kim An chưa hiểu rõ: Lạc Cẩn Chi tìm đến cậu vào thời điểm này rốt cuộc để làm gì?
 
-"Triệu Kim An, cho là ngươi rất thành thật của, không nghĩ tới cũng gạt người."
+"Triệu Kim An, tôi cứ tưởng cậu là người thật thà, ai ngờ cũng biết gạt người ta."
 
-Lạc cẩn chi nhìn có chút u oán:"trên lý lịch sơ lược viết sư lớn tốt nghiệp, nguyên lai là vừa mới muốn lên năm thứ nhất đại học chuẩn sinh viên, như thế nào? Công ty của ta của marketing tổng thanh tra là cái nghỉ hè công việc?"
+Vẻ mặt Lạc Cẩn Chi thoáng nét hờn dỗi: "Trong bản lý lịch thì ghi tốt nghiệp Đại học Sư phạm, hóa ra chỉ là một tân sinh viên chuẩn bị bước vào năm nhất. Sao hả? Giám đốc tiếp thị của công ty tôi lại là một chân làm thêm kỳ nghỉ hè đấy à?"
 
-"lạc cuối cùng, có lỗi với, sơ yếu lý lịch, chỉ là vì nhìn thấy ngươi."
+"Lạc tổng, xin lỗi cô. Bản lý lịch đó, chẳng qua chỉ là cái cớ để tôi được gặp cô thôi."
 
-Triệu Kim An thành khẩn nói xin lỗi.
+Triệu Kim An thành khẩn nói lời xin lỗi.
 
-"miệng xin lỗi?"
+"Xin lỗi bằng mồm thôi sao?"
 
-Không nghĩ tới lạc cẩn chi theo cột liền hướng leo lên:"lấy ra chút thành ý, nếu để cho ngươi tới làm marketing tổng thanh tra ngươi sẽ làm như thế nào? Ngươi ngày đó không nói gì."
+Không ngờ Lạc Cẩn Chi lại được nước lấn tới: "Phải thể hiện chút thành ý chứ. Nếu để cậu làm giám đốc tiếp thị, cậu sẽ triển khai thế nào? Hôm trước ở quán trà cậu chẳng chịu hé răng nửa lời."
 
-Triệu Kim An lắc đầu:"ta không phải là công ty ngươi marketing tổng thanh tra."
+Triệu Kim An lắc đầu: "Tôi đâu phải là giám đốc tiếp thị của công ty cô."
 
-Lạc cẩn chi cười một tiếng.
+Lạc Cẩn Chi khẽ bật cười.
 
-Nàng phát giác Triệu Kim An quá thành thật rồi, mềm không được cứng không xong, nếu như là nam sinh khác nhất định sẽ nói khoác không biết ngượng phát biểu giải thích của mình, muốn biểu hiện cực mạnh.
+Cô nhận ra tên nhóc này quá đỗi già dặn và cứng đầu, mềm nắn rắn buông đều vô dụng. Nếu là những chàng trai mới lớn khác, đứng trước một nữ giám đốc xinh đẹp nhường này, chắc chắn đã thao thao bất tuyệt thể hiện kiến thức, bộc lộ khát khao muốn ghi điểm từ lâu rồi. Chàng trai mười tám tuổi nào mà cưỡng lại nổi sự cám dỗ ấy?
 
-Huống chi đối mặt là một người đẹp lão bản, 1 8 tuổi nam sinh chịu nổi?
+"Triệu Kim An, nói thử xem nào."
 
-"Triệu Kim An, nói một chút."
+Nét mặt Lạc Cẩn Chi trở nên nghiêm túc: "Tất nhiên, nếu chỉ là rải hàng phủ kín các quầy kệ thì không cần bàn tới nữa. Nếu nguồn vốn dồi dào, ai làm trong ngành hàng tiêu dùng nhanh (FMCG) cũng đều nắm rõ."
 
-Lạc cẩn chi nghiêm túc:"đương nhiên, nếu như chỉ là phô hàng, trưng bày cũng không cần nói, nếu như tài chính đầy đủ, nhanh tiêu tan ngành nghề đều biết."
+"Đội ngũ bán hàng tự xây dựng, hợp tác với bên thứ ba, thuê ngoài, đại lý phân phối... đó là mô hình bán hàng hỗn hợp truyền thống nhất trong ngành của chúng tôi."
 
-"tự có tiêu thụ đoàn đội, phe thứ ba hợp tác, bao bên ngoài, bán ra thương, đây là chúng ta nghề này rất truyền thống phối hợp tiêu thụ hình thức."
+"Đội ngũ kinh doanh của cô đẩy hàng đi vô cùng chật vật, đúng không?" Triệu Kim An hỏi ngược lại.
 
-"ngươi tiêu thụ đoàn đội đẩy lên rất phí sức đi?"
+"Đúng vậy."
 
-Triệu Kim An vấn đạo.
+Lạc Cẩn Chi gật đầu thừa nhận.
 
-"đúng."
+Điều này cũng quá rõ ràng, chỉ cần dạo qua vài tiệm tạp hóa ngoài phố là thấy ngay.
 
-Lạc cẩn chi gật đầu thừa nhận.
+"Điểm sinh lời chính của công ty cô hiện nay chủ yếu dựa vào việc bán nước khoáng bình lớn."
 
-Cái này cũng là rõ ràng, chỉ cần chạy ngoài hơn mấy cái quầy bán quà vặt xem liền biết.
-
-"công ty ngươi lợi nhuận điểm, chủ yếu là bán thùng trang nước khoáng."
-
-Triệu Kim An lại chỉ vào xe hàng nói:"cơ quan đơn vị, thùng đựng nước cạnh tranh khách quan không có kịch liệt như vậy, còn có, ngươi chiếm vận chuyển chi phí thấp của tiện lợi."
+Triệu Kim An chỉ tay về phía chiếc xe tải: "Cung cấp cho các cơ quan, đoàn thể, trường học thì sự cạnh tranh tương đối ít khốc liệt hơn. Hơn nữa, cô còn tận dụng được lợi thế chi phí vận chuyển nội địa thấp."
 
 Đây là lời nói thật.
 
-Vô luận nông hộ sơn tuyền, oa ha ha, vẫn là di bảo, bọn hắn đều không tại thùng đựng nước phía trên chân chính phát lực.
+Bất kể là Nông Phu Sơn Tuyền, Oa Cáp Cáp (Wahaha) hay Di Bảo (C'estbon), họ đều chưa thực sự dồn toàn lực vào phân khúc nước bình lớn dung tích 19 lít.
 
-Cho tới nay thùng đựng nước là mỗi cái thành thị nước khoáng công ty"giữ lại cho mình thị trường."
+Từ trước tới nay, thị trường nước bình luôn là "mảnh đất cắm dùi" của các công ty nước khoáng địa phương tại từng thành phố.
 
-Có thể thùng đựng nước lại nơi nào có nhỏ như vậy một bình liền bán hai khối tiền nước khoáng kiếm tiền?
+Thế nhưng, nước bình làm sao có thể siêu lợi nhuận bằng những chai nước khoáng nhỏ xíu giá hai tệ được?
 
-Chủ yếu nhất là, địa vực tính hạn chế.
+Vấn đề cốt tử nhất chính là sự hạn chế về mặt địa lý.
 
-Ngươi cũng không thể đem thùng đựng nước từ sâm thành vận đến quận cát đi, không nói như thế nào mở ra thị trường, vận chuyển chi phí quy ra xuống, ngươi ưu thế cạnh tranh ở nơi nào?
+Cô không thể nào chở từng bình nước lớn từ Sâm Thành lên tận thành phố Quận Sa để bán được. Chưa bàn đến chuyện làm sao khai phá thị trường, chỉ riêng chi phí vận tải tính vào giá thành thì ưu thế cạnh tranh của cô nằm ở đâu?
 
-Lần này lạc cẩn chi không có chính diện đáp lại.
+Lần này Lạc Cẩn Chi không đáp lại.
 
-Đây thuộc về công ty bí mật, không tốt đáp lại.
+Đây vốn dĩ là bí mật kinh doanh và nỗi trăn trở lớn nhất của công ty, cô không tiện thổ lộ.
 
-"lạc cuối cùng, ngươi có dã tâm, ngươi muốn đi ra ngoài, ngươi muốn đem mình của nước khoáng bán đi tư cách tinh, bán đi sâm thành."
+"Lạc tổng, cô là người có tham vọng. Cô muốn bứt phá ra ngoài, muốn mang thương hiệu nước khoáng của mình vượt khỏi Tư Tinh, bước chân ra toàn Sâm Thành."
 
-Triệu Kim An một mặt bình thản phân tích:"cho nên ngươi muốn mở ra lối riêng, từ nước trái cây đường đua vào tay, nước khoáng hương vị đều không khác mấy, nhưng nước trái cây không tầm thường."
+Triệu Kim An bình thản phân tích: "Vì vậy cô muốn tìm một lối đi tắt, đánh vào mảng nước ép trái cây. Nước khoáng thì vị nào cũng na ná như nhau, nhưng nước ép thì khác biệt hoàn toàn."
 
-"kết quả đây?"
+"Nhưng kết quả thì sao?"
 
-"ngươi ngay cả tư cách tinh thành phố của thị trường cũng không có mở ra."
+"Ngay cả thị trường thành phố Tư Tinh bé nhỏ này, cô còn chưa mở nổi cánh cửa."
 
-Lạc cẩn chi: · · · · · ·
+Lạc Cẩn Chi: "..."
 
-Thẳng nam, đằng sau câu nói kia không cần đến ngươi nói!
+Đúng là đồ trai thẳng chết tiệt! Cái câu cuối cùng ấy không nói ra thì chết ai à!
 
-"Triệu bạn học, có chủ ý gì tốt?"
+"Bạn học Triệu, thế cậu có cao kiến gì không?"
 
-Một cái chuẩn sinh viên có thể biết những thứ này như vậy đủ rồi, chứng minh làm rất nhiều bài tập, lạc cẩn chi môi đỏ hé mở:"nói cho biểu tỷ, bọn hắn vừa mới đều nói ngươi là ta biểu đệ."
+Một cậu tân sinh viên mười tám tuổi mà có thể nhìn thấu đáo tường tận đến mức này là quá đủ để thấy cậu đã bỏ ra không ít tâm tư tìm hiểu. Lạc Cẩn Chi khẽ nhếch đôi môi đỏ mọng: "Nói cho chị họ nghe xem nào. Vừa nãy mấy bác công nhân đều bảo cậu là em họ tôi đấy thôi."
 
-Có ý định phóng thích mập mờ, mỹ nhân kế?
+Cố ý tung chút mập mờ, dùng đến cả mỹ nhân kế sao?
 
-"lạc cuối cùng, ngươi không phải biểu tỷ ta, ta cũng không phải công ty ngươi marketing tổng thanh tra."
+"Lạc tổng, cô không phải chị họ tôi, tôi cũng không phải giám đốc tiếp thị của công ty cô."
 
-Triệu Kim An cầm lấy một bình nước khoáng nhéo nhéo, cái bình có chút dứt khoát, bóp liền trở nên hình.
+Triệu Kim An tiện tay cầm một chai nước khoáng lên bóp nhẹ. Vỏ chai khá mỏng và giòn, chỉ khẽ ấn tay là móp méo biến dạng.
 
-"không cần bóp rồi."
+"Không cần bóp đâu."
 
-Lạc cẩn chi cũng thông minh:"1 khối tiền một bình, cái bình cũng cần chi phí, kiếm tiền người nào không biết sử dụng tốt cái bình."
+Lạc Cẩn Chi cũng rất nhạy bén: "Bán có một tệ một chai, vỏ chai cũng tính vào giá thành cả đấy. Có lãi dày thì ai chẳng muốn dùng vỏ chai xịn."
 
-Đây chính là tuần hoàn ác tính.
+Đó chính là cái vòng luẩn quẩn.
 
-Nhìn một chút bán 3 khối 5 một bình của hằng đạt băng suối, bình kia tử, còn có đựng vào bình thủy tinh, bán được 1 0 nhiều khối tiền một bình.
+Nhìn sang dòng nước khoáng Hằng Đại Băng Tuyền bán 3,5 tệ một chai mà xem, mẫu mã vỏ chai cứng cáp sang trọng, thậm chí chai thủy tinh cao cấp còn bán tới mười mấy tệ một chai.
 
-Một dạng có người mua
+Vậy mà vẫn có đầy người tranh nhau mua.

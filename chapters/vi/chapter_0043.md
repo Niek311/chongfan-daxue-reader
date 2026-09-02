@@ -1,211 +1,215 @@
-# Chương 43: Thông Tin Đêm Đầu Tiên
+# Chương 43: Những dòng tin nhắn đêm đầu tiên
 
-Sau này mới nhớ ra, Lưu Sấm Phong từng có một thời gian bán mì tôm, thuốc lá, bia và đồ chín trong ký túc xá...
+> **Tiêu đề gốc**: 第43章 第一晚的信息。
 
-Ở đại học luôn có những người như vậy, họ lấy hàng từ tiệm tạp hóa rồi tăng giá thêm 5 hào bán cho bạn học cùng tòa nhà, sau khi ký túc xá đóng cửa thì nơi đây chính là thị trường của họ.
+Mãi về sau này Triệu Kim An mới nhớ ra, kiếp trước Lưu Sấm Phong từng có một thời gian buôn bán mì ăn liền, thuốc lá, bia và đồ nhắm ngay trong phòng ký túc xá.
 
-Cũng có vài bạn học mua đồ vào ban ngày, chỉ cần một cuộc điện thoại, Lưu Sấm Phong còn cung cấp dịch vụ giao hàng tận nơi.
+Ở các trường đại học thường có những người như vậy. Họ gom hàng từ các tiệm tạp hóa ngoài cổng trường với giá sỉ, sau đó đội giá thêm năm hào mỗi món bán lại cho sinh viên cùng tòa nhà. Đến khi ký túc xá đóng cửa đóng cổng vào ban đêm, đó chính là mảnh đất màu mỡ để họ hốt bạc.
 
-Đây có lẽ cũng là một trong những lý do khiến Meituan và Ele.me sau này có thể bùng nổ chăng.
+Có những người ban ngày cũng lười biếng chẳng buồn xuống lầu, chỉ cần một cú điện thoại là Lưu Sấm Phong sẵn sàng cung cấp dịch vụ giao hàng tận giường.
 
-Chỉ là Lưu Sấm Phong làm không lâu, chẳng rõ vì sao lại bỏ ngang.
+Có lẽ đây cũng chính là một trong những mầm mống phôi thai giúp các nền tảng giao đồ ăn như Meituan hay Ele.me bùng nổ sau này.
 
-Ngày đầu tiên đường xá xa xôi mệt mỏi, chẳng mấy chốc trong phòng 303 đã vang lên tiếng ngáy.
+Chỉ tiếc là Lưu Sấm Phong làm chẳng được bao lâu, sau đó không hiểu vì lý do gì mà bỏ dở giữa chừng.
 
-Lưu Sấm Phong đi tàu hỏa thường từ Đông Bắc đến Quận Sa mất tận ba, bốn mươi tiếng đồng hồ. Cốc Siêu Thừa là người Quảng Tây, ban đầu Triệu Kim An còn tưởng tiếng phổ thông pha giọng địa phương của mình không chuẩn lắm.
+Trải qua một ngày dài tàu xe mệt mỏi rã rời, chẳng mấy chốc bên trong phòng 303 đã rộ lên những tiếng ngáy khò khò đều đặn.
 
-Ngờ đâu tiếng phổ thông của Cốc Siêu Thừa còn "không chuẩn" hơn, hôm nay ở ký túc xá cậu ta cũng chẳng nói năng gì nhiều.
+Lưu Sấm Phong ngồi tàu hỏa ghế cứng từ tận miền Đông Bắc xa xôi đến Quận Sa mất ba bốn chục tiếng đồng hồ ròng rã. Cốc Siêu Thừa là người gốc Quảng Tây; Triệu Kim An cứ ngỡ tiếng phổ thông "nửa mùa" của mình đã đủ lệch chuẩn, nào ngờ thứ tiếng phổ thông lơ lớ của Cốc Siêu Thừa còn khó nghe hơn gấp bội, hèn chi cả ngày hôm nay cậu ta hiếm khi mở miệng nói chuyện.
 
-Ánh trăng sáng vằng vặc xuyên qua cửa kính vương vãi vào phòng 303, trên bàn vẫn còn sót lại mấy miếng trầu cau, còn bao thuốc lá Hòa Thiên Hạ thì đã bị Trần Trạch cầm đi rồi.
+Ánh trăng bàng bạc xuyên qua khung cửa kính rọi vào phòng 303. Trên bàn vẫn còn trơ lại vài miếng trầu cau, còn bao thuốc Hòa Thiên Hạ thì sớm đã được Trần Trạch mang theo người.
 
-Triệu Kim An đã ngủ một lát trên tàu hỏa nên giờ cứ trằn trọc mãi không ngủ được.
+Triệu Kim An lúc trên tàu đã chợp mắt được một lúc, giờ nằm trên giường trằn trọc mãi chẳng thể nào vào giấc.
 
-Hắn nhấc điện thoại lên xem tin nhắn.
+Anh rút chiếc điện thoại ra, bấm mở hộp thư tin nhắn.
 
-Triệu Chí Dũng gửi tới rất nhiều tin, nói là đã đi ăn đêm với mấy người cùng phòng, còn uống vài chai bia, xem ra cậu ta hòa nhập rất nhanh, rất hài lòng với cuộc sống đại học của mình.
+Triệu Trí Dũng gửi tới hàng loạt tin nhắn, kể lể huyên thuyên rằng vừa cùng mấy đứa bạn cùng phòng đi ăn đêm, nốc liền mấy chai bia. Xem chừng thằng bạn thân hòa nhập môi trường mới rất nhanh, vô cùng thỏa mãn với cuộc sống tân sinh viên.
 
-Chu Sở Hân cũng gửi mấy tin nhắn, câu cuối cùng hỏi Triệu Kim An đã thích nghi chưa, có nhớ nhà không?
+Chu Sở Hân cũng gửi mấy dòng tin, câu cuối cùng hỏi Triệu Kim An đã quen với cuộc sống ở đây chưa, có thấy nhớ nhà không.
 
-Trong hộp thư đến của Triệu Bác Lan chỉ có duy nhất một tin nhắn, chị hỏi Triệu Kim An xem bạn cùng phòng có dễ gần không.
+Hộp thư đến của Triệu Bác Lan chỉ có vỏn vẹn một tin nhắn, cô bé hỏi Triệu Kim An rằng bạn cùng phòng có dễ tính, dễ sống chung hay không.
 
-Tin nhắn của Du Phỉ bắt đầu từ buổi chiều, giống như đang báo cáo lịch trình, cô nói mình không được chia cùng phòng với Mộc Dao.
+Tin nhắn của Du Phi thì dồn dập từ lúc chiều, chẳng khác nào đang báo cáo lịch trình chi tiết, cô bé phụng phịu bảo mình không được xếp chung phòng với Mộc Dao.
 
-Ngoài ra còn có tin nhắn từ một số lạ.
+Ngoài ra, còn có tin nhắn từ một dãy số lạ hoắc:
 
-Số lạ: "Kim An, cậu báo danh xong chưa? Tớ là Mộc Dao đây, đây là số điện thoại mới của tớ."
+[Số lạ]: *Kim An, cậu đã làm thủ tục nhập học xong chưa? Tớ là Mộc Dao đây, đây là số điện thoại mới của tớ.*
 
-Số lạ: "Kim An, không được kéo tớ vào danh sách đen đâu đấy, không là tớ giận thật đó!"
+[Số lạ]: *Kim An, không được chặn số của tớ đâu đấy, bằng không tớ giận thật đấy!*
 
-Chắc là Mộc Dao lấy số từ chỗ Du Phỉ, Triệu Kim An xem xong tin nhắn liền thẳng tay kéo số này của Mộc Dao vào danh sách đen.
+Mộc Dao chắc hẳn là đã xin số này từ chỗ Du Phi. Triệu Kim An đọc lướt qua một lượt, không chút do dự nhấn phím đưa số điện thoại mới của Mộc Dao vào danh sách đen chặn cuộc gọi và tin nhắn.
 
-Doãn Hiểu Lan cũng gửi vài tin nhắn, đều là sự quan tâm của một người chị dâu dành cho Triệu Kim An.
+Doãn Hiểu Lan cũng gửi tới mấy tin nhắn, tất cả đều là những lời quan tâm, săn sóc ân cần của một người chị dâu dành cho đứa em chồng chuẩn bị bước vào ngưỡng cửa đại học.
 
-Triệu Kim An trả lời một câu: "Chị dâu, em rất tốt."
+Triệu Kim An gõ một dòng trả lời: *Chị dâu, em ở đây mọi thứ đều tốt cả.*
 
-Không ngờ điện thoại vang lên một tiếng "ting".
+Không ngờ chiếc điện thoại lập tức vang lên tiếng "ting" khe khẽ.
 
-Doãn Hiểu Lan phản hồi rất nhanh: "Chú đừng có chỉ báo tin vui mà giấu tin buồn, đang ở ký túc xá à?"
+Doãn Hiểu Lan hồi âm rất nhanh: *Em đừng có lúc nào cũng chỉ báo tin mừng mà giấu tin buồn. Đang ở trong ký túc xá rồi à em?*
 
-Triệu Kim An: "Em đang ở ký túc xá, nằm trên giường rồi."
+Triệu Kim An: *Vâng, em đang ở trong phòng rồi, đã nằm lên giường chuẩn bị ngủ.*
 
-Doãn Hiểu Lan: "Đến đại học thì lo mà học hành cho tốt, đừng vì làm thêm kiếm tiền mà bỏ bê học hành, nếu thật sự thiếu tiền thì cứ bảo chị."
+Doãn Hiểu Lan: *Đã lên đại học rồi thì cố gắng chăm chỉ học hành cho tốt nhé, đừng vì mải mê đi làm thêm kiếm tiền mà bỏ bê việc học. Nếu thực sự thiếu thốn tiền nong sinh hoạt thì cứ bảo với chị.*
 
-Tin nhắn này gửi đến hơi chậm một chút, chắc là Doãn Hiểu Lan phải cân nhắc câu chữ mất một lúc.
+Dòng tin nhắn này gửi đến hơi chậm một chút, có lẽ Doãn Hiểu Lan đã phải đắn đo cân nhắc từng câu chữ khá lâu.
 
-Cô vốn chẳng có nguồn thu nhập nào, hơn nữa, dù Triệu Kim An có hỏi xin sinh hoạt phí thì cũng "không đến lượt" hỏi Doãn Hiểu Lan, phía trước còn có bà nội, Đoạn Thu Bình, Vương Kim Như.
+Bản thân chị vốn chẳng có nguồn thu nhập nào ổn định. Vả lại, cho dù Triệu Kim An có muốn xin tiền sinh hoạt phí đi chăng nữa thì cũng "chưa đến lượt" hỏi tới Doãn Hiểu Lan. Phía trước anh còn có bà nội, có mẹ ruột Đoàn Thu Bình, rồi đến dì Vương Kim Như.
 
-Thân phận của họ đều danh chính ngôn thuận hơn Doãn Hiểu Lan.
+Thân phận của những người đó đều danh chính ngôn thuận hơn Doãn Hiểu Lan rất nhiều.
 
-Đúng vậy, theo lý mà nói, Đoạn Thu Bình phải xếp trước Vương Kim Như mới đúng.
+Đúng vậy, xét theo lẽ thường, vị trí của Đoàn Thu Bình còn phải xếp trước cả Vương Kim Như.
 
-Triệu Kim An: "Vâng."
+Triệu Kim An: *Dạ, em biết rồi.*
 
-Doãn Hiểu Lan: "Vậy chú ngủ sớm đi."
+Doãn Hiểu Lan: *Thế em nghỉ ngơi ngủ sớm đi nhé.*
 
-Triệu Kim An: "Dạ, chúc chị ngủ ngon."
+Triệu Kim An: *Vâng ạ, chúc chị ngủ ngon.*
 
-Doãn Hiểu Lan: "Ngủ ngon."
+Doãn Hiểu Lan: *Ngủ ngon em.*
 
-Nhìn thời gian, đã 12 giờ 15 phút, vào giờ này ở Triệu Kim An Gia thôn hiếm có ai còn thức, Triệu Kim An cũng biết rõ chắc chắn Triệu Kim An Vĩ lại không có nhà, nếu không thì Doãn Hiểu Lan...
+Liếc nhìn đồng hồ hiển thị trên màn hình, đã là mười hai giờ mười lăm phút đêm. Vào khung giờ này ở thôn Triệu Gia, hiếm có nhà nào còn thức. Triệu Kim An còn thừa biết chắc chắn đêm nay Triệu Vĩ lại không về nhà, bằng không Doãn Hiểu Lan làm sao có thể...
 
-"Chị ấy ngủ ở đâu nhỉ!?"
+"Chị ấy đang ngủ ở đâu nhỉ?!"
 
-"Không lẽ thật sự nghe lời bà nội, ngủ ở nhà mình sao?"
+"Chẳng lẽ lại nghe lời bà nội thật, sang ngủ ở nhà mình sao?"
 
-Thành thật mà nói, lúc này lòng Triệu Kim An có chút mâu thuẫn, hắn mong Triệu Kim An Vĩ ngày nào cũng không về nhà, mong Doãn Hiểu Lan sẽ "từ chối" Triệu Kim An Vĩ, nhưng Doãn Hiểu Lan dường như lại chẳng có lý do gì để từ chối gã.
+Thực lòng mà nói, sâu thẳm trong lòng Triệu Kim An lúc này dâng lên một nỗi mâu thuẫn phức tạp. Anh thầm mong Triệu Vĩ ngày nào cũng đi biệt tăm không về nhà, hy vọng Doãn Hiểu Lan sẽ dứt khoát "cự tuyệt" Triệu Vĩ. Nhưng trên danh nghĩa vợ chồng, Doãn Hiểu Lan dường như chẳng có lấy một lý do chính đáng nào để cự tuyệt chồng mình.
 
-Không cho Triệu Kim An Vĩ chạm vào người.
+Không cho Triệu Vĩ chạm vào người.
 
-Hơn nữa, liệu Doãn Hiểu Lan có từ chối Triệu Kim An Vĩ không?
+Mà liệu rằng... Doãn Hiểu Lan có dám cự tuyệt Triệu Vĩ hay không?
 
-Còn có mấy tin nhắn rất đột ngột.
+Lướt xuống dưới, còn có mấy tin nhắn xuất hiện vô cùng đột ngột:
 
-Số lạ: "Kim An, tôi là Tống Uyển Hòa, con gái của Tống Siêu Văn, chúng ta từng gặp mặt một lần, không ngờ cậu đã lên đại học rồi, ở trường vẫn tốt chứ?"
+[Số lạ]: *Kim An, chị là Tống Uyển Hòa, con gái của bố Tống Siêu Văn. Chúng ta từng gặp mặt nhau một lần rồi đấy, không ngờ chớp mắt em đã vào đại học. Ở trường mới mọi chuyện vẫn ổn chứ em?*
 
-Số lạ: "Kim An, cha tôi không có ác ý đâu, ông ấy là người rất tốt."
+[Số lạ]: *Kim An à, bố chị không hề có ác ý gì đâu, ông ấy là người rất tốt.*
 
-Tống Uyển Hòa ban ngày phải đi làm, sau khi tan làm về nhà liền hỏi cha, Tống Siêu Văn đem "trải nghiệm" của mình ở nhà ga kể lại cho con gái, đại ý là Triệu Kim An không biết cảm ơn.
+Tống Uyển Hòa ban ngày phải đi làm, tan sở về nhà liền hỏi thăm bố. Tống Siêu Văn đem toàn bộ "trải nghiệm" bẽ bàng của mình ở sân ga kể lại cho con gái nghe, đại ý trách móc Triệu Kim An là đứa trẻ không biết điều, không biết đón nhận lòng tốt của người khác.
 
-Kiếp trước, Tống Uyển Hòa tìm đến Triệu Kim An khi hắn mới vào lớp sáu, đứng ở sân tập cách một lớp hàng rào sắt mà nói: "Mẹ cậu sắp gả cho bố tôi rồi."
+Kiếp trước, Tống Uyển Hòa từng tìm đến tận trường cấp hai khi Triệu Kim An mới bước chân vào lớp sáu. Đứng bên ngoài sân thể dục ngăn cách bởi hàng rào sắt, cô gái ấy từng nói với anh: "Mẹ em sắp cưới bố chị rồi."
 
-Triệu Kim An một tay nắm chặt hàng rào, không nói lời nào.
+Triệu Kim An khi ấy một tay nắm chặt lấy thanh rào sắt han gỉ, cắn chặt môi không nói một lời.
 
-Tống Uyển Hòa tưởng Triệu Kim An còn nhỏ không hiểu chuyện, bèn nói tiếp: "Là mẹ cậu sắp gả cho bố tôi, bà ấy sắp đến nhà tôi rồi."
+Tống Uyển Hòa đinh ninh Triệu Kim An còn nhỏ tuổi chưa hiểu chuyện, bèn nhấn mạnh thêm lần nữa: "Là mẹ em sắp cưới bố chị thật đấy, bà ấy sắp dọn về nhà chị ở rồi."
 
-"Sau này bà ấy sẽ sống ở nhà tôi luôn." Cô ta bổ sung thêm một câu.
+"Sau này bà ấy sẽ sống ở nhà chị suốt đời." Cô gái ấy còn bồi thêm một câu như thế.
 
-Thật ra Triệu Kim An đã biết từ sớm, bà nội từng hỏi hắn, rằng cháu có đồng ý để mẹ đi bước nữa không, Triệu Kim An không nói gì, bà nội nắm lấy tay cháu trai rồi từ đó không bao giờ hỏi lại nữa.
+Kỳ thực, Triệu Kim An từ sớm đã biết hết mọi chuyện. Bà nội từng ôm anh vào lòng, khẽ hỏi anh có bằng lòng để mẹ đi lấy chồng khác hay không. Triệu Kim An im lặng không đáp. Bà nắm chặt bàn tay nhỏ bé của đứa cháu nội tội nghiệp, từ đó về sau không bao giờ mở miệng nhắc lại chuyện này thêm một lần nào nữa.
 
-Hiện tại, xem xong tin nhắn Triệu Kim An cũng không trả lời, hắn cất điện thoại rồi dần chìm vào giấc ngủ trong tiếng ngáy râm ran.
+Còn bây giờ, đọc xong những dòng tin nhắn kia, Triệu Kim An chẳng hề mảy may có ý định nhắn tin đáp lại. Anh lẳng lặng tắt màn hình, nhét chiếc điện thoại xuống dưới gối rồi chìm dần vào giấc ngủ chập chờn giữa những tiếng ngáy vang rền trong phòng.
 
-Ngày đầu tiên đến Quận Sa cứ thế trôi qua.
+Ngày đầu tiên đặt chân đến Quận Sa cứ thế lặng lẽ trôi qua.
+
+...
 
 Sáng sớm hôm sau.
 
-Trần Trạch cả đêm không về, Lưu Sấm Phong và Cốc Siêu Thừa đã tỉnh nhưng vẫn còn lười nhác nằm trên giường.
+Trần Trạch suốt cả đêm không hề quay về phòng. Lưu Sấm Phong và Cốc Siêu Thừa đã thức giấc nhưng vẫn lười biếng nằm ườn trên giường không chịu dậy.
 
-Số trầu cau trên bàn dường như lại vơi đi một hai miếng.
+Mấy miếng trầu cau trên mặt bàn dường như lại vơi đi một hai miếng.
 
-Lưu Sấm Phong kẹp điếu thuốc trên tay, thấy Triệu Kim An ngủ dậy liền cười nói: "Kim An, tôi vẫn chưa kịp dậy đi mua thuốc."
+Lưu Sấm Phong kẹp điếu thuốc trên tay, thấy Triệu Kim An trở mình thức dậy liền cười hì hì bảo: "Kim An à, tôi chưa kịp dậy đi mua thuốc lá."
 
 Triệu Kim An bảo không sao.
 
-Tối qua sau khi tắm rửa thay quần áo, hắn cứ thế vứt bao thuốc trên bàn.
+Tối qua tắm xong thay quần áo, anh tiện tay vứt bao thuốc lá lên mặt bàn.
 
-Thấy Triệu Kim An rửa mặt xong lại sắp ra ngoài, Cốc Siêu Thừa nằm bò trên giường hỏi: "Kim An, ông lại đi đâu đấy?"
+Thấy Triệu Kim An đánh răng rửa mặt xong lại chuẩn bị xách dép đi ra ngoài, Cốc Siêu Thừa nằm bò ra mép giường cất tiếng hỏi: "Kim An, cậu lại đi đâu thế?"
 
-Ngày mai quân dịch mới bắt đầu, hôm nay vẫn là thời gian tân sinh viên báo danh, Cốc Siêu Thừa và Lưu Sấm Phong đều là lần đầu đến Quận Sa, chẳng biết đi đâu chơi.
+Lịch tập quân sự phải đến ngày mai mới bắt đầu, hôm nay vẫn là ngày đón tân sinh viên nhập học. Cả Cốc Siêu Thừa lẫn Lưu Sấm Phong đều là lần đầu tiên đặt chân đến mảnh đất Quận Sa này, chẳng biết đi đâu về đâu.
 
-Hơn nữa, ký túc xá khác ngày đầu tiên đều hoạt động tập thể, ở trong phòng xếp thứ tự lớn nhỏ anh em để kết giao tình nghĩa sâu đậm.
+Hơn nữa, ở các phòng ký túc xá khác, ngày đầu tiên tụ họp bao giờ cả bọn cũng rủ nhau đi lại theo nhóm, ngồi xếp thứ bậc anh cả, anh hai, anh ba trong phòng để thắt chặt tình anh em huynh đệ gắn bó keo sơn.
 
-Đâu có như phòng 303 bọn họ, cảm giác ngay ngày đầu tiên đã sắp "tan đàn xẻ nghé" rồi.
+Đâu có như cái phòng 303 củ chuối này, cảm giác mới ngày đầu tiên gặp mặt mà đã sắp "tan đàn xẻ nghé" đến nơi.
 
-Cốc Siêu Thừa hỏi dồn: "Phòng mình vẫn chưa bầu ra trưởng phòng mà."
+Cốc Siêu Thừa vội vàng gọi với theo: "Phòng chúng mình vẫn còn chưa bầu trưởng phòng đâu đấy!"
 
-Triệu Kim An nói các ông cứ làm đi, tôi không làm đâu.
+Triệu Kim An ngoái lại bảo: "Hai cậu ai làm thì làm, tôi không làm đâu."
 
-Ý ngoài lời là ai trong hai người làm cũng được, hắn đều công nhận.
+Hàm ý trong lời nói của anh rất rõ ràng: Ai trong hai người làm trưởng phòng cũng được, tôi đều không có ý kiến gì.
 
-"Lão Cốc, sao tôi cứ cảm giác Kim An chẳng có chút hơi người nào nhỉ."
+"Lão Cốc này, sao tôi cứ có cảm giác thằng nhóc Kim An này sống chẳng có tí hơi người, chẳng có chút tình cảm nào thế nhỉ?"
 
-Sau khi Triệu Kim An rời đi, Lưu Sấm Phong lẩm bẩm nói, hắn còn phát hiện ra một vấn đề, bao Bạch Sa chỉ còn lại vài điếu trên bàn Triệu Kim An cũng đã cầm đi rồi.
+Sau khi Triệu Kim An rời khỏi phòng, Lưu Sấm Phong lẩm bà lẩm bẩm buột miệng nói. Gã còn phát hiện ra một chi tiết: bao thuốc Bạch Sa Cũ chỉ còn trơ trọi mấy điếu trên bàn ban nãy cũng đã được Triệu Kim An tiện tay cất biến vào túi áo mang đi mất.
 
-"Lão Cốc, ông không hút thuốc đúng là phí phạm quá."
+"Lão Cốc à, cậu không biết hút thuốc đúng là thiệt thòi lớn đấy."
 
-Cốc Siêu Thừa bảo: "Ông tự đi mà mua một bao đi, tôi cũng dậy đây."
+Cốc Siêu Thừa hậm hực đáp: "Cậu tự mình lết xác xuống lầu mà mua lấy một bao đi. Tôi cũng dậy đây."
 
-Lưu Sấm Phong hỏi cậu ta dậy làm gì?
+Lưu Sấm Phong hỏi cậu ta dậy sớm thế làm cái gì.
 
-Cốc Siêu Thừa nói cảm thấy mình quá đồi bại rồi, phải tìm việc gì đó mà làm.
+Cốc Siêu Thừa bảo cảm thấy bản thân nằm ườn thế này bê tha sa đọa quá, phải kiếm việc gì đó mà làm.
 
-Lưu Sấm Phong bèn bảo chắc chắn Trần Trạch vẫn chưa ngủ dậy, trong lòng còn đang ôm một em gái nào đó cũng nên.
+Lưu Sấm Phong bĩu môi bảo thằng cha Trần Trạch giờ này chắc chắn vẫn chưa thèm dậy đâu, thể nào trong lòng cũng đang ôm ấp một em gái xinh tươi nào đó rồi.
 
-Vừa nhắc đến Trần Trạch, giữa đôi lông mày của Lưu Sấm Phong liền lộ ra vẻ hâm mộ, có lẽ chuyện tối qua hắn nói muốn khởi nghiệp ở đại học cũng có liên quan rất lớn đến Trần Trạch.
+Cứ hễ nhắc đến Trần Trạch là nơi khóe mắt, chân mày của Lưu Sấm Phong lại lộ rõ vẻ ngưỡng mộ khôn xiết. Có lẽ câu nói muốn khởi nghiệp thời đại học tối qua của gã cũng chịu ảnh hưởng rất lớn từ cái bóng của Trần Trạch.
 
-Ở phía bên kia, Chu Sở Hân vừa ngủ dậy đã cáu kỉnh gắt gỏng.
+...
 
-Bạn cùng phòng hỏi cô bị làm sao?
+Ở một góc khác trong khuôn viên trường, Chu Sở Hân vừa ngủ dậy đã lộ rõ vẻ bực dọc cáu kỉnh.
 
-Chu Sở Hân phàn nàn với Triệu Bác Lan, bảo là chú của bà không thèm đoái hoài đến tôi, một tin nhắn cũng chẳng thèm trả lời.
+Các bạn cùng phòng ngạc nhiên hỏi cô bị làm sao thế.
 
-"Chú!?"
+Chu Sở Hân quay sang cằn nhằn với Triệu Bác Lan: "Lan Lan, ông chú của cậu chảnh chọe ghê cơ, chẳng thèm để ý đến tớ gì cả, đến một tin nhắn cũng không thèm thèm trả lời!"
 
-Hai cô bạn cùng phòng lập tức phấn chấn hẳn lên, Triệu Bác Lan phen này "môi giới" có trình độ thật đấy.
+"Chú á?!"
 
-Triệu Bác Lan hối hận muốn chết, chị leo lên giường Chu Sở Hân nô đùa một hồi mới nói Triệu Kim An cũng chẳng trả lời tin nhắn của mình.
+Hai cô bạn cùng phòng lập tức sáng mắt lên hóng hớt. Con bé Triệu Bác Lan này mối lái "kèo thơm" nghe chừng có trình độ đấy chứ.
 
-"Lan Lan, chú của bà thật sự, thật sự..."
+Triệu Bác Lan trong lòng hối hận muốn chết. Cô trèo sang giường Chu Sở Hân đùa giỡn, cấu véo một hồi rồi mới thanh minh rằng Triệu Kim An cũng chẳng hề trả lời tin nhắn của chính cô.
 
-Chu Sở Hân chẳng biết dùng từ gì để hình dung Triệu Kim An nữa: "Cậu ấy không biết tán tỉnh con gái chút nào sao? Ví dụ như nói 'em nhớ nhà quá, chị đến bồi em một chút được không' chẳng hạn?"
+"Lan Lan à, ông chú của cậu thực sự... thực sự là..."
 
-Triệu Bác Lan ngẩn ra một lúc mới bật cười thành tiếng: "Tôi đã nói với bà từ sớm rồi, muốn tán tỉnh yêu đương gì thì tìm người khác đi."
+Chu Sở Hân chẳng biết phải dùng từ ngữ nào để hình dung về Triệu Kim An nữa: "Cậu ta không biết cách trêu đùa, tán tỉnh con gái một chút nào hay sao? Ví dụ như nói một câu 'Em nhớ nhà quá, chị đến ở bên cạnh em một chút có được không' chẳng hạn?"
 
-"Hai người rốt cuộc đang nói về ai đấy?"
+Triệu Bác Lan ngẩn người ra một thoáng rồi bật cười nắc nẻ: "Tớ đã bảo với cậu từ trước rồi mà, muốn tìm người tán dóc thả thính thì đi tìm người khác đi."
 
-Hai cô bạn cùng phòng vừa rửa mặt vừa tò mò nghe ngóng, dặm chút phấn nhẹ chuẩn bị đi học.
+"Hai người rốt cuộc đang nói về ai thế hả?"
 
-Chu Sở Hân nói đó là một cậu đàn em rất đẹp trai, là đồng hương cùng làng với Triệu Bác Lan, tuổi thì nhỏ nhưng vai vế lại lớn hơn Triệu Bác Lan.
+Hai cô bạn cùng phòng vừa đánh răng rửa mặt vừa tò mò hóng hớt, tiện tay dặm chút phấn son chuẩn bị lên giảng đường.
 
-Bạn cùng phòng cười trêu chọc hỏi, chú của Lan Lan đẹp trai cỡ nào?
+Chu Sở Hân hào hứng kể đó là một cậu em khóa dưới cực kỳ đẹp trai, là đồng hương cùng làng với Triệu Bác Lan, tuổi đời còn rất trẻ nhưng vai vế bối phận trong họ lại lớn hơn cả Triệu Bác Lan.
 
-Chu Sở Hân nói quá lên: "Cấp độ nam thần của trường, không có đối thủ."
+Mấy cô bạn cười đùa trêu chọc, hỏi chú của Lan Lan rốt cuộc đẹp trai đến mức độ nào.
 
-Làm gì có nam thần nào, ngay cả hoa khôi cũng chẳng có ranh giới phân định rõ ràng, trên mạng nội bộ trường chỉ riêng học viện âm nhạc đã xuất hiện mấy vị hoa khôi, đó đều là do các nam sinh vào đẩy bài mà thành thôi.
+Chu Sở Hân cường điệu hóa lên: "Cỡ chuẩn nam thần cấp trường, không có đối thủ cạnh tranh luôn!"
 
-Cái trường này cũng chẳng cấp chứng nhận gì, càng không thể có nam thần nào cả.
+Làm gì có cái gọi là nam thần trường chứ. Đến cả hoa khôi trường còn chẳng có tiêu chuẩn ranh giới rõ ràng, trên diễn đàn mạng nội bộ trường chỉ riêng Khoa Âm nhạc đã lòi ra mấy cô hoa khôi, toàn là do đám nam sinh nhảy vào đẩy bài tung hô mà thành.
 
-Bốn cô gái cười nói vui vẻ, chẳng ai để bụng chuyện này.
+Nhà trường đời nào lại đi cấp giấy chứng nhận cho mấy danh xưng đó, càng không thể có chuyện bình chọn nam thần cấp trường.
 
-Năm ba rồi, họ dành nhiều tâm sức hơn vào việc thi lấy chứng chỉ, thi cao học.
+Bốn cô gái cười nói rôm rả vui vẻ, chẳng ai coi đó là chuyện nghiêm túc trong lòng.
 
-Thậm chí là tìm kiếm những đơn vị thực tập tốt.
+Đã là sinh viên năm thứ ba rồi, phần lớn tâm sức của họ đều đổ dồn vào việc ôn thi chứng chỉ, ôn thi cao học, hoặc nhắm tìm một đơn vị thực tập thật tốt.
 
-Vào thời điểm này mà đi yêu một cậu đàn em vừa mới vào năm nhất, nghĩ thôi đã thấy không thực tế.
+Vào thời điểm nước sôi lửa bỏng này mà đi tìm một cậu em tân sinh viên năm nhất vừa ráo chân vào trường để yêu đương thì nghĩ thôi cũng thấy phi thực tế.
 
-Nếu thật sự là chú của Triệu Bác Lan, có công việc ổn định đàng hoàng thì còn nghe có vẻ đáng tin hơn chút.
+Nếu thực sự là một người chú đúng nghĩa của Triệu Bác Lan, có công ăn việc làm đàng hoàng, thể diện ngoài xã hội thì may ra còn đáng tin cậy đôi chút.
 
-Tuy nhiên Chu Sở Hân đang rảnh rỗi sinh nông nổi, vẫn cầm điện thoại lên gửi một tin nhắn trêu chọc Triệu Kim An.
+Tuy nhiên, rảnh rỗi sinh nông nổi, Chu Sở Hân vẫn tiện tay cầm điện thoại bấm một dòng tin nhắn gửi đi trêu chọc Triệu Kim An:
 
-"Kim An, chị đi học đây nhé."
+*Kim An ơi, chị đi học đây này.*
+
+...
 
 Tại Đại học Trung Nam.
 
-Mộc Dao bỗng nhiên lật đật bật dậy khỏi giường, chẳng kịp rửa mặt đã chạy biến ra khỏi ký túc xá.
+Mộc Dao bỗng dưng bật dậy khỏi giường làm một tràng tiếng động ầm ĩ, chẳng kịp đánh răng rửa mặt đã vội vã lao vụt ra khỏi phòng ký túc xá.
 
-Ba cô bạn cùng phòng 406 nhìn nhau ngơ ngác, đầu đầy dấu chấm hỏi.
+Ba cô bạn cùng phòng 406 trố mắt nhìn nhau, đầu óc ngơ ngác không hiểu chuyện gì đang xảy ra.
 
-"Cậu ấy bị sao vậy?"
+"Cậu ấy bị làm sao thế nhỉ?"
 
-Một cô gái tên Từ Mạn Mạn lên tiếng hỏi.
+Một cô gái tên là Từ Mạn Mạn cất tiếng hỏi.
 
-Diêu Tân vừa đánh răng vừa lắc đầu: "Súc miệng, súc miệng... không biết nữa."
+Diêu Sân vừa đánh răng vừa lắc đầu: "Ục ục... nhổ... chịu, tớ chẳng biết."
 
-Họ nhìn về phía Thẩm Tử Ngôn, người trông chín chắn nhất phòng 406. Thẩm Tử Ngôn cao 1m70, cách ăn mặc không giống sinh viên lắm mà theo phong cách "ngự tỷ".
+Họ đưa mắt nhìn về phía Thẩm Tử Ngôn — người trông có vẻ chín chắn, trưởng thành nhất trong phòng 406. Thẩm Tử Ngôn sở hữu chiều cao lý tưởng 1m70, phong cách ăn mặc trang điểm hoàn toàn không giống một cô sinh viên bình thường mà toát lên vẻ "ngự tỷ" quyến rũ đầy khí chất.
 
-Ngặt nỗi vóc dáng, khuôn mặt và khí chất của cô đều rất phù hợp với hình tượng này.
+Trớ trêu thay, vóc dáng, gương mặt lẫn thần thái của cô đều cực kỳ ăn khớp hoàn hảo với hình tượng ngự tỷ này.
 
-Hơn nữa đã đi theo phong cách ngự tỷ thì gu thẩm mỹ và chất lượng quần áo không được kém, nếu không sẽ bị giảm giá trị đi rất nhiều.
+Hơn nữa, muốn theo đuổi phong cách ngự tỷ sang chảnh thì gu thẩm mỹ và chất lượng trang phục tuyệt đối không thể xoàng xĩnh, bằng không hiệu quả sẽ bị giảm sút nghiêm trọng.
 
-Thẩm Tử Ngôn nhún vai, tỏ ý mình cũng không biết.
+Thẩm Tử Ngôn nhún vai, tỏ ý bản thân mình cũng chịu chẳng rõ nguyên do.
 
-Ký túc xá của Du Phỉ ở phòng 411.
+Phòng ký túc xá của Du Phi nằm ở phòng 411...

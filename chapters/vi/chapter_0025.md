@@ -1,193 +1,201 @@
-# Chương 25: Lên lớp yến.
+# Chương 25: Tiệc mừng đỗ đại học
 
-Cứ như vậy, Triệu Kim An thường thường thay nãi nãi tại ven đường bày mở ra.
+> **Tiêu đề gốc**: 第25章 升学宴。
 
-Bày quầy bán hàng ngày đó, Triệu Chí Dũng một người xuống sông, Triệu Duyệt Thiên hận không thể mỗi ngày đi theo ca ca đi bày quầy bán hàng.
+Cứ như thế, dăm bữa nửa tháng Triệu Kim An lại thay bà nội ra ngồi trông sạp hàng hoa quả bên lề đường quốc lộ.
 
-Phơi nắng không quan hệ, có kem cây ăn là được.
+Những ngày cậu ngồi bán hàng, Triệu Trí Dũng lại một mình lặn lội ra sông kích cá, còn bé Triệu Duyệt Thiên thì chỉ ước sao ngày nào cũng được theo chân anh trai ra đường ngồi bán dưa.
 
-Bớt thời gian, Triệu Kim An lặng lẽ sờ đi giá trường học, chuẩn bị nghỉ hè đem bằng lái thi.
+Bị nắng chiếu một chút cũng chẳng sao, miễn là ngày nào cũng có kem que mát lạnh để ăn là được.
 
-Bây giờ kiểm tra bằng lái rất đơn giản, không có nhiều như vậy điện tử giám sát, trên cơ bản là tay lái phụ của giám khảo định đoạt, Triệu Kim An chỉ đi một lần giá trường học.
+Tranh thủ những lúc rảnh rỗi, Triệu Kim An âm thầm đăng ký vào một trung tâm đào tạo lái xe, dự định trong kỳ nghỉ hè này sẽ thi lấy luôn tấm bằng lái ô tô.
 
-Huấn luyện viên liền nói ngươi không cần tới tập lái xe rồi.
+Thời điểm năm 2006, việc thi sát hạch bằng lái xe còn tương đối đơn giản, chưa có nhiều thiết bị camera giám sát điện tử nghiêm ngặt như sau này, hầu như quyền quyết định đỗ hay trượt đều nằm trọn trong tay vị giám thị ngồi ở ghế phụ. Triệu Kim An mới chỉ đến sân tập lái đúng một lần duy nhất.
 
-Cái kia học phí lui sao?
+Vị huấn luyện viên nhìn cậu ôm vô lăng lùi chuồng ngọt xớt liền phán ngay một câu: Cậu không cần phải tới đây tập lái nữa đâu.
 
-2 6 0 0 nhỉ.
+Thế có được hoàn lại tiền học phí không nhỉ?
 
-Triệu Kim An một mặt phiền muộn rời đi giá trường học, cái này 2 6 0 0 là floral; floscular; dappled thật oan.
+Tận 2.600 tệ chứ có ít ỏi gì đâu.
 
-Cái gì nước khoáng nhà máy nước, hắn"quên"rồi.
+Triệu Kim An với vẻ mặt đầy ấm ức rời khỏi trường dạy lái xe, 2.600 tệ này quả thực đã bị tiêu một cách oan uổng không để đâu cho hết.
 
-Lạc cẩn chi không gọi điện thoại tới, hắn coi như chuyện này không có phát sinh.
+Còn về cái xưởng nước khoáng kia, cậu đã hoàn toàn "quên bẵng" đi mất rồi.
 
-Mộc Dao đi qua mấy lần chợ bán thức ăn, không có gặp phải Triệu Kim An.
+Lạc Cẩn Chi không chủ động gọi điện tới thì cậu cũng xem như chuyện đó chưa từng xảy ra trên đời.
 
-Nàng là cố ý outgoing; departing, cũng bởi vì Triệu Kim An ngày đó nói với nàng câu nói kia, nàng muốn bù đắp, nàng không muốn mình tại Triệu Kim An trong lòng là người như vậy.
+Mộc Dao đã vài lần lặn lội tìm tới khu chợ rau của thị trấn, nhưng tuyệt nhiên không hề bắt gặp bóng dáng của Triệu Kim An.
 
-Ngại bạn trai làm mất mặt chính mình?
+Cô cố tình tìm tới đó cốt chỉ vì câu nói lạnh lùng mà Triệu Kim An đã buông ra với mình hôm ấy. Cô muốn bù đắp, muốn chuộc lại lỗi lầm, cô không muốn hình ảnh của mình trong tâm trí Triệu Kim An lại trở thành một kẻ thực dụng và nông cạn như thế.
 
-Để tay lên ngực tự vấn lòng, Mộc Dao thừa nhận, chính mình lúc ấy chính là có tâm lý như vậy.
+Chê bạn trai làm mình mất mặt trước đám bạn bè sao?
 
-Theo thời gian đưa đẩy, lên lớp tạ sư yến bắt đầu tổ chức, Mộc Dao chỉ có thể gọi điện thoại hỏi Triệu Chí Dũng, Triệu Kim An có thể hay không xử lý lên lớp yến.
+Tự chất vấn chính lương tâm mình, Mộc Dao phải cay đắng thừa nhận rằng, vào thời điểm ấy bản thân cô quả thực đã mang nặng tâm lý đáng xấu hổ đó.
 
-Triệu Chí Dũng nói, sẽ không.
+Thời gian thấm thoắt thoi đưa, mùa tiệc mừng đỗ đại học và tri ân thầy cô bắt đầu rộn ràng khắp phố phường. Mộc Dao không còn cách nào khác đành phải gọi điện dò hỏi Triệu Trí Dũng xem Triệu Kim An có dự định tổ chức tiệc mừng đỗ đại học hay không.
 
-Trương tuệ cùng mộc nhân mạnh cũng bên cạnh kích bên cạnh gõ hỏi qua Mộc Dao, ngươi lên lớp rượu có cái nào đồng học lại tới? Phải chuẩn bị mấy bàn?
+Triệu Trí Dũng thẳng thừng đáp: Không làm.
 
-Trên thực tế các nàng hỏi là, Triệu Kim An có thể hay không tới?
+Vợ chồng Trương Tuệ và Mộc Nhân Cường cũng từng bóng gió gặng hỏi con gái: Bữa tiệc mừng của con có những bạn học nào sẽ tới chung vui? Cần phải chuẩn bị đặt trước bao nhiêu mâm cỗ?
 
-Ngắn ngủi một lần tiếp xúc, Triệu Kim An cho các nàng lưu lại ấn tượng rất sâu sắc.
+Nhưng thực chất điều họ muốn ngầm thăm dò chính là: Liệu Triệu Kim An có đến dự hay không?
 
-Triệu Kim An giống như từ Mộc Dao của thế giới biến mất, nữ nhi có hay không yêu đương, từ nàng nâng điện thoại nói chuyện trời đất số lần cùng thần sắc liền có thể đoán được.
+Chỉ qua một lần tiếp xúc ngắn ngủi hôm ấy, chàng trai trẻ Triệu Kim An đã để lại trong lòng hai bậc phụ huynh một ấn tượng vô cùng sâu sắc.
 
-"Kim An, Mộc Dao của lên lớp rượu ngươi đi không đi?"
+Thế nhưng Triệu Kim An giờ đây hệt như đã hoàn toàn bốc hơi khỏi thế giới của Mộc Dao. Một đứa con gái có đang trong giai đoạn yêu đương mặn nồng hay không, người làm cha mẹ chỉ cần nhìn vào tần suất ôm khư khư chiếc điện thoại nhắn tin cùng nét mặt biến chuyển vui buồn của nó là có thể đoán biết được ngay.
 
-"đúng, còn có Du Phỉ."
+...
 
-Bên lề đường, Triệu Chí Dũng gặm dưa hấu vấn đạo:"âu mạnh tại trong đám mời tất cả đồng học, còn có chủ nhiệm khóa lão sư, hắn nói hiệu trưởng đều sẽ tham gia."
+"Kim An này, tiệc mừng đỗ đại học của Mộc Dao mày có đi không đấy?"
 
-"Kim An, ngươi nói hiệu trưởng thật sự sẽ đi sao? Sẽ không lại là âu mạnh khoác lác đi?"
+"À đúng rồi, còn cả tiệc của Du Phi nữa."
 
-Hiệu trưởng a, Triệu Chí Dũng rất hâm mộ.
+Bên lề đường quốc lộ, Triệu Trí Dũng vừa gặm dưa hấu vừa cất tiếng hỏi: "Thằng Âu Cường còn lên nhóm lớp mời tất cả bạn học cùng toàn bộ các thầy cô bộ môn tới dự nữa cơ, nó khoe là đến cả thầy Hiệu trưởng cũng sẽ đích thân tới tham dự đấy."
 
-"sẽ."
+"Kim An, mày bảo thầy Hiệu trưởng có thật sự tới dự tiệc nhà nó không? Hay lại là thằng Âu Cường bốc phét khoác lác để làm màu?"
 
-Triệu Kim An rảnh đến nhàm chán, cho Triệu Duyệt Thiên bện biện tử.
+Hiệu trưởng trường chuyên cơ đấy, Triệu Trí Dũng trong lòng ngưỡng mộ khôn xiết.
 
-Triệu Duyệt Thiên tựa ở trong ngực của ca ca, liếm láp 5 đồng tiền lão Băng côn, đây là nàng hôm nay cái thứ hai kem cây rồi.
+"Thầy sẽ tới đấy."
 
-Không phải Triệu Kim An không nỡ, là tiểu nha đầu nói 5 đồng tiền liền có thể ăn nhiều mấy cái.
+Triệu Kim An đang ngồi nhàn rỗi chẳng có việc gì làm, liền tỉ mẩn tết bím tóc cho bé Triệu Duyệt Thiên.
 
-Doãn Hiểu Lan ở nhà rảnh đến nhàm chán cũng tới, ngồi xổm ở Triệu Kim An bên cạnh.
+Triệu Duyệt Thiên ngoan ngoãn nép chặt vào lòng anh trai, miệng thong thả mút que kem đá năm hào mát lạnh. Đây đã là que kem thứ hai trong ngày của cô bé rồi.
 
-"um tùm, cho tẩu tử ăn một miếng."
+Không phải Triệu Kim An tiếc tiền không chịu mua kem đắt hơn cho em, mà là do chính cô bé con nằng nặc bảo rằng ăn kem năm hào rẻ hơn thì sẽ được ăn nhiều que hơn.
 
-Triệu Kim An: · · · · · ·
+Doãn Hiểu Lan ở nhà rảnh rỗi không có việc gì làm cũng ra đây chơi, liền ngồi thụp xuống bên cạnh Triệu Kim An.
 
-Ca ca, tẩu tử?
+"Thiên Thiên ngoan, cho chị dâu cắn nhờ một miếng kem nào."
 
-Người liền không thể thay vào, Doãn Hiểu Lan một mặt tự nhiên, dáng người thật sự hảo, nói đơn giản một chút, eo nhỏ mông lớn.
+Triệu Kim An: [...]
 
-Dùng nãi nãi lời mà nói, chính là sẽ xảy ra dưỡng.
+Anh trai, rồi lại chị dâu?
 
-Một trương tinh xảo của mặt trái xoan, ngồi xổm xuống, bởi vì đầu gối đè ép.....
+Người ta quả thực không nên tùy tiện gán ghép danh xưng như thế. Doãn Hiểu Lan thì lại tỏ ra vô cùng tự nhiên, vóc dáng của cô quả thực đẫy đà quyến rũ hết phần thiên hạ, nói một cách dân dã dễ hiểu chính là eo thon mông nở nang.
 
-Có thể chắc chắn, về sau hài tử sẽ không"thiếu lương".
+Theo đúng như lời đúc kết của các cụ già xưa như bà nội, thì đây chính là tướng mạo người phụ nữ vượng phu ích tử, mắn đẻ vô cùng.
 
-Cái này, lại là nãi nãi ưa thích Doãn Hiểu Lan của một cái điểm đi?
+Gương mặt trái xoan thanh tú kiều diễm, khi ngồi xổm xuống, do sự chèn ép của đầu gối mà phần ngực căng tràn như muốn bung cúc áo...
 
-"Kim An, ngươi nhìn cái gì?"
+Có thể khẳng định một điều chắc chắn rằng, sau này con cái của cô sẽ chẳng bao giờ lo bị "thiếu sữa".
 
-"không có gì."
+Đây có lẽ lại là một điểm mấu chốt nữa khiến bà nội đem lòng quý mến Doãn Hiểu Lan đến vậy chăng?
 
-Phát giác được Triệu Kim An của ánh mắt, Doãn Hiểu Lan cúi đầu nhìn một chút, khuôn mặt đỏ bừng, cũng may giữa mùa hè nhìn không ra.
+"Kim An, em đang nhìn cái gì đấy?"
 
-Nàng lôi kéo own T lo lắng, trong lòng lại có chút ngọt ngào, còn nghĩ cười.
+"Dạ không có gì đâu ạ."
 
-"Kim An, đúng là lớn rồi."
+Nhận ra ánh mắt chăm chú của Triệu Kim An vừa quét qua người mình, Doãn Hiểu Lan khẽ cúi đầu nhìn lại trang phục, gò má bỗng ửng hồng e thẹn, may mà giữa trưa hè oi ả nên người ngoài nhìn vào chẳng thể nhận ra sự khác thường.
 
-Triệu Chí Dũng còn đắm chìm tại thế giới của mình:"Kim An, vậy nếu như ngươi xử lý lên lớp rượu, hiệu trưởng sẽ đến không?"
+Cô vội đưa tay kéo nhẹ vạt áo phông của mình xuống, thế nhưng trong sâu thẳm lồng ngực lại dâng lên một cảm giác ngọt ngào len lỏi, khóe môi bất giác muốn mỉm cười.
 
-"một nửa một nửa?"
+"Cái thằng Kim An này, quả thực đã trưởng thành rồi..."
 
-"đại khái tỷ lệ sẽ không tới đi."
+Triệu Trí Dũng thì vẫn đang mải mê chìm đắm trong dòng suy nghĩ của riêng mình: "Kim An, thế nếu như mày mở tiệc mừng đỗ đại học, liệu thầy Hiệu trưởng có chịu tới dự không?"
 
-Triệu Kim An cũng không xác định.
+"Năm ăn năm thua thôi."
 
-Chủ nhiệm khóa lão sư không cần phải nói, lớp mười hai chủ nhiệm khóa lão sư cái này kỳ nghỉ hè là rất"bận rộn"của, đặc biệt là lớp chọn, không phải vậy vì cái gì gọi lên lớp tạ sư yến?
+"Nhưng phần lớn khả năng là thầy sẽ không tới đâu."
 
-Hiệu trưởng liền không nói được rồi.
+Triệu Kim An cũng không dám chắc chắn.
 
-Chức vị này càng phần lớn là hành chính thuộc tính.
+Các thầy cô giáo bộ môn thì khỏi cần phải bàn tới rồi, mùa hè này chính là khoảng thời gian bận rộn chạy sô ăn tiệc tri ân nhiều nhất của các giáo viên dạy khối 12, đặc biệt là giáo viên các lớp chọn, nếu không thì người ta đã chẳng gọi đó là tiệc "thăng học tạ sư".
 
-Hắn đi không đi, một là nhìn thí sinh thi đậu trường học, hai là nhìn thí sinh bối cảnh gia đình.
+Riêng vị trí Hiệu trưởng thì lại là một câu chuyện hoàn toàn khác.
 
-Âu mạnh thi đậu là phục đán, phụ thân lại là phát cải ủy của, hai điểm đều phù hợp.
+Chiếc ghế này mang đậm tính chất hành chính quan trường nhiều hơn.
 
-Triệu Chí Dũng của phụ mẫu ngược lại là muốn làm, nhưng Triệu Chí Dũng chỉ thi cái trường đại học, ngượng ngùng tổ chức lớn.
+Thầy Hiệu trưởng có nhận lời tới dự hay không, thứ nhất phải xem thí sinh đó thi đỗ vào ngôi trường danh giá tầm cỡ nào, và thứ hai là phải cân nhắc đến gia thế nền tảng của gia đình thí sinh đó ra sao.
 
-"Kim An, cái kia Mộc Dao của lên lớp rượu ngươi đi không đi? Nàng mời được ta."
+Âu Cường thi đỗ vào Đại học Phục Đán danh giá hàng đầu, bố hắn lại là cán bộ có chức quyền bên Ủy ban Phát triển và Cải cách, cả hai yếu tố then chốt ấy hắn đều hội tụ đầy đủ trọn vẹn.
 
-"không đi."
+Bố mẹ Triệu Trí Dũng kỳ thực cũng rất muốn làm vài mâm cỗ linh đình để nở mày nở mặt với xóm giềng, ngặt nỗi Trí Dũng chỉ thi đỗ vào một trường cao đẳng nghề, nên gia đình cũng cảm thấy ngượng ngùng, không dám mở tiệc rình rang.
 
-Mộc Dao đơn độc mời Triệu Chí Dũng, đại khái cũng là mời Triệu Kim An, Triệu Chí Dũng cái gì cũng không biết, càng không biết Triệu Kim An kéo đen Mộc Dao.
+"Kim An, thế tiệc mừng của Mộc Dao mày có đi không? Cô ấy còn gọi điện mời đích danh cả tao nữa đấy."
 
-Doãn Hiểu Lan rất có thâm ý mắt nhìn Triệu Kim An, nghe hiểu ngày đó nữ hài kia gọi Mộc Dao.
+"Tao không đi đâu."
 
-"các ngươi giữa bạn học chung lớp muốn đưa lễ sao?"
+Mộc Dao gọi điện mời riêng Triệu Trí Dũng, thực chất cũng là muốn thông qua đó để đánh tiếng mời Triệu Kim An. Triệu Trí Dũng nào có hay biết chuyện gì bên trong, lại càng chẳng hề biết Triệu Kim An đã sớm xóa số, chặn mọi liên lạc với Mộc Dao từ lâu rồi.
 
-Doãn Hiểu Lan hỏi.
+Doãn Hiểu Lan đưa mắt nhìn Triệu Kim An bằng một ánh nhìn đầy sâu sắc, giờ thì cô đã hiểu ra cô bé mặc váy trắng hôm nọ tên là Mộc Dao.
 
-"không muốn."
+"Thế bạn bè cùng lớp với nhau đi ăn tiệc có phải bỏ phong bì mừng không em?"
 
-Triệu Chí Dũng giương lên điện thoại:"trong đám đại gia nói xong rồi, ai cũng không tặng lễ."
+Doãn Hiểu Lan cất tiếng hỏi.
 
-Doãn Hiểu Lan trừng mắt nhìn, trêu ghẹo nói:"chí dũng, vậy ngươi không phải kiếm lời? Ăn không chỗ ngồi."
+"Không cần đâu chị."
 
-Triệu Chí Dũng: · · · · · ·
+Triệu Trí Dũng giơ chiếc điện thoại lên lắc lắc: "Mọi người trong nhóm lớp đã thống nhất với nhau từ trước rồi, học sinh với nhau tuyệt đối không ai được đi phong bì mừng tiền cả."
 
-"tẩu tử ngươi..... Mắng chửi người thật bẩn"
+Doãn Hiểu Lan chớp chớp mắt, cười trêu chọc: "Thế thì Trí Dũng chuyến này hời to rồi còn gì nữa? Được đi ăn cỗ miễn phí sướng nhé!"
 
-"a."
+Triệu Trí Dũng: [...]
 
-Triệu Kim An cũng cười một tiếng.
+"Chị dâu... chị nói móc người khác sâu cay thật đấy chứ..."
 
-Nói cho cùng Doãn Hiểu Lan mới 2 3 tuổi, thân phận của nàng là tẩu tử (đường tẩu), trên thực tế cùng 1 8 tuổi Triệu Kim An, Triệu Chí Dũng xem như người đồng lứa.
+"Hì hì."
 
-Khiến người ngoài ý chính là, Triệu Kim An nhận được hóa học lão sư Trình lão sư của điện thoại.
+Triệu Kim An cũng không nhịn được mà bật cười thành tiếng.
 
-Lúc liên cố ý gọi điện thoại tới, hỏi Triệu Kim An có thể hay không xử lý lên lớp rượu.
+Nói cho cùng thì Doãn Hiểu Lan năm nay cũng mới chỉ vừa tròn hai mươi ba tuổi. Thân phận trên danh nghĩa của cô tuy là chị dâu họ, nhưng thực chất xét về mặt tuổi tác thì cô với hai cậu thiếu niên mười tám tuổi như Triệu Kim An và Triệu Trí Dũng căn bản cũng chỉ là những người cùng một thế hệ trẻ tuổi mà thôi.
 
-"Triệu Kim An, ngươi xử lý lên lớp yến không mời ta sao?"
+...
 
-Lúc liên đảm nhiệm lớp mười hai ba cái ban của hóa học lão sư, đối với ba cái ban của đồng học đều vô cùng nghiêm túc, duy chỉ có đối với 2 0 9 ban của Triệu Kim An phá lệ ôn hòa có kiên nhẫn.
+Điều khiến Triệu Kim An vô cùng bất ngờ là buổi chiều hôm đó, cậu lại nhận được một cuộc điện thoại từ cô giáo dạy Hóa của mình.
 
-Bây giờ thi vào trường cao đẳng văn lý phân khoa, hóa học là lý khoa nhất định tuyển khoa mục.
+Cô giáo Trình Tử Liên đã đặc biệt gọi điện tới tận nơi để hỏi xem Triệu Kim An có tổ chức tiệc mừng đỗ đại học hay không.
 
-(ngữ đếm bên ngoài, vật lý, hóa học, sinh vật)
+"Triệu Kim An, em tổ chức tiệc mừng đỗ đại học mà không định mời cô đến chung vui đấy à?"
 
-Thẳng đến 2 0 1 4 lớn tuổi kiểm tra cải cách, biến thành hai loại độ cao mới kiểm tra hình thức, 3 + 3, 3 + 1 + 2, vật lý và lịch sử trở thành rồi văn lý phân khoa chọn lựa đầu tiên (nhất định tuyển) khoa mục.
+Trình Tử Liên vốn là giáo viên phụ trách môn Hóa học cho cả ba lớp khối 12 của trường. Bình thường đứng trên bục giảng cô nổi tiếng là người vô cùng nghiêm khắc và khó tính với học sinh của cả ba lớp, thế nhưng duy chỉ đối với cậu học trò Triệu Kim An của lớp 209 là cô luôn dành cho một sự dịu dàng, kiên nhẫn và bao dung đặc biệt khác thường.
 
-Lão sư tham gia đồng học của lên lớp yến là không cần tặng quà.
+Vào thời điểm này, kỳ thi đại học vẫn áp dụng theo mô hình phân ban tự nhiên và xã hội truyền thống, môn Hóa học chính là môn thi bắt buộc đối với khối khoa học tự nhiên.
 
-Nhưng, Triệu Kim An xử lý winy lời nói, lúc liên định đưa một ngàn khối tiền.
+(Bao gồm: Toán, Văn, Ngoại ngữ, Vật lý, Hóa học, Sinh học).
 
-Mộc Dao của lên lớp yến là tại tư cách tinh thành phố khách sạn tốt nhất, thiên tài hưng thịnh khách sạn cử hành.
+Mãi cho tới đợt cải cách thi cử sâu rộng năm 2014, kỳ thi mới chuyển đổi sang các mô hình mới như 3+3 hoặc 3+1+2, khi đó Vật lý và Lịch sử mới trở thành môn thi lựa chọn bắt buộc hàng đầu để phân ban.
 
-6 cái chủ nhiệm khóa lão sư, thầy chủ nhiệm, còn có Vương hiệu trưởng cũng tới.
+Các thầy cô giáo khi tới tham dự tiệc mừng của học sinh theo thông lệ thì không cần phải chuẩn bị quà cáp hay phong bì tiền mừng.
 
-Lớn nhất đại sảnh, bày 3 6 bàn, trương tuệ cùng mộc nhân mạnh công tác đơn vị, cục thuế vụ của đồng sự đều tới.
+Thế nhưng, nếu như Triệu Kim An chịu đứng ra tổ chức tiệc mừng, cô giáo Trình Tử Liên đã dự định sẵn trong đầu sẽ chuẩn bị một phong bao mừng đỏ trị giá một nghìn tệ để trao tận tay cậu học trò cưng.
 
-Thậm chí mộc nhân quân công tác đơn vị, quốc thổ cục cũng có một chút đồng sự tới.
+...
 
-Khách sạn đại sảnh bồng tất sinh huy, thầy chủ nhiệm cùng Vương hiệu trưởng nâng ly cạn chén, cùng cục thuế vụ quốc thổ cục của người nói chuyện rất vui vẻ.
+Bữa tiệc mừng đỗ đại học của Mộc Dao được long trọng tổ chức tại khách sạn Hùng Hưng – khách sạn sang trọng và đẳng cấp bậc nhất của thành phố cấp huyện Tư Tinh.
 
-Ở nơi này chút 1 8 tuyến tiểu thành thị a, những người này xem như sống được rất dễ chịu một đám người.
+Cả sáu giáo viên bộ môn của lớp 12, thầy chủ nhiệm phụ trách đào tạo, và thậm chí đích thân thầy Hiệu trưởng họ Vương cũng đã tới dự.
 
-Các nàng có đan, sau khi về hưu có về hưu tiền lương, thậm chí phụ mẫu đều ăn tiền hưu, loại này hoàng kim phối hợp, liền tạo dựng lên một cái vô cùng đáng tin cùng ổn định kinh tế thành lũy.
+Tại sảnh tiệc lớn nhất của khách sạn, gia đình đã cho bày biện tới 36 mâm cỗ thịnh soạn. Toàn bộ đồng nghiệp trong cơ quan của Trương Tuệ và Mộc Nhân Cường bên Chi cục Thuế đều có mặt đông đủ.
 
-Nếu như ngươi tại thành phố lớn lăn lộn ngoài đời không nổi rồi, nhớ lại lão gia phát triển, tuyệt đối không nên.
+Thậm chí bên phía cơ quan của bác Mộc Nhân Quân bên Cục Quản lý Đất đai Tài nguyên cũng có không ít đồng nghiệp quan chức tới tham dự chúc mừng.
 
-Bởi vì ngươi sẽ phát hiện tại gia tộc càng khó hơn hỗn, mệt mỏi hơn.
+Toàn bộ sảnh tiệc khách sạn bừng sáng lộng lẫy, rộn rã tiếng cười nói chúc tụng. Thầy chủ nhiệm đào tạo cùng thầy Hiệu trưởng Vương nâng ly cạn chén, trò chuyện vô cùng rôm rả, tâm đắc bên những vị khách quý của Chi cục Thuế và Cục Đất đai.
 
-Thành phố nhỏ xã hội, chính là xã hội nhân tình.
+Ở những thành phố nhỏ tuyến mười tám xa xôi hẻo lánh thế này, những gia đình công chức biên chế như thế này chính là tầng lớp có cuộc sống êm ấm, sung túc và viên mãn nhất.
 
-Lúc liên nhìn chung quanh, 2 0 9 ban bày hai bàn, âu mạnh cùng Du Phỉ tới, duy chỉ có không thấy Triệu Kim An.
+Họ có biên chế nhà nước ổn định, về già có lương hưu an nhàn, thậm chí cả thế hệ ông bà cha mẹ đều được hưởng trọn chế độ bảo hiểm hưu trí. Sự kết hợp vàng hoàn hảo ấy đã xây dựng nên một pháo đài kinh tế cực kỳ kiên cố, an toàn và vững chắc trước mọi biến động cuộc đời.
 
-"các nàng không phải yêu đương sao?"
+Nếu như sau này bạn có bươn chải thất bại ở các thành phố lớn xa hoa rồi nảy sinh ý định muốn quay về quê nhà để tìm kiếm cơ hội phát triển, thì ngàn vạn lần xin đừng dại dột làm thế.
 
-Lúc liên cũng không nghĩ đến, Triệu Kim An dạng này người, thi đại học sau sẽ hướng Mộc Dao thổ lộ.
+Bởi vì khi ấy bạn sẽ cay đắng nhận ra rằng, sống và lập nghiệp ở quê nhà còn khó khăn, ngột ngạt và mệt mỏi hơn gấp vạn lần.
 
-Trình lão sư đối với Triệu Kim An của chú ý, so 2 0 9 ban của chủ nhiệm lớp còn nhiều.
+Xã hội ở các thị trấn nhỏ, suy cho cùng, chính là một xã hội vận hành thuần túy bằng mạng lưới quan hệ và ân tình cá nhân.
 
-Âu mạnh không chỉ một người đến, cha mẹ của hắn cũng tới, hắn liền theo ở phía sau giơ ly hướng thầy chủ nhiệm cùng hiệu trưởng mời rượu, một bộ"đại nhân"bộ dáng.
+Cô giáo Trình Tử Liên đưa mắt nhìn quanh quất khắp sảnh tiệc. Phía bàn tiệc của lớp 209 được bố trí hai bàn tròn, Âu Cường và Du Phi đều đã có mặt đông đủ, duy chỉ tuyệt nhiên không thấy bóng dáng của Triệu Kim An đâu cả.
 
-Thấy cảnh này, lúc liên cười lắc đầu.
+"Hai đứa nó chẳng phải đang yêu nhau hay sao?"
 
-Nhỏ như vậy đi học đang một bộ này, cũng khó trách hắn trưởng lớp này một làm chính là ba năm.
+Cô Trình Tử Liên cũng thực sự không ngờ tới, một người có tính cách trầm lặng, ít nói như Triệu Kim An, sau kỳ thi đại học lại dám mạnh dạn đứng ra tỏ tình với Mộc Dao.
 
-Nàng liếc trộm một cái phía trước 2 0 9 ban của chủ nhiệm lớp, trong lòng cười càng sung sướng rồi.
+Sự quan tâm và dõi theo của cô Trình dành cho Triệu Kim An bấy lâu nay thậm chí còn nhiều hơn cả thầy giáo chủ nhiệm của lớp 209.
 
-Bởi vì âu mạnh chỉ đơn độc kính hiệu trưởng cùng thầy chủ nhiệm, khác chủ nhiệm khóa lão sư, bao quát chính nàng chính là cùng một chỗ kính
+Âu Cường hôm nay không chỉ đi một mình, mà cả bố mẹ hắn cũng cùng tới tham dự. Hắn ta khép nép đi theo sau lưng bố mẹ, tay nâng ly rượu cung kính tiến lại bàn của thầy chủ nhiệm đào tạo và thầy Hiệu trưởng để chúc rượu, ra dáng một "người lớn" chững chạc, sành sỏi việc đời.
+
+Nhìn thấy màn kịch ấy, cô Trình Tử Liên chỉ khẽ mỉm cười kín đáo, lắc đầu ngán ngẩm.
+
+Mới ngần này tuổi đầu đã sớm học đòi, nhiễm thói phong bao quan trường luồn cúi như thế, hèn chi cái ghế lớp trưởng của hắn ta cứ ngồi vững như bàn thạch suốt ba năm trời cấp ba.
+
+Cô khẽ liếc mắt nhìn sang nét mặt của thầy giáo chủ nhiệm lớp 209 đang ngồi đối diện, trong lòng lại càng cảm thấy buồn cười hơn.
+
+Bởi vì Âu Cường vừa rồi chỉ đi chúc rượu riêng từng người một cho thầy Hiệu trưởng và thầy chủ nhiệm đào tạo, còn toàn bộ các thầy cô giáo bộ môn khác—bao gồm cả chính cô Trình—hắn ta chỉ tiện mồm nâng ly mời chung cả bàn lấy lệ mà thôi...

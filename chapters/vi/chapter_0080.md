@@ -1,167 +1,171 @@
-# Chương 80: Cho Anh Ăn Này
+# Chương 80: Cho cậu ăn này
 
-Mùa đông ở Quận Sa rất lạnh lẽo, mưa nhỏ lất phất bay, sinh viên trong khu đại học ai nấy đều bọc mình trong những chiếc áo bông dày cộm.
+> **Tiêu đề gốc**: 第80章 给你吃。
 
-Ngô Hiểu lại đến.
+Mùa đông ở Quận Sa lạnh giá thấu xương, bầu trời thường xuyên lất phất những hạt mưa phùn ẩm ướt, buốt giá. Sinh viên trong khu Đại học Thành ai nấy đều khoác lên mình những chiếc áo bông dày cộp để chống lại cái rét cắt da cắt thịt.
 
-Nàng đứng dưới lầu ký túc xá nam gọi điện cho Triệu Kim An, nói rằng tiểu thư Tô đã mua quần áo cho hắn.
+Ngô Hiểu lại tìm đến.
 
-Bản thân nàng cũng thấy lạ, tiểu thư Tô không có mặt ở Quận Sa nhưng vẫn luôn để tâm đến cậu nam sinh mới làm tình nguyện viên được hai ngày này.
+Cô đứng dưới chân tòa nhà ký túc xá nam gọi điện thoại cho Triệu Kim An, bảo rằng tiểu thư Tô Miến vừa mua gửi tặng cậu mấy bộ quần áo.
 
-Nàng đã xem qua rồi.
+Bản thân Ngô Hiểu cũng lấy làm lạ lùng, tiểu thư Tô Miến hiện đang ở tận Bắc Kinh xa xôi, vậy mà trong lòng vẫn luôn nhớ đến cậu nam sinh chỉ mới làm tình nguyện viên chăm sóc cô đúng vỏn vẹn hai ngày ngắn ngủi.
 
-Thực ra chẳng cần xem cũng biết, Tô Miền sẽ không bao giờ mua hàng rẻ tiền.
+Cô đã mở hộp đồ ra xem qua.
 
-Quần áo được gửi thẳng từ Kinh Đô đến tận tay Ngô Hiểu.
+Thực ra chẳng cần mở ra nhìn cũng đoán trước được, những món đồ mà Tô Miến đã đích thân chọn mua thì tuyệt đối không bao giờ là hàng rẻ tiền, tầm thường.
 
-Có lẽ Tô Cảnh Hành và Phùng Nhược Đan đều không biết chuyện này.
+Quần áo được gửi chuyển phát nhanh trực tiếp từ thủ đô Bắc Kinh về, đến thẳng tay Ngô Hiểu.
 
-Triệu Kim An cũng cảm thấy kỳ quặc, lần đầu có thể coi là cảm ơn, nhưng lần thứ hai này thì giải thích thế nào đây?
+Chuyện này có lẽ ông Tô Cảnh Hành và bà Phùng Nhược Đan vẫn chưa hề hay biết.
 
-Cho dù nàng có ham muốn thân xác mình, thì với cơ thể kia của nàng, liệu có làm ăn gì được không?
+Triệu Kim An cũng cảm thấy vô cùng khó hiểu. Nếu là lần đầu tiên tặng quà thì có thể coi như một lời cảm ơn chân thành, nhưng đến lần thứ hai này thì phải giải thích ra sao đây?
 
-Thành thật mà nói, Triệu Kim An từng nảy sinh một tia tà niệm với Đường Hiểu Tình, khi nhìn thấy ảnh phong tình của Lâm Thanh Tuyết cũng từng có ý nghĩ xấu xa, nhưng với Tô Miền thì thật sự không có.
+Dẫu cho cô nàng có ý đồ thèm muốn thân xác cậu đi chăng nữa, thì với tình trạng thể chất ốm yếu hiện tại của cô ấy, liệu có kham nổi không?
 
-Không phải vì Tô Miền không đẹp, vẻ đẹp của nàng rất cao sang.
+Thành thật mà nói, Triệu Kim An từng nảy sinh một tia tà niệm trong lòng với Đường Hiểu Tình; khi nhìn thấy những tấm hình gợi cảm, quyến rũ của Lâm Thanh Tuyết, cậu cũng từng nổi lên ham muốn đàn ông. Nhưng riêng với Tô Miến, cậu thực sự chưa từng nảy sinh bất kỳ tà niệm nào.
 
-Mà là vì khi đối diện với một người ngồi xe lăn, đàn ông rất khó nảy sinh tà niệm.
+Không phải vì Tô Miến không đẹp, mà vẻ đẹp của cô thuộc về một đẳng cấp rất cao sang, đài các và thoát tục.
 
-Thời điểm thi học kỳ đã cận kề.
+Chỉ là khi nhìn một cô gái phải ngồi trên chiếc xe lăn, bất kỳ người đàn ông bình thường nào cũng rất khó để dấy lên dục vọng thể xác đơn thuần.
 
-Ôn tập ở lớp thì quá lạnh, thư viện lại đông nghẹt người. Để tranh được chỗ ngồi, nhiều người đã phải xếp hàng trước cửa thư viện từ bảy giờ sáng, hòng có thể trụ lại đó cả ngày.
+***
 
-"Mạn Mạn, hôm nay Trần Trạch có đến ôn tập với cậu không?"
+Kỳ thi kết thúc học kỳ một đã cận kề trước mắt.
 
-Bốn cô gái phòng 406 ngày nào cũng đi xếp hàng từ sớm. Từ Mạn Mạn luôn giữ sẵn một chỗ cho Trần Trạch, nhưng anh ta lúc đến lúc không, có đến cũng chỉ ở lại nửa ngày.
+Ngồi ôn bài trong phòng học thì quá lạnh giá, thư viện trường lại rơi vào tình trạng quá tải nghiêm trọng. Để giành được một chỗ ngồi êm ấm có điều hòa, rất nhiều sinh viên đã phải dậy từ sáu, bảy giờ sáng đứng co ro xếp hàng dài dằng dặc trước cổng thư viện. Chỉ cần chiếm được một chỗ ngồi là có thể yên tâm cắm chốt học bài ở thư viện suốt cả một ngày trời.
 
-Thẩm Tử Ngôn cười nói: "Mạn Mạn, cậu trông giống mẹ của Trần Trạch hơn đấy, suốt ngày đốc thúc anh ta học hành."
+"Mạn Mạn, hôm nay Trần Trạch có đến thư viện ôn thi cùng cậu không?"
 
-Nghe vậy, Mộc Dao và Diêu Tân đều thấy đúng là như thế thật.
+Bốn cô gái phòng 406 ngày nào cũng lục đục dậy từ sớm tinh mơ để đi xếp hàng. Ngày nào Từ Mạn Mạn cũng cẩn thận giữ sẵn một chỗ ngồi bên cạnh cho Trần Trạch. Thế nhưng Trần Trạch hôm thì đến hôm thì không, mà hễ có đến thì cũng chỉ ngồi vạ vật được nửa buổi là chuồn mất.
 
-Từ Mạn Mạn quàng chiếc khăn len màu đen, thở ra hơi trắng, mỉm cười không đáp.
+Thẩm Tử Ngôn mỉm cười trêu đùa: "Mạn Mạn à, tớ thấy cậu trông giống như mẹ của Trần Trạch hơn đấy, lúc nào cũng phải kè kè đôn đốc, nhắc nhở cậu ấy học hành."
 
-Diêu Tân lên tiếng: "Bên Sư Đại nghỉ hè muộn hơn chúng ta hai ngày nhỉ. Dao Dao, hay là cậu cũng chiếm một chỗ cho Triệu Kim An đi?"
+Nghe cô bạn ví von như vậy, Mộc Dao và Diêu Sân đều gật gù công nhận quả đúng là như thế thật.
 
-Mộc Dao siết chặt điện thoại, nhìn cặp đôi trẻ trong hàng ngũ, vẻ mặt thất thần nói: "Tớ không liên lạc được với cậu ấy."
+Từ Mạn Mạn quàng chiếc khăn len màu đen ấm áp quanh cổ, khẽ thở ra một làn khói trắng mờ ảo giữa trời đông giá rét, chỉ mỉm cười dịu dàng chứ không đáp lời.
 
-Chẳng ai nói thêm lời nào nữa.
+Diêu Sân buột miệng nói: "Bên trường Đại học Sư phạm của bọn họ hình như được nghỉ Tết muộn hơn trường mình hai ngày đấy. Dao Dao, hay là cậu cũng xí sẵn một chỗ ngồi cho Triệu Kim An đi?"
 
-Họ cũng không ngờ Triệu Kim An lại chặn liên lạc với Mộc Dao, mà đã chặn là chặn suốt cả một học kỳ.
+Mộc Dao nắm chặt chiếc điện thoại trong lòng bàn tay, đưa mắt nhìn các cặp đôi sinh viên đang ríu rít bên nhau trong hàng người xếp hàng, vẻ mặt thoáng chốc chùng xuống, giọng nói nghẹn ngào đượm buồn: "Tớ... tớ không tài nào liên lạc được với cậu ấy."
 
-Nói chia tay là thật sự không làm phiền nhau nữa!
+Không gian bỗng chốc chìm vào im lặng, chẳng ai biết phải nói gì thêm.
 
-Hai bức thư tình kia vốn dĩ tha thiết sâu đậm đến thế...
+Cả nhóm bạn cũng không thể ngờ rằng, Triệu Kim An một khi đã cho Mộc Dao vào danh sách đen thì kiên quyết chặn số suốt cả một học kỳ dài đằng đẵng.
 
-Cũng may có Trần Trạch nói lại rằng Triệu Kim An chưa có bạn gái, cũng chẳng thấy cậu ta đi gần gũi với ai.
+Đã nói lời chia tay là dứt khoát tuyệt tình, đôi bên tuyệt đối không làm phiền đến cuộc sống của nhau nữa!
 
-Trần Trạch đến thư viện không phải để ôn tập, anh ta mua đồ ăn, trà sữa cho bốn cô gái phòng 406. Mười giờ sáng anh ta mới ló mặt đến, trưa mời khách đi ăn, đến chiều thì mất hút.
+Vậy mà hai bức thư tình năm xưa cậu viết cho cô lại chan chứa bao nhiêu tình cảm sâu đậm, da diết đến thế...
 
-Cảnh này khiến Lưu Sấm Phong và Cốc Siêu Thừa ngưỡng mộ không thôi.
+Cũng may có Trần Trạch làm "nội gián" tiết lộ rằng Triệu Kim An hiện vẫn chưa có bạn gái mới, cũng không thấy cậu ta qua lại thân thiết với bất kỳ cô gái nào trong trường.
+
+Trần Trạch đến thư viện thực chất đâu phải để ôn bài. Cậu ta thường mua thật nhiều đồ ăn vặt và trà sữa thơm ngon mang đến tiếp tế cho bốn cô gái phòng 406. Mãi đến mười giờ sáng cậu ta mới đủng đỉnh xuất hiện, buổi trưa thì hào phóng chi tiền mời cả nhóm đi ăn nhà hàng sang chảnh, sang đến buổi chiều thì bóng dáng đã lặn mất tăm mất tích.
+
+Ấy vậy mà cảnh tượng ấy vẫn khiến cho Lưu Sấm Phong và Cốc Siêu Thừa ở phòng bên thèm thuồng, ghen tị đến đỏ cả mắt.
 
 Đặc biệt là Lưu Sấm Phong.
 
-Hắn và Trần Trạch hoàn toàn ngược lại, hắn phải đi xếp hàng chiếm chỗ cho Lâm Thanh Tuyết.
+Số phận của cậu ta thì hoàn toàn trái ngược với Trần Trạch. Ngày nào cậu ta cũng phải thức khuya dậy sớm, đứng chịu rét buốt trong hàng dài để giữ chỗ ngồi cho Lâm Thanh Tuyết.
 
-Thế mà Lâm Thanh Tuyết còn chẳng thèm nể mặt, nàng tô son Dior, lạnh lùng bảo: "Tôi còn chưa đồng ý làm bạn gái anh đâu, anh chiếm chỗ thì cùng lắm là ngồi đối diện thôi, đừng có ngồi cạnh tôi."
+Thế nhưng Lâm Thanh Tuyết lại chẳng hề biết ơn hay cảm kích nửa lời. Cô nàng tô thỏi son Dior đỏ rực kiêu kỳ, thản nhiên tuyên bố: "Tôi vẫn chưa chính thức nhận lời làm bạn gái của cậu đâu đấy nhé. Cậu chiếm chỗ thì cùng lắm chỉ được ngồi ở bàn đối diện thôi, cấm tiệt không được ngồi sát cạnh tôi."
 
-Cốc Siêu Thừa đầy vẻ hâm mộ nói: "Trạch ca, Từ Mạn Mạn sau này chắc chắn sẽ là một người vợ hiền."
+Cốc Siêu Thừa nhìn theo với ánh mắt ngưỡng mộ khôn xiết, cảm thán: "Trạch ca, sau này Từ Mạn Mạn chắc chắn sẽ là một người vợ hiền dâu thảo chuẩn mực đấy."
 
-Lưu Sấm Phong càng ghen tị hơn khi thấy Trần Trạch ôn tập có ba mỹ nữ phòng 406 vây quanh, dù không đọc sách thì ngắm mỹ nữ cũng sướng rồi. Trần Trạch liền đáp: "Tao dám nhìn bừa chắc?"
+Lưu Sấm Phong thì càng ghen tị hơn khi Trần Trạch đi ôn bài lúc nào cũng có ba đại mỹ nhân của phòng 406 ngồi vây quanh. Dẫu không thèm ngó ngàng vào sách vở thì ngồi ngắm ba cô gái xinh đẹp rạng ngời ấy thôi cũng đủ bổ mắt rồi. Trần Trạch nghe vậy liền lắc đầu: "Mày nghĩ tao dám nhìn lung tung chắc?"
 
-Công khai thì chắc chắn không dám, nhưng lén lút thì chắc chắn có nhìn.
+Nói là vậy, chứ công khai nhìn chằm chằm thì không dám, nhưng lén lút liếc trộm thì chắc chắn là có.
 
-Từ Mạn Mạn đã phát hiện mấy lần Trần Trạch lén nhìn Thẩm Tử Ngôn, còn số lần nhìn Mộc Dao thì ít hơn một chút.
+Từ Mạn Mạn đã không ít lần tinh ý bắt gặp Trần Trạch thỉnh thoảng lại lén đưa mắt ngắm nhìn Thẩm Tử Ngôn, số lần liếc nhìn Mộc Dao thì có phần ít hơn đôi chút.
 
-Hôm nay Trần Trạch lại xách bốn ly trà sữa đến thư viện Trung Nam, ngồi xuống cạnh Từ Mạn Mạn. Mở sách ra chưa được bao lâu, anh ta đã bắt đầu "treo máy", đối diện chính là Mộc Dao và Thẩm Tử Ngôn.
+Hôm nay Trần Trạch lại xách theo bốn ly trà sữa nóng hổi bước vào thư viện trường Đại học Trung Nam. Sau khi ngồi xuống chiếc ghế trống bên cạnh Từ Mạn Mạn, cậu ta chỉ lật qua lật lại vài trang giáo trình rồi bắt đầu "thả hồn theo mây gió", lơ đễnh nhìn sang chiếc bàn đối diện — nơi Mộc Dao và Thẩm Tử Ngôn đang chăm chú đọc sách.
 
-Từ Mạn Mạn không nói gì, cầm bút gõ nhẹ xuống bàn.
+Từ Mạn Mạn vẫn giữ vẻ mặt điềm nhiên, không hề tỏ ra khó chịu hay gắt gỏng, chỉ nhẹ nhàng cầm chiếc bút bi trên tay gõ nhẹ hai tiếng "cộc, cộc" xuống mặt bàn gỗ.
 
-Trần Trạch thu lại ánh mắt, định mở miệng biện minh.
+Trần Trạch giật mình thu hồi ánh mắt lại, lúng túng định mở miệng biện minh vài câu.
 
-Chẳng hạn như đang nhẩm bài, hay đang suy nghĩ vấn đề gì đó.
+Chẳng hạn như bảo rằng mình đang nhẩm đọc thuộc lòng kiến thức, hay đang suy nghĩ về một bài tập hóc búa.
 
-Từ Mạn Mạn đứng dậy đi đến giá sách tìm tài liệu.
+Thế nhưng Từ Mạn Mạn đã lặng lẽ đứng dậy, thong thả bước về phía các kệ sách phía xa để tìm tài liệu tham khảo.
 
-Một lát sau, điện thoại Trần Trạch nhận được một tin nhắn.
+Chỉ một lát sau, màn hình điện thoại của Trần Trạch khẽ rung lên, một tin nhắn ngắn gọn gửi đến:
 
-[Nghiêm túc một chút đi, sắp thi đến nơi rồi.]
+[Tập trung ôn bài đi nhé, sắp đến ngày thi rồi đấy.]
 
-Nhìn tin nhắn, Trần Trạch cảm thấy có chút hổ thẹn. Từ Mạn Mạn không hề nổi giận vì anh ta nhìn lén bạn cùng phòng, không dùng "bạo lực lạnh", thậm chí còn chủ động mở lời cho anh ta một bậc thang để xuống.
+Đọc xong dòng tin nhắn, Trần Trạch bỗng cảm thấy hổ thẹn đến mức muốn độn thổ, mặt mũi nóng bừng. Từ Mạn Mạn không hề giận dỗi hay ghen tuông vì cậu ta lén nhìn bạn cùng phòng của cô, cũng không hề dùng "chiến tranh lạnh" để tra tấn tinh thần, mà ngược lại cô còn vô cùng khéo léo, tinh tế chủ động mở ra một bậc thang để cậu ta giữ lại chút thể diện cho bản thân.
 
-...
+***
 
-Đường Hiểu Tình không có thời gian đến thư viện. Nàng luôn mang theo sách giáo khoa, hễ rảnh lúc nào là xem lúc đó. Từ bến xe phía Nam đến khu đại học đi xe buýt mất hơn một tiếng đồng hồ.
+Ở một diễn biến khác, Đường Hiểu Tình hoàn toàn không có thời gian thảnh thơi để đến thư viện ngồi ôn bài. Ngày nào cô bé cũng nhét một cuốn sách giáo trình vào trong túi xách, hễ rảnh rỗi được phút nào là tranh thủ lôi ra đọc vài trang. Từ bến xe khách phía Nam quay trở về khu Đại học Thành, đi xe buýt phải mất hơn một tiếng đồng hồ.
 
-Hôm nay Đơn Vĩ đi kho hàng, Đường Hiểu Tình đi nhờ xe về, ngồi ở ghế phụ lôi sách ra ôn tập.
+Hôm nay Đan Vĩ có việc lái xe sang kho hàng, Đường Hiểu Tình liền đi nhờ xe về. Ngồi ở ghế phụ lái, cô bé lại chăm chỉ lôi cuốn sách ra tranh thủ ôn tập.
 
-Bỗng nàng ngẩng đầu hỏi: "Chú Đơn, Audi đắt hay BMW đắt ạ?"
+Bỗng nhiên cô ngẩng đầu lên, ngây ngô hỏi: "Chú Đan ơi, xe Audi đắt hơn hay xe BMW đắt hơn hả chú?"
 
-Đơn Vĩ không biết trả lời thế nào, bèn hỏi tại sao nàng lại thắc mắc như vậy.
+Đan Vĩ trong thoáng chốc không biết nên trả lời cô bé thế nào cho phải, liền cười hỏi lại xem tại sao cô lại thắc mắc chuyện đó.
 
-Đường Hiểu Tình nói chỉ vì tò mò thôi, lớp nàng có một bạn nam lái xe BMW đi học.
+Đường Hiểu Tình đáp rằng cô chỉ tò mò hỏi vu vơ vậy thôi, vì ở lớp cô có một bạn nam sinh ngày nào cũng lái xe BMW đi học.
 
-Đơn Vĩ cười cười: "Vậy cậu bạn đó trong lớp có tài xế không?"
+Đan Vĩ cười xòa bảo: "Thế cái cậu nam sinh cùng lớp cháu có tài xế riêng đưa đón hàng ngày không?"
 
-Đường Hiểu Tình tuy mang danh là "giám sát trưng bày" nhưng còn tận tâm hơn cả nhân viên kinh doanh hưởng hoa hồng. Mỗi khi đến một tiệm tạp hóa, nàng đều sắp xếp lại sản phẩm của công ty mình thật gọn gàng.
+Đường Hiểu Tình mang danh nghĩa là "Giám sát trưng bày thị trường", nhưng cô bé làm việc còn tận tâm, chu đáo hơn cả những nhân viên kinh doanh hưởng lương theo doanh số. Cứ mỗi lần bước chân vào một tiệm tạp hóa nào đó, cô đều cẩn thận sắp xếp, lau chùi lại từng chai nước giải khát của công ty sao cho thật ngay ngắn, bắt mắt.
 
-Nàng còn học theo các nhân viên kinh doanh, mỗi lần vào tiệm lại mua một món đồ nhỏ.
+Cô còn học theo kinh nghiệm của các anh nhân viên kinh doanh đi trước, mỗi lần ghé vào một tiệm tạp hóa lạ là lại chủ động rút tiền túi mua một món đồ lặt vặt gì đó.
 
-Như vậy các chủ tiệm sẽ dễ nói chuyện hơn, nàng có thể đặt sản phẩm của công ty ở những vị trí bắt mắt.
+Làm như vậy thì các ông bà chủ quán sẽ cảm thấy vui vẻ, dễ tính hơn, và sẵn sàng đồng ý cho cô xếp sản phẩm của công ty mình ở những vị trí nổi bật, dễ nhìn nhất trên kệ hàng.
 
-Chỉ là cứ như vậy thì chi tiêu lại tăng lên.
+Chỉ có điều làm như thế thì chi phí cá nhân lại bị đội lên không ít.
 
-Trong túi vải của nàng toàn là kẹo cao su, hai trăm tệ cất trong ngăn kéo cũng chẳng còn lại bao nhiêu.
+Trong chiếc túi vải bố của cô lúc này nhét đầy những phong kẹo cao su, còn số tiền hai trăm tệ tích cóp trong ngăn kéo nhỏ thì đã cạn kiệt từ lúc nào chẳng hay.
 
-Nghĩ đến tiền mua vé xe về quê, Đường Hiểu Tình tìm đến Triệu Bác Lan, hỏi xem có thể ứng trước chút tiền lương được không.
+Nghĩ đến chuyện sắp phải mua vé tàu xe để về quê ăn Tết, Đường Hiểu Tình đành đánh bạo tìm đến phòng tài chính gặp Triệu Bác Lan, ngập ngừng hỏi xem liệu mình có thể xin tạm ứng trước một phần tiền lương được không.
 
-Nhìn Đường Hiểu Tình vừa đi ngoài trời về lạnh đến mức run lẩy bẩy, Triệu Bác Lan nói công ty không có tiền lệ này, muốn ứng lương thì phải có chữ ký của Triệu tổng.
+Nhìn thấy Đường Hiểu Tình vừa đi ngoài đường gió lạnh về, cả người run rẩy bần bật vì rét, Triệu Bác Lan khẽ bảo rằng công ty từ trước đến nay chưa từng có tiền lệ cho tạm ứng lương thế này, nếu muốn ứng lương trước thì bắt buộc phải có chữ ký phê duyệt của Triệu tổng.
 
-"Triệu tổng ạ?"
+"Triệu tổng sao ạ?"
 
-Nghe thấy danh xưng này, Đường Hiểu Tình hơi ngẩn người.
+Vừa nghe thấy danh xưng này, Đường Hiểu Tình bỗng ngẩn ngơ, sững sờ trong giây lát.
 
-Văn phòng rất ấm áp, Đường Hiểu Tình nhất thời chưa thích nghi được với sự thay đổi về thân phận.
+Căn phòng làm việc ấm áp lạ thường, nhưng Đường Hiểu Tình nhất thời vẫn chưa thể nào thích nghi kịp với sự thay đổi quá lớn về thân phận và vị thế này.
 
-Nàng vẫn quen gọi là "Triệu Kim An".
+Cô vẫn quen thuộc với một "Triệu Kim An" bình dị, gần gũi của ngày nào hơn.
 
-Cả Triệu Bác Lan và Đơn Vĩ đều biết gia cảnh của Đường Hiểu Tình. Triệu Bác Lan suy nghĩ một chút rồi nhắn tin QQ cho Triệu Kim An kể lại sự việc, sau đó nói với Đường Hiểu Tình: "Triệu tổng bảo em qua đó."
+Cả Triệu Bác Lan và Đan Vĩ đều nắm rất rõ hoàn cảnh gia đình éo le, đáng thương của Đường Hiểu Tình. Triệu Bác Lan suy nghĩ một lát rồi mở khung chat QQ nhắn tin báo cáo tình hình cho Triệu Kim An, sau đó quay sang bảo Đường Hiểu Tình: "Triệu tổng bảo em sang phòng làm việc bên cạnh gặp cậu ấy đấy."
 
-Đường Hiểu Tình bước ra khỏi phòng tài vụ, do dự đẩy cánh cửa văn phòng bên cạnh ra.
+Đường Hiểu Tình bước ra khỏi phòng tài chính, rụt rè và do dự một lúc lâu mới dám đưa tay đẩy cánh cửa phòng làm việc của Triệu Kim An.
 
-"Lại đây sưởi ấm đi."
+"Lại đây sưởi ấm đi này."
 
-Triệu Kim An kéo chiếc lò sưởi điện dưới gầm bàn ra.
+Triệu Kim An dùng chân khều chiếc lò sưởi điện hình quạt từ dưới gầm bàn làm việc ra phía ngoài.
 
-Đường Hiểu Tình hễ có thời gian là chạy ra ngoài, rất ít khi ở lại văn phòng. Nàng nghĩ mình vốn dĩ phải đi học, nên lúc làm việc càng không được lười biếng.
+Đường Hiểu Tình hễ có thời gian rảnh là lại lao ra ngoài thị trường lăn lộn, rất hiếm khi chịu ngồi yên một chỗ trong văn phòng. Trong suy nghĩ ngây thơ của cô, bản thân mình vốn đã phải bận học trên lớp nhiều, nên càng không được phép lười biếng hay trốn tránh công việc.
 
-"Lấy cái ghế lại đây."
+"Kéo chiếc ghế đẩu lại đây mà ngồi."
 
-Văn phòng có lắp điều hòa, nhưng mùa đông Triệu Kim An không thích dùng, hắn xoay ghế giám đốc bảo Đường Hiểu Tình cùng lại sưởi ấm.
+Trong phòng làm việc có lắp sẵn điều hòa hai chiều, thế nhưng mùa đông Triệu Kim An lại không thích cảm giác ngột ngạt khi phả hơi ấm của điều hòa, nên cậu xoay chiếc ghế da giám đốc lại, vẫy tay gọi Đường Hiểu Tình cùng tới bên lò sưởi.
 
-Đường Hiểu Tình không lấy ghế mà ngồi xổm xuống bên cạnh lò sưởi, cúi đầu, cũng không nhìn Triệu Kim An.
+Đường Hiểu Tình không đi lấy ghế, cô bé chỉ lặng lẽ ngồi xổm xuống sàn nhà bên cạnh chiếc lò sưởi đỏ rực, cúi gằm khuôn mặt nhỏ nhắn xuống, tuyệt nhiên không dám ngẩng lên nhìn thẳng vào mắt Triệu Kim An.
 
-Nàng chợt nhận ra "khoảng cách" giữa mình và Triệu Kim An ngày càng xa.
+Cô bỗng nhận ra khoảng cách giữa bản thân mình và Triệu Kim An dường như đang ngày một xa vời vợi.
 
-Đơn Vĩ gọi "ông chủ", Triệu Bác Lan gọi "Triệu tổng", ngay cả mấy nhân viên kinh doanh cũng mở miệng ra là "Triệu tổng nhà các cô".
+Đan Vĩ thì cung kính gọi cậu là "ông chủ", Triệu Bác Lan thì gọi là "Triệu tổng", ngay cả các anh nhân viên kinh doanh ngoài thị trường cũng luôn miệng "Triệu tổng của các cậu".
 
 "Sao thế?"
 
-Triệu Kim An cúi đầu nói: "Là do tôi cân nhắc không chu toàn, em chạy đôn chạy đáo bên ngoài, đi xe buýt cũng cần tiền mà."
+Triệu Kim An cúi đầu nhìn cô bé, khẽ thở dài: "Là do tôi suy nghĩ chưa được chu toàn, em ngày nào cũng phải chạy đôn chạy đáo ngoài đường, tiền đi xe buýt lại còn các chi phí lặt vặt cũng tốn kém không ít."
 
-Đường Hiểu Tình từ trong túi lấy ra một nắm kẹo cao su, nhỏ giọng nói: "Cho anh ăn này."
+Đường Hiểu Tình vội vàng thò tay vào chiếc túi vải bố, móc ra một nắm kẹo cao su đủ loại chìa về phía cậu, lí nhí cất giọng: "Cho cậu ăn này."
 
-Triệu Kim An hiểu ý, nói: "Sau này mỗi ngày em tiêu hết bao nhiêu tiền thì cứ ghi chép lại, rồi tìm chị Bác Lan báo cáo để thanh toán."
+Triệu Kim An nhìn nắm kẹo trên tay cô bé là hiểu ngay cơ sự, cậu mỉm cười nói: "Sau này mỗi ngày đi thị trường phát sinh bao nhiêu chi phí thì em cứ ghi chép cẩn thận vào sổ tay, cuối tháng mang sang phòng tài chính gặp Triệu Bác Lan để thanh toán lại toàn bộ."
 
-"Kim An... Triệu tổng..."
+"Triệu... Triệu tổng..."
 
-Đường Hiểu Tình ngẩng đầu lên, nhất thời cứng họng.
+Đường Hiểu Tình ngẩng khuôn mặt nhỏ nhắn lên, trong thoáng chốc nghẹn ngào không thốt nên lời.
 
-Triệu Kim An mỉm cười: "Lúc không có người, em cứ gọi tên tôi đi."
+Triệu Kim An bật cười hiền từ: "Khi nào không có người ngoài ở đây, cậu cứ việc gọi tên tớ như bình thường là được rồi."
 
-Đến lúc này Đường Hiểu Tình mới cười rộ lên, lộ ra hai chiếc răng khểnh nhỏ. Vương Duy Đào đúng là rất có mắt nhìn, lúc tập quân sự đã nói Đường Hiểu Tình có khuôn mặt rất xinh, chỉ là hơi thấp một chút thôi.
+Đến lúc này Đường Hiểu Tình mới nở một nụ cười rạng rỡ, để lộ ra hai chiếc răng khểnh nhỏ nhắn vô cùng đáng yêu. Vương Duy Đào quả thực là người rất có con mắt tinh đời, ngay từ đợt huấn luyện quân sự hồi đầu năm cậu ta đã tấm tắc khen ngợi rằng đường nét khuôn mặt của Đường Hiểu Tình rất xinh xắn, ưa nhìn, chỉ tiếc mỗi tội chiều cao hơi khiêm tốn mà thôi.
 
-"Ôn thi học kỳ thế nào rồi?"
+"Tình hình ôn thi kết thúc học kỳ thế nào rồi?"
 
-Đường Hiểu Tình ra hiệu là không vấn đề gì. Nàng bóc một miếng kẹo cao su đặt vào tay Triệu Kim An, nói: "Triệu Kim An, kỳ nghỉ đông năm nay tớ muốn về nhà sớm một chút, mẹ tớ ở nhà có một mình..."
+Đường Hiểu Tình tự tin khẳng định không có vấn đề gì đáng ngại. Cô cẩn thận bóc vỏ một thanh kẹo cao su thơm lừng rồi đặt nhẹ vào lòng bàn tay Triệu Kim An, khẽ ngập ngừng: "Triệu Kim An này, kỳ nghỉ đông năm nay tớ... tớ muốn xin phép được về quê sớm hơn một chút, mẹ tớ chỉ có một mình thui thủi ở nhà..."
 
-Triệu Kim An gật đầu: "Được, không trừ lương của em đâu."
+Triệu Kim An khẽ gật đầu, mỉm cười dứt khoát: "Được chứ, tớ sẽ không trừ tiền lương của cậu đâu."

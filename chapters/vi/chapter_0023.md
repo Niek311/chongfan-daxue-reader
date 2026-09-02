@@ -1,185 +1,191 @@
-# Chương 23: Cái Nợ
+# Chương 23: Món nợ ân tình
 
-Triệu Kim An đến công ty chứng khoán.
+> **Tiêu đề gốc**: 第23章 欠的...
 
-Trong sảnh có rất nhiều bác gái, còn có cả những cụ ông đeo kính lão.
+Triệu Kim An tìm đường đến một công ty chứng khoán.
 
-Nhìn thấy cảnh tượng này, Triệu Kim An biết mình không tìm nhầm chỗ rồi.
+Bên trong sảnh giao dịch la liệt các bà thím trung niên, cùng những cụ ông đeo kính lão chăm chú nhìn bảng điện tử.
 
-Thị trường cổ phiếu A từng trải qua ba đợt tăng trưởng mạnh (bull market), và năm 2006 chính là một trong số đó.
+Trông thấy khung cảnh nhộn nhịp ấy, Triệu Kim An biết ngay mình đã không nhớ nhầm.
 
-Điểm này chỉ cần những người từng tiếp xúc sơ qua với thị trường chứng khoán đều sẽ biết, ấn tượng vô cùng sâu sắc.
+Thị trường cổ phiếu Trung Quốc từng trải qua ba đợt đại sóng tăng trưởng bùng nổ, và năm 2006 chính là một trong ba đợt đại hồng thủy ấy.
 
-Thực tế, năm 2006 mới chỉ là khởi đầu của đợt đại hồng thủy này. Tháng 1 năm 2006, chỉ số cổ phiếu A mới chỉ ở mức 1100 điểm, nhưng đến ngày giao dịch cuối cùng là 29 tháng 12, chỉ số Thượng Hải đã đóng cửa ở mức 2675 điểm.
+Điều này thì bất kỳ ai từng bén duyên với thị trường chứng khoán đều nắm rõ như lòng bàn tay, ấn tượng vô cùng sâu sắc.
 
-——Mức tăng lũy kế khoảng 130%.
+Trên thực tế, năm 2006 mới chỉ là khúc dạo đầu của đợt sóng thần lịch sử này. Bắt đầu từ tháng 1 năm 2006, chỉ số Shanghai Composite Index mới chỉ ở mức 1.100 điểm, nhưng đến phiên giao dịch cuối cùng của năm vào ngày 29 tháng 12, chỉ số này đã đóng cửa ở mức 2.675 điểm.
 
-Sự tăng trưởng của năm 2006 mới chỉ là nửa đầu của đợt thị trường bò tót.
+— Mức tăng trưởng lũy kế đạt tới xấp xỉ 130%.
 
-Đến tháng 10 năm 2007, chỉ số Thượng Hải còn tiếp tục leo dốc lên đến đỉnh lịch sử 6124 điểm.
+Thế nhưng đợt tăng của năm 2006 cũng chỉ là nửa đầu của con sóng lớn.
 
-Giai đoạn 2006 – 2007 cũng là đợt tăng trưởng lớn nhất của cổ phiếu A, không có cái thứ hai.
+Đến tháng 10 năm 2007, chỉ số Thượng Hải tiếp tục leo thẳng lên đỉnh cao chót vót lịch sử: 6.124 điểm.
 
-Ngoài mức tăng trưởng, mốc thời gian cũng kéo dài nhất, đây là một đợt thị trường bò tót có nền tảng cơ bản vô cùng vững chắc.
+Giai đoạn 2006 – 2007 chính là thị trường giá lên vĩ đại nhất của chứng khoán Trung Quốc, độc nhất vô nhị không có đối thủ.
 
-Ở trong nước, các "bác gái" là một nhóm đối tượng đặc biệt nhất.
+Không chỉ bởi biên độ tăng trưởng khủng khiếp, mà dòng thời gian kéo dài nhất, tạo nên một chu kỳ bùng nổ được nâng đỡ bởi các yếu tố nền tảng kinh tế vĩ mô cực kỳ vững chắc.
 
-Họ mua cổ phiếu, mua vàng, cứ thấy đâu đông là ùa vào.
+Tại đất nước tỷ dân, các "đại mụ" trung niên luôn là một lực lượng đặc biệt nhất.
 
-Mãi đến tận năm 2024, nhóm người chơi chứng khoán dường như mới trẻ hóa dần. Khoảng dịp Quốc khánh năm đó, thị trường mở màn với "bài đẹp" khi tăng vọt 10%, đã có bao nhiêu người đập nồi bán sắt, bán nhà vay tiền để lao vào sàn chứng khoán?
+Họ đổ xô đi mua cổ phiếu, ùa nhau đi gom vàng miếng, hễ có phong trào là kéo thành từng đàn từng lũ.
 
-Nhân viên công ty chứng khoán thấy Triệu Kim An còn trẻ liền hỏi: "Cậu dự định bỏ bao nhiêu tiền để chơi chứng khoán?"
+Mãi cho đến tận năm 2024, độ tuổi của những người tham gia thị trường chứng khoán dường như mới trẻ hóa dần. Dịp Quốc khánh năm ấy, thị trường mở màn với thế trận "bài đẹp như mơ", tăng vọt một mạch 10%, thử hỏi có biết bao nhiêu người đã đập nồi bán sắt, cầm cố nhà cửa vay mượn khắp nơi để lao đầu vào biển lửa thị trường?
 
-Giao dịch chứng khoán là phải thu phí, tiêu chuẩn thu phí cũng không giống nhau. Số tiền càng ít thì tỷ lệ phí càng cao, ví dụ như 3 phần nghìn.
+Nhân viên quầy giao dịch chứng khoán thấy Triệu Kim An còn quá trẻ, liền cất giọng hỏi: "Cậu em dự định bỏ bao nhiêu tiền vào chơi cổ phiếu?"
 
-Có phải thấy rất cao, cao đến mức hãi hùng không?
+Giao dịch mua bán chứng khoán đương nhiên phải chịu phí giao dịch, biểu phí của mỗi phân khúc khách hàng lại hoàn toàn khác nhau. Số vốn càng nhỏ thì mức phí áp dụng càng đắt đỏ, chẳng hạn như mức ba phần nghìn (0,3%).
 
-Thời điểm này chính là như vậy.
+Nghe có vẻ đắt đến giật mình đúng không?
 
-Đây là mức trần cao nhất do nhà nước quy định, chủ yếu nhắm vào các nhà đầu tư nhỏ lẻ thực hiện giao dịch ủy thác tại quầy của phòng giao dịch.
+Thời điểm năm 2006 quả thực chính là như vậy.
 
-Những người không hiểu chắc là chẳng biết gì, cứ lơ mơ mà mở tài khoản, để rồi những ngày sau đó cứ mỗi lần giao dịch là phải nộp phí một lần. Triệu Kim An đã thương lượng được mức phí xuống còn 0.3 phần nghìn.
+Đó là mức trần tối đa do nhà nước quy định, chủ yếu áp dụng cho những nhà đầu tư cá nhân nhỏ lẻ đặt lệnh giao dịch thủ công tại quầy của chi nhánh.
 
-Mở xong tài khoản, nhìn màn hình đầy rẫy các mã cổ phiếu, Triệu Kim An rơi vào trầm tư sâu sắc.
+Những người không am hiểu thị trường hầu như chẳng hề hay biết điều này, cứ mơ mơ màng màng mở tài khoản, để rồi trong suốt những ngày tháng sau đó cứ mỗi lần bấm lệnh mua bán là lại bị trừ một khoản phí cắt cổ. Riêng Triệu Kim An đã đàm phán kéo mức phí giao dịch xuống còn ba phần vạn (0,03%).
 
-Kiếp trước hắn không nghiên cứu sâu xem năm 2006 mã cổ phiếu nào tăng trưởng tốt nhất.
+Mở xong tài khoản, đứng nhìn bảng điện tử nhấp nháy dày đặc những mã cổ phiếu, Triệu Kim An rơi vào một khoảng lặng suy tư sâu sắc.
 
-Trong sảnh giao dịch chỉ có mình hắn là người trẻ tuổi. Những người tầm ba bốn mươi tuổi chơi chứng khoán thường có máy tính ở nhà hoặc văn phòng, không cần phải đến tận công ty chứng khoán để canh bảng điện tử.
+Ở kiếp trước, cậu chưa từng bỏ công nghiên cứu tỉ mỉ xem trong năm 2006 này mã cổ phiếu nào tăng trưởng phi mã nhất.
 
-Có một cụ ông tiến lại bắt chuyện, còn nhiệt tình đề cử cho hắn một mã cổ phiếu.
+Trong toàn bộ sảnh giao dịch lúc này chỉ có độc một người trẻ tuổi như cậu. Những người ở độ tuổi ba, bốn mươi tuổi có tiền chơi chứng khoán thời này hầu hết đều đã trang bị máy tính tại nhà hoặc cơ quan, chẳng việc gì phải lặn lội đến tận sảnh giao dịch để ngồi canh bảng điện tử.
 
-Triệu Kim An mỉm cười nhẹ nhàng.
+Một cụ ông đứng gần đó bước lại bắt chuyện làm quen, còn nhiệt tình chỉ điểm, phím cho cậu một mã cổ phiếu tâm đắc.
 
-"Tin tôi đi, đà tăng của mã này chắc chắn sẽ đón một đợt bùng nổ lớn!"
+Triệu Kim An chỉ mỉm cười nhã nhặn.
 
-Cụ ông bắt đầu thao thao bất tuyệt "quảng bá" tài học của mình với Triệu Kim An, từ nền tảng cơ bản của công ty cho đến biểu đồ hình nến, phân tích đâu ra đấy.
+"Nghe bác đi cháu, nhìn cái thế nến của con này, chắc chắn sắp tới sẽ có một pha kéo giá cực mạnh lên đỉnh đấy!"
 
-Trong đợt đại hồng thủy này, ai ai cũng tự coi mình là thần chứng khoán, ông lão nói chuyện vô cùng tự tin.
+Cụ ông bắt đầu thao thao bất tuyệt phô diễn vốn hiểu biết uyên thâm của mình với Triệu Kim An, từ việc phân tích tình hình kinh doanh cơ bản của doanh nghiệp cho tới các biểu đồ hình nến kỹ thuật, lập luận tầng tầng lớp lớp vô cùng bài bản và chặt chẽ.
 
-Tin ông sao?
+Trong một thị trường giá lên hừng hực thế này thì ai ai cũng tự phong mình làm "thần chứng khoán", cụ ông nói năng với vẻ mặt tràn đầy tự tin và kiêu hãnh.
 
-Ở thị trường hạng A này có thần chứng khoán thực sự không?
+Tin bác ư?
 
-Nhìn biểu đồ nến mà chơi chứng khoán thì có thể kiếm được tiền chắc?
+Trên thị trường chứng khoán Trung Quốc này, liệu có thực sự tồn tại cái gọi là "thần thánh" hay không?
 
-Triệu Kim An không phản bác, liên tục gật đầu tỏ vẻ thụ giáo.
+Chỉ nhìn mấy cái đồ thị nến ngoằn ngoèo mà đòi kiếm được tiền thiên hạ sao?
 
-Nhưng cuối cùng, hắn lại chọn một mình cổ phiếu Vạn Khoa.
+Triệu Kim An không hề buông lời phản bác, chỉ liên tục gật đầu tỏ vẻ như được mở mang tầm mắt.
 
-Chơi chứng khoán là chơi vào sự kỳ vọng. Ngành bất động sản sắp sửa đón một đợt bùng nổ lớn, Vạn Khoa hiện tại có thể coi là con chim đầu đàn trong ngành địa ốc.
+Thế nhưng đến cuối cùng, một mình cậu lại lặng lẽ chọn mua cổ phiếu của Tập đoàn Bất động sản Vạn Khoa (Vanke).
 
-Vạn Khoa có lẽ không phải là mã cổ phiếu "yêu nghiệt" nhất năm 2006, nhưng thắng ở chỗ ổn định.
+Chơi cổ phiếu thực chất là đầu tư vào kỳ vọng tương lai. Thị trường bất động sản sắp sửa bước vào một chu kỳ hoàng kim rực rỡ, mà Vạn Khoa vào thời điểm này chính là cánh chim đầu đàn dẫn dắt toàn bộ ngành địa ốc.
 
-Ít nhất trong ký ức của Triệu Kim An, nó chưa từng xảy ra biến cố lớn nào.
+Vạn Khoa có thể không phải là mã cổ phiếu tăng trưởng đột biến điên rồ nhất của năm 2006, nhưng ưu điểm lớn nhất của nó chính là sự ổn định và an toàn tuyệt đối.
 
-4.16 triệu, hắn chỉ giữ lại 6 vạn, còn lại 4.1 triệu đều dùng để mua cổ phiếu Vạn Khoa.
+Ít nhất là trong toàn bộ ký ức kiếp trước của Triệu Kim An, tập đoàn này chưa từng dính phải bất kỳ bê bối hay cú sụp đổ nghiêm trọng nào.
 
-Thật ra mức phí 3 phần nghìn hay 0.3 phần nghìn đối với Triệu Kim An cũng không có ý nghĩa quá lớn. Hắn cũng không định thường xuyên đảo danh mục hay thay đổi cổ phiếu, chẳng qua chỉ là tạm thời tìm một "nơi chốn" cho số tiền này mà thôi.
+Trong tổng số 4,16 triệu tệ, cậu chỉ giữ lại sáu mươi nghìn tệ tiền mặt phòng thân, còn lại 4,1 triệu tệ đều đổ hết vào mua cổ phiếu Vạn Khoa.
 
-Rời khỏi phòng giao dịch, Triệu Kim An định đi mua một chiếc máy tính xách tay, nhưng rồi lại từ bỏ ý định.
+Thực lòng mà nói, mức phí ba phần nghìn hay ba phần vạn đối với Triệu Kim An lúc này cũng chẳng mang nhiều ý nghĩa. Cậu đâu có ý định liên tục lướt sóng, đảo hàng hay cơ cấu danh mục làm gì, chẳng qua chỉ là muốn tìm một bến đỗ an toàn tạm thời cho số tiền khổng lồ này mà thôi.
 
-Thứ nhất là ở nhà chưa kéo dây mạng.
+Bước ra khỏi sảnh giao dịch chứng khoán, Triệu Kim An toan ghé tiệm điện máy sắm một chiếc máy tính xách tay, nhưng rồi lại ngập ngừng từ bỏ ý định.
 
-Thứ hai là rất khó giải thích vấn đề tiền nong với thím và bà nội.
+Thứ nhất là ở quê nhà vẫn chưa kéo đường dây mạng Internet.
 
-Càng không dám tưởng tượng, nếu Vương Kim Như biết được mình mua xổ số bóng đá trúng tận 5 triệu thì sẽ xảy ra chuyện gì.
+Thứ hai là quá khó để giải thích nguồn gốc số tiền lớn này với thím và bà nội.
 
-Cuối cùng, Triệu Kim An đi đến cửa hàng quần áo trẻ em mua cho Triệu Duyệt Thiên hai bộ váy nhỏ, hết 300 tệ.
+Cậu thậm chí còn không dám tưởng tượng nổi, nếu như cô thím Vương Kim Như biết được đứa cháu này vừa trúng vé số thể thao tới hơn năm triệu tệ thì trong nhà sẽ xảy ra phong ba bão táp gì nữa.
 
-Ở phía bên kia, tiệm xổ số vừa mở cửa là Triệu Chí Dũng đã đi đổi thưởng ngay, được 946 tệ.
+Cuối cùng, Triệu Kim An ghé vào một cửa hàng thời trang trẻ em, chọn mua cho bé Triệu Duyệt Thiên hai chiếc váy công chúa nhỏ nhắn xinh xắn, tiêu hết ba trăm tệ.
 
-Hắn đợi mãi không thấy Triệu Kim An quay lại, liền một mình đi về Triệu Gia Thôn trước.
+...
 
-Triệu Kim An không có mặt, Triệu Chí Dũng có tiền cũng không biết tiêu thế nào, bèn mua một cây kem ốc quế và đổ đầy bình xăng cho chiếc xe máy.
+Ở phía bên kia, vừa lúc tiệm xổ số mở cửa đón khách, Triệu Trí Dũng đã nhanh nhảu vào đổi thưởng, lĩnh về 946 tệ tiền mặt.
 
-Trên đường về, hắn đột nhiên gọi điện tới.
+Cậu ngồi chực chờ mãi chẳng thấy bóng dáng Triệu Kim An đâu, đành một mình cưỡi xe máy quay trở về làng họ Triệu trước.
 
-"Kim An! Tao bẫy được hai con gà rừng này!!"
+Không có Triệu Kim An ở bên cạnh, Triệu Trí Dũng cầm tiền trong tay cũng chẳng biết phải tiêu vào việc gì, đành tự thưởng cho mình một que kem ốc quế mát lạnh, rồi ghé cây xăng đổ đầy bình xăng cho chiếc xe máy.
 
-"Ha ha ha, một con gà rừng kiểu gì chẳng bán được 150 tệ? Thế là lại có 300 tệ rồi!"
+Trên đường chạy xe về, cậu bỗng rút điện thoại gọi sang cho bạn:
 
-Đầu dây bên kia Triệu Chí Dũng vô cùng hưng phấn, mắt thấy túi tiền càng lúc càng dày, việc kiếm tiền này cũng dễ gây nghiện thật.
+"Kim An ơi! Tao vừa bẫy được hai con gà rừng này!!"
 
-"Đừng bán lấy tiền nữa."
+"Ha ha ha, một con gà rừng bét nhất cũng phải bán được 150 tệ đấy chứ nhỉ? Lại đút túi thêm ba trăm bạc nữa rồi!"
 
-Đang mang trong người số tiền khổng lồ 4.16 triệu, Triệu Kim An bắt đầu thấy thèm thuồng. Hắn đã nhiều năm rồi chưa được ăn hương vị dã vị chính tông.
+Đầu dây bên kia, giọng Triệu Trí Dũng hào hứng đến mức lạc cả đi. Nhìn chiếc ví của mình ngày một dày cộm lên, cảm giác kiếm được tiền quả thực có một sức gây nghiện ghê gớm.
 
-"Hả? Mày nói cái gì cơ?"
+"Đừng đem bán nữa."
 
-"Chúng ta giữ lại ăn, cải thiện bữa ăn một chút."
+Mang trong mình món tiền khổng lồ hơn bốn triệu tệ, Triệu Kim An bỗng dưng thấy thèm thuồng hương vị thôn quê. Đã rất nhiều năm rồi cậu chưa được nếm lại mùi vị của món thịt rừng tươi ngon chính cống.
 
-Triệu Chí Dũng đang ở trên núi cầm hai con gà rừng ngẩn người ra: "Kim An, có phải mày bị ảo tưởng rồi không? Chúng ta trúng có 900 tệ chứ không phải 900 vạn đâu, gà rừng này mà là thứ để chúng ta ăn sao? Đây là tiền đấy!"
+"Hả? Mày vừa bảo cái gì cơ?"
 
-"Gặp được ai ra tay hào phóng, khéo còn bán được 200 tệ một con ấy chứ!"
+"Để nhà mình tự làm thịt ăn đi, coi như cải thiện bữa cơm một hôm."
 
-Đây đúng là lời nói thật.
+Đang đứng trên sườn núi, Triệu Trí Dũng ngẩn người nhìn hai con gà rừng giãy giụa trong tay: "Kim An, mày có bị ảo tưởng không đấy? Tụi mình trúng thưởng có chín trăm tệ chứ đâu phải chín triệu tệ đâu! Món gà rừng này là thứ để cho ngữ tụi mình ăn đấy à? Đây là tiền tươi thóc thật đấy con ạ!"
 
-Gà ta nuôi thả ở nhà đã có thể bán được một hai trăm tệ một con, gà rừng chỉ cần gặp đúng người thì giá sẽ còn cao hơn nữa.
+"Gặp được khách sành ăn chịu chi, khéo khi còn bán được tận hai trăm tệ một con ấy chứ đùa!"
 
-"Với cả bà nội sẽ xót lắm đấy, đồ tốt thế này mà không đem đi bán lấy tiền."
+Lời này quả thực chẳng sai chút nào.
 
-Câu nói này đã đánh trúng tâm lý của Triệu Kim An, bà nội chắc chắn sẽ không nỡ ăn.
+Ngay cả gà thả vườn nuôi bằng thóc ở quê mang ra chợ cũng đã bán được một, hai trăm tệ mỗi con, huống chi là giống gà rừng tự nhiên quý hiếm này, chỉ cần gặp đúng mối thì giá chỉ có cao hơn chứ không bao giờ thấp.
 
-"Vậy thì ăn một con, bán một con?"
+"Với lại, bà nội mà thấy thì xót ruột lắm cho xem, đồ ngon béo bở thế này mà không mang đi bán lấy tiền."
 
-"Thế... thế cũng được, chúng ta ăn con nhỏ, con lớn để bán lấy tiền."
+Câu nói này của Trí Dũng đã chạm đúng vào chỗ mềm yếu nhất trong lòng Triệu Kim An. Bà nội cả đời chắt chiu tằn tiện, chắc chắn sẽ không nỡ ăn món sơn hào này đâu.
 
-Triệu Chí Dũng nuốt nước miếng, lùi lại một bước.
+"Thế thì ăn một con, còn một con đem bán nhé?"
 
-Triệu Kim An: . . . . . .
+"Thôi... thôi được rồi, tụi mình làm thịt con nhỏ, còn con to thì mang đi bán lấy tiền."
 
-Thân là một triệu phú mới nổi, muốn ăn một con gà rừng do chính mình bắt được mà cũng khó khăn thế này, biết đi đâu mà đòi công lý đây?
+Triệu Trí Dũng nuốt nước miếng cái ực, đành nhượng bộ một bước.
 
-Về đến Triệu Gia Thôn, Triệu Chí Dũng đã đang vặt lông gà rừng rồi.
+Triệu Kim An: [...]
 
-Bên cạnh vòi nước có Vương Kim Như, Doãn Hiểu Lan, Triệu Duyệt Thiên đang vây quanh, còn bà nội thì đang bận rộn trong bếp.
+Đến nước này, thân là một triệu phú mới nổi sở hữu bạc triệu trong tay, vậy mà muốn ăn một con gà rừng do chính tay bạn mình bẫy được cũng khó khăn trăm bề, thử hỏi đạo lý ở đâu ra cơ chứ?
 
-"Không phải ý của con đâu, là Kim An muốn ăn đấy ạ."
+...
 
-Rõ ràng là gà rừng do Triệu Chí Dũng bắt được, hắn muốn xử lý thế nào cũng được, vậy mà hắn vẫn phải giải thích với mọi người một câu.
+Về đến làng họ Triệu, Triệu Trí Dũng đã ngồi cặm cụi vặt lông gà bên bờ bể nước.
 
-Nghe thấy tiếng bước chân phía sau, tất cả mọi người quay lại nhìn Triệu Kim An, ánh mắt lại bị chiếc túi trong tay hắn thu hút.
+Xung quanh bể nước có thím Vương Kim Như, chị dâu họ Doãn Hiểu Lan và bé Triệu Duyệt Thiên đang xúm lại xem, còn bà nội thì đang tất bật lúi húi dưới bếp.
 
-"Cháu mua cho Tiểu Duyệt Thiên hai bộ váy nhỏ ạ."
+"Không phải ý của cháu đâu nhé, là tại thằng Kim An nó nổi hứng thèm ăn đấy ạ."
 
-Nghe thấy câu này, Vương Kim Như lập tức tươi cười rạng rỡ.
+Rõ ràng là gà do chính tay Triệu Trí Dũng bẫy được, muốn xử lý thế nào là quyền của cậu, ấy vậy mà cậu vẫn phải vội vàng cất lời phân trần, giải thích với mọi người.
 
-Doãn Hiểu Lan liếc nhìn Vương Kim Như, cũng mỉm cười nhẹ nhõm.
+Nghe thấy tiếng bước chân quen thuộc sau lưng, tất cả đều đồng loạt quay đầu lại nhìn Triệu Kim An, rồi ánh mắt ai nấy đều bị chiếc túi nilon xinh xắn trên tay cậu thu hút.
 
-Không phải Vương Kim Như đối xử quá khắc nghiệt với Triệu Kim An, nhưng hãy thử nghĩ xem, nếu trong túi đó chỉ có quần áo Triệu Kim An mua cho chính mình, sắc mặt Vương Kim Như chắc chắn sẽ không đẹp chút nào.
+"Cháu vừa mua cho bé Duyệt Thiên hai chiếc váy mới."
 
-Doãn Hiểu Lan còn biết rõ, cho dù Đoạn Thu Bình có đến thăm con trai thì cũng sẽ mua cho Triệu Duyệt Thiên một phần quà.
+Nghe thấy câu nói ấy, khuôn mặt Vương Kim Như lập tức giãn ra, nở nụ cười tươi rói rạng rỡ.
 
-Đây là cái nợ mà bọn họ thiếu gia đình của chú Triệu Quốc Hoa.
+Doãn Hiểu Lan khẽ liếc nhìn vẻ mặt của thím Như, trong lòng cũng thầm thở phào, mỉm cười nhẹ nhõm.
 
-"Kim An, cháu... cháu khách sáo quá làm gì... kiếm được tiền thì tự mình giữ lấy mà tiêu!"
+Không phải là Vương Kim Như quá đỗi cay nghiệt, khắt khe gì với Triệu Kim An, nhưng thử tưởng tượng xem, nếu như trong chiếc túi đó chỉ toàn là quần áo Triệu Kim An tự mua sắm cho bản thân mình, thì sắc mặt của thím lúc này chắc chắn sẽ khó coi biết chừng nào.
 
-Vương Kim Như đón lấy chiếc túi từ tay Triệu Kim An, ngó nghiêng một hồi: "Đúng rồi, hết bao nhiêu tiền thế?"
+Doãn Hiểu Lan còn hiểu rất rõ một điều, dẫu cho cô Đoàn Thu Bình có về thăm con trai mình đi chăng nữa, thì bao giờ cô ấy cũng sẽ mua kèm một phần quà cho bé Triệu Duyệt Thiên.
 
-Thấy Triệu Kim An đối tốt với em gái như vậy, trong lòng Vương Kim Như rất thoải mái. Nàng biết dạo này Triệu Kim An và Triệu Chí Dũng đi bán cá cũng kiếm được chút tiền.
+Đó là món nợ ân tình mà gia đình họ phải gánh vác trước gia đình người chú Triệu Quốc Hoa.
 
-"Không bao nhiêu đâu ạ, cũng không đắt lắm."
+"Cái thằng Kim An này, mày... mày việc gì phải khách sáo vẽ chuyện thế cơ chứ... Kiếm được đồng nào thì phải biết giữ lấy mà phòng thân!"
 
-Triệu Kim An đã sớm vứt tờ hóa đơn đi rồi, không cần thiết phải để nàng biết giá cả.
+Vương Kim Như đón lấy chiếc túi từ tay Triệu Kim An, mở ra ngắm nghía tấm tắc: "À mà này, hết bao nhiêu tiền thế cháu?"
 
-Vương Kim Như lườm Triệu Kim An một cái, lại đấm nhẹ vào người hắn một nhát: "Lần sau đừng có tiêu tiền oan như thế nữa, để dành mà học đại học!"
+Nhìn thấy Triệu Kim An quan tâm, yêu thương em gái ruột của mình như vậy, trong lòng Vương Kim Như cảm thấy vô cùng mát dạ. Thím biết dạo gần đây Triệu Kim An cùng Triệu Trí Dũng chăm chỉ đi kích cá kiếm được chút tiền lẻ.
 
-Đây chính là Vương Kim Như.
+"Không đáng bao nhiêu đâu thím, rẻ lắm ạ."
 
-Nàng thích treo câu "đồ không có lương tâm" bên miệng, nhưng bản tính không hề xấu.
+Triệu Kim An đã sớm vứt hóa đơn thanh toán đi từ lâu, chẳng việc gì phải để thím biết giá tiền thực tế làm gì.
 
-Cũng phải thôi.
+Vương Kim Như lườm yêu Triệu Kim An một cái, rồi vỗ nhẹ vào vai cậu: "Lần sau đừng có tiêu xài hoang phí như thế nữa nhé, để dành tiền mà lo chi phí học hành trên đại học!"
 
-Đứa cháu này cũng coi như được nàng "nuôi một nửa" suốt 5, 6 năm trời, trong lòng tổng quát vẫn mong đợi sự thân thiết của người thân chứ?
+Đó chính là con người của Vương Kim Như.
 
-Ai bảo lúc Vương Kim Như gả về đây thì Triệu Kim An vừa vặn lên cấp hai, đứa trẻ lỡ cỡ như thế làm sao mà nuôi cho thân thiết ngay được?
+Miệng lưỡi thím tuy hay cằn nhằn, hở ra là bảo người khác "vô ơn bạc bẽo", nhưng bản tâm thím căn bản không phải người xấu xa.
 
-Huống chi Vương Kim Như và Triệu Kim An chỉ cách nhau có 12, 13 tuổi, nhỏ hơn Triệu Quốc Hoa 8 tuổi, Triệu Quốc Hoa có nghi án "trâu già gặm cỏ non".
+Nghĩ cũng phải thôi.
 
-"Anh Chí Dũng, cho em cái lông này nữa được không?"
+Đứa cháu trai mồ côi này, thím cũng đã cùng chồng cáng đáng nuôi nấng suốt năm, sáu năm trời, trong thâm tâm người làm thím bao giờ chẳng khao khát nuôi cho nó thân thiết, quấn quýt với mình hơn một chút?
 
-Triệu Duyệt Thiên ngồi xổm bên vòi nước, tay cầm mấy sợi lông dài thượt, trông rất đẹp.
+Ngặt nỗi ngày Vương Kim Như về làm dâu nhà họ Triệu thì Triệu Kim An cũng đã bước vào tuổi học cấp hai, một đứa trẻ đang tuổi dở dở ương ương, tính tình ương bướng thì làm sao dễ dàng thân cận cho được?
 
-Trẻ con trong thôn không có nhiều đồ chơi, nhưng mấy trò đá cầu, nhảy dây, bắn bi thì chơi cực kỳ điêu luyện.
+Huống hồ khoảng cách tuổi tác giữa Vương Kim Như và Triệu Kim An chỉ chênh nhau chừng mười hai, mười ba tuổi, thím lại kém chú Triệu Quốc Hoa tới tám tuổi, khiến chú Hoa năm xưa từng mang tiếng là "trâu già thích gặm cỏ non".
 
-"Thiên Thiên, anh trai mua cho con mấy bộ váy đẹp lắm này, mau lại đây thử xem!"
+"Anh Trí Dũng ơi, cho em xin chiếc lông dài này được không ạ?"
+
+Bé Triệu Duyệt Thiên ngồi xổm bên mép bể nước, hai bàn tay nhỏ xíu cầm mấy chiếc lông đuôi gà rừng sặc sỡ, dài thướt tha, đẹp đẽ vô cùng.
+
+Trẻ con vùng quê chẳng có mấy món đồ chơi điện tử tân tiến, chỉ có đá cầu, nhảy dây, bắn bi chai là những trò chơi quen thuộc mà đứa nào đứa nấy đều chơi thành thục đến mức điêu luyện.
+
+"Thiên Thiên ngoan, anh Kim An mua cho em váy đẹp lắm này, mau vào đây thử xem nào!"

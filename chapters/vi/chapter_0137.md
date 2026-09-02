@@ -1,215 +1,217 @@
-# Chương 137: Đêm Tối Như Nước
+# Chương 137: Đêm trong như nước
 
-"Chí Dũng, ở đây!"
+> **Tiêu đề gốc**: 第137章 夜色如水。
 
-Lúc này có người đang rọi đèn pin, gọi Triệu Chí Dũng.
+"Trí Dũng, bên này!"
 
-Mấy thứ này ở thành phố có lẽ là của hiếm, nhưng ở Triệu Kim An Gia thôn thì ai muốn ăn cứ việc đi bắt một ít.
+Lúc này có người rọi đèn pin, cất tiếng gọi Triệu Trí Dũng.
 
-"Cái đệt, nhà ai nuôi tôm hùm đất thế này."
+Mấy thứ tôm cá chạch lươn này ở thành phố có thể là của hiếm của lạ, chứ ở Triệu gia thôn hễ ai thèm ăn là cứ xách đồ ra đồng làm một mẻ.
 
-Dọc theo mương nước ruộng lúa, Triệu Kim An bế Tô Miền nên không đi nhanh được, phải bước đi thật cẩn thận.
+"Mẹ kiếp, nhà ai thả nuôi tôm hùm đất thế này?"
 
-Tô Miền bỗng nhiên xoay đầu Triệu Kim An lại: "Chí Dũng, chỗ này có con cá chạch!"
+Dọc theo con mương dẫn nước cạnh ruộng lúa, Triệu Kim An bế Tô Miến nên không thể đi nhanh, phải cẩn thận từng bước một trên bờ đất gập ghềnh.
+
+Tô Miến bất chợt nghiêng đầu Triệu Kim An sang một bên, reo lên: "Trí Dũng, chỗ này có một con trạch này!"
 
 Triệu Kim An: "..."
 
-"Em muốn cả hai chúng ta cùng ngã xuống ruộng hả?"
+"Em muốn cả hai đứa mình cùng lộn cổ xuống ruộng đấy à?"
 
-Lúc này Tô Miền mới phản ứng lại rồi bật cười thành tiếng. Nàng tháo chiếc đèn pin Triệu Kim An đang đeo trên đầu xuống tự cầm lấy cho thuận tiện, muốn soi đâu thì soi.
+Tô Miến bấy giờ mới sực nhận ra, bật cười khanh khách. Cô liền tháo chiếc đèn pin đeo trên trán Triệu Kim An xuống cầm trên tay mình, như thế này tiện hơn nhiều, muốn rọi đi đâu thì rọi.
 
-"Kim An, kia là cái gì vậy? Không phải là rắn chứ?"
+"Kim An, đằng kia là con gì thế? Không phải rắn đấy chứ?"
 
 "Lươn đấy."
 
-"Chí Dũng, chỗ này có con lươn này!"
+"Trí Dũng, chỗ này có một con lươn to này!"
 
 "..."
 
-Triệu Chí Dũng xách xô đi trở lại, nhắc nhở: "Thím nhỏ, thím gọi nhỏ tiếng chút thôi."
+Triệu Trí Dũng xách xô sắt lội ngược trở lại, khẽ nhắc: "Thím nhỏ ơi, thím nói nhỏ nhỏ cái mồm thôi."
 
-Chẳng mấy chốc lại có thêm vài người kéo đến, ai nấy đều rọi đèn pin, tay kẹp điếu thuốc.
+Chẳng mấy chốc đã có thêm mấy người đàn ông kéo đến, ai nấy đều bật đèn pin sáng trưng, kẹp điếu thuốc lá phì phèo bên mép.
 
-Dọc theo mương nước, cứ phát hiện ra thứ gì là họ lại gọi Triệu Chí Dũng.
+Đi dọc theo mương nước, hễ phát hiện ra con gì là họ lại ơi ới gọi Triệu Trí Dũng.
 
-Có lẽ vì chẳng có bộ phim truyền hình nào hay để xem, cũng có thể là vì Tô Miền quá xinh đẹp.
+Có lẽ buổi tối ở quê chẳng có phim truyền hình gì hay để xem, mà cũng có thể là do Tô Miến quá đỗi xinh đẹp.
 
-Ngoại trừ việc đi đứng không tiện ra, dung mạo và khí chất của nàng thực sự quá xuất sắc.
+Ngoại trừ đôi chân đi lại bất tiện, dung mạo lẫn khí chất của cô quả thực xuất chúng hiếm thấy.
 
-Họ không có ý đồ xấu gì, chỉ là đôi khi nhìn ngắm một chút cũng thấy vui.
+Mấy người đàn ông trong làng chẳng có tà tâm hay ý nghĩ đen tối gì, chỉ đơn thuần là thỉnh thoảng được ngắm nhìn người đẹp một chút cũng thấy vui mắt.
 
-Tiệm tạp hóa trong thôn sớm đã đồn ầm lên chuyện Triệu Kim An bế Tô Miền đi bắt cá chạch dưới mương nước.
+Dưới tiệm tạp hóa của làng, tin tức đã sớm lan truyền rầm rộ, rằng Triệu Kim An đang bế Tô Miến đi bắt trạch dọc mương nước.
 
-Có người cười nói, con gái thành phố lớn cũng hay thật, cái gì cũng thấy lạ lẫm.
+Có người cười bảo, con gái nhà giàu ở thành phố lớn cũng hay thật đấy, thấy cái gì ở quê cũng lạ lẫm, thích thú.
 
-Có người trêu chọc: "Thím nhỏ, mai lại thịt lợn tết à?"
+Lại có người nửa đùa nửa thật hỏi: "Thế ngày mai thím nhỏ có lại mổ lợn ăn Tết sớm không nhỉ?"
 
-Chủ tiệm tạp hóa là người vui mừng nhất. Chỉ cần Tô Miền tới, những loại thuốc lá dù dễ bán hay khó bán, cứ hễ giá đắt là sẽ bị quét sạch sành sanh.
+Chủ tiệm tạp hóa là người vui mừng nhất. Cứ mỗi lần Tô Miến về làng là tất cả những loại thuốc lá đắt tiền, bất kể bán chạy hay ế ẩm, đều sẽ được quét sạch bách không còn một bao.
 
-Lát sau, trên con đường phía trên mương nước lại có thêm rất nhiều người.
+Lại trôi qua một lúc, trên con đường cái phía trên mương nước đã tụ tập đông nghịt người.
 
-Triệu Chí Dũng ngẩng đầu lên nói: "Mọi người nói nhỏ thôi, cứ cầm đèn pin rọi lung tung..."
+Triệu Trí Dũng ngẩng đầu lên kêu: "Mấy ông nói nhỏ nhỏ cái mồm giùm coi, ai nấy cứ cầm đèn pin rọi lung tung thế này thì cá trạch nó trốn hết..."
 
-Đám người này nhất quyết không đi, đứng cả ở đó mà tán dẫu, lại còn chỉ tay năm ngón sai bảo Triệu Chí Dũng.
+Mấy người đó dứt khoát không chịu về, đứng túm tụm tán gẫu rôm rả ngay trên bờ ruộng, lại còn rảnh rỗi lớn tiếng chỉ huy Triệu Trí Dũng thò kẹp chỗ này chỗ nọ.
 
-Một mương nước nhỏ bé chưa bao giờ náo nhiệt đến thế.
+Một con mương nhỏ hẹp thường ngày hoang vắng, chưa bao giờ lại náo nhiệt, rộn ràng đến thế.
 
-Triệu Kim An tìm một miếng đất xi măng đặt Tô Miền xuống, bản thân hắn cũng ngồi bệt xuống theo.
+Triệu Kim An tìm một bãi đất xi măng phẳng phiu đặt Tô Miến ngồi xuống, bản thân anh cũng ngồi bệt xuống bên cạnh.
 
-Tô Miền tựa vào người Triệu Kim An, khẽ hỏi: "Kim An, anh bế em mỏi lắm phải không?"
+Tô Miến tựa đầu vào vai Triệu Kim An, thì thầm: "Kim An, bế em có mỏi lắm không?"
 
-"Nghỉ một lát rồi chúng ta về nhà thôi, không chơi nữa."
+"Nghỉ một lát rồi mình về nhà thôi, không chơi nữa."
 
-Triệu Kim An không nói gì, chỉ bóp bóp tay Tô Miền. Bế lâu như vậy mà bảo không mỏi thì là nói dối.
+Triệu Kim An không nói gì, chỉ khẽ siết nhẹ bàn tay mềm mại của Tô Miến. Bế một người lâu như thế, bảo không mỏi thì đúng là nói dối.
 
-Trăng sáng treo cao, đêm tối như nước.
+Vầng trăng vằng vặc treo lơ lửng trên nền trời cao, đêm thu trong vắt như nước.
 
-Bốn bề vắng lặng, chỉ có tiếng ếch kêu râm ran. Phía không xa, vô số ánh đèn pin rọi xuống mương nước cùng những tiếng bàn tán xì xào.
+Bốn bề tĩnh lặng như tờ, chỉ có tiếng ếch nhái râm ran hòa cùng ánh đèn pin loang loáng rọi xuống mương nước cách đó không xa, kèm theo tiếng trò chuyện rì rầm to nhỏ của dân làng.
 
-Tô Miền cứ thế tựa vào Triệu Kim An, vân vê những vết chai trên tay hắn.
+Tô Miến cứ thế tựa sát vào lòng Triệu Kim An, những ngón tay thon dài khẽ mơn man lên từng vết chai sạn trong lòng bàn tay anh.
 
 "Kim An, tối nay em muốn tắm."
 
 Triệu Kim An: "..."
 
-"Được."
+"Được rồi."
 
-Tô Miền cười khì khì: "Em không muốn thím giúp em tắm đâu."
+Tô Miến khẽ mỉm cười: "Em không muốn thím tắm cho em đâu."
 
 "..."
 
-Nghỉ ngơi một lát, Triệu Kim An lại bế Tô Miền trở về.
+Nghỉ ngơi một lúc, Triệu Kim An bế Tô Miến trở về nhà.
 
-Vừa thấy Tô Miền rời đi, đám đông cũng tản dần.
+Tô Miến vừa rời đi, đám đông trên bờ mương cũng nhanh chóng giải tán.
 
-Chỉ còn mình Triệu Chí Dũng vẫn đeo đèn pin tiếp tục công cuộc bắt cá.
+Chỉ còn mỗi Triệu Trí Dũng vẫn đeo đèn pin miệt mài rà kẹp bắt nốt.
 
-Về đến nhà, Triệu Hữu Hằng cũng có mặt, hắn đang cùng Vương Kim Như dọn dẹp đống cá nhỏ ngoài sân trước.
+Về đến nhà, Triệu Hữu Hằng cũng đang ở đó, anh đang cùng Vương Kim Như ngồi ngoài sân trước tỉ mẩn làm sạch mớ cá nhỏ vừa kích được.
 
-"Thím nhỏ, thím qua xem này."
+"Thím nhỏ, thím qua đây xem này!"
 
-Triệu Kim An bế Tô Miền qua đó. Tô Miền liếc nhìn mấy cây thuốc lá còn sót lại, bảo Triệu Hữu Hằng lát nữa cầm hết đi.
+Triệu Kim An bế Tô Miến bước lại gần. Tô Miến liếc nhìn mấy cây thuốc lá còn sót lại trên bàn, bảo Triệu Hữu Hằng lát nữa cầm hết về nhà mà hút.
 
-Triệu Quốc Hoa biết Tô Miền sẽ đến nên trong nhà đã lắp sẵn bình nóng lạnh.
+Triệu Quốc Hoa biết Tô Miến sắp về nên đã đặc biệt mua lắp một chiếc bình nóng lạnh mới toanh trong nhà tắm.
 
-Lần này Triệu Kim An đã nhìn thấy hết sạch sành sanh con người Tô Miền, từ trên xuống dưới, 360 độ không sót chỗ nào.
+Lần này, Triệu Kim An đã nhìn thấy trọn vẹn thân thể Tô Miến, từ trên xuống dưới, trọn vẹn ba trăm sáu mươi độ, không muốn nhìn cũng không thể không nhìn.
 
-Vương Kim Như chẳng hề có ý định đứng dậy giúp một tay, các bà đều đinh ninh rằng Triệu Kim An và Tô Miền đã sớm làm chuyện đó rồi.
+Vương Kim Như hoàn toàn không có ý định đứng dậy vào giúp một tay, trong mắt người lớn trong nhà, họ đều đinh ninh rằng Triệu Kim An và Tô Miến đã sớm "ăn nằm" với nhau từ lâu rồi.
 
-Từ phòng tắm đi ra, bà nội hỏi Tô Miền có muốn ăn cá nhỏ chiên giòn không.
+Bước ra khỏi phòng tắm, bà nội liền ân cần hỏi Tô Miến có muốn ăn mấy con cá nhỏ rán giòn không.
 
-Tô Miền ăn ba con, rồi nhìn chằm chằm Triệu Hữu Hằng xách nốt mấy cây thuốc lá còn lại đi.
+Tô Miến ăn liền ba con, rồi đưa mắt nhìn chằm chằm giục Triệu Hữu Hằng mang hết mấy cây thuốc lá còn lại về.
 
-Đêm ấy, Tô Miền đòi Triệu Kim An phải ôm mình ngủ.
+Đêm hôm ấy, Tô Miến nũng nịu đòi Triệu Kim An phải ôm chặt lấy mình mới chịu ngủ.
 
 Sáng sớm hôm sau.
 
-Trong nhà kéo đến rất nhiều người. Chỉ còn lại một mẫu ruộng nước, một nhóm người vác máy tuốt lúa rầm rộ kéo sang đó.
+Nhà họ Triệu đã đông nghịt người kéo đến. Chỉ còn trơ trọi đúng một sào ruộng nước, thế mà cả một đoàn người rầm rộ vác máy tuốt lúa kéo nhau ra đồng như đi trẩy hội.
 
-Triệu Kim An bế Tô Miền lên, còn Triệu Chí Dũng thì vác chiếc xe lăn.
+Triệu Kim An bế bổng Tô Miến, còn Triệu Trí Dũng thì vác chiếc xe lăn theo sau.
 
-Vương Kim Như lầm bầm: "Tô Miền vừa đến là biết ngay sẽ thế này mà!"
+Vương Kim Như càu nhàu: "Tô Miến vừa về là biết ngay sẽ rình rang thế này mà!"
 
-Điền Thúy Phượng cười đáp: "Có người ngoài miệng thì nói thế, nhưng trong lòng lại mong người ta đến gần chết. Lần gặt lúa trước, là ai bảo đám ruộng này phải đợi Tô Miền về mới gặt nhỉ?"
+Điền Thúy Phượng bật cười châm chọc: "Có người ngoài miệng thì nói thế, chứ trong bụng lại mong người ta về chết đi được. Đợt gặt lúa trước, là ai nằng nặc bảo thửa ruộng này phải đợi Tô Miến về mới được gặt hả?"
 
-Vương Kim Như cứng miệng: "Tôi không nói, là bà nội bảo thế, tôi thì làm gì được?"
+Vương Kim Như cãi bướng: "Tôi có nói đâu, là bà nội nó bảo thế đấy chứ, tôi thì làm gì được?"
 
-"Vốn dĩ một ngày là xong hết rồi, giờ thì hay rồi, đông người thế kia chẳng lẽ chỉ ăn cá?"
+"Đáng lẽ một ngày là gặt xong xuôi từ đợt trước rồi, giờ thì hay chưa, đông người thế này chẳng lẽ bữa trưa chỉ đãi toàn cá?"
 
-Chẳng ai thèm để ý đến bà ta.
+Chẳng ai thèm chấp lời bà.
 
-Thực tế, phụ nữ trong thôn đều rất hâm mộ Vương Kim Như.
+Thực tế trong thâm tâm, đám đàn bà con gái trong làng đều vô cùng ghen tị và ngưỡng mộ Vương Kim Như.
 
-Người ta đều là nuôi con trai, bà ta lại nuôi được một đứa cháu trai.
+Người khác nuôi con trai đẻ, còn bà nuôi đứa cháu trai.
 
-Bây giờ đứa cháu này đã trưởng thành vượt bậc, đỗ vào một trường đại học tốt như vậy, lại còn dẫn về một cô bạn gái xinh đẹp và siêu giàu có.
+Bây giờ đứa cháu trai thành tài rạng danh dòng họ, đỗ vào trường đại học danh giá hàng đầu, lại còn dắt về một cô bạn gái xinh như tiên sa mà nhà lại siêu giàu có.
 
-Đúng thế, không phải giàu bình thường mà là siêu giàu.
+Đúng thế, không phải giàu bình thường, mà là siêu cấp giàu có.
 
-Giàu đến mức họ nhìn thấy chiếc xe bảo mẫu Mercedes đỗ ngoài sân cũng chẳng thấy ngạc nhiên chút nào.
+Giàu đến mức dân làng nhìn thấy chiếc xe bảo mẫu Mercedes trắng muốt lộng lẫy đậu chễm chệ trước sân nhà họ Triệu mà chẳng còn lấy nửa phần kinh ngạc.
 
-Nếu lần này hắn không lái xe sang về thì đó mới là tin tức nóng hổi của Triệu Kim An Gia thôn.
+Lần này nếu chạy về một chiếc xe bình thường thì đó mới là tin giật gân ở Triệu gia thôn.
 
-Đã vậy Triệu Kim An lại còn tính tình ôn hòa, nghe lời, Tô Miền cũng đối xử rất tốt với dân làng, nghe nói còn đối đãi rất hậu hĩnh với cả Triệu Kim An Có Tài và Triệu Hữu Hằng nữa.
+Đã vậy Triệu Kim An tính tình lại ôn hòa, hiếu thuận, nghe lời người lớn; Tô Miến thì đối xử với dân làng vô cùng thơm thảo, hào phóng, nghe bảo đối đãi với cả anh em Triệu Hữu Tài, Triệu Hữu Hằng đều rất chu đáo, trọng tình trọng nghĩa.
 
-Đây mới là mấu chốt.
+Đây mới là mấu chốt quan trọng nhất.
 
-Nó cho thấy Tô Miền thực sự coi mình là người của nơi này.
+Điều đó chứng minh Tô Miến thực sự coi mình là dâu con, là người một nhà ở chốn này.
 
-Điền Thúy Phượng hậm hực nói: "Vương Kim Như, chị đừng có ở đó mà được hời còn khoe mẽ. Tôi nghe nói rồi nhé, đồ Tô Miền mang tới chị đều cất hết vào phòng ngủ của mình rồi!"
+Điền Thúy Phượng hứ một tiếng: "Vương Kim Như, bà đừng có ở đây mà được hời còn khoe mẽ. Tôi nghe người ta kể rồi nhé, đồ đạc Tô Miến mang về bà đều ôm tuốt vào phòng ngủ của mình rồi chứ gì!"
 
-"Kim An với Tô Miền có nói gì chị không? Chị đúng là mẹ thiên hạ rồi..."
+"Thằng Kim An với con bé Tô Miến có nói nửa lời nào không? Bà thế này đúng là chẳng khác gì mẹ ruột rồi đấy..."
 
-Đám phụ nữ đồng loạt gật đầu phụ họa, ai cũng bảo số Vương Kim Như tốt.
+Cả đám phụ nữ gật đầu lia lịa tán thưởng, ai nấy đều khen Vương Kim Như số sướng, phúc lớn như trời.
 
-Họ mà biết Tô Miền tặng cho Triệu Duyệt Thiên hẳn một cái cửa hàng KFC thì không biết sẽ đỏ mắt ghen tị đến mức nào.
+Họ đâu có biết Tô Miến còn tặng hẳn cho Triệu Duyệt Thiên một cửa hàng KFC dưới huyện, nếu không thì chẳng biết mắt họ còn đỏ lên vì ghen tị đến mức nào.
 
-bà nội đã dặn Vương Kim Như chuyện này đừng có đi khoe khoang khắp thôn.
+Bà nội đã nghiêm khắc dặn dò Vương Kim Như chuyện này tuyệt đối không được bép xép, khoe khoang trong làng.
 
-Vương Kim Như đi đứng cứ lắc mông qua lại, dáng vẻ quả thực có chút đắc ý.
+Vương Kim Như bước đi đánh mông qua lại, dáng vẻ đắc ý không giấu nổi vào đâu được.
 
-"Quốc Hoa, đi mua thêm mười cân thịt nữa đi! Nhiều người thế này mà ông mua có năm cân thì sao mà đủ!?"
+"Ông Quốc Hoa, đi mua thêm hai mươi cân thịt lợn nữa về đây! Từng này người ăn mà ông mua có mười cân thì bõ bèn vào đâu?!"
 
-Vương Kim Như chẳng thèm giận khi bị người ta nói thế, họ càng nói bà ta càng thấy sướng.
+Vương Kim Như chẳng thèm giận khi bị người ta móc mỉa, họ càng nói thế bà lại càng nở mày nở mặt, sướng rơn trong bụng.
 
-Lưu Đồng Hoa trêu chọc: "Này Vương Kim Như, Tô Miền đến rồi, chị không thịt một con lợn à?"
+Lưu Đồng Hoa trêu chọc: "Bà Kim Như ơi, Tô Miến về chơi, bà không mổ hẳn một con lợn ăn mừng à?"
 
-Trong bếp, đám phụ nữ cười ha hả.
+Gian bếp ngập tràn tiếng cười nói ha hả của mấy chị em phụ nữ.
 
-Có tiền rồi, Vương Kim Như không còn keo kiệt như trước nữa. Ngày xưa là thật sự không còn cách nào khác, một đồng cũng muốn bẻ làm đôi mà tiêu, làm gì có chuyện hào phóng đến mức ngày thường mà mua tới mười cân thịt lợn?
+Có tiền rồi, Vương Kim Như không còn bủn xỉn, chắt bóp như ngày xưa nữa. Ngày trước thực sự là do hoàn cảnh khốn khó, một đồng bẻ đôi chẳng dám tiêu, làm gì có chuyện ngày thường hào phóng vung tiền mua liền hai mươi cân thịt lợn bao giờ?
 
-Mấy năm trước lúc cấy mạ hay gặt lúa có người đến giúp, bà ta cũng tiết kiệm được đồng nào hay đồng nấy.
+Những năm trước cấy lúa gặt mùa có người đến giúp, bà cũng phải tính toán tằn tiện hết mức có thể.
 
-Vương Kim Như vào phòng ngủ mở mấy hộp quà mang ra, nói: "Toàn là đồ Tô Miền mang tới đấy, mọi người nếm thử xem, mùi vị cũng bình thường thôi, nói chung là tôi chưa thấy bao giờ."
+Vương Kim Như bước vào phòng ngủ, mở mấy hộp quà cao cấp mang ra gian ngoài, bảo: "Toàn là đồ con bé Tô Miến mang về đấy, các bà nếm thử xem, mùi vị cũng chẳng ra làm sao, nói chung là tôi chưa từng thấy bao giờ."
 
-Có vài thứ có hạn sử dụng, đêm qua Vương Kim Như đã ngồi trong phòng sắp xếp và xem xét kỹ lưỡng rồi.
+Có vài thứ có hạn sử dụng, tối qua Vương Kim Như thu dọn trong phòng ngủ đã tỉ mẩn soi từng chút một.
 
-Để lại cho mình Triệu Duyệt Thiên thì con bé cũng ăn không hết.
+Để lại thì một mình Triệu Duyệt Thiên ăn cả năm cũng chẳng hết.
 
-May mà không phát hiện ra xấp tiền nào, nếu không Vương Kim Như đã sợ tới mức nửa đêm phải sang gõ cửa phòng Triệu Kim An rồi.
+May mà không phát hiện ra từng cọc tiền mặt xếp lớp, nếu không nửa đêm Vương Kim Như đã sợ hãi chạy sang đập cửa phòng Triệu Kim An rồi.
 
-"Đây là đồ Tô Miền mang tới à?"
+"Đây là đồ Tô Miến mang về đấy à?"
 
-Đám phụ nữ tò mò cầm hộp bao bì lên xem đi xem lại. Họ thực sự rất hiếu kỳ, một người giàu có như Tô Miền thì đồ ăn vặt ở nhà sẽ là thứ gì. Cuối cùng họ tự nếm một chút, rồi cầm đi ra ngoài dỗ dành con nhỏ nhà mình.
+Một đám phụ nữ tò mò xúm lại cầm các hộp bao bì ngoại nhập lên ngắm nghía xuýt xoa. Họ thực sự tò mò không biết một cô tiểu thư giàu nứt đố đổ vách như Tô Miến thì ở nhà thường ăn món quà vặt gì. Cuối cùng, mỗi người tự nếm thử một chút, rồi cầm mấy gói bánh kẹo mang ra ngoài sân dỗ dành con nít nhà mình.
 
-Dịp lễ Quốc khánh đám trẻ con đều được nghỉ học.
+Dịp nghỉ lễ Quốc khánh, trẻ con trong làng đều được nghỉ học ở nhà.
 
-Chỉ có Chương Ngọc Ni là ăn món này một chút, món kia một chút, cô nàng mới gả về đây nên chưa có con.
+Chỉ có Chương Ngọc Ni là nhón cái này một miếng, cái kia một miếng ăn liên tục, cô mới gả về làng chưa lâu nên chưa có con nhỏ.
 
-Điền Thúy Phượng cười nói: "Chương Ngọc Ni, hay là cô có bầu rồi? Sao mà thèm ăn thế?"
+Điền Thúy Phượng cười trêu: "Chương Ngọc Ni, mày dính bầu rồi đấy à? Sao mà háu ăn thế?"
 
-Chương Ngọc Ni giơ miếng bánh quy lên bảo: "Cái này ngon thật đấy, mấy thứ này cháu đi siêu thị lớn đúng là chưa thấy bao giờ."
+Chương Ngọc Ni giơ miếng bánh quy giòn rụm lên, tấm tắc: "Cái này ngon thật đấy bác, mấy thứ này cháu đi dạo siêu thị lớn trên phố huyện chưa từng thấy bao giờ đâu."
 
-bà nội mỉm cười nói với nàng dâu mới của thôn: "Cháu thích thì cứ lấy thêm một ít."
+Bà nội hiền hậu mỉm cười bảo cô dâu mới trong làng: "Cháu thích ăn thì cứ bọc một ít mang về phòng."
 
-Lần này, "nhận thức" của họ về Tô Miền lại được làm mới.
+Lần này, nhận thức của họ về sự giàu có của Tô Miến lại được nâng lên một tầm cao mới.
 
-Chương Ngọc Ni là người trẻ tuổi, cô nàng bảo đi siêu thị lớn cũng chưa từng thấy, vậy thì Tô Miền mua ở đâu được nhỉ?
+Chương Ngọc Ni là thanh niên trẻ tuổi, cô ấy bảo đi dạo siêu thị lớn chưa từng thấy, thế thì rốt cuộc Tô Miến mua mấy thứ này ở tận nơi cao sang nào?
 
-Đúng lúc này, chủ tiệm tạp hóa trong thôn đi tới.
+Đúng lúc này, chủ tiệm tạp hóa trong làng bước vào.
 
-Một người phụ nữ tên là Khâu Lệ Hà, tay ôm hai thùng thuốc lá lớn, oang oang hỏi Vương Kim Như để đồ ở đâu.
+Một người đàn bà tên Khâu Lệ Hà, hai tay ôm hai thùng thuốc lá to tướng, cất giọng oang oang hỏi Vương Kim Như để ở đâu.
 
 "..."
 
-Vương Kim Như nhìn mấy bao Phù Dung Vương xanh lòi cả ra ngoài, bực mình nói: "Tôi có bảo mua đâu, Lệ Hà, cô định ép mua ép bán đấy à!?"
+Vương Kim Như nhìn thấy mấy tút Lam Phù Dung lòi cả ra ngoài mép thùng, bèn bực bội bảo: "Tôi có bảo mua đâu, cái con Lệ Hà này mày định ép mua ép bán đấy à?!"
 
-Khâu Lệ Hà đáp: "Chí Dũng gọi điện cho tôi đấy chứ, còn có cả bia nữa, lát nữa tôi về ôm sang."
-
-Vương Kim Như: "..."
-
-"Thế cũng không cần nhiều vậy!"
-
-"Chí Dũng bảo có bao nhiêu lấy bấy nhiêu!"
-
-"Cái tiệm tạp hóa của cô... hôm qua Chí Dũng chẳng phải mua hết rồi sao?"
-
-Khâu Lệ Hà cười hì hì: "Sáng nay tôi vừa mới đi nhập thêm hàng về đấy."
+Khâu Lệ Hà đáp: "Thằng Trí Dũng gọi điện dặn tôi đấy chứ, còn có cả bia nữa, lát tôi quay về chở nốt."
 
 Vương Kim Như: "..."
 
-"Lệ Hà, cô đúng là kiếm tiền đen tối của Tô Miền mà. Cô gọi Tô Miền thì cũng phải gọi một tiếng thím nhỏ đấy!"
+"Thế cũng không cần nhiều đến mức này!"
 
-Khâu Lệ Hà đặt đồ xuống rồi lắc cái mông lớn đi về ôm bia.
+"Thằng Trí Dũng bảo có bao nhiêu lấy bấy nhiêu!"
 
-Trong lòng thầm nghĩ, trong thôn mà lấy thêm vài nàng dâu mới như Tô Miền thì mình sắp phát tài to rồi!
+"Cái tiệm tạp hóa bé tí của cô... hôm qua thằng Trí Dũng chẳng gom sạch sành sanh rồi sao?"
+
+Khâu Lệ Hà cười tít mắt: "Sáng sớm nay tôi phải phóng xe lên thị trấn lấy thêm hàng về đấy."
+
+Vương Kim Như: "..."
+
+"Lệ Hà, mày kiếm tiền bẩn trên lưng con bé Tô Miến, mày gọi Tô Miến cũng phải gọi một tiếng thím nhỏ đấy nhé!"
+
+Khâu Lệ Hà đặt hai thùng thuốc lá xuống, rồi đánh cái mông đẫy đà quay ngoắt đi lấy bia.
+
+Trong bụng bà ta hí hửng nghĩ thầm: Cả cái làng này mà cưới được thêm vài cô dâu mới cỡ như Tô Miến thì mình chẳng mấy chốc mà phát tài to!

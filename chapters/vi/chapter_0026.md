@@ -1,197 +1,201 @@
-# Chương 26: Cô Trình Vừa Mới Tắm Sao
+# Chương 26: Cô Trình vừa mới tắm xong à?
 
-Một lát sau, Trình Tử Liên lại thấy Mộc Dao và cha mẹ Âu Cường đang trò chuyện cùng nhau. Phụ huynh hai bên đều tươi cười rạng rỡ, Âu Cường và Mộc Dao thì đứng né sang một bên.
+> **Tiêu đề gốc**: 第26章 程老师洗过澡啦？
 
-Mẹ của Âu Cường nhìn Mộc Dao với vẻ mặt đầy hiền từ.
+Được một lát, Trình Tử Liên lại trông thấy Mộc Dao cùng bố mẹ Âu Cường đang trò chuyện rôm rả. Phụ huynh hai bên mặt mày hớn hở, tươi cười rạng rỡ, còn Âu Cường và Mộc Dao thì đứng nép sang một bên.
 
-Nhân vật chính của ngày hôm nay, Mộc Dao, diện một chiếc váy trắng, đang quay lưng cúi đầu nên không rõ biểu cảm ra sao.
+Mẹ Âu Cường nhìn Mộc Dao, ánh mắt đong đầy vẻ yêu thương, trìu mến.
 
-Mộc Nhân Cường và Trương Tuệ không còn vẻ ưu việt như hôm gặp Triệu Kim An nữa, đôi bên cha mẹ trò chuyện vô cùng vui vẻ.
+Nhân vật chính của ngày hôm nay — Mộc Dao diện một chiếc váy trắng tinh khôi, khẽ quay lưng cúi gằm mặt xuống, chẳng ai nhìn rõ được nét mặt cô bé lúc này.
 
-Cục Thuế và Ủy ban Cải cách Phát triển tuy không cùng hệ thống, nhưng điều đó chẳng hề cản trở họ giao lưu.
+Vợ chồng Mộc Nhân Cường và Trương Tuệ hoàn toàn rũ bỏ vẻ trịch thượng, bề trên như hôm gặp Triệu Kim An, nói cười vô cùng tâm đắc với phụ huynh đối phương.
 
-"May mà Kim An không đến."
+Tuy Cục Thuế và Ủy ban Phát triển & Cải cách không cùng một hệ thống, nhưng điều đó chẳng hề ngăn trở những câu chuyện đưa đẩy qua lại giữa họ.
 
-Trình Tử Liên đột nhiên nhận ra đi dự tiệc tân khoa ở nông thôn vẫn thú vị hơn, có thể đi lại loanh quanh để nhìn ngắm phong tục tập quán các nơi.
+"May mà thằng bé Kim An không tới."
 
-Du Phỉ liếc nhìn về phía Mộc Dao một cái, rồi lại cúi đầu tập trung chuyên môn ăn uống.
+Trình Tử Liên bỗng thấy đi dự tiệc mừng đỗ đạt ở mấy vùng quê có khi lại thú vị hơn nhiều, vừa được đi dạo loanh quanh, vừa cảm nhận được phong thổ, tình người mộc mạc khắp chốn.
 
-Suy nghĩ của nàng cũng giống Trình Tử Liên, thật may là Kim An không đến đây.
+Du Phi liếc nhìn về phía Mộc Dao một cái, rồi lại cắm cúi lùa cơm.
 
-Thực tế ở kiếp trước Triệu Kim An từng nếm trải cảnh này, Trương Tuệ còn cố ý đứng trước mặt hai bàn học sinh lớp 209 mà khích lệ Âu Cường vài câu, đại loại như lớp trưởng cấp ba thì lên đại học nhất định phải vào Hội Sinh viên.
+Suy nghĩ của cô bé cũng y hệt như cô giáo Trình Tử Liên, thật may là Kim An đã không đến đây.
 
-Hơn nữa còn đỗ vào đại học Phục Đán.
+Thực ra ở kiếp trước, Triệu Kim An đã từng nếm trải cảnh tượng này. Trương Tuệ thậm chí còn đứng trước mặt hai bàn học sinh lớp 209 mà cố tình buông lời tán thưởng, khích lệ Âu Cường đủ điều, nào là làm lớp trưởng cấp ba giỏi giang thế này thì lên đại học chắc chắn sẽ vào Hội Sinh viên.
+
+Huống chi cậu ta đỗ vào tận trường Đại học Phục Đán cơ mà.
 
 Người đàn bà Trương Tuệ này thật là!
 
-Bà ta vừa mới PUA Triệu Kim An phải đối tốt với Mộc Dao, ngay sau đó lại đứng trước mặt con gái và bạn học lớp 209 mà khen ngợi một chàng trai khác.
+Trước mặt thì thao túng tâm lý, ép Triệu Kim An phải một lòng một dạ đối xử tốt với Mộc Dao, sau lưng lại lập tức khen ngợi một chàng trai khác ngay trước mặt con gái và bạn bè cùng lớp 209.
 
-Có lẽ đây cũng là một mắt xích trong kế hoạch PUA Triệu Kim An của bà ta.
+Có lẽ, đây cũng là một mắt xích trong chuỗi chiêu trò thao túng của bà ta dành cho Triệu Kim An mà thôi.
 
-Triệu Kim An dễ bị thao túng vậy sao?
+Triệu Kim An dễ bị thao túng đến thế sao?
 
-Trương Tuệ cho rằng Triệu Kim An rất dễ bị PUA, ít nhất là Triệu Kim An ở kiếp trước.
+Trương Tuệ nghĩ rằng Triệu Kim An rất dễ bảo, chí ít thì Triệu Kim An ở kiếp trước đúng là như vậy.
 
-Thực ra, Triệu Kim An ở kiếp này trông cũng có vẻ rất dễ bị điều khiển.
+Và trên thực tế, Triệu Kim An của kiếp này trông bề ngoài cũng có vẻ rất dễ thao túng.
 
-PUA là chỉ việc thao túng tình cảm hoặc kiểm soát tinh thần, đặc biệt là trong quan hệ nam nữ.
+Thao túng tâm lý chính là cách dùng tình cảm để kiểm soát tinh thần đối phương, đặc biệt là trong các mối quan hệ nam nữ.
 
-Triệu Kim An vừa sạch sẽ lại đẹp trai, còn rất yên lặng ngoan ngoãn, có lẽ việc kiểm soát một người như vậy có thể thỏa mãn một loại dục vọng bệnh hoạn nào đó sâu trong lòng "mẹ vợ hụt" Trương Tuệ?
+Triệu Kim An vừa sạch sẽ, điển trai, lại trầm tính ngoan ngoãn. Biết đâu việc nắm thóp, điều khiển một chàng trai như thế lại có thể thỏa mãn cái dục vọng bệnh hoạn thầm kín nào đó trong lòng người "mẹ vợ hờ" Trương Tuệ?
 
-Loại người này có rất nhiều, có lẽ sâu thẳm trong lòng mỗi người đều có một chút, nếu không thì thuật ngữ PUA cũng chẳng thể thịnh hành đến thế.
+Những kẻ mang tâm lý ấy ngoài đời nhiều vô kể, có lẽ sâu thẳm trong góc khuất của mỗi người đều ít nhiều tồn tại chút tà niệm như thế, bằng không thì cái khái niệm thao túng tâm lý đâu thể trở nên thịnh hành đến vậy.
 
-Nếu không phải Trình Tử Liên gọi điện tới, Triệu Kim An đã quên mất cô Trình rồi.
+...
 
-Ba ngày sau, hắn gọi điện cho Trình Tử Liên, chuẩn bị xách chút đồ đến cảm ơn cô giáo dạy Hóa đã đặc biệt quan tâm mình suốt ba năm cấp ba.
+Nếu Trình Tử Liên không chủ động gọi điện đến, có lẽ Triệu Kim An cũng đã quên bẵng mất cô giáo Trình.
 
-Đối với việc kiếp trước sau khi thi đại học xong bản thân không hề liên lạc lại với cô Trình, Triệu Kim An có chút hối hận. Ba năm trung học, Trình Tử Liên thực sự đã hết lòng yêu thương che chở hắn.
+Ba ngày sau, cậu gọi lại cho Trình Tử Liên, định bụng xách chút quà mọn đến cảm ơn người giáo viên dạy Hóa đã đặc biệt nâng đỡ, săn sóc mình suốt ba năm cấp ba.
 
-Nếu không phải Trình Tử Liên đã ngoài 40 tuổi, đám học sinh lớp 209 chắc chắn sẽ râm ran cả lên.
+Nghĩ về kiếp trước, sau khi thi đại học xong mình bặt vô âm tín, không hề liên lạc lại với cô Trình, Triệu Kim An vẫn cảm thấy có chút áy náy trong lòng. Suốt ba năm trung học, Trình Tử Liên thực sự đã hết lòng yêu thương, bảo bọc cậu.
 
-—— Em xin báo cáo, có tình cảm thầy trò!
+Nếu không phải Trình Tử Liên đã ngoài bốn mươi tuổi, khéo lũ học trò lớp 209 đã rộ lên phong trào đồn thổi om sòm rồi.
 
-Triệu Kim An suy nghĩ xem nên mang theo đồ gì cho thích hợp, cuối cùng hắn xách theo một quả dưa hấu và ít cá khô, thế này là hợp lý nhất.
+— Em xin tố cáo, có tình cảm thầy trò vượt mức cho phép ở đây!
 
-Gọi là trường Chuyên số 1 thành phố, nhưng thực chất là Trung học Thành phố.
+Triệu Kim An đắn đo mãi xem nên mang theo thứ gì cho phải phép, cuối cùng cậu chọn một quả dưa hấu mát lành cùng ít cá khô đồng quê, giản dị mà lại chân tình nhất.
 
-Đây là trường cấp ba tốt nhất thành phố Tư Tinh, không giống như Sâm Châu có trường số 1, số 2, số 3.
+Gọi là trường Cấp ba Số 1 Thành phố, nhưng thực chất tên chuẩn là Trường Trung học Lập Thị.
 
-Đội nắng đi đến cổng trường, tiếng chuông "tùng tùng" lâu ngày không nghe vang lên, thấp thoáng bóng dáng vài học sinh, hóa là học sinh lớp 11 lên 12 đang học bù.
+Đây là ngôi trường cấp ba danh tiếng nhất thành phố Tư Tinh, không giống như Sâm Thành chia ra trường Số 1, Số 2, Số 3.
 
-Bác bảo vệ đang thiu thiu ngủ trước quạt máy trong phòng trực, nghe thấy tiếng gõ cửa, liếc nhìn thẻ học sinh Triệu Kim An đưa tới liền cho qua.
+Đội cái nắng gay gắt đi đến cổng trường, tiếng chuông "reng reng reng" quen thuộc lâu ngày không nghe bỗng vang lên. Thấp thoáng bóng dáng vài tốp học sinh qua lại, hóa ra là khóa dưới từ lớp 11 lên 12 đang học phụ đạo hè.
 
-Bác còn nhe hàm răng ám vàng, cười hỏi: "Học sinh lớp 209 à, đỗ đại học nào rồi?"
+Bác bảo vệ đang ngồi trong phòng gác phe phẩy quạt máy gà gật ngủ, nghe tiếng gõ cửa thì liếc nhìn thẻ học sinh Triệu Kim An đưa qua rồi lập tức mở cổng cho vào.
 
-Đúng là đã tốt nghiệp rồi có khác, chứ bình thường bảo vệ trường còn hung hơn chó dữ.
+Bác còn nhe hàm răng ám khói vàng khè, cười toe toét hỏi: "Học sinh lớp 209 à, đỗ trường đại học nào thế cháu?"
 
-Muốn lẻn qua cổng trường ư?
+Cũng nhờ đã tốt nghiệp rồi đấy, chứ bình thường bảo vệ ở đây còn dữ dằn hơn cả chó canh nhà.
 
-Mơ đi.
+Muốn chuồn ra ngoài cổng trường ư?
 
-Thẻ học sinh của trường Trung học Thành phố chia làm hai loại: ngoại trú và nội trú, màu sắc khác nhau. Học sinh nội trú không được tùy tiện ra khỏi cổng trường, nếu không xảy ra vấn đề an toàn thì ai chịu trách nhiệm?
+Không có cửa đâu.
 
-Trình Tử Liên sống ở khu nhà tập thể giáo viên ngay trong trường, nghe nói chồng và con gái nàng đều ở Sâm Châu.
+Thẻ học sinh của Trường Lập Thị chia làm hai loại: bán trú và nội trú, màu sắc khác hẳn nhau. Học sinh nội trú tuyệt đối không được tự ý bước chân ra khỏi cổng, nếu xảy ra sự cố an toàn gì thì ai gánh trách nhiệm cho nổi?
 
-Men theo ký ức, Triệu Kim An tìm thấy khu nhà tập thể.
+Trình Tử Liên ở tại khu tập thể giáo viên nằm ngay trong khuôn viên trường, nghe đâu chồng và con gái cô đều đang sinh sống ở Sâm Thành.
 
-Đó là một tòa nhà 6 tầng kiểu cũ, cầu thang bộ, không gian khá yên tĩnh. Những giáo viên không có tiết trong kỳ nghỉ hè chắc hẳn đều không ở lại trường.
+Lần theo ký ức, Triệu Kim An tìm tới khu nhà tập thể.
 
-Xem lại tin nhắn, đơn nguyên 2 tầng 2, Triệu Kim An xách đồ lên lầu.
+Đó là một tòa nhà sáu tầng kiểu cũ, dùng cầu thang bộ, xung quanh khá vắng lặng. Đang kỳ nghỉ hè, những giáo viên không có tiết dạy chắc hẳn đều đã rời khỏi trường.
 
-Ở tầng hai có một cánh cửa đang mở sẵn.
+Nhìn lại tin nhắn trên điện thoại, đơn nguyên 2, tầng 2. Triệu Kim An xách đồ bước lên lầu.
+
+Cửa một căn hộ trên tầng hai đang mở hé.
 
 "Cô Trình ạ?"
 
-"Ở đây!"
+"Ở đây này!"
 
-Trình Tử Liên xuất hiện ở cửa, tay cầm con dao gọt hoa quả, nhìn cậu học trò trước mặt cười nói: "Hai tháng không gặp, em đen đi một chút, còn... có vẻ trưởng thành hơn rồi."
+Trình Tử Liên xuất hiện nơi ngưỡng cửa, trên tay vẫn cầm con dao gọt hoa quả. Nhìn thấy cậu học trò đứng trước mặt, cô mỉm cười nói: "Mới hai tháng không gặp mà trông rám nắng đi một chút, lại còn... chững chạc ra dáng hẳn lên."
 
-"Thưa cô, đây là dưa hấu nhà em trồng."
+"Thưa cô, dưa hấu nhà em tự trồng đấy ạ."
 
-"Còn mang đồ làm gì, mau vào đi!"
+"Đến chơi còn bày đặt xách quà cáp làm gì, mau vào nhà đi em!"
 
-Sự xuất hiện của Triệu Kim An khiến Trình Tử Liên rất vui mừng, vốn dĩ hôm nay nàng định về Sâm Châu.
+Thấy Triệu Kim An đến, Trình Tử Liên vui mừng ra mặt. Vốn dĩ hôm nay cô đã tính thu dọn đồ đạc để về Sâm Thành rồi.
 
-"Hôm nay cô không đi dự tiệc tân khoa ạ?"
+"Hôm nay cô không phải đi dự tiệc mừng đỗ đại học của bạn nào ạ?"
 
-Triệu Kim An tìm chuyện để nói.
+Triệu Kim An tìm chuyện để nói cho đỡ ngại.
 
-"Làm gì mà ngày nào cũng có được, các em tổ chức tiệc cũng phải chọn ngày lành tháng tốt chứ. Hơn nữa ngày nào cũng đi ăn tiệc cũng mệt, cô dạy xong khóa các em rồi, học kỳ tới định chỉ dạy lớp 10 thôi."
+"Làm sao mà ngày nào cũng có được. Các em tổ chức tiệc mừng cũng phải xem ngày lành tháng tốt chứ, vả lại ngày nào cũng đi ăn tiệc thì mệt chết đi được. Cô dạy xong khóa của các em là học kỳ tới xin chuyển xuống chỉ dạy lớp 10 thôi."
 
-"Dạy lớp 12 áp lực quá lớn, chẳng nhẹ nhàng hơn học sinh các em là bao."
+"Áp lực dạy khối 12 lớn quá, chẳng thảnh thơi hơn đám học sinh các em là bao."
 
-Vừa nói, Trình Tử Liên vừa liếc nhìn ra ngoài cửa, nàng đóng cửa lại, nhưng lưỡng lự một chút rồi lại mở hé ra một khoảng.
+Vừa nói, Trình Tử Liên vừa liếc nhìn ra ngoài hành lang, khép cửa lại, nhưng ngập ngừng một thoáng rồi lại hé cửa ra một khe nhỏ.
 
-Ở khu tập thể giáo viên, giáo viên và học sinh ở riêng trong một phòng, nàng sợ bị người ta lời ra tiếng vào.
+Khu tập thể giáo viên, cô giáo và nam sinh ở riêng một phòng, không cẩn thận lại sợ người ta dị nghị, đàm tiếu.
 
-"Bên ngoài nóng lắm đúng không, vào thổi điều hòa này."
+"Ngoài trời nóng lắm đúng không, vào thổi điều hòa cho mát."
 
-Trình Tử Liên cầm điều khiển chỉnh nhiệt độ thấp xuống vài độ, rồi lại đi về phía tủ lạnh: "Uống gì nào? À đúng rồi, đám con trai các em đều thích uống Coca."
+Trình Tử Liên cầm điều khiển hạ bớt vài độ, rồi bước về phía tủ lạnh: "Uống gì nào? À phải rồi, con trai các em đứa nào cũng khoái uống Coca."
 
-Xoay người lại, nàng thấy Triệu Kim An vẫn còn đứng đó.
+Xoay người lại, cô thấy Triệu Kim An vẫn còn đứng ngay ngắn giữa phòng.
 
-"Ngồi đi chứ!"
+"Ngồi xuống đi chứ!"
 
-Nàng mỉm cười: "Có phải đang trong giờ học đâu mà bắt em đứng trả lời câu hỏi."
+Cô bật cười: "Có phải đang trong giờ học đâu mà cô bắt em đứng dậy trả lời câu hỏi."
 
-Triệu Kim An chạm tay vào lon Coca, không lạnh lắm, chắc là mới mua về, Trình Tử Liên hẳn là không uống loại này.
+Triệu Kim An chạm tay vào lon Coca, không lạnh lắm, chắc là vừa mới mua về, bình thường Trình Tử Liên hẳn là không uống loại nước ngọt này.
 
-"Em còn xách theo quả dưa hấu to thế này, mình cô sao ăn hết?"
+"Em còn vác cả quả dưa to tướng thế này sang, một mình cô ăn sao hết?"
 
-Nàng lại bưng ra một đĩa dưa hấu ướp lạnh đã cắt sẵn.
+Cô lại bưng ra một đĩa dưa hấu ướp lạnh đã bổ sẵn.
 
-Đứng trước bàn trà, nàng nhìn xuống Triệu Kim An: "Nghỉ hè em bận việc gì thế?"
+Đứng trước bàn trà, Trình Tử Liên từ trên cao nhìn xuống, chăm chú ngắm nhìn Triệu Kim An: "Cả kỳ nghỉ hè này em bận rộn những gì thế?"
 
-"Đánh cá ạ, em cùng với Triệu Chí Dũng ra sông đánh cá, sau đó mang ra chợ bán lấy tiền. Chỗ cá khô đưa cô là do em và Triệu Chí Dũng đánh được đấy ạ."
+"Em đi đánh cá ạ. Cùng Triệu Trí Dũng ra sông kích cá, rồi mang ra chợ bán kiếm tiền. Chỗ cá khô biếu cô cũng là do em với Trí Dũng tự tay bắt đấy ạ."
 
 Triệu Kim An thành thật trả lời.
 
-"Hèn chi đen đi một chút."
+"Hảo nào da dẻ đen đi một tông."
 
-Trình Tử Liên gật đầu, không hỏi tại sao hắn không tham gia tiệc tân khoa của bất kỳ bạn học nào nữa mà quay người đi vào bếp.
+Trình Tử Liên gật đầu, cũng không gặng hỏi vì sao cậu chẳng hề tham gia bất kỳ bữa tiệc mừng nào của bạn bè cùng lớp, rồi xoay người bước vào bếp.
 
-"Triệu Chí Dũng thì không nói làm gì, còn em đấy, thật là quá lười biếng!"
+"Cái thằng Trí Dũng thì cô không thèm nói tới làm gì, còn em ấy à, lười học quá đấy!"
 
-"Nếu em nỗ lực hơn một chút thì đâu chỉ đỗ vào Sư Đại. Nhìn lớp các em xem, ai mà đến cuối cùng chẳng phải liều mạng, chỉ có mỗi em là lớp 12 vẫn như lớp 10, lớp 11."
+"Nếu em chịu khó nỗ lực hơn một chút thì đâu chỉ dừng lại ở Đại học Sư phạm. Em nhìn khắp cái lớp 209 xem, giai đoạn cuối ai mà chẳng dốc hết sức bình sinh, chỉ có mỗi em là lên lớp 12 vẫn đủng đỉnh y như hồi lớp 10, lớp 11."
 
-"Cứ nhìn Mộc Dao và Du Phỉ mà xem, các bạn ấy đều cần cù hơn em nhiều!"
+"Cứ nhìn Mộc Dao với Du Phi mà xem, hai đứa nó đều chăm chỉ, chịu khó hơn em nhiều!"
 
-Trình Tử Liên thực sự thấy tiếc nuối, nàng cho rằng Triệu Kim An là người thông minh nhất lớp 209, nếu chăm chỉ hơn, không nói đến hai trường Thanh - Bắc, thì một trường 985 top đầu chắc chắn không thành vấn đề.
+Trình Tử Liên thực sự cảm thấy tiếc nuối từ tận đáy lòng. Cô luôn cho rằng đứa trẻ thông minh nhất lớp 209 chính là Triệu Kim An. Nếu cậu chịu dồn tâm sức, dẫu không dám mơ tới Thanh Hoa, Bắc Đại thì việc đỗ vào một trường 985 top đầu chắc chắn nằm trong tầm tay.
 
-"Cô Trình, em xin phép về ạ."
+"Thưa cô, em xin phép về trước ạ."
 
 Triệu Kim An đứng dậy.
 
-"Mới nói vài câu đã không vui rồi sao? Được rồi, không nói chuyện học hành nữa, các em đều tốt nghiệp cả rồi."
+"Mới nhắc nhở vài câu đã dỗi rồi đấy à? Thôi được rồi, không bàn chuyện học hành thi cử nữa, các em đều tốt nghiệp cả rồi."
 
-Trình Tử Liên đứng ở cửa bếp, ngoắc tay với Triệu Kim An: "Em qua đây."
+Trình Tử Liên đứng ở cửa bếp, vẫy vẫy tay với Triệu Kim An: "Em lại đây."
 
 "Dạ?"
 
-Triệu Kim An thầm nghĩ thế này không ổn lắm, trong bếp nóng lắm.
+Triệu Kim An nghĩ thầm trong bụng, thế này e là không tiện lắm, trong bếp nóng nực thế cơ mà.
 
-"Lại đây!"
+"Lại đây mau!"
 
-Trình Tử Liên lườm hắn một cái: "Giúp cô nấu cơm, ăn cơm tối xong rồi hãy về."
+Trình Tử Liên lườm cậu một cái: "Vào phụ cô nấu cơm, ăn tối xong rồi hẵng về."
 
 "Vâng ạ."
 
-Triệu Kim An ngoan ngoãn đi tới.
+Triệu Kim An ngoan ngoãn bước tới.
 
-Trình Tử Liên khẽ cười một tiếng, đúng là thật nghe lời.
+Trình Tử Liên khẽ bật cười, đúng là đứa trẻ nghe lời.
 
-Gian bếp rất chật hẹp, máy hút mùi là loại đời cũ, Trình Tử Liên mặc một chiếc áo len tăm ngắn tay ôm sát màu sẫm, đường nét bên trong ẩn hiện, vóc dáng có phần đẫy đà.
+Gian bếp khá chật chội, máy hút mùi là loại xả ngoài kiểu cũ. Trình Tử Liên đang mặc một chiếc áo dệt kim cộc tay bó sát màu sẫm, đường nét cơ thể ẩn hiện bên trong lấp ló đầy đặn, vóc dáng nở nang đẫy đà.
 
-Vẫn là câu nói đó, đứa trẻ nhà này chắc chưa bao giờ thiếu sữa.
+Vẫn là câu nói ấy, con cái cô chắc chắn chưa từng bị thiếu sữa bao giờ.
 
-Điểm khác biệt với Doãn Hiểu Lan là vòng eo của Trình Tử Liên dưới lớp áo len tăm có thể thấy rõ một vòng mỡ thừa nho nhỏ, chắc là do vấn đề tuổi tác.
+Điểm khác biệt duy nhất so với Doãn Hiểu Lan là vòng eo của Trình Tử Liên dưới lớp áo dệt kim ôm sát để lộ ra một ngấn mỡ thừa nho nhỏ, âu cũng là do quy luật của tuổi tác.
 
-Phụ nữ 40 tuổi, eo có chút thịt cũng là chuyện bình thường.
+Phụ nữ bốn mươi tuổi, eo bánh mì một chút cũng là chuyện hết sức bình thường.
 
-Với chiều cao 1m68, mái tóc dài buông xõa ngang vai, đây là lần đầu tiên Triệu Kim An thấy một cô Trình như thế này.
+Chiều cao 1m68, mái tóc dài xõa ngang vai bồng bềnh, đây là lần đầu tiên Triệu Kim An nhìn thấy một cô Trình mang dáng vẻ như thế này.
 
-Trong ấn tượng của hắn, Trình Tử Liên khi lên lớp thường buộc tóc đuôi ngựa cao, đeo kính gọng vàng, đứng trên bục giảng chỉ cần liếc mắt một cái là không ai dám nói chuyện riêng hay ngủ gật.
+Trong ấn tượng của cậu, mỗi khi lên lớp, cô Trình luôn buộc tóc đuôi ngựa cao vút, đeo kính gọng vàng trí thức. Đứng trên bục giảng, ánh mắt sắc sảo đảo qua một lượt là cả lớp im phăng phắc, chẳng đứa nào dám to nhỏ nói chuyện riêng hay gục đầu ngủ gật.
 
-Hít hà một chút, Triệu Kim An còn ngửi thấy mùi dầu gội đầu thoang thoảng, có chút nồng nàn.
+Khẽ hít một hơi, Triệu Kim An còn ngửi thấy mùi dầu gội thoang thoảng bay tới, hương thơm nồng nàn vương vấn.
 
-Cô Trình vừa mới tắm sao!?
+Cô Trình vừa mới tắm gội xong đấy à?!
 
-Cô... tại sao ban ngày ban mặt lại tắm rửa gội đầu thế này?
+Cô... sao cô lại đi tắm gội sạch sẽ thơm tho vào giữa ban ngày ban mặt thế này?
 
-"Kim An, cá là em mang tới, cô không biết làm đâu, em nấu cho cô ăn đi."
+"Kim An, cá là do em mang tới, cô không biết làm đâu, em nấu cho cô ăn đi."
 
-Trình Tử Liên như người không có việc gì, nàng vừa rửa rau vừa đứng song hàng với Triệu Kim An, khoảng cách rất gần.
+Trình Tử Liên như chẳng có chuyện gì xảy ra, cô thản nhiên rửa rau, rồi lại tiến đến đứng sóng đôi ngay sát cạnh Triệu Kim An.
 
-Ở đây, trong căn bếp này, chỉ có hai người, nàng và Triệu Kim An đứng sát sạt, cánh tay chạm vào cánh tay.
+Ở chốn này, trong gian bếp nhỏ hẹp chỉ có hai người, cô đứng sát sạt bên cạnh Triệu Kim An, cánh tay chạm hờ vào cánh tay.
 
-Điều quan trọng nhất là, "Triệu Kim An" đã biến thành "Kim An".
+Và điều mấu chốt nhất là, từ "Triệu Kim An" đã được cô đổi thành "Kim An" đầy thân mật.
 
-"Cô Trình, cô có ăn được cay không ạ?"
+"Cô Trình, cô có ăn được ớt không ạ?"
 
-Triệu Kim An lùi ra một bước nhỏ, hắn nghi ngờ hành động hôm nay của mình chẳng khác nào "tự dâng tận cửa".
+Triệu Kim An khẽ dịch sang bên một bước nhỏ. Cậu bắt đầu hoài nghi không biết hành động hôm nay của mình có phải là tự "dâng mỡ đến miệng mèo" hay không.
 
-Nếu lúc này cô Trình mà ra đề kiểm tra: Trong phản ứng trung hòa axit-bazơ, Axit (H+) và Bazơ (OH-) phản ứng sẽ tạo ra cái gì?
+Nếu lúc này mà cô Trình nổi hứng kiểm tra kiến thức: Trong phản ứng trung hòa axit - bazơ, giữa ion axit (H+) và ion bazơ (OH-) tác dụng với nhau sẽ sinh ra chất gì?
 
-Thì phải ứng phó thế nào đây?
+Thì cậu phải ứng phó làm sao đây?
 
-Đáp: Tạo ra (H2O) nước?
+Đáp án: Sinh ra Nước (H2O).

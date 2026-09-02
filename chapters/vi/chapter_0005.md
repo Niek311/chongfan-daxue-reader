@@ -1,181 +1,181 @@
-# Chương 5: Bán Cá À
+# Chương 5: Bán cá chứ làm gì.
 
-"Mộc Dao, Triệu Kim An không đến tìm cậu à?"
+> **Tiêu đề gốc**: 第5章 卖鱼啊。
 
-Mộc Dao diện một chiếc váy liền thân màu xanh nhạt thanh nhã, với chiều cao 1m66, vóc dáng nàng cao ráo lại thướt tha, tựa như đóa hoa vừa chớm nở trong nắng xuân.
+"Mộc Dao, Triệu Kim An không lên tìm cậu à?"
 
-Mái tóc đen dài xõa tự nhiên trên đôi vai, đôi chân xỏ vào cặp giày vải trắng, mỗi bước đi đều toát lên nhịp điệu nhẹ nhàng và linh động.
+Mộc Dao khoác trên mình chiếc váy liền thân màu xanh lam nhạt thanh nhã, vóc dáng cao ráo một mét sáu mươi sáu, đường nét cơ thể thướt tha mềm mại như đóa hoa trà vừa hé nở trong sớm mai đầu xuân.
 
-Sự nhẹ nhàng và linh động này dường như chỉ thuộc về những tân sinh viên hoặc sinh viên đại học. Bởi học sinh cấp ba luôn tất bật bước chân chỉ để học tập, phải sau kỳ thi đại học mới có thể hoàn toàn giải phóng bản tính.
+Mái tóc đen dài óng ả buông xõa hờ hững trên đôi vai thon gầy, dưới chân xỏ đôi giày vải trắng tinh khôi, từng bước chân bước đi đều toát lên nhịp điệu nhẹ nhàng, uyển chuyển đầy sức sống.
 
-Nàng có đôi mắt to trong trẻo và sáng ngời, loại con gái này rất dễ khơi dậy khao khát được che chở của phái nam.
+Cái nét thanh thoát, rạng ngời ấy dường như là đặc quyền riêng của những cô cậu tân sinh viên vừa bước qua ngưỡng cửa vũ môn.
 
-"Tìm rồi chứ."
+Thời học sinh cấp ba, bước chân ai nấy đều vội vã trong guồng quay bài vở thi cử ngập đầu, chỉ sau khi kỳ thi đại học khép lại, bản tính hồn nhiên, tươi trẻ mới thực sự được bung tỏa trọn vẹn.
 
-Mộc Dao nghiêng đầu nói: "Mấy ngày trước anh ấy có lên thành phố."
+Cô sở hữu một đôi mắt to tròn, trong veo như làn nước mùa thu, kiểu con gái mang vẻ đẹp thuần khiết này rất dễ khơi dậy bản năng muốn chở che, bảo bọc của cánh mày râu.
 
-"Thế hai người đã làm gì rồi?"
+"Có chứ."
 
-Một cô gái tên Du Phỉ thấp giọng trêu chọc: "Có đi khách sạn không đấy?"
+Mộc Dao khẽ nghiêng đầu đáp: "Mấy hôm trước cậu ấy có lên thị xã tìm mình rồi."
 
-"Kìa, làm sao có chuyện đó được."
+"Thế hai người đã làm những gì rồi?"
 
-"Sao lại không thể, chúng ta đều đã tốt nghiệp cấp ba rồi mà."
+Một cô bạn tên Du Phi ghé sát tai thì thào trêu chọc: "Đã dắt nhau vào khách sạn chưa đấy hả?"
 
-"Bọn mình chỉ đến quán trà sữa uống một ly, sau đó đi dạo phố đi bộ thôi."
+"Ôi chao, làm gì có chuyện đó chứ!" Mộc Dao đỏ bừng mặt thốt lên.
 
-Mộc Dao nói thật lòng.
+"Có gì mà không thể, tụi mình tốt nghiệp cấp ba rồi cơ mà!"
+
+"Tụi mình chỉ ghé quán trà sữa uống một ly, sau đó cùng nhau đi dạo quanh phố đi bộ thôi." Mộc Dao thật thà giãi bày.
 
 "Khụ!"
 
-Lúc này, một nam sinh đi phía trước khẽ ho một tiếng.
+Đúng lúc này, chàng trai đi đầu nhóm bỗng hắng giọng một tiếng đầy ẩn ý.
 
-Cô gái tên Lý Lị giống như nhận được tín hiệu, liền hỏi: "Thế lúc đi dạo phố, anh ta có mua gì cho cậu không?"
+Một cô bạn tên Lý Lợi như nhận được ám hiệu, lập tức cất giọng dò la: "Thế lúc đi dạo phố, cậu ta có mua quà cáp gì tặng cậu không?"
 
 Mộc Dao khẽ lắc đầu: "Không có."
 
-"Thật keo kiệt."
+"Gớm, ki bo thế!"
 
-Lý Lị bắt đầu châm chọc: "Cậu vừa mới đồng ý làm bạn gái mà anh ta đã keo kiệt với cậu như vậy rồi!"
+Lý Lợi lập tức châm dầu vào lửa: "Cậu vừa mới gật đầu đồng ý làm bạn gái người ta, thế mà cậu ta đã keo kiệt bủn xỉn với cậu như thế rồi!"
 
-Âu Cường đi phía trước thầm tặng cho Lý Lị một lời khen ngợi. Thật ra khi nghe Du Phỉ hỏi Mộc Dao có đi khách sạn hay không, hắn đã cảm thấy hơi căng thẳng, nếu thực sự đã đi thì mọi chuyện đều muộn mất rồi.
+Âu Cường đi phía trước thầm giơ ngón tay cái tán thưởng Lý Lợi trong lòng. Kỳ thực, vừa nãy nghe Du Phi hỏi Mộc Dao đã vào khách sạn với Triệu Kim An chưa, tim hắn đã thót lên tận cổ họng, lo lắng đến toát mồ hôi. Nếu như hai người họ đã gạo nấu thành cơm trong khách sạn rồi, thì mọi toan tính của hắn coi như đổ sông đổ biển hết.
 
-"Hừ, đồng ý rồi thì đã sao, mình vẫn có thể đập chậu cướp hoa như thường."
+"Hừ, đồng ý làm bạn gái mày thì đã sao, ông đây vẫn thừa sức đập chậu cướp hoa như thường!"
 
-Âu Cường sớm đã nắm rõ tình cảnh gia đình của Triệu Kim An, hắn rất tự tin vào bản thân.
+Âu Cường đã sớm nắm rõ như lòng bàn tay về hoàn cảnh gia đình nghèo khó của Triệu Kim An, hắn tràn trề tự tin vào bản thân.
 
-Có lẽ chính hắn cũng không ngờ sau kỳ thi đại học, Mộc Dao lại đồng ý lời tỏ tình của Triệu Kim An. Âu Cường cũng từng viết thư tình cho Mộc Dao, nhưng tất cả đều như đá chìm đáy bể, không nhận được bất kỳ phản hồi nào.
+Có lẽ chính bản thân hắn cũng chẳng ngờ nổi sau kỳ thi tốt nghiệp, Mộc Dao lại gật đầu nhận lời tỏ tình của Triệu Kim An nhanh đến thế. Bản thân Âu Cường từng viết không biết bao nhiêu bức thư tình mùi mẫn gửi cho nàng hoa khôi, nhưng tất cả đều như đá chìm đáy biển, chẳng nhận lại lấy một dòng hồi âm.
 
-"Mình không cần anh ấy mua gì cả."
+"Mình đâu có cần cậu ấy phải mua đồ cho đâu."
 
-Nghe thấy có người nói bạn trai mình như vậy, Mộc Dao có chút không vui, nàng nói: "Bọn mình đều là học sinh, lấy đâu ra tiền chứ."
+Nghe người khác nói xấu bạn trai mình, Mộc Dao có chút không vui. Cô cất lời bênh vực: "Tụi mình đều đang là học sinh cả, đã tự kiếm ra tiền đâu."
 
-"Đúng vậy!" Du Phỉ phụ họa một câu.
+"Đúng thế đấy!" Du Phi lập tức lên tiếng phụ họa.
 
-Nàng vốn không thích hạng người như Lý Lị, cùng một lớp mà lại thích đi soi mói gây chuyện như thế.
+Cô vốn chẳng ưa cái thói thích đâm bị thóc chọc bị gạo của Lý Lợi, cùng học chung một lớp bao nhiêu năm mà cứ hở ra là châm chọc, chia rẽ người khác.
 
-"Đúng là một cô gái tốt."
+"Quả đúng là một cô gái tốt..."
 
-Âu Cường thầm cảm thán trong lòng. Một cô gái vừa xinh đẹp lại có tam quan chính trực như vậy thật quá hiếm có, hắn càng cảm thấy Triệu Kim An đúng là gặp được vận may từ trên trời rơi xuống.
+Âu Cường thầm cảm thán trong lòng. Một cô gái vừa xinh đẹp tuyệt trần lại vừa có tam quan chuẩn mực, thấu tình đạt lý như thế này quả thực hiếm có khó tìm trên đời. Hắn càng nghĩ lại càng thấy tức tối, cho rằng Triệu Kim An chẳng qua chỉ là gặp may mắn dẫm phải cứt chó mà thôi.
 
-"Hiện tại chúng ta đều tiêu tiền của gia đình, tuy nhiên..."
+"Bây giờ tụi mình vẫn đang phải ngửa tay xin tiền gia đình, nhưng mà..."
 
-Âu Cường quay người lại, ra vẻ thấu tình đạt quang tiếp lời: "Đi khu trò chơi hay rạp chiếu phim cũng đâu tốn bao nhiêu tiền, tổng không thể để chúng ta bây giờ đã phải đi kiếm tiền chứ?"
+Âu Cường xoay người lại, tỏ vẻ ân cần thấu hiểu tiếp lời: "Khu trò chơi điện tử với rạp chiếu phim thì tốn kém đáng bao nhiêu tiền đâu chứ, chẳng lẽ lại bắt chúng ta bây giờ phải tự bươn chải ra ngoài kiếm tiền sao?"
 
-"Lớp trưởng, cậu đỗ Phúc Đán, chắc gia đình thưởng cho nhiều tiền tiêu vặt lắm nhỉ?"
+"Lớp trưởng này, cậu thi đỗ Phục Đán, chắc hẳn bố mẹ thưởng cho cậu nhiều tiền tiêu vặt lắm nhỉ?"
 
-Quả nhiên, ngay lập tức có người hỏi đến vấn đề này.
+Quả nhiên, lập tức có người bắt trúng sóng, tò mò hỏi ngay.
 
-"Năm nghìn!"
+"Năm ngàn tệ!"
 
-Âu Cường xòe một bàn tay ra đầy đắc ý: "Ba mình cho năm nghìn, ông nội cho năm nghìn, mẹ mình còn bảo kỳ nghỉ hè này sẽ đưa mình đi du lịch nước ngoài."
+Âu Cường xòe trọn một bàn tay năm ngón ra trước mặt mọi người, vẻ mặt đắc chí vô cùng: "Bố mình thưởng năm ngàn, ông nội cho năm ngàn, mẹ mình còn hứa hè này sẽ dắt mình đi du lịch nước ngoài một chuyến nữa cơ."
 
-"Chậc chậc chậc, thế thì kỳ nghỉ này cậu sướng nhất rồi."
+"Chậc chậc chậc, thế thì mùa hè này cậu tha hồ mà xõa, sướng nhất quả đất rồi nhé!"
 
-Chủ đề lại xoay quanh Âu Cường. Bọn họ đều biết cha của Âu Cường làm việc ở Ủy ban Cải cách và Phát triển.
+Chủ đề câu chuyện lại nhanh chóng xoay quanh Âu Cường. Đám bạn đều biết rõ bố của Âu Cường là cán bộ công tác tại Ủy ban Phát triển và Cải cách thị xã.
 
-Thật ra điều kiện gia đình của mấy người họ đều khá ổn, vốn dĩ đều ở trên thành phố.
+Kỳ thực điều kiện gia đình của nhóm học sinh này đều thuộc diện khá giả, nhà đều ở khu vực trung tâm thị xã.
 
-Nhóm người cũng vừa mới từ khu trò chơi đi ra, ba cô gái ôm trong lòng mấy con gấu bông, đám nam sinh thì cầm lon Coca trên tay.
+Mấy đứa vừa từ khu vui chơi giải trí bước ra, ba cô bạn gái ôm trong lòng mấy con thú nhồi bông xinh xắn vừa gắp được, mấy cậu con trai thì tay cầm lon Coca mát lạnh.
 
-Đây đều là thu hoạch của bọn họ ở khu trò chơi chiều nay.
+Đó đều là những chiến lợi phẩm sau một buổi chiều xả hơi tại trung tâm thương mại.
 
-Không giống như Triệu Kim An hay Triệu Chí Dũng, đối với một số người, để lên thành phố một chuyến vốn không hề dễ dàng.
+Họ không giống như Triệu Kim An hay Triệu Trí Dũng, với nhiều học sinh ở vùng quê xa xôi, việc bắt một chuyến xe lên thị xã chơi thôi đã là cả một sự khó khăn, vất vả.
 
-Càng đừng nói đến chuyện dăm ba bữa lại tụ tập bạn bè.
+Chứ đừng nói đến chuyện ba bữa nửa tháng lại tụ tập ăn chơi một lần.
 
-Trường Trung học số 1 thành phố có rất nhiều học sinh thi đỗ từ các vùng nông thôn hay thị trấn. Họ muốn lên thành phố phải ngồi xe khách hai ba tiếng đồng hồ, mỗi lần lên phố tụ tập với bạn bè, trong túi ít nhất cũng phải dắt theo hai ba trăm tệ.
+Trường Trung học Số 1 có rất nhiều học sinh thi đỗ từ các vùng nông thôn, xã huyện nghèo lên. Mỗi lần lên thị xã gặp gỡ bạn bè, họ phải ngồi xe đò tuyến huyện xóc nảy suốt hai ba tiếng đồng hồ, trong túi bét nhất cũng phải thủ sẵn hai ba trăm tệ để trang trải.
 
-Thỉnh thoảng đi một lần thì được, chứ không thể đi mãi được.
+Thỉnh thoảng đi một lần thì còn gượng được, chứ làm sao có thể tham gia thường xuyên cho thấu.
 
-"Mộc Dao, tối nay đi KTV nhé, phần của cậu mình bao!"
+"Mộc Dao này, tối nay đi hát karaoke ở quán KTV nhé, phần tiền của cậu cứ để mình bao trọn gói!"
 
-Lòng hư vinh của Âu Cường được thỏa mãn cực độ, hắn cầm điện thoại lên xem giờ rồi nói tiếp: "Bọn Lão Điền sắp đến rồi, chúng ta phải ra bến xe đón họ, sau đó còn đưa họ đi ăn nữa."
+Lòng hư vinh của Âu Cường được ve vuốt đến tột độ, hắn rút chiếc điện thoại đời mới ra liếc nhìn đồng hồ rồi nói tiếp: "Nhóm thằng Điền sắp lên tới nơi rồi, tụi mình phải qua bến xe đón tụi nó, sau đó dẫn cả hội đi ăn tối nữa."
 
-Một câu nói này lại thể hiện rõ Âu lớp trưởng có nhân duyên tốt, năng lực tổ chức mạnh.
+Chỉ một câu nói ngắn gọn đã khéo léo phô diễn bản lĩnh quan hệ rộng rãi và năng lực tổ chức tài tình của chàng lớp trưởng tài ba.
 
-"Lớp trưởng, còn bọn mình thì sao? Cậu chỉ bao mỗi phần của Mộc Dao thôi à?"
+"Ơ kìa lớp trưởng, còn phần của tụi mình thì sao? Cậu chỉ bao mỗi phần của Mộc Dao thôi à?"
 
-"Đúng đúng đúng, có phúc cùng hưởng, phần của bọn mình cậu cũng phải bao hết, không được trọng sắc khinh bạn đâu nhé."
+"Đúng đúng đúng! Có phúc cùng hưởng chứ, nghe thấy là phải có phần, cậu phải bao trọn gói cho tất cả tụi mình, không được có thói trọng sắc khinh bạn đâu đấy nhé!"
 
-Một nhóm người nói nói cười cười, con gái thì khoác tay nhau, con trai thì bá vai bá cổ.
+Cả nhóm lại rôm rả trêu đùa, các cô gái khoác tay nhau tíu tít, đám con trai thì bá vai bá cổ cười đùa.
 
-Nghe thấy bốn chữ "trọng sắc khinh bạn", Âu Cường liếc trộm Mộc Dao một cái, bởi vì từ ngữ này mang theo ý vị mập mờ.
+Nghe thấy bốn chữ "trọng sắc khinh bạn", Âu Cường lén đưa mắt liếc trộm Mộc Dao một cái, bởi cụm từ ấy vốn dĩ mang hàm ý mập mờ đầy tình ý.
 
-Mộc Dao nhíu mày từ chối: "Không cần đâu, đã nói trước là theo chế độ AA rồi, phần của mình mình tự trả."
+Mộc Dao khẽ nhíu mày, thẳng thừng từ chối: "Không cần đâu, tụi mình đã thống nhất từ đầu là chia đều tiền rồi, phần của mình thì mình sẽ tự trả."
 
-"Mộc Dao, tối nay Triệu Kim An có đến tụ tập không?"
+"Mộc Dao ơi, tối nay Triệu Kim An có đến họp lớp không vậy?"
 
-Du Phỉ lên tiếng hỏi.
+Du Phi lên tiếng hỏi.
 
-Mộc Dao nhìn điện thoại: "Hôm nay anh ấy không nói gì trong nhóm cả, gọi điện thì máy lại tắt."
+Mộc Dao cúi đầu nhìn màn hình điện thoại: "Hôm nay cậu ấy không thấy nhắn tin trong nhóm lớp, mình gọi điện thì thấy máy báo thuê bao không liên lạc được."
 
-"Hình như đằng kia là Triệu Kim An thì phải, còn có cả Triệu Chí Dũng nữa."
+"Ơ kìa, đằng trước hình như là Triệu Kim An với Triệu Trí Dũng thì phải!"
 
-Lúc này, bỗng có người chỉ vào hai bóng người phía trước nói lớn.
+Đúng lúc này, một cậu bạn trong nhóm bỗng chỉ tay về phía hai bóng người phía xa thốt lên.
 
-"Đúng là họ thật."
+"Đúng là bọn họ rồi!"
 
-"Họ làm gì ở đó thế?"
+"Hai đứa nó ngồi làm cái trò gì ở đấy thế nhỉ?"
 
-"Đi, qua đó xem thử!"
+"Đi, qua xem thử coi!"
 
-Âu Cường nhìn kỹ lại một chút rồi vung tay lên.
+Âu Cường nheo mắt nhìn kỹ một hồi rồi vung tay ra hiệu cho cả nhóm.
 
-Nếu nói về đẹp trai, hắn thực sự không có can đảm so bì với Triệu Kim An. Thằng nhóc kia đúng là đẹp mã thật, ngay cả thầy giáo dạy Hóa đã ngoài bốn mươi tuổi, một người nghiêm khắc và nghiêm túc như vậy mà cũng bị hắn làm cho quý mến không thôi.
+Nếu bàn về độ đẹp trai, hắn thực sự không đủ dũng khí để đứng cạnh so bì với Triệu Kim An. Thằng nhóc ấy quả thực sở hữu gương mặt điển trai đến mức khó tin, ngay cả cô giáo dạy Hóa học họ Trình ngoài bốn mươi tuổi — một người nổi tiếng nghiêm khắc, lạnh lùng như băng đá — cũng bị nét khôi ngô, tuấn tú của anh làm cho mê mẩn.
 
-Đây không phải là bí mật gì trong lớp chọn của họ.
+Chuyện này trong lớp chọn 209 chẳng phải là điều bí mật gì.
 
-Thầy Trình đối với ai cũng rất khắt khe, duy chỉ có đối với Triệu Kim An là đặc biệt ôn hòa.
+Cô Trình đối với bất kỳ học sinh nào cũng vô cùng nghiêm nghị, nhưng hễ cứ đối diện với Triệu Kim An là giọng điệu lại dịu dàng như nước mùa thu.
 
-Triệu Kim An có bài tập nào không hiểu, thầy Trình hận không thể dạy cho hắn mười lần tám lượt.
+Có bài tập nào Kim An không hiểu, cô Trình sẵn lòng kiên nhẫn giảng đi giảng lại cho anh cả chục lần không biết mệt.
 
-Thế nhưng Âu Cường bây giờ đã đỗ vào Phúc Đán, quan trọng nhất là hắn phát hiện Triệu Kim An và Triệu Chí Dũng dường như đang bán rau, cảm giác ưu việt lập tức dâng trào.
+Thế nhưng giờ đây Âu Cường đã cầm chắc tấm vé bước vào Đại học Phục Đán danh giá, và quan trọng nhất là hắn vừa phát hiện ra Triệu Kim An cùng Triệu Trí Dũng dường như đang ngồi bệt bên lề đường bán rau cá, cảm giác tự tôn và ưu việt của tầng lớp thượng lưu trong lòng hắn lập tức trỗi dậy mạnh mẽ.
 
-Cứ như vậy, ba nữ bốn nam, bảy người bạn cùng lớp chọn tiến về phía Triệu Kim An.
+Thế là, ba cô gái và bốn chàng trai — bảy học sinh ưu tú của lớp chọn cùng sải bước tiến về phía góc chợ nơi Triệu Kim An đang ngồi.
 
-Chợ rau rất đông đúc, hai bên đường phía ngoài cũng bày la liệt các loại sạp hàng, người qua kẻ lại tấp nập.
+Khu vực chợ chiều đông đúc người qua kẻ lại, dọc hai bên lề đường bày la liệt các loại sạp hàng tự phát, tiếng ồn ào chen lẫn những mùi hương hỗn tạp, có phần tanh nồng khó ngửi.
 
-Không gian còn tràn ngập đủ loại mùi vị không mấy dễ chịu.
+Kỳ thực Mộc Dao vừa nhìn từ xa đã nhận ra ngay chàng trai đang ngồi trên bậc thềm đá kia chính là bạn trai của mình — Triệu Kim An.
 
-Thật ra Mộc Dao chỉ nhìn một cái là nhận ra ngay, chàng trai đang ngồi trên bậc thang kia chính là bạn trai mình, Triệu Kim An.
+Nhưng khi bước chân càng đến gần, nhịp bước của Mộc Dao bỗng chốc có phần ngập ngừng, lưỡng lự.
 
-Tuy nhiên khi càng đến gần, bước chân của Mộc Dao lại có chút ngập ngừng.
+Bởi vì cô cũng đã nhận ra, Triệu Kim An hình như đang ngồi bán cá ven đường.
 
-Bởi vì nàng cũng phát hiện ra Triệu Kim An dường như đang bán rau.
+Cảm giác này diễn tả thế nào nhỉ?
 
-Chuyện này phải nói thế nào nhỉ?
+Nó giống như cảm giác khi bố mẹ bạn bày sạp hàng rong bán đồ ăn vặt ngay trước cổng trường học;
 
-Giống như cha mẹ bạn bày hàng bán đồ ăn vặt ngay cổng trường;
+Giống như lúc phụ huynh của bạn bè đều lái xe hơi bóng loáng đến đón con tan học, còn bố mẹ bạn lại còng lưng đạp chiếc xe ba gác cà tàng...
 
-Giống như cha mẹ người khác lái ô tô đến đón con tan học, còn cha mẹ bạn lại đạp chiếc xe ba bánh vậy.
+"Triệu Kim An, hai cậu làm cái gì ở đây thế này?"
 
-"Triệu Kim An, các cậu làm gì ở đây thế?"
+Cách một đoạn chừng năm sáu mét, Du Phi đã cất giọng gọi to: "Tụi mình vừa mới bàn tán xem tối nay cậu với Triệu Trí Dũng có đi liên hoan không, Mộc Dao bảo gọi cho cậu thì máy toàn báo tắt nguồn thôi đấy!"
 
-Cách một khoảng chừng năm sáu mét, Du Phỉ đã lớn tiếng gọi: "Bọn mình vừa mới thảo luận xem cậu và Triệu Chí Dũng có đến tụ tập không, Mộc Dao nói điện thoại cậu tắt máy rồi."
+Nghe tiếng gọi, Triệu Kim An ngước mắt nhìn về phía Du Phi, thấy gương mặt này có phần quen thuộc, nhưng trong thoáng chốc anh nhất thời không tài nào nhớ nổi tên cô bạn là gì.
 
-Triệu Kim An nghe tiếng nhìn về phía Du Phỉ, cảm thấy hơi quen mặt nhưng nhất thời chưa gọi được tên.
-
-Hắn không nhận thấy Triệu Chí Dũng có chút muốn né tránh, có lẽ là cảm thấy việc bán rau bị bạn học cùng lớp bắt gặp có hơi mất mặt.
+Anh không để ý thấy Triệu Trí Dũng đứng bên cạnh đang bối rối tìm cách né tránh, có lẽ thằng nhóc cũng cảm thấy chuyện ngồi bán cá ven đường bị bạn bè cùng lớp bắt quả tang thế này quả thực có phần mất mặt, xấu hổ.
 
 "Kim An..."
 
-Triệu Kim An nghe tiếng lại nhìn về phía Mộc Dao. Nàng đứng hơi lùi lại sau Du Phỉ nửa bước. Người này hắn nhận ra, là Mộc Dao của tuổi mười tám.
+Nghe thấy thanh âm dịu dàng ấy, Triệu Kim An lại chuyển ánh nhìn sang Mộc Dao. Cô đứng nép phía sau Du Phi nửa bước chân. Người này thì anh nhận ra, chính là Mộc Dao của tuổi mười tám trăng tròn.
 
-"Anh làm gì ở đây vậy?" Mộc Dao khẽ hỏi.
+"Cậu đang làm gì ở đây thế?" Mộc Dao khẽ cất tiếng hỏi, ánh mắt long lanh đầy vẻ bối rối.
 
-"Bán cá thôi."
+"Bán cá chứ làm gì."
 
-Triệu Kim An không đứng dậy, hắn vẫn ngồi trên bậc thang, chỉ khẽ hất đầu về phía cái giỏ cá phía trước.
+Triệu Kim An không hề đứng dậy, anh vẫn điềm nhiên ngồi tựa lưng trên bậc thềm đá, chỉ khẽ hất cằm về phía giỏ cá trước mặt.
 
-Mộc Dao nhìn Triệu Kim An chằm chằm, thật ra nàng muốn nghe hắn nói rằng hắn chỉ đi theo để bầu bạn với Triệu Chí Dũng mà thôi.
+Mộc Dao mở to đôi mắt long lanh nhìn trân trân vào Triệu Kim An, thực lòng trong sâu thẳm tâm trí, cô rất muốn nghe anh nói rằng anh chỉ là đi theo phụ giúp cho Triệu Trí Dũng cho vui mà thôi.
 
-Triệu Kim An cũng ngẩng đầu nhìn Mộc Dao, trên mặt nở một nụ cười nhàn nhạt.
+Triệu Kim An cũng ngẩng đầu nhìn Mộc Dao, trên gương mặt tuấn tú điểm một nụ cười thản nhiên, nhẹ nhõm.
 
-Mộc Dao mới chỉ vài ngày không gặp Triệu Kim An, nhưng Triệu Kim An thì đã rất, rất lâu rồi mới lại thấy nàng.
+Mộc Dao mới chỉ xa Triệu Kim An có vài ngày ngắn ngủi, nhưng đối với Triệu Kim An, đó đã là cả một kiếp người xa cách ngút ngàn.
 
-"Về nước, con gái hai tuổi."
+"Về nước... một đứa con gái hai tuổi."
 
-"Nó vừa gọi điện cho tao, hỏi mày đang ở đâu."
+"Cô ấy vừa gọi điện cho tao, hỏi thăm xem mày đang ở đâu kìa..."
 
-Triệu Kim An lại nhớ đến cuộc điện thoại mà Triệu Chí Dũng đã gọi trước khi hắn trùng sinh.
+Trong tâm trí Triệu Kim An, cuộc điện thoại của Triệu Trí Dũng trước lúc anh nhắm mắt ở kiếp trước lại một lần nữa vang vọng...

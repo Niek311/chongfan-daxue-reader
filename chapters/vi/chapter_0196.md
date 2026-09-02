@@ -1,187 +1,187 @@
-# Chương 196: Từ tắc thì tòa nhà không biết nữ nhi giao thiệp.
+# Chương 196: Từ Tắc Đống không hề biết các mối quan hệ của con gái
 
-Triệu Kim An: vì cái gì nói xin lỗi?
+> **Tiêu đề gốc**: 第196章 徐则栋不知道女儿的人脉。
 
-Đây là Từ Mạn Mạn lần thứ hai đối với Triệu Kim An nói"có lỗi với."
+Triệu Kim An: [Sao lại nói xin lỗi?]
 
-Lần đầu tiên là đạt đến nhiên ly, Từ Mạn Mạn chỉ coi rồi mấy ngày người tình nguyện liền thối lui ra khỏi.
+Đây là lần thứ hai Từ Mạn Mạn nói câu "xin lỗi" với Triệu Kim An.
 
-Bởi vì trần trạch tại Q Q bên trên đối với Từ Mạn Mạn nói, không thích.
+Lần đầu tiên là hồi Cúp Trăn Nhiên, Từ Mạn Mạn chỉ làm tình nguyện viên được vài ngày rồi xin rút. Bởi vì khi ấy, Trần Trạch đã nhắn trên QQ với cô rằng cậu ta không thích.
 
-Man thương thương: ta thất tín.
+Mạn Đau Đau: [Tớ thất hứa rồi.]
 
-Man thương thương: đáp ứng ngươi đi ăn thức ăn tự chọn, ta hôm nay không đi được.
+Mạn Đau Đau: [Đã hứa đi ăn buffet với cậu, nhưng hôm nay tớ không đi được nữa.]
 
-Từ Mạn Mạn một cái tin tức chia tách thành hai đầu phát.
+Từ Mạn Mạn tách một tin nhắn thành hai dòng gửi đi.
 
-Chỉ có chính nàng biết"ta thất tín"mấy chữ đại biểu nội tâm mình cái gì ý tưởng chân thật, cái tin này nàng không phải phát cho Triệu Kim An của, càng giống là đối một chính mình khác nói.
+Chỉ riêng cô mới hiểu mấy chữ "Tớ thất hứa rồi" mang hàm ý gì trong sâu thẳm cõi lòng. Dòng tin này chẳng hẳn gửi cho Triệu Kim An, mà giống như cô đang tự nói với một bản ngã khác của chính mình.
 
-Từ Mạn Mạn không đợi Triệu Kim An thư hồi âm.
+Gửi xong, Từ Mạn Mạn không đợi Triệu Kim An trả lời.
 
-Nàng biết Triệu Kim An rất yên tĩnh, không nói nhiều, hôm qua @ mình đã thật bất ngờ rồi.
+Cô biết Triệu Kim An vốn là người trầm lặng, ít lời. Hôm qua việc cậu ta chủ động gắn thẻ cô trong nhóm đã là chuyện ngoài sức tưởng tượng, hôm nay lại nói nhiều khác thường, thậm chí còn nhắn tin riêng với cô.
 
-Lời ngày hôm nay giống như đặc biệt nhiều, còn cùng chính mình nói chuyện riêng.
+Nào ngờ chỉ lát sau, Triệu Kim An lại nhắn tiếp một câu.
 
-Chưa từng nghĩ sau một lát Triệu Kim An lần nữa thư hồi âm.
+Triệu Kim An: [Bây giờ tớ đang ở ngay trước cổng khu chung cư nhà cậu.]
 
-Triệu Kim An: ta bây giờ tại nhà ngươi cửa tiểu khu.
+Nhìn vào bóng hình mình phản chiếu trong gương, Từ Mạn Mạn bỗng bật cười, một nụ cười thê lương mà thắt nghẹn. Hai dòng lệ trong suốt từ khóe mi lăn dài, chảy dọc theo đôi gò má vốn trắng ngần thanh tú...
 
-Nhìn xem trong gương chính mình, Từ Mạn Mạn đột nhiên cười một tiếng, lộ ra thê mỹ nụ cười, hai hàng thanh lệ từ khóe mắt trượt xuống, theo trắng nõn khuôn mặt dễ nhìn gò má....
+À phải rồi, gương mặt lúc này đâu còn thanh tú nữa, Từ Tắc Đống xuống tay thực sự quá tàn nhẫn.
 
-Tốt a, khuôn mặt không dễ nhìn như vậy rồi, từ tắc thì tòa nhà ra tay là thực sự hung ác.
+Trắng ngần sao?
 
-Trắng nõn?
+Mặt cô lúc này vẫn đỏ rực, nhìn một cái là biết ngay dấu vết của những cái tát trời giáng.
 
-Khuôn mặt bây giờ còn là đỏ, xem xét chính là bàn tay phiến của.
+Trong khoang miệng còn nồng nặc mùi máu tanh, nhổ ra bồn rửa toàn là bọt máu tươi.
 
-Trong miệng có mùi tanh, phun ra là huyết.
+Mạn Đau Đau: [Triệu Kim An, hôm nay tớ thực sự có việc bận nên không đi được.]
 
-Man thương thương: Triệu Kim An, ta hôm nay thật có chuyện không đi được.
+Bộ dạng này đừng nói là đi ăn buffet, ngay cả trường học cô cũng chẳng dám về, không thể nào lên lớp nổi. Đôi tay Từ Mạn Mạn đặt trên bàn phím, gõ rồi xóa, đắn đo một hồi lâu mới gửi đi dòng tin nhắn ấy.
 
-Cái dạng này đừng nói ăn thức ăn tự chọn, trường học đều không cách nào trở về, không có cách nào lên lớp, Từ Mạn Mạn hai tay thả bàn phím xóa cắt giảm giảm một hồi lâu mới hồi phục như thế cái tin tức.
+"Cốc, cốc."
 
-"đông, đông."
+"Mạn Mạn, con mở cửa ra đi, mẹ mang thuốc vào cho con này."
 
-"Mạn Mạn, ngươi mở cửa, mụ mụ lấy thuốc cho ngươi tới."
+Bên ngoài phòng khách đã dứt tiếng khóc lóc om sòm, Lương Huệ Trân khẽ gõ cửa.
 
-Bên ngoài phòng khách không có tiếng khóc rống, lương Tuệ Trân gõ cửa.
+"Mạn Mạn, là mẹ đây, con mở cửa ra để mẹ bôi thuốc cho con."
 
-"Mạn Mạn, là mẹ a, ngươi mở cửa, mụ mụ lau cho ngươi thuốc."
+Bên trong im lìm một hồi lâu, mãi mới truyền ra giọng nói bình thản đến lạ lùng:
 
-Bên trong qua một hồi lâu mới truyền ra rất"bình thường"của âm thanh.
+"Trong phòng con có thuốc rồi."
 
-"phòng ta có thuốc."
+Người ta thường bảo, không có hy vọng thì sẽ chẳng có thất vọng. Nỗi thất vọng mà Từ Mạn Mạn dành cho mẹ còn lớn hơn cả dành cho cha.
 
-Có đôi lời nói, không có hi vọng liền không có thất vọng, Từ Mạn Mạn đối với mụ mụ thất vọng lớn hơn phụ thân.
+Đặc biệt là khi nghe mẹ bênh vực rằng Trần Trạch "vẫn còn nhỏ dại", Từ Mạn Mạn chỉ thấy châm biếm khôn cùng. Không phải châm biếm Trần Trạch, mà là tự giễu mẹ và chính bản thân mình — châm biếm việc cô từng ngây thơ hy vọng mẹ có thể đứng ra nói giúp mình vài lời công đạo.
 
-Đặc biệt là nghe được mụ mụ nói trần trạch"còn nhỏ", Từ Mạn Mạn cảm thấy hảo châm chọc, không phải châm chọc trần trạch, là châm chọc mụ mụ cùng mình, châm chọc chính mình thế mà hi vọng mụ mụ có thể nói vài câu lời công đạo.
+Bên ngoài phòng khách lại vang lên tiếng khóc lóc nỉ non của Lương Huệ Trân.
 
-Bên ngoài phòng khách lại truyền tới lương Tuệ Trân tiếng khóc rống.
+Từ Mạn Mạn càng thấy mỉa mai hơn, chỉ cảm thấy không gian bên ngoài ồn ào đến phát ngột.
 
-Từ Mạn Mạn càng thấy châm biếm, cảm thấy bên ngoài thật ồn ào.
+...
 
-Cửa tiểu khu.
+Trước cổng khu chung cư.
 
-Đơn vĩ nhìn xem thời gian, cũng tại cái này ngừng 2 0 phút, nhìn mắt kính chiếu hậu:"lão bản, đi sao?"
+Đơn Vĩ nhìn đồng hồ, chiếc xe đã đỗ ở đây suốt hai mươi phút. Anh liếc nhìn qua gương chiếu hậu: "Sếp, chúng ta đi chứ?"
 
-"đi thôi."
+"Đi thôi."
 
-Đơn vĩ nhìn mắt ngoài cửa sổ xe, yên lặng nhớ kỹ cái tiểu khu này.
+Đơn Vĩ nhìn qua cửa kính xe, âm thầm ghi nhớ khu chung cư này vào trong đầu.
 
-Đây là lão bản một lần duy nhất, còn có một lần là sâm thành của quầy đồ nướng.
+Đây là lần duy nhất sếp của anh làm việc này. À không, trước đó còn có một lần ở quán đồ nướng tại Sâm Châu nữa.
 
-"ngươi biết cái gì là chó sao?"
+"Anh có biết 'liếm cẩu' là gì không?"
 
-Sau khi nghe được xếp hàng tra hỏi, đơn vĩ có chút sững sờ, lão bản từ trước tới giờ không cùng mình trò chuyện đề lời nói với người xa lạ.
+Nghe câu hỏi từ hàng ghế sau, Đơn Vĩ thoáng ngẩn người. Trước giờ sếp chẳng bao giờ tán gẫu chuyện ngoài lề với anh.
 
-Đơn vĩ suy nghĩ một hồi:"lão bản, là đuổi tới của ý tứ sao?"
+Đơn Vĩ suy nghĩ một lát: "Sếp, có phải là kiểu cứ cố xáp lại, mặt dày bám riết lấy người ta không ạ?"
 
-"đúng, hiểu như vậy cũng đối."
+"Đúng, hiểu theo nghĩa đó cũng chuẩn."
 
-Phải nói đơn vĩ của giảng giải càng thêm chính xác, Triệu Kim An một thế này lần thứ nhất chủ động, từ hôm qua cho tới hôm nay biểu hiện rất chủ động, thậm chí có chút ép buộc Từ Mạn Mạn của ý tứ.
+Phải nói cách giải thích của Đơn Vĩ còn chuẩn xác hơn. Đây là lần đầu tiên Triệu Kim An ở kiếp này chủ động đến thế. Từ hôm qua đến hôm nay, cậu thể hiện vô cùng tích cực, thậm chí còn có chút ép buộc Từ Mạn Mạn: Xe tôi đã đỗ trước cổng nhà cậu rồi đấy, mau ra đây đi!
 
-Ta xe ngay tại cửa nhà ngươi, nhanh lên đi ra!
+Bữa buffet tối nay đành gác lại. Cốc Siêu Thừa là người đầu tiên lên tiếng trong nhóm chat, bảo rằng Từ Mạn Mạn bận việc, hay là đổi sang dịp khác?
 
-Tiệc đứng không có đi thành, đáy vực siêu nhận thứ nhất ở trong bầy nói Từ Mạn Mạn có việc, nếu không thì liền thay cái thời gian?
+Diêu Sân lập tức tán thành.
 
-Diêu tân lập tức biểu thị tán thành.
+Thẩm Tử Ngôn và Mộc Dao cũng không có ý kiến gì.
 
-Thẩm tử giảng hòa Mộc Dao đều không ý kiến gì.
+Có lẽ Mộc Dao còn hơi tiếc nuối vì thói háu ăn, còn Thẩm Tử Ngôn thuần túy chỉ xem đây là buổi tụ tập cho vui.
 
-Có thể Mộc Dao còn có chút tham ăn, thẩm tử nói thuần túy là chơi vui.
+Chỉ có Lưu Sấm Phong là sốt sắng gắn thẻ Triệu Kim An: [Kim An, kèo này vẫn tính chứ? Trưa nay tao nhịn bụng không ăn gì rồi đấy, bây giờ bụng đang sôi ùng ục lên đây này.]
 
-Chỉ có lưu xông phong @ Triệu Kim An: Kim An, cái này giữ lời đi? Ta hôm nay giữa trưa liền giữ lại bụng chưa ăn cơm rồi, bây giờ đói bụng sôi ục ục.
+Sân Hảo Hữu Nê: [O(∩_∩)O ha ha~]
 
-Tân thật có ngươi: O (∩ _ ∩) O ha ha ~
+Thẩm Tử Ngôn: [Lưu Sấm Phong, cậu thật là... Đừng có chọc bọn này cười nữa.]
 
-Thẩm tử nói: lưu xông phong, ngươi thật sự... Đừng đùa chúng ta cười.
+Lưu Xuyên Phong: [Thật mà, tao đang tính tối nay ăn cho bằng hết vốn mới thôi.]
 
-Lưu Xuyên Phong: thật sự, ta chuẩn bị ban đêm ăn đủ vốn của.
+Dao Dao Thỏ: [Cậu có thể ăn bù luôn phần của hai người.]
 
-Dao Dao thỏ: ngươi có thể ăn hai người của trở về.
+Sân Hảo Hữu Nê: [Thực ra buổi trưa tớ cũng chỉ ăn có một tí xíu thôi.]
 
-Tân thật có ngươi: kỳ thực ta giữa trưa cũng chỉ ăn một chút.
+Lưu Xuyên Phong: [Thấy chưa, lão Cốc buổi trưa cũng có thèm ăn gì đâu.]
 
-Lưu Xuyên Phong: đúng không, lão Cốc giữa trưa cũng không ăn.
+Siêu Tử: [Bây giờ có thể bàn về vấn đề chiếc điện thoại của tao được chưa?]
 
-Siêu tử: bây giờ có thể tâm sự điện thoại di động của ta vấn đề sao?
+Triệu Kim An không lên tiếng trong nhóm nữa.
 
-Triệu Kim An không có ở trong đám nói chuyện.
+...
 
 Ngày hôm sau.
 
-Buổi sáng Từ Mạn Mạn đúng hạn rời giường, ngồi ở bàn ăn ăn điểm tâm.
+Sáng sớm, Từ Mạn Mạn thức dậy đúng giờ, ngồi vào bàn ăn điểm tâm.
 
-"Mạn Mạn, ngươi thuốc không cần sao?"
+"Mạn Mạn, con không dùng thuốc à?"
 
-Lương Tuệ Trân mắt nhìn đặt ở cửa phòng của thuốc, không nhúc nhích.
+Lương Huệ Trân liếc nhìn lọ thuốc đặt trước cửa phòng con gái, vẫn nguyên vẹn chưa hề đụng tới.
 
-"trong phòng có thuốc."
+"Trong phòng con có sẵn thuốc rồi."
 
-Từ Mạn Mạn nói chuyện bình thường, không có hờn dỗi.
+Từ Mạn Mạn trả lời bằng giọng điệu bình thường, không hề có vẻ hờn dỗi.
 
-Ngồi bàn ăn chủ vị từ tắc thì tòa nhà mắt nhìn nữ nhi, nữ nhi khuôn mặt còn có chút sưng, Từ Mạn Mạn không thấy phụ thân, liền bình thường ăn điểm tâm.
+Ngồi ở vị trí chủ tọa trên bàn ăn, Từ Tắc Đống liếc nhìn con gái. Gương mặt cô vẫn còn hơi sưng, nhưng Từ Mạn Mạn không hề nhìn cha, chỉ lặng lẽ dùng bữa sáng.
 
-Thực bất ngôn tẩm bất ngữ là từ tắc thì tòa nhà dạy của.
+Ăn không nói, ngủ không ngáy, đó là gia quy mà Từ Tắc Đống dạy dỗ từ thuở nhỏ.
 
-Từ Mạn Mạn từ nhỏ không có hướng phụ thân vung qua kiều, như thế nào lại giống tiểu nữ sinh một dạng hướng trần trạch nũng nịu.
+Từ nhỏ đến lớn, Từ Mạn Mạn chưa từng nũng nịu làm duyên với cha, thế nên cô làm sao có thể õng ẹo làm nũng như những cô bé mới lớn trước mặt Trần Trạch được?
 
-Hoặc có lẽ là Từ Mạn Mạn so trần Sawashiro quen biết chuyện nhiều lắm, Từ Mạn Mạn làm sao có thể tiểu nữ sinh một dạng hướng hắn nũng nịu.
+Hay nói đúng hơn, Từ Mạn Mạn trưởng thành và hiểu chuyện hơn Trần Trạch quá nhiều, cô tuyệt đối không bao giờ hạ mình làm những cử chỉ con nít ấy.
 
-"ta như vậy không có cách nào trở về trường học lên lớp, xin nghỉ mấy ngày."
+"Mặt mũi con thế này không thể đến trường học được, con đã xin phép nghỉ vài ngày."
 
-Ăn điểm tâm xong, Từ Mạn Mạn đứng dậy nói:"các ngươi yên tâm đi làm, không cần trông coi ta, ta nói qua ta sẽ không tự sát."
+Ăn xong bữa sáng, Từ Mạn Mạn đứng dậy nói: "Bố mẹ cứ yên tâm đi làm, không cần phải canh chừng con đâu. Con đã nói rồi, con sẽ không nghĩ quẩn mà tìm đến cái chết đâu."
 
-"Mạn Mạn...."
+"Mạn Mạn..."
 
-Lương Tuệ Trân đại khái vẫn là đau lòng nữ nhi.
+Lương Huệ Trân dường như vẫn thấy xót xa cho con gái.
 
-Từ Mạn Mạn không thấy mụ mụ, không cần dạng này đau lòng, nàng xem thấy chủ vị từ tắc thì tòa nhà đạo:"cha, ngươi điểm này yêu thích, cất giữ những chữ kia vẽ, rất giá rẻ."
+Từ Mạn Mạn không nhìn mẹ, cô không cần thứ tình thương muộn màng và bất lực ấy. Cô hướng ánh mắt thẳng vào Từ Tắc Đống đang ngồi ở vị trí chủ tọa, cất giọng rành rọt: "Bố, mấy cái thú vui tao nhã của bố, những bức thư pháp và tranh vẽ bố dày công sưu tầm ấy, thực ra rẻ mạt lắm."
 
-"không có nghệ thuật giá trị, không có giá trị sưu tầm."
+"Chẳng có giá trị nghệ thuật, cũng chẳng có giá trị sưu tầm gì đâu."
 
-Từ tắc thì tòa nhà lại có ill-tempered; pyrophoric xúc động rồi.
+Từ Tắc Đống lại có dấu hiệu nổi cơn thịnh nộ.
 
-"ta nói chính là sự thật, trong lòng chính ngươi rất rõ ràng."
+"Con chỉ đang nói sự thật thôi, trong lòng bố tự hiểu rất rõ."
 
-Từ Mạn Mạn nhìn chăm chú phụ thân tiếp tục nói:"ngươi cất giữ cái kia chút tác phẩm cũng có thể ném đi, ta mới là ngươi tác phẩm đắc ý nhất."
+Từ Mạn Mạn nhìn chằm chằm vào cha mình, tiếp tục nói: "Những tác phẩm bố sưu tầm đều có thể vứt đi được rồi. Bởi vì con mới chính là tác phẩm đắc ý nhất cả đời này của bố."
 
-"....."
+"..."
 
-Từ tắc thì tòa nhà chính mình dạy dỗ nữ nhi có thể nghe hiểu, từ nay về sau Từ Mạn Mạn liền đem chính mình xem như paternal một kiện tác phẩm rồi, đừng nói cái gì cha con cảm tình.
+Đứa con gái do chính tay Từ Tắc Đống rèn giũa dạy dỗ, ông ta làm sao không hiểu ý tứ trong lời nói ấy? Kể từ nay về sau, Từ Mạn Mạn sẽ chỉ tự coi mình như một món đồ tác phẩm của cha, đừng bao giờ đem tình cảm cha con ra mà nói chuyện nữa.
 
-Đại khái còn bao gồm cùng lương Tuệ Trân của mẫu nữ cảm tình.
+Có lẽ, điều đó cũng bao hàm cả tình cảm mẫu tử với Lương Huệ Trân.
 
-Sinh ân không có cách nào, 2 0 năm dưỡng dục chi ân sẽ trả.
+Ơn sinh thành thì không thể chối bỏ, ơn dưỡng dục hai mươi năm cô sẽ trả đủ.
 
-Nhưng chỉ giới hạn trong tiền tài, cảm tình là không có.
+Nhưng chỉ giới hạn bằng tiền bạc sòng phẳng, còn tình cảm ruột thịt thì đã cạn kiệt từ đây.
 
-Ở kiếp trước Từ Mạn Mạn cùng phụ mẫu như thế nào ở chung không biết, có phải hay không cưới sau mỗi tháng cho phụ mẫu thu tiền?
+Kiếp trước Từ Mạn Mạn đối đãi với cha mẹ thế nào thì không ai hay biết. Phải chăng sau khi kết hôn, tháng nào cô cũng gửi tiền về cho gia đình?
 
-Chút tiền ấy trần trạch là hào phóng, Dương thù Mỹ Dã rất hào phóng, lại nói bằng Từ Mạn Mạn của năng lực làm việc cũng có thể kiếm được, coi như không tại trần trạch nhà công ty cũng có thể kiếm được.
+Khoản tiền ấy Trần Trạch rất hào phóng, Dương Thù Mỹ cũng rất thoáng tay. Huống chi với năng lực làm việc xuất chúng của Từ Mạn Mạn, dù không làm trong công ty nhà Trần Trạch thì cô cũng thừa sức kiếm được số tiền ấy.
 
-Thẩm tử nói thông minh bao nhiêu của người, chỉ bằng tại ký túc xá nhìn Từ Mạn Mạn thái độ làm việc liền dám cho vay nàng, không phải một chút tiền nhỏ, nàng tin tưởng Từ Mạn Mạn có thể trả nổi.
+Thẩm Tử Ngôn là người thông minh bực nào? Chỉ cần nhìn qua thái độ làm việc của Từ Mạn Mạn ở ký túc xá là cô nàng đã dám cho mượn tiền — không phải một món tiền nhỏ, bởi vì Thẩm Tử Ngôn tin chắc chắn Từ Mạn Mạn có đủ năng lực để chi trả.
 
-Ngược lại trần trạch"lưng tựa"trong nhà 4 cái nhà máy, thẩm tử nói cũng không dám mượn tạm tài chính, còn nói Từ Mạn Mạn mở miệng còn tạm được.
+Trái lại, Trần Trạch dù có chỗ dựa là bốn nhà máy của gia đình, Thẩm Tử Ngôn vẫn chẳng bao giờ thèm để mắt đến chuyện xoay vòng vốn giúp, còn bảo trừ khi Từ Mạn Mạn mở lời thì may ra.
 
-Từ tắc thì tòa nhà đại khái không biết mình nữ nhi của năng lực làm việc, còn có nữ nhi của"nhân mạch"cùng độ uy tin, hắn càng tin tưởng sự nghiệp đã thành công của Dương thù đẹp.
+Từ Tắc Đống có lẽ chẳng hề hay biết năng lực làm việc thực sự của con gái mình, càng không biết uy tín và "mạng lưới quan hệ" của con gái lớn đến mức nào. Trong mắt ông ta, người duy nhất đáng tin chỉ có một Dương Thù Mỹ với sự nghiệp kinh doanh đã thành công rực rỡ.
 
-Đương nhiên, từ tắc thì tòa nhà không biết nữ nhi của đại học bạn cùng phòng có cái thẩm tử nói.
+Dĩ nhiên, Từ Tắc Đống làm sao biết được cô bạn cùng phòng ký túc xá của con gái mình lại có một người tên là Thẩm Tử Ngôn.
 
-Thẩm vĩnh đàm của sự nghiệp làm của so Dương thù đẹp lớn hơn.
+Sự nghiệp cơ đồ của Thẩm Vĩnh Đàm lớn hơn Dương Thù Mỹ gấp bội phần.
 
-Hơn nữa thẩm tử nói thật có thể đại biểu thẩm vĩnh đàm, chính nàng đều nói"một nửa."
+Và Thẩm Tử Ngôn thực sự có tiếng nói mang tính quyết định thay cho Thẩm Vĩnh Đàm, chính cô nàng từng tự tin tuyên bố mình nắm giữ "một nửa".
 
-Càng không biết Triệu Kim An của tồn tại, từ tắc thì tòa nhà đêm đó xách theo thùng rác ở phía dưới chờ đợi 3 2 phút, từ bên ngoài là thấy không rõ bên trong của, không biết bên trong người nào.
+Từ Tắc Đống lại càng không thể biết đến sự tồn tại của Triệu Kim An. Đêm hôm đó, ông ta cầm túi rác đứng dưới sảnh chung cư suốt ba mươi hai phút, từ bên ngoài nhìn qua kính xe mờ mịt chẳng thể thấy rõ bên trong, nào biết người ngồi trong xe là nhân vật tầm cỡ nào.
 
-Có ít người chính là như vậy.
+Ở đời có những chuyện kỳ lạ như thế.
 
-Từ Mạn Mạn mở miệng muốn mượn tiền, thẩm tử giảng hòa Triệu Kim An đều sẽ mượn.
+Nếu Từ Mạn Mạn mở miệng mượn tiền, cả Thẩm Tử Ngôn lẫn Triệu Kim An đều sẽ sẵn sàng cho mượn ngay lập tức.
 
-Đại khái giấy vay nợ Từ Mạn Mạn đều không cần đánh.
+Thậm chí có lẽ Từ Mạn Mạn còn chẳng cần phải viết giấy vay nợ.
 
-Nếu như trần trạch mở miệng muốn mượn tiền, tiền trinh có thể, mấy vạn cũng không quan hệ, nhưng trên buôn bán mượn tạm tài chính, thẩm tử giảng hòa Triệu Kim An đều sẽ giải quyết việc chung, bằng hữu thì bằng hữu, không có thế chấp không bàn nữa.
+Nhưng nếu Trần Trạch mở miệng mượn tiền, tiền nhỏ vài vạn thì không thành vấn đề, chứ nếu là dòng vốn xoay vòng kinh doanh tiền triệu, Thẩm Tử Ngôn và Triệu Kim An nhất định sẽ công tư phân minh — bạn bè là bạn bè, không có tài sản thế chấp thì miễn bàn.
 
-Đừng nói trần trạch, có thể Dương thù đẹp cũng không có dạng này người mạch.
+Đừng nói là Trần Trạch, có khi ngay cả Dương Thù Mỹ cũng chưa chắc đã có được những mối quan hệ đỉnh cấp như thế.
 
-Cái này"nhân mạch"là chỉ mở miệng liền có thể giúp công ty mượn tạm đến tư cách
+Mối quan hệ ở đây chính là: chỉ cần mở lời một câu là có thể huy động ngay được nguồn vốn khổng lồ cho doanh nghiệp!

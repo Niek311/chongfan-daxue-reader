@@ -1,185 +1,187 @@
-# Chương 33: Sáu Bảy Năm Không Hay Không Biết
+# Chương 33: Sáu bảy năm trôi qua lặng lẽ
 
-Không có thông báo trước cho bất kỳ ai.
+> **Tiêu đề gốc**: 第33章 6,7年的不知不觉。
 
-Với thân phận này mà quay về, Đoạn Thu Bình còn có thể gọi điện thông báo cho ai được nữa?
+Bà không hề báo trước cho bất kỳ ai.
 
-Thực ra bà ta có gọi trước một cuộc cho Triệu Kim An, nhưng Triệu Kim An chỉ đáp lại một tiếng "Ồ", sau đó liền cúp máy.
+Với thân phận dâu cũ đã tái giá, Đoạn Thu Bình biết gọi điện thông báo cho ai được cơ chứ?
 
-Triệu Kim An không đặc biệt báo một tiếng với bà nội và thím, nhưng hai người cũng đoán được Đoạn Thu Bình sẽ về một chuyến trước khi khai giảng.
+Bà chỉ đánh bạo gọi cho Triệu Kim An một cuộc điện thoại ngắn ngủi, Triệu Kim An ở đầu dây bên kia cũng chỉ đáp hờ hững một tiếng "Vâng", rồi lạnh lùng cúp máy.
 
-Vương Kim Như tựa vào cổng lớn, cười rạng rỡ: "Kìa, chị dâu tới đấy à?"
+Triệu Kim An không hề báo lại với bà nội hay thím Vương Kim Như, dẫu vậy bà nội và thím đều thừa hiểu Đoạn Thu Bình thế nào cũng sẽ về thăm con một chuyến trước ngày cậu lên đường nhập học.
 
-"Kim Như đấy hả."
+Vương Kim Như đứng tựa lưng vào cánh cổng lớn, ngoài mặt tươi cười đon đả: "Ô kìa, chị dâu cả đã về đấy à?"
 
-Đoạn Thu Bình thu lại dòng suy nghĩ, nặn ra nụ cười, rảo bước đi tới. Bà ta nghe ra được giọng điệu mỉa mai của Vương Kim Như, nhưng quả thật Triệu Kim An đã được Vương Kim Như chăm sóc rất nhiều.
+"Kim Như đấy hả em."
 
-"Thiên Thiên đâu rồi?"
+Đoạn Thu Bình vội thu lại mớ suy nghĩ ngổn ngang, gượng gạo nở nụ cười rồi rảo nhanh bước chân bước lên bậc thềm. Bà thừa sức nhận ra vẻ mỉa mai chua chát trong giọng điệu của em dâu, nhưng nghĩ đến việc Triệu Kim An suốt mấy năm qua đều nhờ cậy vào bàn tay chăm sóc của Vương Kim Như, bà đành nén lòng chịu nhịn.
 
-Đoạn Thu Bình cố gắng bày tỏ thiện chí của mình: "Thiên Thiên sắp lên tiểu học rồi đúng không, tôi có mua cho con bé một chiếc cặp sách mới đây."
+"Bé Thiên Thiên đâu rồi em?"
 
-"Kim An, mẹ cháu tới này!"
+Đoạn Thu Bình cố gắng bày tỏ chút lòng thành: "Thiên Thiên sắp vào lớp một rồi đúng không, chị có mua cho cháu chiếc cặp sách mới tinh này."
 
-Vương Kim Như rướn cổ hét lớn.
+"Kim An ơi! Mẹ cháu về này!"
 
-Đoạn Thu Bình xách đồ đi thẳng vào bếp, dừng lại trước cửa, gọi một tiếng: "Mẹ."
+Vương Kim Như chẳng thèm nhìn chiếc cặp sách, chỉ hất mặt gọi với vào nhà bằng cái giọng the thé quen thuộc.
 
-"Sắp ăn cơm rồi đây."
+Đoạn Thu Bình xách đồ đạc bước thẳng xuống gian bếp, đứng ngập ngừng nơi ngạch cửa rồi cất tiếng khẽ khàng: "Mẹ."
 
-Bà nội tối đó từng nói với Triệu Kim An Vĩ rằng "nhà họ Kim An chúng ta không có loại đàn bà như vậy", hiển nhiên Đoạn Thu Bình không nằm trong số đó. Bà ta cải giá sau khi Triệu Quốc Khánh qua đời được bốn năm.
+"Sắp đến giờ ăn cơm rồi đấy."
 
-Bạn không thể yêu cầu một người phụ nữ mới ngoài ba mươi cứ thế mà sống hết quãng đời còn lại một mình được.
+Bà nội không ngẩng đầu lên, chỉ đáp lại một câu ngắn ngủi. Đêm hôm trước, bà nội từng nói với Triệu Vĩ rằng "Nhà họ Triệu này không có thứ đàn bà lăng loàn", nhưng rõ ràng Đoạn Thu Bình không nằm trong số đó. Bà đã ở vậy suốt bốn năm ròng sau khi Triệu Quốc Khánh qua đời rồi mới cất bước đi bước nữa.
 
-Điều đó không thực tế.
+Người ta không thể nào tàn nhẫn đòi hỏi một người đàn bà góa bụa mới ngoài ba mươi tuổi phải chôn vùi cả tuổi xuân để thủ tiết trọn đời.
 
-Nhưng bảo trong lòng bà nội không có chút khúc mắc nào, thì cũng không thực tế nốt.
+Điều đó quá đỗi phi thực tế.
 
-"Chị dâu."
+Thế nhưng, nếu bảo trong lòng bà nội không có lấy một chút khúc mắc hay vết gợn nào...
 
-Doãn Hiểu Lan đang phụ giúp trong bếp, giữa mùa hè oi bức mà vẫn phải ngồi trước bếp lò nhóm củi.
+Thì cũng là chuyện không tưởng.
 
-"Hiểu Lan đấy à."
+"Chị dâu cả."
 
-Đoạn Thu Bình đặt đồ ở cửa, bước vào định bắt tay giúp đỡ. Gian bếp này được xây từ hồi Triệu Quốc Khánh còn sống, Đoạn Thu Bình vô cùng quen thuộc.
+Doãn Hiểu Lan đang lom khom phụ việc trong bếp, giữa ngày hè oi bức ngồi cặm cụi nhóm lửa bên bếp củi hồng.
 
-Những năm đó bà ta cũng không ít lần cùng bà nội bận rộn trong bếp, cả gia đình quay quần ấm cúng.
+"Hiểu Lan đấy à em."
 
-"Kim An trông vẫn giống mẹ nhiều hơn."
+Đoạn Thu Bình đặt đồ đạc xuống bên góc cửa, xắn tay áo bước vào toan giúp một tay. Gian bếp này năm xưa vốn do chính bàn tay Triệu Quốc Khánh dựng nên, Đoạn Thu Bình nhắm mắt cũng quen từng ngóc ngách.
 
-Doãn Hiểu Lan mới gả về đây được hai năm, khi đó Đoạn Thu Bình đã cải giá rồi, nhưng cô từng thấy ảnh thời trẻ của Triệu Quốc Khánh và Đoạn Thu Bình.
+Những năm tháng ấy, bà cùng mẹ chồng không biết đã bao lần quây quần bên gian bếp nhỏ này nấu nướng, cả gia đình sum vầy đầm ấm biết bao.
 
-Triệu Quốc Khánh chống tay lên một chiếc xe máy, anh tuấn hào sảng; Đoạn Thu Bình uốn tóc xoăn mang đậm hơi thở thời đại, nép mình bên cạnh cười rạng rỡ, gương mặt tràn ngập hạnh phúc.
+"Kim An trông giống mẹ nhiều hơn đấy chị ạ."
 
-Cần cù bù thông minh.
+Doãn Hiểu Lan mới về làm dâu họ Triệu được hai năm, khi đó Đoạn Thu Bình đã tái giá từ lâu, nhưng cô từng được xem qua những bức ảnh chụp thời trẻ của Triệu Quốc Khánh và Đoạn Thu Bình.
 
-Vào những năm 90 mà đã mua được xe máy, lại còn xây được nhà gạch đỏ hai tầng, chứng tỏ Triệu Quốc Khánh thật sự rất chăm chỉ.
+Trong ảnh, Triệu Quốc Khánh đứng tựa bên chiếc xe máy bóng loáng, vóc dáng cao ráo khôi ngô đầy vẻ phong trần; Đoạn Thu Bình uốn mái tóc xoăn bồng bềnh mang đậm hơi thở thời đại, nép sát vào người chồng nở nụ cười rạng rỡ, tràn ngập nét hạnh phúc ngây ngất.
 
-Dù ngôi nhà gạch đỏ này hiện tại trông có vẻ lụp xụp, nhưng vào thời đó thì thật sự rất oai.
+Cần cù làm giàu.
 
-Mấy ngày nay Điền Thúy Phượng có nói với Triệu Kim An ở ven đường rằng Triệu Quốc Khánh là một trong những hộ "vạn nguyên" đầu tiên của làng, còn nói ông là mỹ nam tử trong thôn.
+Vào những năm 90 của thế kỷ trước, một gia đình nông thôn vừa tậu được xe máy đắt tiền vừa xây được căn nhà hai tầng bằng gạch đỏ khang trang, chứng tỏ Triệu Quốc Khánh khi ấy giỏi giang và chăm chỉ đến nhường nào.
 
-Trong bữa cơm.
+Dẫu cho căn nhà gạch đỏ này ở thời điểm hiện tại trông có phần cũ kỹ, đơn sơ, nhưng vào thời điểm ấy, đó là niềm mơ ước và là biểu tượng của sự giàu sang tột bậc trong làng.
 
-Bà nội khách sáo vài câu bảo Đoạn Thu Bình gắp thêm thức ăn, dường như Đoạn Thu Bình còn giống khách hơn cả Doãn Hiểu Lan.
+Mấy ngày trước, thím Điền Thúy Phượng từng đứng bên đường tấm tắc kể lại với Triệu Kim An, rằng Triệu Quốc Khánh năm xưa là một trong những hộ "vạn tệ" đầu tiên của làng, lại còn là người đàn ông tuấn tú nức tiếng cả một vùng.
 
-Triệu Duyệt Thiên không chờ nổi nữa, đeo cặp sách chạy vài vòng quanh nhà chính, nhìn Đoạn Thu Bình đang ngồi trên ghế cao mà nói: "Bác ơi, anh bảo sẽ đưa cháu đi Quận Sa đi học đấy."
+Bên bàn ăn trưa.
 
-"Tốt quá rồi."
+Bà nội giữ phép lịch sự gắp thức ăn cho Đoạn Thu Bình, dặn bà ăn nhiều một chút, nhưng cái vẻ khách sáo ấy lại khiến Đoạn Thu Bình cảm thấy mình còn xa lạ hơn cả nàng dâu mới Doãn Hiểu Lan.
 
-Đoạn Thu Bình xoa đầu Triệu Duyệt Thiên, nhìn sang Triệu Kim An bên cạnh, do dự một hồi rồi lấy từ trong túi ra năm nghìn tệ trước mặt bà nội và Vương Kim Như.
+Bé Triệu Duyệt Thiên không kìm được sự thích thú, vội vã đeo chiếc cặp sách mới toanh chạy lăng xăng quanh gian nhà chính, rồi ngước đôi mắt tròn xoe nhìn người phụ nữ đang ngồi trên chiếc ghế đẩu: "Bác dâu ơi, anh Kim An bảo sau này sẽ đón cháu lên Quận Sa đi học đấy ạ."
 
-"Kim An, tiền học phí này."
+"Thế thì tốt quá rồi."
 
-Dù đã rời khỏi ngôi nhà này, nhưng Đoạn Thu Bình cũng không đến mức bỏ mặc Triệu Kim An.
+Đoạn Thu Bình đưa tay xoa nhẹ đầu đứa cháu gái nhỏ, rồi ngước mắt nhìn sang con trai đang ngồi bên cạnh. Bà ngập ngừng một thoáng, rồi trước mặt mẹ chồng và em dâu, bà mở túi xách, rút ra một xấp tiền mặt dày cộm đặt lên bàn. Đúng năm nghìn tệ.
 
-Sau kỳ thi đại học bà ta còn dúi cho Triệu Kim An một nghìn tệ, chỉ là một lần lấy ra hẳn năm nghìn thế này thì là lần đầu tiên.
+"Kim An, tiền học phí của con đây."
 
-Triệu Kim An bưng bát, cúi đầu ăn cơm, không nhận tiền.
+Dẫu đã rời khỏi mái nhà này, nhưng Đoạn Thu Bình chưa bao giờ bỏ mặc con trai.
 
-Doãn Hiểu Lan cũng bưng bát, gẩy gẩy hạt cơm trắng, đôi mắt láo liên chuyển động.
+Sau kỳ thi đại học, bà cũng từng lén nhét cho Triệu Kim An một nghìn tệ, nhưng đây là lần đầu tiên bà dốc một lúc năm nghìn tệ đưa cho cậu.
 
-Trong nhà chính hơi im ắng, nhất thời không ai lên tiếng.
+Triệu Kim An hai tay bưng bát, cúi đầu lùa từng miếng cơm trắng, hoàn toàn không có ý định đưa tay nhận lấy xấp tiền.
 
-Bên ngoài vang lên tiếng ve kêu, Đoạn Thu Bình đến lúc gần trưa, chiều sẽ phải quay về ngay. Triệu Kim An nhìn xấp tiền trong tay bà ta, nói: "Con có rồi."
+Doãn Hiểu Lan cũng bưng bát cơm, vừa gảy từng hạt cơm vừa len lén đưa mắt quan sát biểu cảm của mọi người xung quanh.
 
-Thấy Triệu Kim An lên tiếng, Vương Kim Như mới nói tiếp.
+Gian nhà chính bỗng chốc chìm vào bầu không khí im ắng đến ngột ngạt, hồi lâu không một ai lên tiếng.
 
-"Chị dâu à, tiền học của Kim An có rồi, trong thôn khen thưởng hai nghìn, chú của nó cũng chuyển sang ba nghìn, đủ rồi ạ."
+Bên ngoài hiên nhà, tiếng ve sầu kêu râm ran không ngớt. Đoạn Thu Bình đến vào lúc gần trưa, dự định đến chiều muộn sẽ bắt xe quay về. Triệu Kim An liếc nhìn xấp tiền trên tay mẹ, khẽ nói một câu: "Con có tiền rồi."
 
-"Vậy... vậy thì coi như tiền sinh hoạt phí."
+Thấy cháu trai lên tiếng, Vương Kim Như lập tức tiếp lời ngay:
 
-"Tiền sinh hoạt cũng có luôn rồi, Kim An với Triệu Chí Dũng đi bán cá mùa hè này kiếm được tiền mà."
+"Chị dâu cả này, tiền học phí của Kim An đã lo liệu xong xuôi cả rồi. Thôn thưởng cho hai nghìn, chú nó ở xa cũng vừa chuyển về ba nghìn, gom lại là đủ đóng rồi."
 
-Cũng không biết tại sao, bình thường Vương Kim Như hay chê Triệu Kim An tiêu tốn tiền bạc, lúc này dường như lại hơi cố ý "từ chối" số tiền mà Đoạn Thu Bình mang tới.
+"Thế... thế thì cầm lấy làm tiền sinh hoạt phí."
 
-Năm nghìn tệ đấy, thật sự không ít chút nào.
+"Sinh hoạt phí cũng chẳng thiếu đâu chị, đợt nghỉ hè vừa rồi Kim An cùng thằng Dũng đi kích cá bán kiếm được khối tiền đấy."
 
-Lúc này bà nội mới mở lời: "Số tiền này cô cứ cầm lấy đi, để sang năm tính sau, tiền sinh hoạt của Kim An không dùng hết năm nghìn nhiều thế đâu."
+Chẳng hiểu vì lý do gì, bình thường Vương Kim Như luôn miệng cằn nhằn chuyện Triệu Kim An tốn kém tiền bạc của gia đình, nhưng ngay lúc này, bà lại như muốn cố tình "cự tuyệt" số tiền mà Đoạn Thu Bình mang tới.
 
-Bà nội không nói chết lời.
+Năm nghìn tệ đấy, đối với nhà nông thực sự là một món tiền rất lớn.
 
-Đoạn Thu Bình kiên trì một lát, nhìn mọi người rồi rụt tay về.
+Lúc này, bà nội mới từ tốn lên tiếng: "Số tiền này con cứ giữ lấy đi, để sang năm rồi tính tiếp. Thằng Kim An ở trường ăn tiêu tiết kiệm, không dùng hết ngần ấy tiền đâu."
 
-Ăn cơm xong, Đoạn Thu Bình kéo Triệu Kim An vào phòng ngủ, nhìn quanh một vòng không thấy vali hành lý đâu.
+Bà nội nói năng chừng mực, không đẩy mọi chuyện vào ngõ cụt.
+
+Đoạn Thu Bình nấn ná thêm một lúc, nhìn lướt qua ánh mắt của từng người trong nhà rồi đành ngậm ngùi thu tay lại, cất tiền vào túi.
+
+Cơm nước xong xuôi, Đoạn Thu Bình kéo Triệu Kim An vào phòng ngủ, đưa mắt nhìn quanh quất một vòng nhưng chẳng thấy chiếc vali hành lý nào.
 
 "Kim An, vali của con đâu rồi?"
 
-"Chỉ có mấy bộ quần áo thôi mẹ."
+"Con chỉ mang theo vài bộ quần áo thôi."
 
-"Vậy... giấy báo nhập học với chứng minh thư mang theo đủ chưa?"
+"Thế... giấy báo trúng tuyển với chứng minh thư con đã cất cẩn thận chưa?"
 
-Đoạn Thu Bình vừa hỏi vừa ngồi ghé bên mép giường kiểm tra, rất tỉ mỉ.
+Đoạn Thu Bình vừa hỏi vừa ngồi ghé bên mép giường, cẩn thận kiểm tra lại từng món đồ trong chiếc túi vải của con trai.
 
-Triệu Kim An cứ thế tựa vào tường nhìn, không nói gì.
+Triệu Kim An đứng tựa lưng vào tường, lặng lẽ nhìn mẹ, không nói một lời.
 
-Kể từ khi Đoạn Thu Bình rời khỏi cái nhà này, cách chung sống của hai mẹ con đã trở thành như vậy.
+Kể từ ngày Đoạn Thu Bình bước chân đi lấy chồng khác, cách hai mẹ con đối diện với nhau đã vĩnh viễn biến thành sự xa cách, ngượng ngùng như thế này.
 
-"Chị dâu, đồ dùng Kim An mang đi học đại học em đã sắp xếp ổn thỏa cho nó hết rồi!"
+"Chị dâu cả ơi, đồ đạc thằng Kim An mang lên đại học, em đã sắp xếp chu đáo tinh tươm hết cả rồi nhé!"
 
-Vương Kim Như lại tới.
+Vương Kim Như lại ló đầu vào cửa nói với vào.
 
-Bà nội lườm thím một cái, thím mới bĩu môi dắt Triệu Duyệt Thiên đi ra.
+Bà nội lườm cho một cái sắc lẹm, Vương Kim Như mới chịu bĩu môi, dắt tay bé Duyệt Thiên lui ra ngoài.
 
-Doãn Hiểu Lan đang dọn bàn ăn, cúi đầu nhịn cười: "Bà nội, để cháu rửa bát cho."
+Doãn Hiểu Lan đang dọn dẹp bàn ăn, cúi đầu nén cười: "Bà nội để cháu rửa bát cho ạ."
 
-Cô nhận ra Vương Kim Như có chút ý vị muốn tranh giành con trai với Đoạn Thu Bình.
+Cô nhận ra thím Vương Kim Như dường như đang cố tình tranh giành vị trí người mẹ của Triệu Kim An với Đoạn Thu Bình.
 
-Doãn Hiểu Lan rất siêng năng, còn Vương Kim Như thì hơi lười.
+Doãn Hiểu Lan là người chăm chỉ tháo vát, còn Vương Kim Như thì có phần lười nhác, thích chỉ tay năm ngón.
 
-Thực ra quan hệ giữa Vương Kim Như và Đoạn Thu Bình cũng tạm ổn, cứ nhìn việc Triệu Duyệt Thiên gọi Đoạn Thu Bình là bác là thấy, một năm Đoạn Thu Bình thế nào cũng về vài chuyến, nếu không thì sao biết đường mà gọi?
+Thực ra mối quan hệ giữa Vương Kim Như và Đoạn Thu Bình cũng không đến mức quá căng thẳng, bằng chứng là bé Triệu Duyệt Thiên vẫn gọi Đoạn Thu Bình là bác dâu một cách tự nhiên. Mỗi năm Đoạn Thu Bình vẫn thu xếp về thăm làng vài bận, nếu không thì đứa trẻ làm sao biết gọi là gì?
 
-Còn về người mà Đoạn Thu Bình đang lấy hiện tại, tên là Tống Siêu Văn.
+Còn về người đàn ông mà Đoạn Thu Bình tái giá hiện tại, ông ta tên là Tống Siêu Văn.
 
-Triệu Kim An mới chỉ gặp Tống Siêu Văn một lần, kiếp trước chưa từng đến nhà họ.
+Triệu Kim An kiếp trước chỉ gặp Tống Siêu Văn đúng một lần duy nhất, và cũng chưa từng một lần bước chân qua ngưỡng cửa nhà họ Tống.
 
-Tống Siêu Văn có một cô con gái là Tống Uyển Hòa, lớn hơn Triệu Kim An ba tuổi. Tống Uyển Hòa tốt nghiệp trung cấp chuyên nghiệp, theo quỹ đạo lịch sử thì hiện tại chắc cô đang làm thuê ở Sâm Thành.
+Tống Siêu Văn có một người con gái riêng tên là Tống Uyển Hòa, lớn hơn Triệu Kim An ba tuổi. Tống Uyển Hòa tốt nghiệp trường trung cấp nghề, theo đúng quỹ đạo của kiếp trước thì thời điểm này cô ấy đang làm thuê ở thành phố Sâm Thành.
 
-Kiếp trước Triệu Kim An từng gặp Tống Uyển Hòa hai lần, chỉ đúng hai lần.
+Ở kiếp trước, Triệu Kim An cũng chỉ gặp Tống Uyển Hòa đúng hai lần.
 
-Cả hai lần đều là Tống Uyển Hòa chủ động đi tìm Triệu Kim An.
+Cả hai lần đều là Tống Uyển Hòa chủ động tìm đến cậu.
 
-Một lần là ngay trước khi Đoạn Thu Bình cải giá, Tống Uyển Hòa lén lút đến trường gặp Triệu Kim An.
+Lần thứ nhất là ngay trước thềm Đoạn Thu Bình chuẩn bị tái giá, Tống Uyển Hòa đã lén lút tìm đến tận trường học để gặp mặt Triệu Kim An.
 
-Một lần là trong thời gian học đại học, Tống Uyển Hòa đã đến Quận Sa tìm Triệu Kim An một chuyến.
+Lần thứ hai là trong quãng đời sinh viên, Tống Uyển Hòa từng lặn lội lên thành phố Quận Sa tìm cậu một chuyến.
 
-Sau này Tống Uyển Hòa kết hôn, có gọi điện mời Triệu Kim An.
+Mãi sau này khi Tống Uyển Hòa lấy chồng, cô có gọi điện mời Triệu Kim An về dự đám cưới.
 
-Triệu Kim An không đi.
+Triệu Kim An đã không đi.
 
-Thực ra đôi khi Tống Uyển Hòa cũng gửi tin nhắn cho Triệu Kim An, nhưng hắn hiếm khi trả lời. Nghe nói Đoạn Thu Bình và Tống Uyển Hòa chung sống khá tốt, nhưng Triệu Kim An không mấy quan tâm.
+Thực ra thỉnh thoảng Tống Uyển Hòa vẫn gửi tin nhắn hỏi thăm Triệu Kim An, nhưng cậu rất hiếm khi hồi âm. Nghe phong phanh nói rằng Đoạn Thu Bình và Tống Uyển Hòa sống chung khá hòa thuận, nhưng Triệu Kim An không mấy bận tâm.
 
-Nếu Đoạn Thu Bình sống ở bên đó không tốt, bà ta có thể quay về "ngôi nhà này", bà nội chắc chắn sẽ không từ chối.
+Nếu Đoạn Thu Bình sống bên đó không hạnh phúc, bà hoàn toàn có thể quay trở về "mái nhà này", chắc chắn bà nội sẽ không hẹp hòi mà từ chối.
 
-Dĩ nhiên, đó là chuyện trước khi Tống Gia Nguyệt ra đời — con gái của Đoạn Thu Bình và Tống Siêu Văn.
+Tất nhiên, đó là chuyện trước khi Tống Gia Nguyệt chào đời — đứa con gái chung giữa Đoạn Thu Bình và Tống Siêu Văn.
 
 Ngày 5 tháng 9.
 
-Thông thường tân sinh viên đại học sẽ nhập học muộn hơn vài ngày, mấy ngày cuối cùng Triệu Kim An lên núi chặt củi.
+Thông thường các trường đại học đón tân sinh viên sẽ lùi lại vài ngày so với bậc phổ thông. Những ngày cuối cùng ở nhà, Triệu Kim An vác rựa lên đồi đốn củi.
 
-Việc này không cần kỹ thuật gì cao siêu, mỗi lần đi học về hắn đều lên núi chuẩn bị sẵn củi đốt cho cả nhà, xếp ngay ngắn thành đống ở bức tường ngoài phòng bếp.
+Công việc này chẳng cần kỹ thuật cao siêu gì, mỗi lần nghỉ học về nhà cậu đều tranh thủ lên đồi kiếm củi khô mang về xếp ngay ngắn thành từng đống tựa sát vào bức tường ngoài gian bếp, phẳng phiu và ngăn nắp.
 
-Chuyến đi Quận Sa học lần này không biết bao giờ mới về, có lẽ là Quốc khánh, có lẽ là kỳ nghỉ đông.
+Chuyến đi lên Quận Sa lần này chưa biết khi nào mới quay về, có thể là dịp Quốc khánh mùng 1 tháng 10, cũng có thể phải đợi đến kỳ nghỉ đông.
 
-Sáng sớm, mặt trời vừa leo lên đỉnh núi.
+Sáng sớm tinh mơ, những tia nắng đầu tiên vừa le lói trên đỉnh núi.
 
-Triệu Kim An mặc một chiếc quần sẫm màu, áo phông trắng, đeo ba lô bước ra khỏi cửa.
+Triệu Kim An mặc một chiếc quần âu sẫm màu, khoác áo phông trắng đơn giản, trên vai đeo chiếc ba lô gọn gàng bước chân ra khỏi cổng.
 
-"Kim An, đi học đại học đấy à?"
+"Kim An, đi học đại học đấy à cháu?"
 
-"Kìa, bà cụ hôm nay tinh thần phấn chấn nhỉ, đi tiễn cháu nội đi học đại học sao?"
+"Ôi chao, hôm nay bà cụ nhà họ Triệu trông tinh thần phấn chấn thế, đích thân tiễn cháu đích tôn lên tỉnh học đại học cơ đấy!"
 
-Dọc đường gặp bà con lối xóm, họ đang bưng bát lớn húp cháo loãng. Đối với bà nội, có lẽ trong lòng họ đều là sự kính trọng, một mình bà nuôi nấng bốn người con khôn lớn.
+Dọc đường làng, bà con chòm xóm đang bưng những bát cháo hoa to đùng ngồi trước hiên nhà ăn sáng, nhìn thấy hai bà cháu liền cất tiếng chào hỏi rôm rả. Trong lòng dân làng, ai nấy đều thầm kính phục bà cụ một mình tần tảo nuôi bốn người con khôn lớn.
 
-Không hay không biết, cháu nội cũng đã thi đỗ đại học rồi.
+Ấy thế mà thoắt một cái, đứa cháu đích tôn mồ côi cha lại đỗ đạt vào trường đại học danh tiếng của tỉnh.
 
-Tại sao nói là không hay không biết?
+Tại sao lại nói là thoắt một cái?
 
-Bởi vì Triệu Kim An ở trong làng quá khép kín, không giúp việc nhà thì cũng không ra khỏi cửa, chỉ có mùa hè này là thấy mặt nhiều hơn vài lần, mà cũng là đang làm việc kiếm tiền chứ không phải đi lang thang vớ vẩn.
+Bởi vì thường ngày Triệu Kim An sống quá khép kín trong làng, nếu không phụ giúp việc nhà thì chẳng bao giờ bước chân ra khỏi cửa. Suốt cả kỳ nghỉ hè vừa qua người ta mới thấy cậu xuất hiện nhiều hơn đôi chút, nhưng cũng là bận rộn đi làm lụng kiếm tiền chứ không hề la cà lêu lổng như đám thanh niên cùng trang lứa.
 
-Chẳng trách hôm đó Điền Thúy Phượng lại bảo Triệu Kim An giống như nàng dâu nhỏ.
+Chẳng trách hôm nọ thím Điền Thúy Phượng lại trêu cậu giống hệt như một cô con dâu ngoan ngoãn, cẩn thận.
 
-Bà nội hôm nay quả thực rất tinh thần, đi phía trước nắm tay Triệu Kim An. Đây là khoảnh khắc vinh quang của bà, bà có lẽ không biết đến câu nói "vạn bàn giai hạ phẩm, duy hữu độc thư cao".
+Bà nội hôm nay quả thực vô cùng rạng rỡ, bà đi trước một bước, nắm chặt lấy bàn tay Triệu Kim An. Đây chính là giây phút vinh quang rực rỡ nhất trong cuộc đời bà. Bà có thể không hiểu hết ý nghĩa của câu nói "Vạn ban giai hạ phẩm, duy hữu độc thư cao", nhưng mảnh đất Tương Nam từ xưa đến nay vốn nổi tiếng là vùng đất hiếu học, quan niệm coi trọng con chữ đã ăn sâu bám rễ vào từng tấc đất nơi đây.
 
-Nhưng tỉnh Tương Nam cực kỳ coi trọng giáo dục, quan niệm này đã ăn sâu bám rễ.
-
-Không giống như một số tỉnh khác, đại học bình thường thì thôi không học nữa, cứ đi theo người thân nào đó mà làm kinh doanh cho xong.
+Không giống như ở một số tỉnh thành khác, thi đỗ vào một trường đại học tầm thường thì người ta sẵn sàng bỏ ngang để theo họ hàng đi buôn bán kiếm tiền...

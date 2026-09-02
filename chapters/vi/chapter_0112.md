@@ -1,179 +1,185 @@
-# Chương 112: Phân Biệt
+# Chương 112: Bất đồng quan điểm
+
+> **Tiêu đề gốc**: 第112章 分歧。
 
 Hôm đó Triệu Kim An đã gật đầu thừa nhận mình có cổ phần trong công ty.
 
-Lưu Sấm Phong, Cốc Siêu Thừa và Trần Trạch đều không tin, nhưng Thẩm Tử Ngôn lại tin.
+Lưu Sấm Phong, Cốc Siêu Thừa và Trần Trạch đều nửa tin nửa ngờ, chỉ riêng Thẩm Tử Ngôn là tin chắc như đinh đóng cột.
 
-Khổng Triết Vũ có dũng khí theo đuổi Mộc Dao là nhờ điều kiện gia đình tốt, Thẩm Tử Ngôn không hiểu vì tâm lý gì mà cứ muốn đè đầu cưỡi cổ Khổng Triết Vũ một phen, dù nàng chẳng mấy khi giao du với hội phú nhị đại ở Trung Nam.
+Chỗ dựa lớn nhất của Khổng Triết Vũ khi theo đuổi Mộc Dao là gia cảnh giàu có, sung túc. Thẩm Tử Ngôn chẳng biết xuất phát từ tâm lý gì, cứ muốn đè bẹp Khổng Triết Vũ một bậc. Ở Đại học Công nghiệp Trung Nam, cô chẳng bao giờ thèm tham gia vào mấy hội nhóm công tử tiểu thư nhà giàu làm gì.
 
-Nàng gia nhập hội sinh viên cũng là để rèn luyện bản thân.
+Cô gia nhập Hội sinh viên cũng chỉ để rèn luyện bản lĩnh cho bản thân.
 
-Không hoàn toàn là vì muốn thắng Khổng Triết Vũ, Thẩm Tử Ngôn biết công ty đang mở rộng thị trường tại tỉnh Hồ Nam.
+Nhưng mua xe cũng không hẳn chỉ để dằn mặt Khổng Triết Vũ. Thẩm Tử Ngôn biết công ty Trăn Nhiên đang ráo riết mở rộng thị trường khắp tỉnh Tương Nam.
 
-Có xe hơi thì làm việc sẽ thuận tiện hơn nhiều.
+Có một chiếc xe ô tô riêng, công việc đi lại sẽ thuận tiện hơn rất nhiều.
 
-Công ty không thể tự trang bị xe cho nàng, bởi mọi công ty trong giai đoạn khởi nghiệp đều là lúc thiếu tiền nhất.
+Công ty chắc chắn không thể cấp xe riêng cho cô được, bất kỳ doanh nghiệp nào trong giai đoạn khởi nghiệp ban đầu cũng đều là lúc eo hẹp, khát vốn nhất.
 
-Kiểu người như Thẩm Tử Ngôn không muốn bạc đãi bản thân, bảo đi công tác mà phải ngồi tàu hỏa thì nàng không chịu nổi. Gia đình có điều kiện thì việc gì phải giả nghèo giả khổ, thế chẳng khác nào "không khổ tìm khổ để chịu".
+Mẫu người như Thẩm Tử Ngôn không thích để bản thân phải chịu thiệt thòi hay ấm ức. Bắt cô đi công tác mà phải chen chúc tàu hỏa trong khi nhà có điều kiện thì việc gì phải giả vờ nghèo khổ, cái đó người ta gọi là "không có khổ mà ráng gặm nhấm cái khổ".
 
-Thẩm Tử Ngôn cuối cùng cũng đến văn phòng, đây là lần đầu tiên nàng tới đây tìm Triệu Kim An.
+Cuối cùng Thẩm Tử Ngôn cũng đến văn phòng, lần đầu tiên cô chủ động đến tận nơi tìm Triệu Kim An.
 
-Trước đây chỉ là tình nguyện viên nên không tiện ghé qua.
+Trước đây chỉ mang danh tình nguyện viên, cô thấy không tiện ghé qua.
 
-Nhìn Thẩm Tử Ngôn trong bộ đồ công sở, Triệu Kim An nói: "Cậu mua xe xịn thế kia, chắc phải đổ xăng 95 nhỉ? Nhân viên công ty đi công tác chỉ được thanh toán tiền vé tàu hỏa thôi đấy."
+Nhìn Thẩm Tử Ngôn trong bộ trang phục công sở thanh lịch, Triệu Kim An cười nói: "Cậu mua xe xịn thế này, đổ xăng chắc toàn phải dùng xăng 95 nhỉ? Người của công ty đi công tác chỉ được thanh toán vé tàu hỏa thôi đấy nhé."
 
-"Không thanh toán tiền xăng, đi cao tốc cũng phải tự trả phí cầu đường."
+"Không thanh toán tiền xăng đâu, chạy cao tốc còn mất thêm phí cầu đường nữa đấy."
 
-Thẩm Tử Ngôn chỉ nhìn Triệu Kim An mà cười, nụ cười của nàng rất đẹp.
+Thẩm Tử Ngôn chỉ nhìn Triệu Kim An mỉm cười, nụ cười của cô rạng rỡ và cuốn hút vô cùng.
 
-Nàng nói: "Không cần thanh toán, công ty nếu cần dùng xe thì cứ việc dùng lúc nào cũng được."
+Cô đáp: "Không cần thanh toán đâu. Nếu công ty cần dùng xe, cứ lấy chạy bất cứ lúc nào."
 
-Triệu Kim An nhất thời thật sự không biết nên sắp xếp Thẩm Tử Ngôn thế nào, chưa biết giao cho vị trí gì, mà đối phương ngay cả lương lậu cũng chẳng thèm hỏi.
+Triệu Kim An nhất thời thực sự chưa biết nên sắp xếp cho Thẩm Tử Ngôn vào vị trí nào, chức vụ gì, ngay cả mức lương cô cũng chẳng thèm hỏi lấy một câu.
 
-Không ngờ câu hỏi đầu tiên của Thẩm Tử Ngôn lại dành cho hắn.
+Chẳng ngờ câu hỏi đầu tiên Thẩm Tử Ngôn đặt ra cho Triệu Kim An lại là:
 
-"Triệu Kim An, tại sao cậu không tìm đến trường mình? Sinh viên khởi nghiệp sẽ được miễn giảm thuế mà."
+"Triệu Kim An, sao cậu không làm hồ sơ gửi lên trường? Sinh viên đại học khởi nghiệp sẽ được miễn giảm một khoản thuế rất lớn đấy."
 
-Triệu Kim An im lặng một lúc rồi đáp: "Tôi không muốn tìm, thuế phải nộp thì cứ nộp thôi."
+Triệu Kim An trầm ngâm im lặng một lúc, rồi bình thản đáp: "Tôi không muốn xin. Thuế má phải đóng bao nhiêu thì cứ nộp đủ bấy nhiêu."
 
-Thẩm Tử Ngôn nhìn hắn, không tài nào hiểu nổi.
+Thẩm Tử Ngôn ngước nhìn Triệu Kim An, ánh mắt đầy vẻ khó hiểu.
 
-Triệu Kim An nói tiếp: "Sắp lên năm hai rồi, cũng chỉ còn ba năm nữa thôi."
+Triệu Kim An bồi thêm một câu: "Sắp lên năm hai rồi, cũng chỉ còn ba năm nữa thôi."
 
-Thẩm Tử Ngôn nhìn Triệu Kim An không nói gì, ánh mắt có chút áp lực.
+Thẩm Tử Ngôn cứ nhìn chằm chằm vào anh không nói lời nào, ánh mắt tạo nên một áp lực vô hình.
 
-Sẽ có người nói Triệu Kim An quá cảm tính, thực ra rất đơn giản, có được sự tiên tri của mười tám năm sau, Triệu Kim An thà nộp thêm chút thuế còn hơn là cầm đơn xin khởi nghiệp đến văn phòng Đoàn trường tìm Hà Minh Huy.
+Có người sẽ bảo Triệu Kim An quá đỗi ngang bướng và tùy hứng. Kỳ thực nguyên do rất đơn giản: mang theo ký ức và tầm nhìn của mười tám năm sau, Triệu Kim An thà nộp thêm chút tiền thuế còn hơn phải cầm lá đơn xin hỗ trợ khởi nghiệp lên Đoàn trường tìm Hà Minh Huy.
 
-Hắn không muốn để nhà trường cảm thấy hắn đang nợ ân tình của họ.
+Anh không muốn để nhà trường cảm thấy anh đang nợ họ một ân tình.
 
-Đây có thể coi là cái "gai" trong lòng Triệu Kim An ở kiếp trước, nếu vì chút tiền thuế mà thỏa hiệp với bản thân, thì sau này hắn có kiếm được bao nhiêu tiền đi chăng nữa...
+Đây chính là chiếc "gai nhọn" găm sâu trong lòng Triệu Kim An từ kiếp trước. Nếu vì dăm ba đồng tiền thuế mà thỏa hiệp, tự hòa giải với nỗi uất ức ấy, thì sau này anh có kiếm được bao nhiêu tiền đi chăng nữa...
 
-Thẩm Tử Ngôn và Triệu Kim An thời gian qua phối hợp rất ăn ý, không ngờ vừa mới vào làm đã nảy sinh bất đồng.
+Thẩm Tử Ngôn và Triệu Kim An thời gian qua phối hợp vô cùng ăn ý nhịp nhàng, chẳng ngờ vừa mới chính thức vào làm việc đã nảy sinh bất đồng.
 
-Cũng không phải bất đồng về quản lý hay phát triển công ty.
+Đây không phải là bất đồng về đường lối quản lý hay chiến lược phát triển công ty.
 
-Mà Thẩm Tử Ngôn cảm thấy Triệu Kim An trong chuyện này có chút tùy hứng.
+Mà là Thẩm Tử Ngôn cảm thấy Triệu Kim An trong chuyện này đã xử sự quá mức cảm tính.
 
-Người quản lý công ty nên cực kỳ lý trí!
+Một người quản trị doanh nghiệp bắt buộc phải luôn giữ cái đầu cực kỳ lý trí!
 
-Đặc biệt là Triệu Kim An, hắn là người cầm lái của cả con tàu này.
+Đặc biệt là Triệu Kim An, người đang nắm giữ tay chèo lèo lái cả con thuyền này.
 
-Trở về ký túc xá.
+...
 
-Thẩm Tử Ngôn cởi khuy áo, trút bỏ sơ mi, để lộ tấm lưng trắng ngần mịn màng, dây áo lót đen thắt chặt. Nhờ thường xuyên vận động nên vòng eo thon gọn trông rất săn chắc.
+Trở về phòng ký túc xá.
 
-"Tử Ngôn, cậu... cậu cũng mua xe rồi à?"
+Thẩm Tử Ngôn cởi từng chiếc cúc áo, trút bỏ chiếc áo sơ mi công sở. Tấm lưng trần nuột nà, trắng nõn nà lộ ra, chiếc áo ngực màu đen ôm sát vòng một đầy đặn, vòng eo con kiến săn chắc nhờ chăm chỉ tập luyện toát lên vẻ đẹp tràn đầy sức sống.
 
-Thẩm Tử Ngôn gật đầu "ừm" một tiếng, nàng vẫn đang mải suy nghĩ về chuyện công việc.
+"Tử Ngôn, cậu... cậu cũng mua ô tô rồi à?"
 
-Diêu Tân nói: "Sao mọi người đều thế này hết vậy... Tớ muốn đổi phòng quá."
+Thẩm Tử Ngôn khẽ "Ừ" một tiếng, trong đầu cô vẫn còn đang vẩn vơ nghĩ về công việc ở công ty.
 
-Mộc Dao nhìn Thẩm Tử Ngôn nhưng không nói gì, nhà nàng mua không nổi chiếc Mercedes E230 đó.
+Diêu Sân thở dài thườn thượt: "Sao các cậu ai cũng thế này hết vậy... Tớ muốn chuyển phòng ký túc xá quá đi mất."
 
-Năm 2007, giá niêm yết của Mercedes E230 rơi vào khoảng 550 đến 600 nghìn tệ, Mộc Nhân Cường vẫn đang đi chiếc Volkswagen, ngay cả chiếc BMW của dì nhỏ Trương Vân Thiến cũng không đắt đến mức đó.
+Mộc Dao nhìn Thẩm Tử Ngôn rồi im lặng không nói gì. Gia đình cô không đủ khả năng mua nổi một chiếc Mercedes E230 như thế.
 
-Từ Mạn Mạn nhìn Thẩm Tử Ngôn một lúc, nàng đã hiểu ra.
+Vào năm 2007, giá lăn bánh của một chiếc Mercedes E230 dao động từ 550.000 đến 600.000 tệ. Bố cô là Mộc Nhân Cường hiện tại vẫn chỉ lái chiếc Volkswagen thông thường, ngay cả chiếc BMW của dì nhỏ Trương Vân Thiến cũng chẳng đắt đỏ đến mức ấy.
 
-Thẩm Tử Ngôn sắp làm việc cùng Triệu Kim An rồi.
+Từ Mạn Mạn nhìn Thẩm Tử Ngôn một lúc, trong lòng cô đã hiểu ra.
+
+Thẩm Tử Ngôn sắp sửa sát cánh làm việc cùng Triệu Kim An rồi.
+
+...
 
 Đêm đến.
 
-Trần Trạch cũng nhắn tin hỏi, có phải Thẩm Tử Ngôn mới mua Mercedes E230 không?
+Trần Trạch cũng nhắn tin qua điện thoại hỏi: Có phải Thẩm Tử Ngôn vừa tậu chiếc Mercedes E230 không?
 
-Từ Mạn Mạn chỉ gửi lại một chữ "Ừm".
+Từ Mạn Mạn chỉ nhắn lại vỏn vẹn một chữ: "Ừ."
 
-Thiếu gia Trạch: "Tôi biết ngay nhà Thẩm Tử Ngôn rất giàu mà, không ngờ vừa mua đã là Mercedes E230, trường mình chẳng mấy ai đi xe xịn hơn nàng đâu..."
+Trạch Thiếu: "Anh biết ngay nhà Thẩm Tử Ngôn giàu nứt đố đổ vách mà, không ngờ vừa mua là quất ngay chiếc Mercedes E230. Trường mình chẳng có mấy ai chạy xe xịn hơn cô ấy đâu..."
 
-Thiếu gia Trạch: "Có kẻ đi Porsche đấy, nhưng nghe nói việc kinh doanh của nhà gã thực ra cũng chẳng ra sao..."
+Trạch Thiếu: "Có thằng kia lái Porsche, nhưng nghe đồn chuyện làm ăn của nhà nó dạo này cũng bết bát lắm..."
 
-Nhìn tin nhắn của Trần Trạch, Từ Mạn Mạn không trả lời nữa, nàng thực sự không có hứng thú với những chuyện này.
+Nhìn những dòng tin nhắn của Trần Trạch, Từ Mạn Mạn không buồn trả lời lại nữa. Cô thực sự chẳng có chút hứng thú nào với những chuyện phù phiếm này.
 
-Sắp tới kỳ thi cuối kỳ.
+...
 
-Cúp Trăn Nhiên sau hai mươi ngày tranh tài cũng sắp kết thúc trước khi các trường đại học bước vào đợt thi.
+Kỳ thi cuối học kỳ đã cận kề.
+
+Giải bóng rổ Cúp Trăn Nhiên sau 20 ngày tranh tài sôi nổi cũng đi đến hồi kết thúc trước khi các trường đại học bước vào mùa thi cử.
 
 Lưu Sấm Phong bị loại ở vòng thứ năm.
 
-Hắn hỏi Triệu Kim An xem có giải khuyến khích nào không.
+Cậu ta lân la hỏi Triệu Kim An xem có giải thưởng an ủi nào không.
 
-Triệu Kim An bảo: "Hay là ông ôm một thùng nước bọt khí về nhé?"
+Triệu Kim An cười bảo: "Hay là cậu vác một thùng soda bọt khí về uống dần nhé?"
 
-Thế là Lưu Sấm Phong thật sự đi tìm Vương Duy Đào ôm một thùng nước bọt khí về ký túc xá, nói là do Triệu Kim An bảo.
+Lưu Sấm Phong thế mà làm thật, chạy ngay đi tìm Vương Duy Đào ôm một thùng soda bọt khí về phòng ký túc xá, bảo là do chính miệng Triệu Kim An cho phép.
 
-Triệu Kim An về phòng thấy vậy thì hơi ngạc nhiên, hỏi Lưu Sấm Phong thời gian qua uống nước bọt khí chưa thấy phát ngán sao? Đám người tham gia thi đấu chỉ cần ra sân là được uống thoải mái rồi mà.
+Triệu Kim An quay về phòng, thấy vậy có chút ngạc nhiên, hỏi Lưu Sấm Phong dạo này uống soda bọt khí còn chưa thấy ngấy đến tận cổ hay sao? Bọn họ là vận động viên tham gia thi đấu, chỉ cần ra sân bóng là được uống thả ga thoải mái.
 
-Lưu Sấm Phong cười hì hì: "Dù sao cũng là của công ty ông mà, Kim An, ông có quyền hành thì phải... đúng không?"
+Lưu Sấm Phong cười hề hề: "Dù sao cũng là của công ty cậu mà, Kim An có quyền thì... phải tranh thủ chứ, đúng không?"
 
-Triệu Kim An mỉm cười.
+Triệu Kim An mỉm cười lắc đầu.
 
-Hắn ném cho Lưu Sấm Phong một điếu thuốc rồi hỏi: "Nghỉ hè ông lại làm nghề mua hộ vé tàu à?"
+Anh rút một điếu thuốc ném cho Lưu Sấm Phong rồi hỏi: "Nghỉ hè này cậu lại đi săn vé tàu hỏa kiếm tiền nữa à?"
 
-Lưu Sấm Phong đáp: "Nghỉ hè làm ăn chán lắm, mọi người không vội về nhà, lại không phải đợt Xuân vận nên vé tàu rất dễ mua."
+Lưu Sấm Phong đáp: "Mùa hè làm ăn ế ẩm lắm, sinh viên đâu có vội vã về quê như đợt Tết, lại không có đợt cao điểm Xuân vận nên vé tàu hỏa dễ mua hơn nhiều."
 
-Cốc Siêu Thừa nhìn Triệu Kim An nửa ngày, ấp úng nói: "Kim An, có phải Đường Hiểu Tình sắp đón mẹ nàng lên Quận Sa không? Hai người làm thêm nghỉ hè chắc không về chứ?"
+Cốc Siêu Thừa ngồi nhìn Triệu Kim An hồi lâu, ấp úng mãi mới mở lời: "Kim An này, có phải Đường Hiểu Tình sắp đón mẹ lên Quận Sa không? Mấy người làm thêm bọn cậu hè này đều ở lại không về quê nhỉ?"
 
-"Ừm."
+"Ừ." Triệu Kim An gật đầu.
 
-Triệu Kim An gật đầu.
+Cốc Siêu Thừa như vừa hạ một quyết tâm to lớn: "Kim An, công ty cậu còn tuyển thêm người không?"
 
-Cốc Siêu Thừa như hạ quyết tâm: "Kim An, công ty ông còn tuyển người không?"
+"Hè này tớ cũng muốn ở lại làm thêm kiếm tiền."
 
-"Tôi cũng muốn ở lại làm thêm dịp hè."
-
-Suy nghĩ của Cốc Siêu Thừa rất đơn giản, không phải Đường Hiểu Tình từ chối hắn sao, vậy thì hắn sẽ tranh thủ kỳ nghỉ hè để thể hiện thật tốt, cô đến rồi, cô ấy sẽ nhìn thấy.
-
-Hắn không tin mình làm đến mức này mà hai người họ còn không thấy được lòng thành của mình.
+Suy nghĩ của Cốc Siêu Thừa vô cùng đơn giản: Đường Hiểu Tình chẳng phải đã từ chối cậu ta sao? Vậy thì cậu ta sẽ nhân dịp kỳ nghỉ hè này thể hiện thật tốt. Khi mẹ cô lên đây, bác gái nhìn thấy sự chân thành và nhiệt tình của cậu ta, chẳng lẽ hai mẹ con họ lại không động lòng trước tấm chân tình ấy?
 
 Triệu Kim An nhìn Cốc Siêu Thừa.
 
-Thực ra nếu Cốc Siêu Thừa đối xử với Đường Hiểu Tình như vậy ngay từ khi mới nhập học năm nhất thì có lẽ hắn đã có cơ hội lớn rồi.
+Thực ra, nếu ngay từ lúc mới nhập học năm nhất Cốc Siêu Thừa đã đối xử chân thành, kiên trì với Đường Hiểu Tình như thế này thì có lẽ cơ hội thành công đã rất lớn rồi.
 
-Bây giờ làm vậy thì có chút...
+Còn đợi đến bây giờ mới nhảy vào thì lại có vẻ hơi...
 
-Đến cả Trần Trạch cũng nói: "Lão Cốc, ông làm thế này... mắt nhìn cũng tốt đấy, Đường Hiểu Tình ngoài việc hơi thấp một chút thì trông khá xinh xắn."
+Ngay cả Trần Trạch cũng lên tiếng: "Lão Cốc à, cậu làm thế này... mắt nhìn người cũng được đấy chứ. Đường Hiểu Tình ngoại trừ vóc dáng hơi nhỏ nhắn một chút thì mặt mũi xinh xắn ra phết."
 
-"Chứ còn gì nữa!"
+"Đúng thế đấy!"
 
-Lưu Sấm Phong lập tức phụ họa: "Nghe nói lương của Đường Hiểu Tình bây giờ hơn một nghìn tệ đấy."
+Lưu Sấm Phong lập tức hùa theo: "Nghe đồn lương làm thêm hiện tại của Đường Hiểu Tình hơn một nghìn tệ lận đấy."
 
-"Không phải vì tiền, tôi không có ý định tiêu tiền của Đường Hiểu Tình!"
+"Không phải vì tiền đâu, tớ không bao giờ có ý định tiêu tiền của Đường Hiểu Tình cả!"
 
-Cốc Siêu Thừa da mặt mỏng, việc hắn không muốn tiêu tiền của Đường Hiểu Tình là thật, hắn nói: "Lương hơn một nghìn cũng có đáng là bao, tôi thực lòng muốn cùng Đường Hiểu Tình chăm sóc mẹ nàng."
+Cốc Siêu Thừa da mặt mỏng, vội vàng thanh minh. Cậu ta không muốn lợi dụng tiền bạc của Đường Hiểu Tình là sự thật. Cậu ta nói tiếp: "Lương hơn một nghìn tệ thì có là bao nhiêu đâu chứ. Tớ là thực lòng muốn cùng Đường Hiểu Tình chăm sóc cho mẹ cậu ấy."
 
-Dù sao thì chàng trai mười chín tuổi Cốc Siêu Thừa cũng tự thấy rất cảm động.
+Nói tóm lại, chàng trai 19 tuổi Cốc Siêu Thừa lúc này đang tự cảm động sâu sắc bởi chính sự hy sinh cao cả của bản thân.
 
-Triệu Kim An nói: "Công ty có tuyển người, nhưng chỉ tuyển nhân viên kinh doanh biết lái xe và có kinh nghiệm làm hàng tiêu dùng nhanh thôi."
+Triệu Kim An bình thản nói: "Công ty có tuyển người, nhưng chỉ tuyển nhân viên thị trường biết lái xe và đã có kinh nghiệm làm việc trong ngành hàng tiêu dùng nhanh thôi."
 
-Triệu Kim An cứ ngỡ chuyện này thế là xong.
+Triệu Kim An cứ nghĩ câu chuyện đến đây là dừng lại.
 
-Nhưng mấy ngày sau Lưu Sấm Phong lại nói Cốc Siêu Thừa đang thật sự đi tìm việc làm thêm kỳ nghỉ hè.
+Chẳng ngờ mấy hôm sau Lưu Sấm Phong kể lại rằng Cốc Siêu Thừa thực sự đang lùng sục khắp nơi để tìm một công việc làm thêm trong dịp hè.
+
+...
 
 Ở một diễn biến khác.
 
-Nhận được điện thoại của Đường Hiểu Tình, thím Năm đi bộ hai dặm đường đến báo cho Lưu Mỹ Nga, nói rằng Thanh Thanh sắp đón bà lên thành phố lớn, bảo bà dọn dẹp đồ đạc trước.
+Nhận được cuộc điện thoại của Đường Hiểu Tình, thím Năm phải đi bộ hơn hai dặm đường sang nhà báo tin cho Lưu Mỹ Nga, bảo rằng bé Tình sắp đón bà lên thành phố lớn, bảo bà mau mau thu dọn đồ đạc dần đi.
 
-Chuyện Đường Hiểu Tình mới học xong năm nhất đã đón mẹ lên thành phố lớn lập tức lan truyền khắp làng.
+Chuyện Đường Hiểu Tình mới học xong năm nhất đại học đã đón mẹ ruột lên thành phố lớn sinh sống lập tức lan truyền khắp đầu làng ngõ xóm.
 
-Dân làng bàn tán xôn xao.
+Người trong làng túm năm tụm ba bàn tán xôn xao không ngớt.
 
-Đơn Vĩ lái chiếc xe bánh mì, chiếc Audi A6 không chở được nhiều đồ đạc.
+Đơn Vĩ lái chiếc xe van về quê đón người, bởi chiếc Audi A6 không thể nào chở được nhiều đồ đạc lỉnh kỉnh.
 
-Gã còn lắp thêm một chiếc ghế vào.
+Anh còn cẩn thận lắp thêm một chiếc ghế phụ vào phía sau.
 
-Đường Hiểu Tình mang theo tâm trạng háo hức, lòng dạ như đã bay về quê nhà.
+Đường Hiểu Tình mang tâm trạng hồi hộp, phấn khởi khôn xiết, lòng như lửa đốt chỉ mong nhanh chóng về đến nhà.
 
-Phải đi đường núi suốt mười sáu tiếng đồng hồ mới tới nơi, nhìn con đường núi quanh co uốn lượn khó đi như vậy, Đơn Vĩ mới biết ngôi làng của Đường Hiểu Tình hẻo lánh đến nhường nào, ra được một chuyến khó khăn biết bao.
+Xe chạy qua những cung đường đèo hiểm trở suốt 16 tiếng đồng hồ mới tới nơi. Nhìn những khúc cua quanh co, gập ghềnh khúc khuỷu khó đi đến rợn người, Đơn Vĩ mới thấm thía ngôi làng của Đường Hiểu Tình hẻo lánh và nghèo nàn đến mức nào, muốn bước chân ra khỏi lũy tre làng gian nan biết bao nhiêu.
 
-"Đường Hiểu Tình, hồi trước em đi học có xa không?"
+"Đường Hiểu Tình, trước đây em đi học có xa không?"
 
-Lái xe lâu nên Đơn Vĩ khơi gợi câu chuyện.
+Lái xe đường dài buồn ngủ, Đơn Vĩ bèn mở lời bắt chuyện.
 
-Đường Hiểu Tình cười đáp: "Cũng không xa lắm ạ, học cấp hai thì đi bộ mất một tiếng, cấp ba xa hơn chút thì phải ngồi xe nửa tiếng."
+Đường Hiểu Tình cười tươi đáp: "Dạ cũng không xa lắm đâu anh, hồi cấp hai em đi bộ mất khoảng một tiếng, lên cấp ba xa hơn một chút thì phải đi xe thêm nửa tiếng nữa ạ."
 
-Đơn Vĩ nhìn cô bé lạc quan này.
+Đơn Vĩ đưa mắt nhìn cô gái nhỏ nhắn nhưng luôn lạc quan, kiên cường này.
 
-"Em là sinh viên đại học duy nhất trong làng à?"
+"Em là sinh viên đại học duy nhất của làng mình à?"
 
-Đường Hiểu Tình lắc đầu nói: "Dạ cũng không hẳn."
+Đường Hiểu Tình lắc đầu cười: "Dạ cũng không hẳn đâu anh."
 
-Đợi đến khi họ tới cổng nhà, đã có rất nhiều họ hàng đứng chờ sẵn ở đó.
+Đến khi xe dừng trước cổng nhà, trước sân đã tụ tập đông đảo bà con họ hàng lối xóm đứng chờ từ bao giờ.

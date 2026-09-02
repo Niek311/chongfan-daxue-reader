@@ -1,207 +1,211 @@
-# Chương 120: Kỳ Nghỉ Hè Mỗi Người Mỗi Khác
+# Chương 120: Những kỳ nghỉ hè mỗi người một vẻ
 
-Sau khi Đoạn Thu Bình rời đi, thấy khách hàng bắt đầu đông lên, Tống Siêu Văn liền gọi điện cho con gái lớn, bảo cô đến phụ giúp một tay.
+> **Tiêu đề gốc**: 第120章 各有不同的暑假。
 
-Kinh doanh một xe đồ nướng chẳng hề dễ dàng, chưa nói đến việc khác, chỉ riêng việc ghi đơn, thu tiền, lau bàn thôi cũng đã cần người rồi.
+Sau khi Đoạn Thu Bình dắt con gái nhỏ bỏ về trước, thấy lượng khách khứa kéo đến quán nướng ngày một đông đúc, Tống Siêu Văn liền rút điện thoại gọi cho cô con gái lớn Tống Uyển Hòa, giục cô mau chóng đến quán phụ giúp một tay.
 
-Có khách gọi bia hay nước ngọt, lúc nào cũng phải có người chạy ra tiệm tạp hóa lấy.
+Kinh doanh một quầy thịt nướng vỉa hè vốn dĩ chẳng hề dễ dàng, không kể những việc bếp núc nặng nhọc, riêng khâu ghi chép thực đơn, thu tiền và lau dọn bàn ghế cũng luôn cần người túc trực thường xuyên.
 
-Một mình Tống Siêu Văn sao xoay xở cho xuể?
+Khách khứa hễ gọi thêm bia tươi hay nước ngọt đóng chai, cũng phải có người chạy vội sang tiệm tạp hóa bên cạnh lấy hàng.
 
-Gọi mấy cuộc mới có người nhấc máy, Tống Uyển Hòa nói đang đi xem phim với đồng nghiệp.
+Một mình Tống Siêu Văn xoay xở làm sao xuể?
 
-Cô còn bảo dì không phải đang ở đó sao?
+Gọi liên tiếp mấy cuộc điện thoại mới thấy đầu dây bên kia bắt máy, Tống Uyển Hòa uể oải bảo mình đang cùng đồng nghiệp ngồi xem phim trong rạp chiếu bóng.
 
-Tống Uyển Hòa cũng không gọi Đoạn Thu Bình là mẹ, chỉ gọi là dì.
+Cô nàng còn ngạc nhiên hỏi ngược lại chẳng phải có dì Thu Bình đang ở quán đỡ đần rồi hay sao?
 
-Hiếm có gia đình tái hôn nào mà con cái lại gọi đối phương là cha mẹ, thường thì chỉ gọi là chú hoặc dì.
+Tống Uyển Hòa xưa nay chưa từng cất tiếng gọi Đoạn Thu Bình là mẹ, chỉ một điều dì, hai điều xưng dì mà thôi.
 
-Trừ khi được nuôi nấng từ khi còn rất nhỏ.
+Trong các gia đình rổ rá cạp lại, con riêng hiếm khi nào chịu mở miệng gọi người mới của bố mẹ là bố hay mẹ, phần lớn đều chỉ gọi bằng chú hoặc dì.
 
-Tống Siêu Văn bảo: "Dì của con đưa em con về nhà rồi."
+Trừ phi đứa trẻ đó được người ta cưu mang, chăm bẵm từ tấm bé.
 
-Tống Uyển Hòa thấy hơi lạ, mới có mười giờ rưỡi, hôm nay vẫn còn sớm mà.
+Tống Siêu Văn đành bảo dì của con vừa dắt em gái con về nhà trước rồi.
 
-Thực ra cũng không trách được Tống Uyển Hòa.
+Tống Uyển Hòa nghe vậy lấy làm lạ lùng, mới có mười giờ rưỡi đêm, hôm nay quán dọn hàng ra sớm thế cơ mà.
 
-Tống Uyển Hòa mới tầm 22, 23 tuổi, chính là cái tuổi "một mình ăn no cả nhà không đói".
+Thực ra cũng không thể hoàn toàn trách móc Tống Uyển Hòa được.
 
-Chưa lập gia đình, lương phát ra tiêu hết không còn dư, chỉ cần không ngửa tay xin tiền nhà là tốt rồi.
+Cô nàng mới bước sang độ tuổi hai mươi hai, hai mươi ba, cái độ tuổi son rỗi "một thân no ấm là cả nhà ấm no", chưa từng phải gánh vác chút áp lực cơm áo gạo tiền nào.
 
-Đừng nói là con gái, ngay cả con trai ở tuổi này cũng hiếm ai nghĩ đến việc tiết kiệm tiền để cưới vợ.
+Chưa lập gia đình, hàng tháng lĩnh lương tiêu xài vừa vặn hết nhẵn túi, không phải ngửa tay xin tiền bố mẹ đã là may mắn lắm rồi.
 
-Tan làm thì cùng đồng nghiệp bạn bè đánh bài, dạo phố, xem phim.
+Chẳng riêng gì con gái, ngay cả đám con trai ở lứa tuổi này cũng hiếm có ai biết lo xa, tính chuyện tích cóp tiền nong để cưới vợ sinh con.
 
-Đúng là cái tuổi ham chơi.
+Cứ tan sở là lại tíu tít rủ bạn bè, đồng nghiệp tụ tập đánh mạt chược, đi dạo phố phường mua sắm hay kéo nhau vào rạp xem phim.
 
-Bảo Tống Uyển Hòa ngày nào tan làm cũng phải về phụ giúp hoặc trông em, làm sao cô có thể hiểu chuyện đến mức đó?
+Đó chính là giai đoạn tuổi trẻ ham chơi, thích hưởng thụ nhất của đời người.
 
-Tống Uyển Hòa lại chưa từng phải chịu khổ cực gì nhiều, Đoạn Thu Bình gả qua đây tuyệt đối là một bà mẹ kế đạt chuẩn, nên cô tự nhiên cũng chẳng cần phải quá hiểu chuyện.
+Bảo Tống Uyển Hòa ngày nào tan sở cũng phải lủi thủi chạy về quán nướng phụ việc hay phụ giúp bế em, làm sao cô nàng có thể hiểu chuyện và chu đáo đến mức độ ấy được?
 
-Kiếp trước, khi người của tiệm thuốc nơi Tống Uyển Hòa làm việc đi bồi dưỡng ở Quận Sa, Tống Uyển Hòa đã đến trường đại học tìm Triệu Kim An.
+Tống Uyển Hòa từ bé đến lớn đâu phải nếm trải quá nhiều cay đắng cơ cực, Đoạn Thu Bình gả về đây lại là một người mẹ kế mẫu mực, hết lòng vun vén cho gia đình chồng, thế nên cô nàng tự khắc chẳng bao giờ hình thành được tính tự lập hay biết nghĩ cho người khác.
 
-Cô đã mời Triệu Kim An đi ăn một bữa ở tiệm.
+Kiếp trước, khi hiệu thuốc nơi Tống Uyển Hòa công tác tổ chức một đợt tập huấn chuyên môn tại Quận Sa, cô nàng từng đến tận trường đại học tìm gặp Triệu Kim An.
 
-Người chị trên danh nghĩa này, dù đã đi làm rồi cũng chẳng mảy may nghĩ đến việc nhét cho Triệu Kim An ít tiền tiêu vặt.
+Hôm đó, cô chỉ dẫn anh vào một quán ăn bình dân gọi vài món cơm canh đãi anh một bữa.
 
-Tất nhiên, không cho là bổn phận, cho mới là tình nghĩa.
+Người chị trên danh nghĩa này, dẫu đã đi làm có thu nhập ổn định từ lâu, nhưng trong suốt buổi gặp gỡ ấy tuyệt nhiên chẳng hề mảy may nghĩ đến chuyện giúi cho đứa em trai đang chật vật học đại học lấy một đồng tiền tiêu vặt nào.
 
-Kiếp trước Triệu Kim An và Tống Uyển Hòa chỉ gặp nhau đúng hai lần.
+Dĩ nhiên, không cho là bổn phận, còn cho mới là ân tình.
 
-Đó là lần cuối cùng!
+Kiếp trước Triệu Kim An và Tống Uyển Hòa cả thảy chỉ gặp mặt nhau đúng hai lần ngắn ngủi.
 
-Về sau, Tống Uyển Hòa kết hôn có mời Triệu Kim An, nhưng hắn không đi.
+Và bữa cơm năm ấy cũng chính là lần gặp gỡ cuối cùng giữa hai người!
 
-Cũng không gửi quà mừng.
+Về sau này, khi Tống Uyển Hòa tổ chức đám cưới linh đình, dù có gửi thiệp mời nhưng Triệu Kim An dứt khoát không đến tham dự.
 
-Dĩ nhiên, chuyện này chẳng liên quan gì đến việc lần gặp đó cô có cho tiền hay không, Triệu Kim An chỉ đơn giản là không muốn dính dáng gì đến gia đình bọn họ nữa.
+Anh cũng chẳng buồn gửi phong bì mừng cưới.
 
-Lại sẽ có người nói Triệu Kim An bạc tình.
+Tất nhiên, thái độ dứt khoát ấy hoàn toàn không xuất phát từ việc bữa cơm năm xưa cô có giúi tiền cho anh hay không, Triệu Kim An đơn giản chỉ là không muốn dính dáng, dây dưa bất kỳ mối quan hệ nào với gia đình người đàn ông họ Tống kia mà thôi.
 
-Được thôi, Triệu Kim An thừa nhận mình đúng là có chút bạc tình, mà kiếp này thì càng nhiều hơn một chút.
+Ắt hẳn sẽ có người trách móc Triệu Kim An là kẻ bạc bẽo, cạn tình cạn nghĩa.
 
-Du Phỉ gửi tin nhắn cho Triệu Kim An, nói bọn họ đã đến trường, bạn học cũ lại hẹn nhau tụ tập, còn nói Triệu Chí Dũng về nhà được mấy ngày lại quay lại Quận Sa rồi.
+Thôi thì Triệu Kim An cũng đành thừa nhận bản thân mình quả thực có đôi phần lạnh lùng, vô cảm, và ở kiếp sống này, sự lạnh lùng xa cách ấy lại càng thêm rõ nét hơn bao giờ hết.
 
-Lại còn chuyện Mộc Dao gọi điện cho cô nàng tối hôm đó, Du Phỉ đều kể hết cho Triệu Kim An nghe.
+***
 
-Kỳ nghỉ hè đầu tiên của thời đại học.
+Du Phi nhắn tin cho Triệu Kim An, kể rằng các bạn học cũ vừa rủ nhau về trường thăm thầy cô, rồi tụ tập hẹn hò đi ăn uống họp lớp, lại còn kể chuyện Triệu Trí Dũng sau khi về quê nghỉ được vài hôm đã vội vã thu dọn hành lý quay trở lại Quận Sa làm việc.
 
-Các bạn học lớp 209 hẹn gặp nhau tại một quán trà sữa gần trường.
+Cả chuyện đêm hôm trước Mộc Dao gọi điện thoại khóc lóc tâm sự những gì, Du Phi cũng chẳng hề giấu giếm mà kể hết cho Triệu Kim An nghe.
 
-Đám con trai túm tụm đánh bài, đám con gái thì buôn chuyện bát quái ở trường mình, phàn nàn về những người bạn cùng phòng kỳ quặc.
+Kỳ nghỉ hè đại học đầu tiên trong đời.
 
-Mọi người chơi đùa rất vui vẻ.
+Các cựu học sinh lớp chọn 209 hẹn gặp mặt nhau tại một quán trà sữa thoáng đãng nằm gần cổng trường trung học cũ.
 
-Du Phỉ ở phòng 411 chẳng có gì để phàn nàn, ngược lại phòng 406 của Mộc Dao lại có "drama" lớn.
+Cánh con trai túm tụm lại một bàn hào hứng chia bài đánh tiến lên, đám con gái thì rôm rả buôn đủ thứ chuyện đời tư ở các trường đại học, rồi thi nhau bóc phốt những thói hư tật xấu kỳ quặc của bạn cùng phòng.
 
-Mộc Dao diện một chiếc váy trắng nhỏ, ngồi trong góc sô pha với vẻ mặt ủ dột.
+Không khí buổi họp mặt diễn ra vô cùng náo nhiệt và vui vẻ.
 
-Cô thực sự chưa từng nghĩ sẽ có chuyện gì với Âu Cường, nhưng khi gặp lại Âu Cường, nhìn kiểu gì cũng thấy anh ta chẳng bằng được một nửa của Triệu Kim An.
+Ở phòng ký túc xá 411, Du Phi chẳng có điều gì đáng để phàn nàn, nhưng ở phòng 406 của Mộc Dao thì lại có cả một "ổ dưa hấu khổng lồ" chấn động lòng người.
 
-Một nữ sinh bất chợt hỏi: "Sao Triệu Kim An không đến? Kim An Gia thôn cách thành phố cũng không xa, tớ đi xe khách hai tiếng cũng tới rồi đây này."
+Mộc Dao diện một chiếc váy liền thân màu trắng tinh khôi, ngồi lặng lẽ ở một góc bàn với vẻ mặt ủ rũ, buồn bã không vui.
 
-Trình Tử Liên nói không sai.
+Cô thực sự chưa từng nghĩ sẽ nảy sinh tình cảm gì với Âu Cường, thế nhưng hôm nay gặp lại cậu ta, nhìn đi nhìn lại thế nào cũng thấy Âu Cường chẳng bằng được một góc nhỏ của Triệu Kim An.
 
-Không chỉ riêng lớp 209, mà trong toàn trường Trung học số 1 thành phố, ngoại hình của Triệu Kim An trong đám con trai là điều không cần phải bàn cãi.
+Một bạn nữ trong lớp bỗng cất tiếng hỏi: "Ủa, sao hôm nay không thấy Triệu Kim An tới nhỉ? Từ làng Triệu Gia Thôn ra đến trung tâm thành phố đâu có xa xôi gì, tớ bắt xe buýt lắc lư mất tận hai tiếng đồng hồ mà còn đến được đây này."
 
-"Dao Dao, Triệu Kim An đâu rồi?"
+Lời cô giáo Trình Tử Liên quả nhiên không sai chút nào.
 
-Nữ sinh này không biết chuyện Triệu Kim An và Mộc Dao đã chia tay.
+Không chỉ riêng trong phạm vi lớp 209, mà trong mắt toàn thể học sinh trường Nhất Trung năm ấy, diện mạo khôi ngô tuấn tú của Triệu Kim An trong đám con trai luôn là điều không ai có thể phủ nhận.
 
-Một bạn nữ bên cạnh kéo kéo áo cô nàng, mấp máy môi: "Chia, tay, rồi."
+"Dao Dao ơi, Triệu Kim An đâu rồi cậu?"
 
-Nữ sinh đó tên là Ngải Manh Manh, cũng từng ngồi cùng bàn với Triệu Kim An.
+Cô bạn này hoàn toàn không hay biết chuyện tình cảm giữa Triệu Kim An và Mộc Dao đã tan vỡ.
 
-Ngải Manh Manh ngẩn người một lúc: "Ơ, sao mà nhanh thế?"
+Một bạn nữ ngồi bên cạnh vội vàng đưa tay kéo nhẹ vạt áo cô bạn, mấp máy khẩu hình miệng ra hiệu: "Chia... tay... rồi."
 
-"Ai đòi chia tay trước vậy?"
+Cô bạn tên Ngải Manh Manh, người từng có quãng thời gian ngồi cùng bàn với Triệu Kim An hồi cấp ba.
 
-Mấy nữ sinh xung quanh đều lắc đầu, tỏ ý không biết.
+Ngải Manh Manh sững sờ mất một lúc, tròn mắt hỏi: "Hả... sao chia tay nhanh thế?"
 
-Bọn họ liền nhìn về phía Du Phỉ.
+"Ai là người chủ động nói lời chia tay trước vậy?"
 
-Du Phỉ cũng lắc đầu, ngậm miệng không nói.
+Mấy cô bạn gái xung quanh đều đồng loạt lắc đầu, tỏ vẻ không biết rõ nội tình.
 
-Mộc Dao không lên tiếng, trong lòng càng thêm phiền não.
+Ánh mắt của cả bọn lập tức đổ dồn về phía Du Phi.
 
-Rõ ràng bên ngoài thời tiết rất đẹp, ánh nắng rạng rỡ, trước cửa có mấy cây đại thụ cùng tiếng ve kêu râm ran, nhưng tâm trạng của Mộc Dao chẳng thể nào tươi tỉnh lên nổi.
+Du Phi chỉ khẽ lắc đầu, mím môi giữ kín như bưng không hé nửa lời.
+
+Mộc Dao cắn chặt môi ngồi im thin thít, tâm trạng trong lòng càng thêm ngổn ngang, bực bội khó tả.
+
+Rõ ràng tiết trời bên ngoài vô cùng đẹp đẽ, ánh nắng vàng rực rỡ len qua từng kẽ lá, trước hiên quán có mấy tán cây cổ thụ rợp bóng mát, tiếng ve sầu ngân vang râm ran khắp phố, vậy mà cõi lòng Mộc Dao lại chẳng thể nào tươi vui, rạng rỡ nổi.
 
 "Đôi Q!"
 
-Điền Vũ Hạo vừa đánh bài vừa cười nói: "Triệu Kim An nghỉ hè đang làm thêm ở Quận Sa kiếm tiền học phí đấy, chính là chỗ Trăn Nhiên kia kìa, đôi Q có ai chặn không? Năm ngoái nghỉ hè hắn với Triệu Chí Dũng chẳng phải cũng đi bán cá ngoài chợ đó sao?"
+Điền Vũ Hạo vừa vung tay đập mạnh đôi bài xuống bàn vừa cười nhạt mỉa mai: "Triệu Kim An đang bận bám trụ lại Quận Sa làm thêm cày tiền đóng học phí kia kìa, làm cho cái hãng nước ngọt Trăn Nhiên gì đó ấy... Đôi Q ai bắt không? Hè năm ngoái chẳng phải cậu ta với thằng Triệu Trí Dũng cũng suốt ngày vác mặt ra chợ cá tanh tưởi bán cá đấy thôi?"
 
-"Điền Vũ Hạo."
+"Điền Vũ Hạo!"
 
-Du Phỉ lên tiếng, cô cũng cười nói: "Gia cảnh nhà cậu tốt lắm sao? Triệu Kim An làm thêm thì đã làm sao? Bán cá thì có vấn đề gì?"
+Du Phi lập tức lên tiếng cắt ngang, cô cũng nở một nụ cười mỉa mai đáp trả: "Gia cảnh nhà cậu giàu có, bề thế lắm đấy à? Triệu Kim An tự lực cánh sinh đi làm thêm thì làm sao? Người ta đi bán cá kiếm tiền chân chính thì có gì đáng để cậu mang ra cười cợt hả?"
 
-"Đúng đấy Điền Vũ Hạo, người ta như Triệu Kim An là tự dựa vào bản thân mình."
+"Đúng đấy Điền Vũ Hạo, người ta Triệu Kim An dựa vào chính sức lao động của mình để kiếm sống, đáng tự hào hơn khối kẻ chỉ biết ăn bám!"
 
-Ngải Manh Manh cũng phụ họa theo.
+Ngải Manh Manh cũng lập tức lên tiếng phụ họa đanh thép.
+
+Điền Vũ Hạo bị dội một gáo nước lạnh, sượng sùng cứng họng: "..."
+
+Du Phi lại tiếp tục bồi thêm: "Chưa biết chừng khi chúng ta còn chưa kịp tốt nghiệp ra trường, Triệu Kim An đã là lãnh đạo cấp cao của một tập đoàn lớn rồi cũng nên. Đợt này giải bóng đá Cúp Trăn Nhiên phủ sóng rầm rộ khắp Làng Đại học chúng tôi..."
+
+Ngải Manh Manh nghe thế lại càng hào hứng vỗ tay đôm đốp: "Thế thì tuyệt quá! Sau này bọn mình tốt nghiệp đại học mà không xin được việc làm thì cứ kéo nhau đến đầu quân cho Triệu Kim An là xong! Ngày xưa tớ với cậu ấy từng ngồi cùng bàn cơ mà... ha ha ha!"
+
+"Du Phi, cậu cũng từng làm bạn cùng bàn với cậu ấy đúng không?"
+
+Du Phi khẽ mỉm cười gật đầu.
+
+Mộc Dao lúc này tâm trạng đang vô cùng nặng nề, liền ngước đôi mắt lạnh lùng nhìn thẳng vào Điền Vũ Hạo: "Điền Vũ Hạo, điều kiện kinh tế nhà cậu chắc cũng chẳng khấm khá hơn nhà Triệu Kim An là bao đâu nhỉ?"
 
 Điền Vũ Hạo: "..."
 
-Du Phỉ lại nói tiếp: "Có khi chúng ta còn chưa tốt nghiệp thì Triệu Kim An đã là quản lý cấp cao của công ty lớn rồi, lần này ở khu đại học chúng ta có Cúp Trăn Nhiên..."
+Tôi chỉ buột miệng nói vài câu sự thật thôi mà, có thêu dệt bôi nhọ ai đâu cơ chứ?
 
-Ngải Manh Manh càng thêm hăng hái, vỗ tay nói: "Vậy thì sau khi tốt nghiệp nếu không tìm được việc, chúng ta có thể đến đầu quân cho Triệu Kim An rồi, tớ với cậu ấy còn từng ngồi cùng bàn nữa cơ mà... ha ha ha."
+Bị ba cô gái xinh đẹp trong lớp đồng loạt chĩa mũi dùi công kích dữ dội, sắc mặt Điền Vũ Hạo xám ngoét lại, vô cùng khó coi và bẽ bàng.
 
-"Du Phỉ, cậu cũng từng ngồi cùng bàn đúng không?"
+Đặc biệt là những lời vặn vẹo gay gắt của Du Phi và Mộc Dao – trực tiếp đem gia cảnh bần hàn của cậu ta ra bóc trần không chút kiêng nể.
 
-Du Phỉ gật đầu.
+Gia đình Điền Vũ Hạo thực sự rất khó khăn, bố mẹ quanh năm chỉ biết bán mặt cho đất bán lưng cho trời làm nông nghiệp thuần túy.
 
-Tâm trạng Mộc Dao không tốt, liếc nhìn Điền Vũ Hạo một cái: "Điền Vũ Hạo, gia cảnh nhà cậu cũng chẳng khá khẩm hơn Triệu Kim An bao nhiêu đâu nhỉ?"
+Điều kiện gia cảnh ấy dĩ nhiên không thể nào đem ra so bì với nhà Du Phi, lại càng không có cửa để so sánh với gia thế bề thế của Mộc Dao.
 
-Điền Vũ Hạo: "..."
+Những nam sinh khác ngồi cùng bàn đánh bài đều thức thời ngậm chặt miệng, trong bụng thầm cười trộm. Họ đâu có ngu ngốc như Điền Vũ Hạo mà đi chọc giận đám con gái, Triệu Kim An xưa nay trong mắt phái nữ luôn có sức hút rất lớn.
 
-Tôi chỉ nói mấy câu thật lòng thôi mà, có vu khống gì đâu.
+Hơn nữa, Triệu Kim An và Mộc Dao từng có quãng thời gian mặn nồng yêu nhau, cậu đứng trước mặt bạn gái cũ của người ta mà buông lời mỉa mai, châm chọc thì bảo sao Mộc Dao không nổi đóa lên cho được?
 
-Bị mấy cô gái quây lại tấn công, sắc mặt Điền Vũ Hạo rất khó coi.
+Đúng là đồ ngốc hết phần thiên hạ.
 
-Đặc biệt là Du Phỉ và Mộc Dao, trực tiếp vặn hỏi "gia cảnh nhà cậu tốt lắm sao".
+Điền Vũ Hạo bất đắc dĩ đành đưa ánh mắt cầu cứu nhìn sang Âu Cường, bởi lẽ ban nãy cậu ta cố tình nói những lời mỉa mai ấy thực chất là muốn lấy lòng, nói đỡ cho Âu Cường.
 
-Gia cảnh nhà Điền Vũ Hạo đúng là không tốt, cũng không hẳn là tệ, chỉ là bố mẹ ở quê làm ruộng.
+Âu Cường thấy vậy liền đứng ra đóng vai người hào phóng, cười xòa xua tay: "Mọi người muốn uống thêm loại trà sữa nào nữa cứ gọi thoải mái nhé, hôm nay để mình bao trọn gói."
 
-Chắc chắn là không thể so với Du Phỉ, càng không thể so với Mộc Dao.
+Mộc Dao lạnh lùng đáp: "Tôi tự trả tiền phần của mình."
 
-Những nam sinh khác đều im lặng, thầm cười trong bụng, họ đâu có ngốc mà đi chọc vào đám con gái, Triệu Kim An trong mắt phái nữ vẫn rất có giá đấy chứ.
+Du Phi cũng lắc đầu: "Tớ không uống nữa đâu."
 
-Hơn nữa, Triệu Kim An và Mộc Dao từng yêu nhau, cậu nói Triệu Kim An như vậy, Mộc Dao có thể nể mặt cậu được sao?
+Ngải Manh Manh nháy mắt tinh nghịch với Du Phi rồi cười nói: "Âu lớp trưởng đã có lòng bao thì tụi này xin phép không khách sáo nhé?"
 
-Đúng là ngốc.
+Âu Cường ở Thượng Hải học Đại học Phúc Đán đã tìm được một cô bạn gái mới, nhưng kỳ nghỉ này về quê nhìn thấy nhan sắc kiều diễm của Mộc Dao, cậu ta lại không kìm được lòng mà xao xuyến. Dẫu sao thì việc ở Thượng Hải có bạn gái cũng đâu làm ảnh hưởng đến chuyện cậu ta muốn theo đuổi, tán tỉnh Mộc Dao ở quê nhà.
 
-Điền Vũ Hạo chỉ còn biết cầu cứu Âu Cường, vốn dĩ anh ta cũng là nói đỡ cho Âu Cường.
+Nào ngờ Du Phi bỗng ghé tai nói nhỏ một câu khiến Âu Cường chết sững: "Anh ấy à? Thôi dẹp cái ý định đó đi cho rảnh nợ."
 
-Âu Cường cười nói: "Mọi người muốn uống trà sữa gì cứ việc gọi thoải mái, tôi bao."
+Âu Cường gặng hỏi lý do tại sao.
 
-Mộc Dao đáp: "Tôi tự trả tiền."
+Du Phi thản nhiên ném lại một câu: "Bao giờ anh đi học mà tự lái chiếc xe Mercedes bóng lộn như Triệu Kim An đi rồi hẵng mơ mộng!"
 
-Du Phỉ cũng nói: "Tớ không uống nữa."
+Âu Cường nghe xong như bị sét đánh ngang tai, lòng tự trọng bị giáng một đòn đau điếng.
 
-Ngải Manh Manh nháy mắt với Du Phỉ: "Lớp trưởng Âu, vậy thì chúng tớ không khách sáo nhé?"
+Mộc Dao ngồi một góc, tâm trí hoàn toàn để trôi dạt đi đâu, bèn rút chiếc điện thoại di động ra xem.
 
-Âu Cường vốn dĩ lên Thượng Hải học đã tìm được bạn gái, nhưng về đây gặp lại Mộc Dao vẫn thấy cô xinh đẹp, vả lại việc có bạn gái ở Thượng Hải cũng chẳng ảnh hưởng gì đến chuyện yêu đương với Mộc Dao cả.
+Sáng nay Khổng Triết Vũ vẫn kiên trì gửi tin nhắn chúc ngày mới cho cô. Dù Mộc Dao đã nói rõ ràng rằng hiện tại cô chưa muốn tính đến chuyện yêu đương, nhưng Khổng Triết Vũ vẫn rất nhẫn nại theo đuổi, từng câu từng chữ gửi đến đều toát lên vẻ lịch thiệp, phong nhã của một chàng trai có học thức, không hề có chút sỗ sàng, thô lỗ nào.
 
-Ai ngờ Du Phỉ lại nói với Âu Cường: "Cậu hả? Thôi dẹp đi."
+Lúc này, trong nhóm chat QQ của phòng 406 lại bắt đầu nhảy thông báo rôm rả.
 
-Âu Cường truy hỏi tại sao?
+Sân Tốt Có Cậu (Diêu Sân): [Tử Ngôn ơi, cậu vẫn đang ở Thường Đức đấy à?]
 
-Du Phỉ bảo: "Chừng nào cậu đi học mà lái được Mercedes rồi hãy nói tiếp."
+Thẩm Tử Ngôn: [Ừ.]
 
-Âu Cường cảm thấy hơi bị đả kích.
+Đúng lúc này, Từ Mạn Mạn cũng xuất hiện trong nhóm chat.
 
-Mộc Dao có chút lơ đãng, lấy điện thoại ra.
+Mạn Đau Đau (Từ Mạn Mạn): [Công việc của công ty ở Thường Đức đang gặp phải trục trặc lớn gì sao cậu?]
 
-Khổng Triết Vũ sáng sớm còn gửi tin nhắn cho cô, Mộc Dao đã nói rõ mình chưa muốn yêu đương, nhưng Khổng Triết Vũ vẫn rất kiên trì, lời lẽ tỏ ra rất có phong độ quý ông, không hề thô lỗ.
+Thẩm Tử Ngôn: [Cũng không có vấn đề gì nghiêm trọng lắm đâu.]
 
-Nhóm chat QQ của phòng 406 đang rôm rả.
+Mạn Đau Đau: [Nếu có khó khăn gì thì cậu cứ nói ra nhé, chúng mình cùng nhau nghĩ cách tháo gỡ.]
 
-Diêu Tân: "Tử Ngôn, cậu vẫn còn ở Thường Đức à?"
+Sân Tốt Có Cậu: [Chuẩn luôn đấy, ba chú thợ da gộp lại cũng bằng một Gia Cát Lượng cơ mà!]
 
-Thẩm Tử Ngôn: "Ừm."
+Thẩm Tử Ngôn: [Thực sự không có vấn đề gì lớn đâu, tớ biết mình cần phải xử lý thế nào rồi.]
 
-Lúc này Mạn Đau Đau cũng lên tiếng trong nhóm.
+Sân Tốt Có Cậu: [Thế sao đến giờ cậu vẫn chưa chịu về lại Quận Sa?]
 
-Mạn Đau Đau: "Công ty ở Thường Đức có vấn đề gì lớn lắm sao?"
+Thẩm Tử Ngôn: [Chỉ là thị trường bên này cần thêm một chút thời gian để ổn định thôi.]
 
-Thẩm Tử Ngôn: "Không có vấn đề gì."
+Mộc Dao chỉ lặng lẽ đọc từng dòng tin nhắn mà không cất lời, miễn sao Thẩm Tử Ngôn vẫn còn đang ở lì tại Thường Đức là được.
 
-Mạn Đau Đau: "Có vấn đề gì cậu cứ nói ra, chúng ta cùng nhau nghĩ cách."
+Sân Tốt Có Cậu: [Thế hàng ngày ở bên đó cậu làm những công việc gì vậy?]
 
-Diêu Tân: "Đúng đấy, ba anh thợ giày bằng một ông Gia Cát Lượng mà."
+Thẩm Tử Ngôn: [Buổi sáng tớ tự lái xe van đi giao một chuyến hàng tới các đại lý, vừa mới quay về văn phòng, giờ thì đang ở trong kho kiểm kê lại số lượng hàng tồn.]
 
-Thẩm Tử Ngôn: "Thật sự không có vấn đề gì đâu, tớ biết phải làm thế nào."
+Sân Tốt Có Cậu: [Oa, Tử Ngôn ơi, cậu còn biết tự mình lái cả xe tải van đi chở hàng giao cho người ta nữa cơ á!?]
 
-Diêu Tân: "Vậy sao cậu vẫn còn ở Thường Đức?"
+Đọc được dòng tin nhắn này, chính Mộc Dao cũng không khỏi tròn mắt kinh ngạc, bởi lẽ ngay cả bằng lái xe ô tô cô còn chưa từng chạm tay vào học.
 
-Thẩm Tử Ngôn: "Chỉ là cần thêm chút thời gian thôi."
-
-Mộc Dao chỉ quan sát mà không nói gì, chỉ cần Thẩm Tử Ngôn vẫn còn ở Thường Đức là được.
-
-Diêu Tân: "Thế cậu đang làm gì đấy?"
-
-Thẩm Tử Ngôn: "Sáng nay vừa đi giao một chuyến hàng, mới về xong, giờ đang ở kho kiểm kê."
-
-Diêu Tân: "Oa, Tử Ngôn cậu còn biết lái xe tải nhỏ đi giao hàng cơ à?"
-
-Nhìn thấy tin nhắn này, Mộc Dao cũng rất kinh ngạc, đến bằng lái xe cô còn chưa có nữa là.
-
-Bọn họ cứ ngỡ Thẩm Tử Ngôn chỉ ngồi văn phòng, chỉ tay năm ngón điều hành mọi người thôi chứ.
+Trước đó bọn họ đều đinh ninh rằng một tiểu thư đài các giàu có như Thẩm Tử Ngôn khi đi làm sẽ chỉ ngồi trong phòng máy lạnh mát rượi, chỉ tay năm ngón chỉ đạo người khác làm việc mà thôi. Ai mà ngờ được cô ấy lại dám xắn tay áo, tự mình lao vào những công việc vất vả, bươn chải nơi đầu sóng ngọn gió đến như vậy.

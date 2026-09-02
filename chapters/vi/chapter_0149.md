@@ -1,157 +1,201 @@
-# Chương 149: Vô Thanh Tràn Lan Thành Sông
+# Chương 149: Lặng lẽ tràn thành sông.
 
-Chú Tưởng lại pha trà cho mỗi người, bảo là trà nhà tự trồng.
+> **Tiêu đề gốc**: 第149章 无声漫溢成河。
 
-Triệu Kim An hỏi Lạc Cẩn Chi một câu: "Tiêu chuẩn thế nào?"
+Bác Tưởng lại đon đả rót trà mời từng người, niềm nở khoe đây là loại trà búp do chính tay gia đình tự trồng trên nương.
 
-Lạc Cẩn Chi khẽ đáp: "Ăn cơm hai mươi tệ một người, ở lại ba mươi lăm tệ. Giá hơi cao một chút nhưng họ rất nhiệt tình, cũng đáng."
+Triệu Kim An quay sang hỏi nhỏ Lạc Cẩn Chi: "Chị tính mức chi phí thế nào cho họ thế?"
 
-Không rõ mức tiêu dùng ở thành phố thuộc tỉnh Thiểm Tây này ra sao, nhưng ở đây hai mươi tệ một người chắc chắn là hơi cao.
+Lạc Cẩn Chi khẽ thì thầm đáp: "Tiền ăn hai mươi tệ một người một bữa, tiền phòng ba mươi lăm tệ một đêm. Chi trả giá cao hơn một chút thì người ta mới nhiệt tình xởi lởi, rất đáng đồng tiền bát gạo."
 
-Ăn uống thì còn tạm, bát mì dầu sôi lớn như thế, lại còn có bánh kẹp thịt. Ở Quận Sa chắc chắn cũng phải mười mấy tệ. Có điều ở trọ ba mươi lăm tệ một đêm là bằng giá nhà nghỉ nhỏ ở Quận Sa rồi. Khoản này nếu ở Triệu Kim An Gia thôn, hẳn là sẽ có rất nhiều người hoan nghênh, thuộc về thu nhập "ngoài luồng".
+Không rõ mức sống và vật giá ngoài thành phố ở tỉnh Thiểm Tây này ra sao, nhưng tại một ngôi làng hẻo lánh như thế này, hai mươi tệ một bữa ăn chắc chắn là mức giá khá hậu hĩnh.
 
-Ăn xong bánh kẹp thịt, Triệu Kim An nhét một bao thuốc Hoàng Phù cho chú Tưởng rồi đi ra ngoài.
+Cơm nước thì khỏi phải bàn, một tô mì dầu sôi to đùng đầy đặn, lại thêm cả bánh mì kẹp thịt thơm lừng.
 
-Ngôi làng tên gọi Tưởng Môn Ảo này phong cảnh thật sự rất đẹp. Có điều gió thổi buốt quá, những cơn gió rít lên từ trong hẻm núi mang theo hơi ẩm, Triệu Kim An siết chặt áo khoác, bước thấp bước cao đi về phía dòng sông.
+Bữa ăn như thế này nếu ở đất Quận Sa chắc chắn cũng phải ngót nghét mười mấy tệ.
 
-Trời đã tối, chỉ có thể lờ mờ nhìn thấy bóng người.
+Riêng khoản ba mươi lăm tệ tiền ngủ một đêm thì đã ngang ngửa với giá thuê phòng ở các nhà nghỉ bình dân tại Quận Sa rồi.
 
-Một lát sau Lạc Cẩn Chi đi tới, lấy ra một chiếc điện thoại iPhone đời đầu.
+Mức giá này nếu đem áp dụng ở làng họ Triệu quê anh, bà con nông dân chắc chắn sẽ hoan nghênh nhiệt liệt, bởi đó là một nguồn "thu nhập phụ" không hề nhỏ.
 
-"Tặng cậu đấy, nghe lời cậu tôi đã bán hết cổ phiếu rồi, giờ nó giảm thê thảm như vậy."
+Ăn xong chiếc bánh mì kẹp thịt, Triệu Kim An kín đáo nhét một bao thuốc lá Hoàng Phù Dung vào tay bác Tưởng rồi rảo bước ra ngoài dạo quanh.
 
-Triệu Kim An nhìn chiếc điện thoại mà ngẩn người hồi lâu, smartphone!?
+Ngôi làng mang tên Tưởng Môn Áo này phong cảnh quả thực đẹp đến nao lòng.
 
-Đây mới là sản phẩm mà hắn quen thuộc.
+Chỉ có điều những cơn gió thổi qua đây lạnh đến thấu xương thấu thịt. Luồng gió rít lên từng hồi từ sâu trong hẻm núi hun hút, mang theo hơi ẩm buốt giá phả thẳng vào mặt. Triệu Kim An kéo chặt vạt áo khoác, bước từng bước gập ghềnh trên con đường mòn dẫn ra mép sông.
 
-"Điện thoại của cậu nát quá rồi."
+Trời đã tối mịt mù, mắt thường chỉ còn lờ mờ nhận ra những bóng hình mờ ảo.
 
-Lạc Cẩn Chi không biết Triệu Kim An đang nghĩ gì: "Kiếm được tiền mà cũng không biết đổi cái mới, đây là tôi nhờ người mua hộ đấy, giá không rẻ đâu, hơn tám ngàn tệ!"
+Một lát sau, Lạc Cẩn Chi bước theo sau tới gần, từ trong túi áo rút ra một chiếc điện thoại iPhone đời đầu.
 
-"Dùng được không?"
+"Tặng cậu này. Nhờ nghe theo lời cậu khuyên mà chị bán sạch toàn bộ cổ phiếu, nhìn thị trường mấy hôm nay cắm đầu rơi thảm hại mà chị hú vía."
 
-Triệu Kim An không biết nhà mạng có hỗ trợ hay không. Hắn không đổi điện thoại là vì cảm thấy điện thoại bây giờ cái nào cũng như cái nào, chỉ có hai chức năng gọi điện và nhắn tin.
+Triệu Kim An nhìn chằm chằm vào chiếc điện thoại trên tay cô, ngẩn người suốt một hồi lâu... Điện thoại thông minh cảm ứng!?
 
-"Chị không rành."
+Đây mới chính là thứ sản phẩm công nghệ quen thuộc gắn liền với cuộc đời của anh.
 
-Lạc Cẩn Chi nhún vai: "Họ bảo dùng được, bảo là jailbreak giải khóa là xong, cậu là thanh niên, chắc cậu phải hiểu chứ."
+"Chiếc điện thoại cục gạch của cậu nát quá rồi."
 
-Triệu Kim An hoài niệm cầm điện thoại nghịch một lúc, tám ngàn đúng là rất đắt, iPhone 4 sau này cũng chỉ bán hơn bốn ngàn. Hoài niệm ở đây không phải hoài niệm điện thoại Apple, mà là hoài niệm thời đại của chính mình.
+Lạc Cẩn Chi không hiểu Triệu Kim An đang mải nghĩ ngợi điều gì: "Kiếm được bao nhiêu tiền mà chẳng chịu sắm sửa đổi cái mới. Chiếc máy này là chị nhờ người quen mua xách tay từ nước ngoài về đấy, giá chẳng rẻ chút nào đâu, hơn tám nghìn tệ lận!"
 
-"Đúng là người trẻ tuổi có khác."
+"Máy này ở đây có dùng được không chị?"
 
-Lạc Cẩn Chi nhìn Triệu Kim An, một lúc lâu sau mới mở lời: "Kim An, có phải nội tâm cậu hơi lý tưởng hóa không? Hồi đó mua lại công ty của chị là vì Đông Giang ở Tư Tinh. Bây giờ lại tìm nguồn nước này, vẫn chấp nhận chi nhiều tiền hơn, còn cả yêu cầu của cậu về chất lượng nữa..."
+Triệu Kim An không rõ các nhà mạng viễn thông trong nước ở thời điểm này đã hỗ trợ băng tần của dòng máy này hay chưa.
 
-"Chị Cẩn Chi, tiêu thêm chút tiền thực sự không sao cả."
+Anh chưa đổi điện thoại là bởi thấy điện thoại thời này chiếc nào cũng na ná như nhau, loanh quanh cũng chỉ có hai chức năng cơ bản là nghe gọi và nhắn tin.
 
-Triệu Kim An cất điện thoại, đứng bên bờ sông suy nghĩ một chút: "Tôi biết chị muốn nói gì, tôi cũng không lý tưởng hóa đến thế đâu. Chuyện ăn, mặc, ở, đi lại..."
+"Chị cũng mù tịt khoản này."
 
-Hắn nhớ tới Trần Trạch: "Nếu tôi làm đồ điện tử, làm quần áo hay làm thứ khác, tôi đều có thể nhắm mắt kiếm tiền, cũng không hẳn là trái với lương tâm. Những thứ đó không dùng nữa thì vứt đi, mua đắt một chút cũng chẳng sao, chẳng qua là tốn thêm ít tiền thôi. Duy chỉ có thứ ăn vào bụng..."
+Lạc Cẩn Chi nhún vai: "Người ta bảo dùng được, bảo là chỉ cần 'bẻ khóa bẻ rào' gì đó là xài vô tư. Cậu là thanh niên trẻ tuổi, chắc chắn cậu rành mấy cái này hơn chị."
 
-"Còn cả nhà cửa nữa, rất nhiều người dân bình thường phải dốc sạch túi tiền của cả gia đình mới đủ tiền vay mua một căn hộ trong thành phố... Nếu không nhận được nhà, hoặc chất lượng có vấn đề nghiêm trọng, đó là tích cóp cả đời của họ."
+Triệu Kim An đón lấy chiếc điện thoại, mân mê cầm ngắm nghía trong lòng bàn tay với bao nỗi niềm hoài niệm dâng trào. Hơn tám nghìn tệ quả thực là một số tiền quá đắt đỏ ở thời điểm năm 2006, sau này chiếc iPhone 4 lừng danh cũng chỉ bán với giá hơn bốn nghìn tệ mà thôi.
 
-Triệu Kim An quay người nhìn Lạc Cẩn Chi: "Kiếm tiền thì được, chỉ sợ đến khi có tuổi rồi, lương tâm mình sẽ không yên."
+Anh hoài niệm không phải vì tiếc nuối một chiếc điện thoại Apple, mà là hoài niệm về cả một kỷ nguyên rực rỡ của thời đại mà mình từng thuộc về.
 
-Lạc Cẩn Chi chần chừ gật đầu, quay mặt nhìn ra mặt sông như đang suy ngẫm điều gì.
+"Đúng là tuổi trẻ có khác."
 
-"Kim An, đôi khi cậu không giống một sinh viên hai mươi tuổi chút nào."
+Lạc Cẩn Chi cứ thế lặng lẽ nhìn Triệu Kim An, một hồi lâu sau mới khẽ cất lời: "Kim An này, trong sâu thẳm tâm can cậu có phải là một người theo đuổi chủ nghĩa lý tưởng không? Ngày trước cậu quyết định mua lại công ty của chị là vì nhà máy Đông Giang nằm ở vùng Tư Tinh."
 
-Triệu Kim An cười khẽ một tiếng.
+"Giờ đây cậu lại cất công tìm kiếm nguồn nước này, chấp nhận tốn thêm biết bao nhiêu tiền của, rồi cả những đòi hỏi khắt khe đến cực đoan về chất lượng sản phẩm..."
 
-Hai người đứng bên bờ sông, gió thổi vù vù, Lạc Cẩn Chi siết chặt áo khoác, đầy vẻ mê hoặc nói: "Kim An, tối nay ngủ với chị không? Cậu muốn thế nào cũng được."
+"Chị Cẩn Chi à, chi thêm chút tiền thực sự không thành vấn đề."
 
-Triệu Kim An liếc nhìn phía sau: "Quan hệ của chúng ta, chỉ bàn tiền bạc không bàn tình cảm?"
+Triệu Kim An cất chiếc điện thoại vào túi áo, đứng lặng bên bờ sông cuộn chảy, trầm ngâm một lát rồi nói: "Em hiểu những điều chị muốn nói, nhưng em cũng chẳng phải là kẻ mơ mộng theo chủ nghĩa lý tưởng gì to tát đâu."
 
-"Cút!"
+"Ăn, mặc, ở, đi lại."
 
-Lạc Cẩn Chi cười mắng một câu, chị cũng đã thấy Triệu Quốc Hoa đang trốn ở đằng sau.
+Anh bất giác nhớ tới Trần Trạch: "Nếu như em làm về đồ điện tử, làm về may mặc hay các ngành nghề khác, em hoàn toàn có thể nhắm mắt làm ngơ, làm ăn theo kiểu chộp giật để kiếm tiền. Nói thẳng ra cũng chẳng hẳn là trái với lương tâm."
 
-Triệu Kim An còn nói với theo: "Chị Cẩn Chi, tiền bạc thực tế hơn tình cảm nhiều!"
+"Những thứ đồ đạc ấy dùng chán hay hỏng hóc thì người ta có thể vứt bỏ đi mua cái mới, mua đắt một chút cũng chẳng chết ai, cùng lắm chỉ là tốn thêm vài đồng bạc."
 
-"Chị đây không thiếu tiền tiêu!"
+"Nhưng riêng những thứ đưa vào mồm, nuốt vào bụng..."
 
-Lạc Cẩn Chi đi về, lúc đi ngang qua Triệu Quốc Hoa còn lườm một cái, oán khí rất nặng.
+"Và cả những ngôi nhà che mưa che nắng nữa. Biết bao nhiêu người dân lao động nghèo phải gom góp, bòn rút sạch sành sanh tiền bạc của sáu cái túi gia đình, còng lưng vay nợ ngân hàng mới mua nổi một căn hộ chung cư nơi phố thị..."
 
-"Ngày mai ông đi về cho tôi!"
+"Nếu như mua phải dự án treo không thể nhận nhà, hay chất lượng công trình nứt toác nguy hiểm, thì coi như cả đời họ tích cóp bị cướp trắng tay."
 
-"Hì hì."
+Triệu Kim An xoay người lại, ánh mắt kiên định nhìn thẳng vào Lạc Cẩn Chi: "Kiếm tiền thì ai cũng muốn, chỉ sợ đến khi tuổi xế chiều về già, lương tâm mình sẽ bị cắn rứt, không thể nào thanh thản nhắm mắt xuôi tay."
 
-Triệu Quốc Hoa cười làm hòa, nhảy ra ngoài: "Kim An, tối nay cháu ngủ ở đâu? Cái giường lò kia của chú rộng lắm, nhà người ta tắm rửa vệ sinh cũng rất tiện."
+Lạc Cẩn Chi thoáng ngập ngừng rồi khẽ gật đầu, quay mặt nhìn ra mặt sông mênh mông như đang chìm đắm trong những dòng suy tưởng mông lung.
 
-"Chú à, cháu lớn thế này rồi, quen ngủ một mình."
+"Kim An, nhiều lúc trông cậu chẳng giống một cậu sinh viên đại học hai mươi tuổi chút nào."
 
-"Vậy chú đi nhé?"
+Triệu Kim An bật cười nhẹ.
 
-"Vâng, chú ngủ sớm đi."
+Hai người cứ thế sóng đôi đứng bên bờ sông lộng gió, từng cơn gió lạnh thốc qua ràn rạt. Lạc Cẩn Chi khẽ kéo chặt vạt áo khoác, cất giọng đầy ma mị quyến rũ: "Kim An này, tối nay có muốn sang ngủ chung giường sưởi với chị không? Cậu muốn làm gì... cũng được hết đấy."
 
-Triệu Kim An thực sự không quen ngủ hai người, trừ khi đối phương là phụ nữ.
+Triệu Kim An liếc mắt nhìn ra phía sau bụi cây, cười đáp: "Mối quan hệ giữa hai chúng ta, chỉ bàn chuyện tiền bạc chứ không nói chuyện tình cảm có được không?"
 
-Sau khi Triệu Quốc Hoa rời đi, Triệu Kim An tìm một tảng đá lớn ngồi xuống, châm một điếu thuốc. Trước mặt là dòng nước sông trong vắt, trời tối nhìn không rõ, nhưng nghe tiếng nước chảy dường như có thể cảm nhận được.
+"Cút đi cho khuất mắt!"
 
-Đột ngột đến một ngôi làng xa lạ, cái lạnh không chỉ nằm ở nhiệt độ. Phóng tầm mắt ra xa, vạn vật như thu mình lại, một cảm giác tiêu điều cô độc giữa đất trời bao trùm lấy hắn. Nhất là khi cầm chiếc điện thoại Apple mang tính "vạch thời đại" này.
+Lạc Cẩn Chi cười mắng một câu, cô cũng đã sớm nhìn thấy bóng dáng lấp ló của Triệu Quốc Hoa đang đứng rình mò phía sau.
 
-Hắn không biết trên đời này còn có ai giống như mình không.
+Triệu Kim An vẫn cố tình với theo trêu chọc: "Chị Cẩn Chi ơi, tiền bạc nó thực tế hơn tình cảm nhiều lắm đấy!"
 
-Xá trưởng Lưu Sấm Phong nhắn tin hỏi Triệu Kim An đang ở đâu, còn nói Trần Trạch lại cả ngày không thấy bóng dáng, tối cũng không thấy về ký túc xá. Trần Trạch càng lúc càng ít đến lớp, trước đây thỉnh thoảng còn đối phó lúc điểm danh.
+"Bà đây có thèm thiếu tiền đâu!"
 
-Triệu Kim An nhắn tin trả lại bảo Lưu Sấm Phong là mình đi công tác, cất điện thoại đi, cảm giác ưu việt cũng biến mất. Đúng là chẳng có gì đáng để ưu việt cả. Nếu không có khả năng biết trước, mình làm chưa chắc đã tốt bằng Thẩm Tử Ngôn và Từ Mạn Mạn. Có lẽ, còn có cả Vu Tu Nhiên nữa.
+Lạc Cẩn Chi quay gót bước về, lúc đi ngang qua Triệu Quốc Hoa còn không quên lườm ông một cái cháy mặt, vẻ mặt tràn đầy oán khí hậm hực.
 
-Một lát sau, phía sau vang lên tiếng bước chân rất nhẹ.
+"Ngày mai ông chú liệu hồn mà bắt xe về sớm cho tôi!"
 
-"Chào anh."
+"He he."
 
-Triệu Kim An quay người, nhìn thấy một người phụ nữ và một bé gái: "Chào chị."
+Triệu Quốc Hoa nở nụ cười gượng gạo xoa dịu, nhảy tót ra khỏi chỗ nấp: "Kim An, tối nay cháu ngủ ở đâu thế? Cái giường sưởi chỗ chú nằm rộng thênh thang, nhà người ta tắm rửa đi vệ sinh cũng tiện nghi lắm."
 
-"Là Triệu tổng của Trăn Nhiên phải không?"
+"Chú ơi, cháu lớn tướng thế này rồi, quen ngủ một mình một giường rồi ạ."
 
-Triệu Kim An gật đầu.
+"Thế... chú về phòng trước nhé?"
 
-"Triệu tổng, tôi là Tưởng Tiết Oánh, đây là con gái tôi Tưởng Uyển Nhi."
+"Dạ, chú về ngủ sớm đi ạ."
 
-Nhìn một người phụ nữ xinh đẹp dắt theo một bé gái xinh xắn, Triệu Kim An chỉ gật đầu, không hề tỏ ra tò mò hay ngạc nhiên về việc con gái mang họ mẹ.
+Triệu Kim An thực sự không quen việc nằm chung giường với đàn ông, trừ phi đối phương là phụ nữ.
 
-"Tôi và Lạc tổng đã gặp nhau rồi."
+Sau khi Triệu Quốc Hoa rời đi, Triệu Kim An tìm một tảng đá phẳng phiu ven bờ ngồi xuống, châm một điếu thuốc lá.
 
-Tưởng Tiết Oánh nhắc nhở: "Tưởng Tăng Niên là cha tôi."
+Trước mặt anh là dòng nước sông trong vắt, màn đêm đen đặc khiến mắt thường không nhìn rõ được dòng chảy, nhưng lắng tai nghe tiếng nước róc rách cũng đủ để cảm nhận được sự thuần khiết mát lành.
 
-Lần này Triệu Kim An đã hiểu: "Cô Tưởng... có chuyện gì không?"
+Bỗng nhiên đặt chân tới một ngôi làng xa lạ nơi xứ người, cái lạnh không chỉ đến từ nhiệt độ ngoài trời.
 
-"Triệu tổng, anh có thể gọi tôi là xưởng trưởng Tưởng."
+Phóng tầm mắt ra xa, khắp bốn bề vạn vật đều lặng lẽ co mình thu liễm, đất trời toát lên một nỗi cô quạnh, tiêu điều và cô độc đến tột cùng.
 
-Đến đây Triệu Kim An dường như đã hiểu ra toàn bộ.
+Đặc biệt là khi rút ra chiếc điện thoại iPhone mang tính bước ngoặt của thời đại này.
 
-Không ngờ Tưởng Tiết Oánh lại thẳng thắn nói: "Triệu tổng, cha tôi chỉ vài năm nữa là nghỉ hưu rồi, vả lại cha tôi không phải loại người như thế, các anh đừng để bụng."
+Anh tự hỏi giữa thế giới rộng lớn bao la này, liệu có còn một ai khác cũng mang trong mình nỗi niềm cô đơn của một kẻ trùng sinh giống như anh hay không.
 
-"Vậy chị..."
+Lưu Sấm Phong - cậu bạn trưởng phòng ký túc xá nhắn tin hỏi thăm Triệu Kim An đang ở đâu, còn kể thêm rằng cả ngày hôm nay lại chẳng thấy bóng dáng Trần Trạch đâu, đêm hôm cũng không thấy mò về phòng ngủ.
 
-Triệu Kim An càng nghe càng thấy mờ mịt. Với một doanh nghiệp cấp thôn như thế này, lại có người cha như Tưởng Tăng Niên, Tưởng Tiết Oánh thực sự không nên ở lại đây.
+Trần Trạch dạo này ngày càng bỏ bê việc học hành trên giảng đường, trước kia thi thoảng còn tới ngồi cho có mặt để đối phó với những buổi điểm danh.
 
-"Cha tôi từng làm xưởng trưởng."
+Triệu Kim An nhắn tin trả lời Lưu Sấm Phong bảo mình đang đi công tác xa, rồi cất điện thoại vào túi, trong lòng không còn mảy may cảm giác tự đắc hay ưu việt nào nữa.
 
-Tưởng Tiết Oánh nói đến đó thì dừng lại, không tiếp tục dùng đòn tâm lý nữa: "Triệu tổng, trước khi các anh đến tôi đã nghiên cứu về Trăn Nhiên, anh và Lạc tổng... Đã mấy năm rồi, hiệu quả của xưởng vẫn không vực dậy nổi. Lạc tổng nói linh hồn của Trăn Nhiên là anh, Triệu tổng, nếu anh có thể chỉ điểm cho tôi một vài điều..."
+Quả thực chẳng có gì đáng để tự hào hay kiêu ngạo.
 
-Tưởng Tiết Oánh nói ra mục đích của chuyến đi này.
+Nếu như không có sự hiểu biết trước về tương lai của một kẻ trùng sinh, chưa chắc anh đã xoay xở và làm tốt được như Thẩm Tử Ngôn hay Từ Mạn Mạn.
 
-"Xưởng trưởng Tưởng, đây là xu thế chung rồi, đồ đóng hộp..."
+Và có lẽ, cả Vu Tu Nhiên nữa.
 
-Triệu Kim An cũng rất thẳng thắn.
+Một lát sau, phía sau lưng bỗng vang lên tiếng bước chân khe khẽ giẫm trên sỏi đá.
 
-"Tôi biết."
+"Xin chào anh."
 
-Tưởng Tiết Oánh nhìn Tưởng Gia Ảo dưới ánh trăng, u uất nói: "Tôi muốn ở lại đây, muốn giữ xưởng đồ hộp này lại..."
+Triệu Kim An xoay người lại, nhìn thấy một người phụ nữ trẻ cùng một bé gái xinh xắn: "Chào chị."
 
-Không gian chìm vào tĩnh lặng hồi lâu.
+"Anh có phải là Triệu tổng của công ty Trăn Nhiên không ạ?"
 
-Dưới ánh trăng, Tưởng Tiết Oánh trông đầy đặn lại trầm tĩnh, đứng trong gió đêm, như một dòng sông vô thanh tràn lan khắp chốn. Vẻ đẹp của chị không giống như được ánh trăng soi sáng, mà chính chị là người khiến vầng trăng lạnh lẽo có thêm chút ấm áp.
+Triệu Kim An gật đầu xác nhận.
 
-"Cha tôi chắc là muốn các anh cuối cùng bỏ ra chút tiền mua lại xưởng đồ hộp, nhưng tôi không muốn bán..."
+"Triệu tổng, tôi là Tưởng Chỉ Tình, còn đây là con gái tôi, cháu tên là Tưởng Uyển Nhi."
+
+Nhìn người phụ nữ đoan trang, xinh đẹp đang dắt tay một cô bé gái kháu khỉnh, Triệu Kim An khẽ gật đầu chào, tuyệt nhiên không hề lộ ra một tia tò mò hay ngạc nhiên nào trước việc đứa con gái lại mang họ mẹ.
+
+"Tôi đã từng gặp giám đốc Lạc rồi."
+
+Tưởng Chỉ Tình lên tiếng nhắc nhở: "Ông Tưởng Tăng Niên là cha ruột của tôi."
+
+Đến lúc này Triệu Kim An mới vỡ lẽ: "Giám đốc... à không, chị Tưởng có chuyện gì cần tìm tôi sao?"
+
+"Triệu tổng, anh có thể gọi tôi là Tưởng xưởng trưởng."
+
+Đến nước này thì Triệu Kim An dường như đã hiểu ra toàn bộ ngọn nguồn câu chuyện.
+
+Thế nhưng không ngờ Tưởng Chỉ Tình lại thẳng thắn bộc bạch: "Triệu tổng, cha tôi chỉ còn vài năm nữa là đến tuổi về hưu rồi. Hơn nữa cha tôi xưa nay không phải là người thích dùng quyền thế ép người, chuyện đó các anh không cần phải để bụng hay bận tâm đâu."
+
+"Thế thì chị..."
+
+Triệu Kim An càng nghe càng thấy khó hiểu.
+
+Nắm giữ một xí nghiệp quy mô cấp thôn nghèo nàn như thế này, lại có người cha từng làm lãnh đạo như ông Tưởng Tăng Niên nâng đỡ, Tưởng Chỉ Tình lẽ ra hoàn toàn không nên chôn vùi thanh xuân ở cái xó núi hẻo lánh này mới phải.
+
+"Trước đây cha tôi từng làm xưởng trưởng ở đây."
+
+Tưởng Chỉ Tình chỉ nói ngắn gọn đến đó, không hề có ý định tiếp tục dùng lá bài tình cảm để giãi bày: "Triệu tổng, trước khi các anh tới đây, tôi đã cất công tìm hiểu rất kỹ về công ty Trăn Nhiên của các anh. Anh và giám đốc Lạc... Bản thân tôi đã chèo chống xưởng suốt mấy năm nay rồi, nhưng hiệu quả kinh doanh của xưởng vẫn không tài nào ngóc đầu lên nổi."
+
+"Giám đốc Lạc bảo rằng linh hồn và người vạch ra định hướng của Trăn Nhiên chính là anh. Triệu tổng, nếu như anh có thể mở lòng chỉ điểm, định hướng cho tôi đôi ba điều..."
+
+Tưởng Chỉ Tình thẳng thắn nói ra mục đích thực sự của cuộc gặp gỡ đêm nay.
+
+"Tưởng xưởng trưởng à, đây là quy luật thoái trào của thời đại rồi, mặt hàng đồ hộp..."
+
+Triệu Kim An cũng trả lời vô cùng thành thật.
+
+"Tôi hiểu chứ."
+
+Tưởng Chỉ Tình ngước mắt nhìn bóng đêm bao trùm lấy ngôi làng Tưởng Gia Áo dưới ánh trăng mờ, cất giọng trầm buồn tha thiết: "Tôi chỉ muốn ở lại mảnh đất này, muốn giữ lại xưởng đồ hộp bằng mọi giá..."
+
+Không gian xung quanh chìm vào một khoảng lặng kéo dài.
+
+Dưới ánh trăng bàng bạc mờ ảo, dáng vẻ của Tưởng Chỉ Tình toát lên nét đằm thắm đẫy đà nhưng lại tĩnh lặng khôn cùng. Người phụ nữ ấy đứng sừng sững giữa ngọn gió đêm buốt giá, nỗi niềm u uẩn dường như đang lặng lẽ tràn thành một dòng sông vô tận.
+
+Vẻ đẹp kiều diễm của cô không giống như được ánh trăng soi chiếu, mà dường như chính sự ấm áp dịu dàng toát ra từ con người cô đã sưởi ấm cho cả mảnh trăng lạnh lẽo giữa trời đông.
+
+"Cha tôi có lẽ muốn các anh bỏ ra một khoản tiền để mua đứt lại xưởng đồ hộp này, nhưng bản thân tôi... tôi tuyệt đối không muốn bán..."
 
 "Triệu tổng?"
 
-Tưởng Tiết Oánh gọi một tiếng, nhìn Triệu Kim An với vẻ khẩn cầu.
+Tưởng Chỉ Tình khẽ gọi tên anh một tiếng, ánh mắt nhìn Triệu Kim An đong đầy sự thỉnh cầu tha thiết.
 
-Triệu Kim An gật đầu.
+Triệu Kim An khẽ gật đầu.
 
-"Cảm ơn."
+"Cảm ơn anh."
 
-Tưởng Tiết Oánh cũng gật đầu, dắt Tưởng Uyển Nhi rời đi.
+Tưởng Chỉ Tình cũng khẽ gật đầu đáp lễ, rồi dắt tay bé Tưởng Uyển Nhi lẳng lặng bước đi vào màn đêm sâu thẳm...

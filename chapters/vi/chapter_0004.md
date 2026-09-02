@@ -1,209 +1,215 @@
-# Chương 4: Kim An, Liếm Cẩu Là Gì
+# Chương 4: Kim An, "liếm cẩu" là cái giống gì thế?
 
-"Cho chị ít cá này, tối thêm món thức ăn."
+> **Tiêu đề gốc**: 第4章 今安，什么是舔狗？
 
-Triệu Kim An nghiêng giỏ tre.
+"Cho chị ít cá này, tối về rán giòn thêm một đĩa thức ăn."
 
-Triệu Chí Dũng sực tỉnh, gật đầu lia lịa: "Chị dâu, mau đi lấy cái bát ra đây!"
+Triệu Kim An nghiêng miệng giỏ tre.
 
-"Được, đợi chị một chút."
+Triệu Trí Dũng như sực tỉnh cơn mơ, đầu gật lia lịa như giã gạo: "Đúng đấy chị dâu, chị mau vào lấy cái bát to ra đây!"
 
-Doãn Hiểu Lan cũng chẳng khách sáo.
+"Ừ ừ, đợi chị một tí nhé."
 
-Ở trong thôn mấy thứ này không cần phải khách khí, nói trắng ra cũng chẳng phải vật gì giá trị cho cam.
+Doãn Hiểu Lan cũng chẳng khách sáo chối từ.
 
-Nếu không thích ăn thì tặng cũng chẳng ai lấy, cá nhỏ quá lười xử lý.
+Ở chốn làng quê này mấy chuyện vụn vặt này chẳng cần phải câu nệ làm gì, nói cho cùng cũng chẳng phải sơn hào hải vị đắt đỏ gì cho cam.
 
-Doãn Hiểu Lan động tác rất nhanh nhẹn, bước lên bậc thềm chạy vào gian nhà chính của mình, chẳng mấy chốc đã cầm một cái bát tô lớn chạy ra, đứng bên cạnh chiếc xe máy.
+Với những ai không thích ăn, có đem biếu không người ta cũng xua tay chẳng thèm lấy, bởi mớ cá vụn này nhỏ tí xíu, ngồi đánh vảy mổ ruột cũng đến mệt cả người.
 
-Triệu Kim An đổ đầy một bát lớn, cá to bằng một ngón tay, hai ngón tay, còn có mấy con chạch.
+Doãn Hiểu Lan thoăn thoắt bước thoăn thoắt lên bậc tam cấp chạy tọt vào gian nhà chính, chỉ loáng một cái đã bưng một chiếc tô sứ lớn chuyên dùng đựng canh chạy trở ra, đứng nép bên cạnh chiếc xe máy.
 
-Dù sao cá dưới sông cũng đủ loại tạp nham.
+Triệu Kim An nghiêng giỏ trút ra đầy ắp một tô tướng, nào là cá bằng một ngón tay, hai ngón tay, lại lẫn cả mấy con chạch béo mầm ngoe nguẩy.
 
-"Được rồi, được rồi, chạch cũng ra ngoài hết rồi kìa."
+Cá sông tự nhiên nên đủ mọi chủng loại tạp nham.
 
-Doãn Hiểu Lan một tay bưng bát, một tay cúi xuống nhặt mấy con chạch lên, miệng nói: "Kim An, tối nay em sang nhà chị ăn cơm, cả Chí Dũng nữa, mày cũng tới nhé."
+"Được rồi, được rồi em ơi, nhiều quá rồi, chạch bò cả ra ngoài rồi này!"
 
-"À, vâng vâng."
+Doãn Hiểu Lan một tay giữ chặt miệng tô, một tay cúi người nhặt lại mấy con chạch vừa trượt xuống đất, miệng không ngớt lời: "Kim An này, tối nay nhớ sang nhà chị ăn cơm nhé, cả Trí Dũng nữa, hai đứa cùng sang luôn cho vui!"
 
-Triệu Chí Dũng miệng thì đáp ứng, nhưng mắt cứ nhìn chằm chằm vào Doãn Hiểu Lan.
+"Dạ dạ, vâng ạ!"
 
-Triệu Kim An huých vào eo hắn một cái.
+Triệu Trí Dũng miệng đáp lia lịa, nhưng đôi mắt thì cứ nhìn chòng chọc không rời khỏi bóng dáng Doãn Hiểu Lan.
 
-Cái thằng cha này mới chịu nổ máy xe chào tạm biệt.
+Triệu Kim An kín đáo thúc mạnh cùi chỏ vào hông hắn một cái đau điếng.
 
-"Vừa nãy mày nhìn cái gì đấy? Không được nhìn lung tung!"
+Bấy giờ cái thằng dở hơi này mới giật mình rồ ga, cất tiếng chào tạm biệt rồi phóng xe đi.
 
-"Hì hì."
+"Vừa nãy mày nhìn đi đâu đấy hả? Mắt mũi không được nhìn lung tung nghe chưa!"
 
-Bị bạn nối khố chọc thủng tâm tư, Triệu Chí Dũng hơi ngượng ngùng.
+"Hì hì..."
 
-Thực ra Triệu Kim An còn nhìn thấy nhiều hơn.
+Bị thằng bạn bóc mẽ trúng tim đen, mặt Triệu Trí Dũng đỏ bừng lên, gãi đầu gãi tai ngượng ngùng.
 
-Doãn Hiểu Lan mặc chiếc áo phông hơi rộng, vừa cúi người... ừm, cái eo thon kia cũng khá đẹp.
+Thực ra Triệu Kim An ngồi sau nhìn thấy còn nhiều hơn thế.
 
-"Không phải mày nhìn đâu, mắt đừng có liếc bừa."
+Doãn Hiểu Lan mặc chiếc áo phông cổ hơi rộng, lúc nãy chị vừa cúi người xuống nhặt cá... thôi thì, cái vòng eo con kiến thon thả săn chắc ấy quả thực rất ưa nhìn.
 
-Triệu Kim An thấy cần thiết phải giáo huấn tử tế: "Tao là chú mày, chị ấy chính là thím mày đấy."
+"Người ta không phải đối tượng để mày ngó nghiêng đâu, liệu mà giữ mắt cho nghiêm chỉnh."
 
-Triệu Chí Dũng: "..."
+Triệu Kim An cảm thấy cần phải chấn chỉnh lại tư tưởng đạo đức cho thằng cháu họ này: "Tao là chú họ của mày, tính theo vai vế thì chị dâu chính là hàng bà của mày đấy con ạ."
 
-"Kim An, chị dâu đúng là đẹp thật."
+Triệu Trí Dũng: "..."
 
-Nói đoạn, hắn còn có chút phẫn nộ: "Mày nói xem anh họ mày sao lại không biết thương hoa tiếc ngọc, sống cho ra hồn người chút nhỉ? Suốt ngày chỉ biết ăn không ngồi rồi."
+"Kim An này, chị dâu công nhận xinh thật đấy mày nhỉ."
 
-"Mấy quả ớt xanh này chắc chắn là chị dâu vừa ra vườn hái, định đổi lấy ít tiền!"
+Nói đoạn, giọng hắn bỗng chùng xuống, có chút bất bình thay cho người đẹp: "Mày bảo cái ông anh họ kia của mày sao mà chẳng biết thương hoa tiếc ngọc gì cả, chẳng ra dáng đàn ông chút nào, suốt ngày chỉ biết lêu lổng ăn chơi đàn đúm."
 
-"Nếu là vợ tao, tao chắc chắn sẽ ra ngoài kiếm tiền, không để cô ấy vất vả thế này, còn mua cho cô ấy mấy bộ váy thật đẹp..."
+"Chỗ ớt chuông này chắc chắn là chị dâu vừa mới cặm cụi ra vườn hái về, muốn kiếm thêm vài đồng tiền lẻ tiêu vặt đấy!"
 
-Triệu Chí Dũng càng nói càng hăng.
+"Phải tay tao mà lấy được người vợ như thế, tao thề sẽ cày cuốc ngày đêm kiếm tiền nuôi cô ấy, không bao giờ để cô ấy phải chịu khổ chịu cực thế này, còn mua bao nhiêu là váy đẹp cho cô ấy diện nữa chứ..."
 
-Triệu Kim An lên tiếng ngắt lời: "Chị ấy không phải vợ mày, hơn nữa, sau này mày đừng có làm liếm cẩu."
+Triệu Trí Dũng càng nói càng hăng máu, vẽ ra cả một tương lai màu hồng.
 
-"Kim An, liếm cẩu là gì?"
+Triệu Kim An lạnh lùng lên tiếng tạt ngay một gáo nước lạnh: "Chị ấy không phải là vợ mày. Với lại, sau này mày bớt cái thói làm 'liếm cẩu' đi giùm tao cái."
 
-"Là loại chó còn thảm hơn cả chó độc thân."
+"Kim An, 'liếm cẩu' là cái giống gì thế mày?"
 
-* * *
+"Là cái loại còn thảm hại, bi đát hơn cả chó độc thân gấp vạn lần."
 
-Nửa tiếng sau, chiếc xe máy đã vào đến nội thành. Triệu Chí Dũng lúc thì lạng lách hình chữ S, lúc thì đánh võng hình chữ B, một chiếc xe máy nát mà hắn cứ lái ra cái cảm giác như siêu xe hàng đầu.
+"..."
 
-Khắc này Triệu Kim An cảm thấy mình chính là một thằng choai choai tóc vàng.
+...
 
-Trên xe máy đang chở hai thằng tóc vàng.
+Nửa tiếng sau, chiếc xe máy đã lết được vào tới trung tâm thị xã. Triệu Trí Dũng lúc thì lượn hình chữ S, lúc lại đảo hình chữ B, một chiếc xe máy cà tàng nát bươm mà hắn vít ga lạng lách chẳng khác nào đang cưỡi siêu xe thể thao hàng đầu thế giới.
 
-"Kim An, mình đi chợ nào?"
+Khoảnh khắc này, Triệu Kim An bỗng thấy bản thân chẳng khác nào một thằng trẻ trâu ngông cuồng.
 
-"Cái chợ sát bên Quảng trường Hâm Địa ấy!"
+Trên chiếc xe máy tàn tạ kẹp hai thằng đầu xanh đầu đỏ chính hiệu.
 
-"OK!"
+"Kim An, tụi mình mang đến chợ nào bán bây giờ?"
 
-Thấy thời gian sắp đến 6 giờ chiều, Quảng trường Hâm Địa có lưu lượng người qua lại lớn, chủ yếu nhất là ở đó có nhiều đơn vị chính phủ, cũng có nhiều khu chung cư mới xây.
+"Chợ dân sinh nằm sát vách Quảng trường Hâm Địa ấy!"
 
-Vào năm 2006, những người mua được nhà ở khu này đa phần là tầng lớp có tiền, họ có lẽ sẽ có hứng thú với loại cá sông này hơn.
+"Ô kê la!"
 
-Quan trọng nhất là họ không quá nhạy cảm với giá cả. Nếu ở khu phố cũ, mấy người suốt ngày đi chợ ước chừng sẽ đứng tranh cãi với mày nửa ngày trời chỉ vì 5 hào.
+Nhìn đồng hồ cũng đã ngót nghét sáu giờ chiều, khu vực Quảng trường Hâm Địa tập trung lượng người qua lại vô cùng đông đúc. Quan trọng hơn cả, xung quanh đó quy tụ rất nhiều cơ quan hành chính nhà nước và hàng loạt khu chung cư cao tầng mới mọc lên.
 
-Triệu Chí Dũng tấp xe vào lề đường, một chân chống xuống đất, nhìn vào lối vào chợ.
+Vào những năm 2006, những người có đủ điều kiện tài chính để mua nhà ở các khu đô thị mới này đa phần đều thuộc tầng lớp khá giả, có của ăn của để. Những người này ắt hẳn sẽ có hứng thú đặc biệt với các loại tôm cá tự nhiên đánh bắt dưới sông suối.
 
-"Kim An, mình bày hàng ở đâu?"
+Và mấu chốt nhất là họ không quá khắt khe, so đo từng cắc từng đồng về giá cả. Chứ nếu mang vào mấy khu chợ truyền thống ở khu phố cổ, những bà nội trợ sành sỏi đi chợ hàng ngày có khi vì năm hào một cắc mà đứng kỳ kèo trả giá suốt nửa ngày trời.
 
-"Chỗ kia có người bán cá trắm cỏ."
+Triệu Trí Dũng chống một chân xuống lề đường, tấp xe vào góc, ngó nghiêng vào cổng chợ:
 
-"Cướp mối của ông ta à?"
+"Kim An, mình ngồi bán ở góc nào bây giờ?"
 
-"Không phải, ông ta bày ở đây nhiều năm rồi, người mua cá theo thói quen sẽ đi về phía đó."
+"Đằng kia có cái sạp bán cá trắm cỏ kìa."
 
-Bên trong chợ chắc chắn là không còn sạp hàng, nhưng dọc đường có rất nhiều người bày bán, dân làng xung quanh gánh rau quả nhà trồng được cứ thế bày ra hai bên đường mã lộ.
+"Ủa, ra đấy cướp mối làm ăn của người ta à?"
 
-Có phải nộp phí quản lý hay không thì không biết, dù sao Triệu Kim An cũng xách giỏ cá xuống xe, tìm một bậc thềm ngồi xuống cách sạp cá trắm cỏ không xa rồi bắt đầu rao hàng.
+"Không phải cướp mối, mà là vì sạp cá đó bán ở đây bao nhiêu năm rồi, người có nhu cầu mua cá đi chợ đều có thói quen rẽ vào lối đó."
 
-"Cá tươi vừa bắt dưới sông đây, còn có ớt nhà trồng, đúng là cặp bài trùng!"
+Bên trong nhà lồng chợ chắc chắn chẳng còn chỗ trống, nhưng dọc hai bên lề đường lại có rất nhiều tiểu thương tự phát bày hàng quán. Người dân các vùng phụ cận gánh rau củ quả nhà trồng tự giác chia nhau từng mét vuông vỉa hè để buôn bán.
 
-Triệu Chí Dũng: "..."
+Có phải nộp phí quản lý đô thị hay không thì chưa rõ, nhưng Triệu Kim An đã nhanh nhẹn xách chiếc giỏ tre bước xuống xe, chọn ngay một bậc tam cấp cách sạp cá trắm cỏ không xa, ngồi thụp xuống rồi cất giọng rao to:
 
-Hắn vẫn còn hơi ngại ngùng không dám rao, không ngờ bạn nối khố lại có thể rao một cách tự nhiên như thế.
+"Cá sông tươi rói vừa mới cất mẻ lưới dưới sông lên đây! Kèm theo ớt chuông xanh vườn nhà tự trồng, chuẩn vị cặp đôi hoàn hảo luôn bà con ơi!"
 
-Ngồi trên bậc thềm mà trông tự tại vô cùng.
+Triệu Trí Dũng: "..."
 
-"Chị gái xinh đẹp ơi, cá này vừa đẹp da vừa dưỡng nhan, mua một ít không ạ?"
+Hắn vốn còn đang e ngại, ngượng chín cả mặt chưa dám mở mồm rao, chẳng ngờ thằng bạn thân thường ngày cậy răng không nói nửa lời lại có thể cất giọng rao hàng một cách mượt mà, tự nhiên và trôi chảy đến thế!
 
-Triệu Chí Dũng: (°д°)
+Ngồi bệt trên bậc thềm đá, phong thái ung dung tự tại vô cùng.
 
-"Chị gái xinh đẹp là cái cách gọi gì thế?"
+"Chị gái xinh đẹp ơi, cá sông tự nhiên vừa tươi ngon lại vừa dưỡng nhan bổ da, ghé mua mở hàng cho em một ít đi chị?"
 
-"Hơn nữa, mày gọi một bà cô hơn 40 tuổi là chị gái xinh đẹp à!?"
+Triệu Trí Dũng: (°д°)
 
-Không đúng, Kim An chẳng phải là đứa ít nói sao? Từ bao giờ mà mồm mép liến thoắng thế này?
+"Chị gái xinh đẹp" là cái kiểu xưng hô quái đản gì thế này?
 
-Triệu Chí Dũng đứng bên cạnh ngây người, đầu óc hơi choáng váng.
+Hơn nữa, người ta rõ ràng là một bà cô ngoài bốn mươi tuổi rồi, mày mở mồm gọi người ta là "chị gái" ngọt xớt thế mà không ngượng mồm à!?
 
-Khổ nỗi vẻ mặt Triệu Kim An lại cực kỳ chân thành, thật sự chẳng ăn nhập gì với những lời thốt ra từ miệng hắn cả.
+Khoan đã, Kim An ngày thường chẳng phải là đứa lầm lì ít nói nhất lớp sao? Từ bao giờ mà cái mồm nó lại dẻo quẹo như kẹo kéo thế này?
 
-Nhưng mấy tiếng rao đó quả thực đã thu hút rất nhiều người vây lại, đặc biệt là mấy ông cụ và đàn ông. Họ không nhất định là muốn mua, chỉ là tò mò về mẻ cá trong giỏ tre.
+Đứng bên cạnh, Triệu Trí Dũng đực mặt ra nhìn, đầu óc quay cuồng vì kinh ngạc.
 
-Cái này cũng tương tự như việc mày câu được bao nhiêu cá vậy.
+Khổ nỗi, nét mặt của Triệu Kim An lại vô cùng chân thành, ấm áp, đối lập hoàn toàn với những lời lẽ nịnh nọt dẻo quẹo phát ra từ miệng anh.
 
-Họ chưa chắc đã quá thích ăn cá, nhưng đều có thể đứng lại tán dóc vài câu.
+Thế nhưng chỉ sau vài tiếng rao dõng dạc, quả nhiên đã có không ít người tò mò xúm lại vây quanh, đặc biệt là mấy ông cụ và các chú trung niên. Họ chưa chắc đã có ý định mua ngay, nhưng bản tính tò mò muốn ngắm xem mớ cá sông tự nhiên đánh bắt được những loại gì.
 
-"Này chàng trai, bán bao nhiêu tiền một cân?"
+Cái tâm lý này cũng tương tự như việc thấy ai đi câu cá về là phải chạy lại dòm vào giỏ xem thành quả vậy.
 
-"15 tệ ạ!"
+Họ chưa chắc đã hảo ăn cá, nhưng chuyện trò bàn tán về cá thì rôm rả vô cùng.
 
-"Phía trước người ta toàn bán có 6 tệ một cân thôi."
+"Này chàng trai trẻ, cá này bán bao nhiêu tiền một cân thế?"
 
-"Ở chỗ cháu còn tặng kèm ớt, ớt nhà tự trồng, đúng là cặp bài trùng, mấy loại ớt khác không đúng vị được đâu."
+"Dạ mười lăm tệ một cân bác ơi!"
 
-"Không phải hàng giả đấy chứ?"
+"Ơ kìa, đằng trước người ta bán có sáu tệ một cân thôi mà cháu?"
 
-"Giả sao được ạ? Nhà bác có hàng giả nào mà con to con nhỏ, loại cá gì cũng có thế này không, bác nhìn xem, còn có cả chạch nữa này."
+"Dạ thưa bác, cá của cháu là cá sông tự nhiên một trăm phần trăm, lại được tặng kèm ớt chuông xanh nhà tự trồng nữa. Cá này mà đem kho hay xào với ớt vườn này thì đúng là số dách, dùng ớt khác là mất đi cái vị thanh ngọt tự nhiên ngay ạ."
 
-"Cái này thì không thể là cá nuôi trong ao được."
+"Có phải cá nuôi đánh lận con đen không đấy cháu?"
 
-Một đám người bên cạnh gật đầu đồng tình, còn có người thò tay vào giỏ tre bốc lên một nắm xem thử.
+"Cá nuôi làm sao mà có con to con nhỏ đủ loại thế này được hả bác? Bác nhìn xem, lẫn cả chạch đồng béo mầm đây này, ao nuôi công nghiệp làm gì có thứ này!"
 
-Ông cụ chắp tay sau lưng cười hì hì: "Được, vậy lấy cho tôi một ít, tôi chính là thích ăn loại cá này, cũng mấy năm rồi chưa được ăn."
+"Ừ nhỉ, đúng là không phải cá nuôi tăng trọng rồi!"
 
-Thực ra đối với những người không thường xuyên đi chợ mà nói, 6 tệ một cân hay 15 tệ một cân cũng chẳng khác gì nhau, chỉ cần đúng sở thích thì họ chẳng tiếc mấy đồng bạc này.
+Mấy người đứng xung quanh gật gù tán đồng, thậm chí có người còn thò tay bốc thử một vốc cá lên ngắm nghía, thẩm định.
 
-"Đừng có ngây ra đấy, mau mang đi cân đi."
+Một ông lão chắp tay sau lưng cười khà khà: "Được rồi, thế xúc cho tôi một ít đi. Tôi là tôi mê cái món cá mương kho nghệ này lắm, bao nhiêu năm rồi chưa được ăn lại cái vị cá sông tự nhiên thế này."
 
-Triệu Kim An mượn một cái túi nilon của sạp hoa quả bên cạnh, bọn hắn chẳng chuẩn bị gì cả, đến cái cân cũng không có.
+Thực tế đối với những người rủng rỉnh tiền bạc, sáu tệ hay mười lăm tệ một cân chẳng có gì khác biệt to tát. Miễn sao đúng món khoái khẩu, tươi ngon sạch sẽ thì vài ba đồng bạc lẻ tiếc làm gì.
 
-"Kim An cũng đỉnh thật, mở hàng luôn rồi, còn bán tận 15 tệ một cân."
+"Đứng ngây ra đấy làm gì, lấy túi đựng cá mang sang bên kia cân nhờ mau lên!"
 
-Triệu Chí Dũng vừa mới tốt nghiệp cấp ba vốn dĩ còn chút không buông bỏ được, thanh niên mà, hay ngại lại còn trọng sĩ diện, giờ thì hoàn toàn rũ bỏ hết, bắt đầu gào to rao hàng theo.
+Triệu Kim An chạy sang sạp hoa quả kế bên mượn tạm chiếc túi nilon. Hai đứa đi vội vàng chẳng kịp chuẩn bị thứ gì, đến cái cân đĩa cũng không có.
 
-Ngược lại Triệu Kim An lại được nghỉ ngơi, nhưng cũng không quên mua mấy cân mận hậu của sạp bên cạnh.
+"Kim An cừ thật đấy chứ, vừa mở hàng đã bán được giá mười lăm tệ một cân ngon ơ!"
 
-"Kim An, chúng ta là đi kiếm tiền đấy."
+Triệu Trí Dũng mới tốt nghiệp cấp ba xong, ban đầu còn có phần rụt rè, sĩ diện học trò. Nhưng thấy tiền tươi thóc thật về tay, hắn gạt phăng mọi ngại ngùng, lập tức hòa nhịp cất giọng gào to tiếp thị cùng bạn.
 
-"Thế không có cân thì mình bán kiểu gì?" Triệu Kim An nói.
+Ngược lại, Triệu Kim An sau khi mở màn xong thì lui lại ngồi nghỉ ngơi, nhưng cũng không quên tiện tay mua ủng hộ sạp hàng bên cạnh vài cân mận vàng Na Lý ngọt lịm để cảm ơn chuyện mượn cân mượn túi.
 
-"Mai tao mang cái cân đi."
+"Kim An, tụi mình tới đây là để kiếm tiền cơ mà!"
 
-"Mày trông hàng đi, tao đi mua thuốc lá với túi nilon."
+"Không có cân thì mày bán cho khách kiểu gì?" Triệu Kim An thủng thẳng đáp.
 
-Nói xong, Triệu Kim An đứng dậy đi về phía tiệm tạp hóa bên cạnh.
+"Thế để mai tao vác cái cân ở nhà đi."
 
-Triệu Chí Dũng đã bắt đầu ảo tưởng về những ngày tháng kiếm bộn tiền rồi.
+"Mày trông hàng đi nhé, tao sang tiệm tạp hóa mua cuộn túi bóng với bao thuốc lá."
 
-"15 tệ một cân, một ngày 10 cân, một tháng là 4500 tệ, thế này lên đại học chẳng phải sướng bay nóc nhà sao?"
+Nói xong, Triệu Kim An đứng dậy rảo bước về phía tiệm tạp hóa nhỏ bên đường.
 
-Tiệm tạp hóa.
+Triệu Trí Dũng ở lại thì tâm trí đã bay bổng tận chín tầng mây, mơ mộng về chuỗi ngày phát tài phát lộc:
 
-Triệu Kim An mua một cuộn túi nilon rồi thuận miệng bảo ông chủ lấy cho bao Phù Dung vàng, kết quả lúc trả tiền, nhìn hai tờ 10 tệ trong tay, hắn lại chỉ vào bao Bạch Sa ở quầy.
+"Mười lăm tệ một cân, mỗi ngày mười cân là bốn ngàn năm trăm tệ một tháng! Thế này thì lên đại học tiêu pha có mà sướng ngất trời mây!"
 
-"Ông chủ, lấy loại này đi."
+...
 
-Triệu Kim An không hút thuốc nhiều, cho nên kiếp trước toàn hút Phù Dung vàng.
+Tại tiệm tạp hóa.
 
-Cũng may là mua Bạch Sa, nếu không Triệu Chí Dũng lại lải nhải cho mà xem.
+Triệu Kim An mua một cuộn túi nilon lớn rồi buột miệng bảo chủ quán lấy cho bao Hoàng Phù Dung Vương. Nhưng đến khi rút tiền thanh toán, nhìn lại hai tờ mười tệ còm cõi trong tay, anh đành chỉ tay vào bao Lão Bạch Sa nằm trên kệ kính:
 
-"Mua mận hậu lại còn mua Phù Dung vàng, chúng ta rốt cuộc là đi kiếm tiền hay là đi kích cầu kinh tế cho cái chợ này thế?"
+"Bác ơi, đổi cho cháu lấy bao này đi ạ."
 
-Triệu Chí Dũng thì khác, hắn rất thích tiết kiệm tiền, tiêu tiền cũng rất có kế hoạch.
+Triệu Kim An vốn không nghiện thuốc nặng, nên ở kiếp trước anh luôn hút dòng Hoàng Phù.
 
-Rõ ràng kiếp trước thu nhập không cao bằng Triệu Kim An, nhưng Triệu Chí Dũng lại mua được nhà trả góp ở Quận Sa trước cả Triệu Kim An (trả trước 30%, trả góp 20 năm), lại còn mua được cả xe hơi che nắng che mưa.
+Cũng may là đổi sang bao Lão Bạch Sa giá rẻ, chứ nếu vác bao thuốc hai mươi ba tệ về thì thế nào cái mồm thằng Trí Dũng cũng càu nhàu nhức cả óc:
 
-Cưới vợ, sinh con, coi như đã bám rễ được ở Quận Sa.
+"Vừa mua mận vàng lại vừa sắm thuốc lá xịn, rốt cuộc tụi mình đi kiếm tiền hay là đi kích cầu kinh tế cho cái chợ này thế không biết?"
 
-Dĩ nhiên là gia đình hắn cũng hỗ trợ không ít, "vét sạch sáu cái túi tiền để mua nhà" không phải là lời nói suông.
+Triệu Trí Dũng thì khác, hắn là chúa tằn tiện, chi tiêu việc gì cũng tính toán chi li từng hào.
 
-"Kim An, chúng ta sắp phát tài rồi, 15 tệ một cân, ngày mai mình làm nhiều thêm chút, quất luôn 20 cân!"
+Rõ ràng ở kiếp trước thu nhập của Trí Dũng chẳng bằng Triệu Kim An, thế nhưng hắn lại là người đầu tiên vay ngân hàng mua được nhà chung cư ở Quận Sa (trả trước ba mươi phần trăm, thế chấp hai mươi năm), rồi sắm cả ô tô bốn bánh che mưa che nắng.
 
-Triệu Chí Dũng vẫn còn đang chìm trong phấn khích, vỗ ngực dõng dạc: "Mày yên tâm, không cần đến mày đâu, mày chỉ cần chịu trách nhiệm đeo giỏ cá là được."
+Lấy vợ, sinh con đàng hoàng, coi như cắm rễ vững chắc ở chốn đô thành.
 
-"Không có nhiều gà béo thế đâu."
+Tất nhiên gia đình hai bên nội ngoại cũng hỗ trợ không ít, cái câu "vét cạn sáu cái túi tiền của cả dòng họ để mua nhà" thời ấy chẳng phải là chuyện nói chơi.
 
-"Cái gì?"
+"Kim An ơi, tụi mình sắp phát tài to rồi! Mười lăm tệ một cân đấy nhé, ngày mai tụi mình phải cày cật lực hơn, bắt cho bằng được hai mươi cân mới chịu!"
 
-"Mày tưởng lúc nào cũng bán được 15 tệ một cân à?"
+Triệu Trí Dũng vẫn còn đắm chìm trong cơn hưng phấn tột độ, vỗ ngực bôm bốp: "Mày cứ yên tâm, không bắt mày phải lội nước đâu, mày chỉ việc đứng trên bờ xách giỏ thôi!"
 
-"10 tệ cũng được mà, 20 cân cũng có 2 trăm tệ, một tháng là 6 ngàn rồi."
+"Làm gì có lắm kẻ ngốc chịu chi như thế mãi."
 
-"Không mệt chết thì cũng nắng chết, còn nữa, những ngày mưa thì sao?"
+"Hả? Mày nói sao?"
 
-Hai người tán dóc không đâu, một người hăng hái bừng bừng, một người lại có vẻ thờ ơ.
+"Mày tưởng mớ cá nào cũng bán được giá mười lăm tệ một cân chắc?"
 
-Từ xa có một nhóm thanh niên trông giống sinh viên đi tới, có nam có nữ, nói nói cười cười, chắc là vừa chơi ở Quảng trường Hâm Địa về.
+"Thì bán mười tệ cũng được mà! Hai mươi cân là có hai trăm tệ rồi, một tháng sáu ngàn tệ chứ ít ỏi gì!"
+
+"Không mệt chết thì cũng bị nắng chang chang nướng chín thịt. Chưa kể những hôm trời đổ mưa to thì bắt bằng niềm tin à?"
+
+Hai người ngồi tựa vào bậc thềm đá tán gẫu linh tinh, một người thì hào hứng ngùn ngụt, một người thì điềm nhiên thong dong.
+
+Đúng lúc ấy, từ đằng xa bỗng xuất hiện một nhóm nam thanh nữ tú trạc tuổi học sinh đang rôm rả cười nói bước tới, xem chừng là vừa mới tụ tập vui chơi ở khu thương mại Quảng trường Hâm Địa trở về...

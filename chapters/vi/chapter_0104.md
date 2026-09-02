@@ -1,199 +1,205 @@
-# Chương 104: Lạc Cẩn Chi Mặc Áo Sơ Mi Trắng
+# Chương 104: Triệu Kim An trong chiếc áo sơ mi trắng
 
-Ba ngày sau, vào cuối tuần, Cúp Trăn Nhiên chính thức khai mạc.
+> **Tiêu đề gốc**: 第104章 穿白衬衫的赵今安。
 
-Sân vận động chật kín người, đa số là các nam sinh mặc đồng phục bóng rổ, đây chính là sân nhà của họ.
+Ba ngày sau, nhằm vào dịp cuối tuần, giải đấu bóng rổ Cúp Trăn Nhiên chính thức bước vào ngày hội khai mạc.
 
-Sáng sớm đã có hai chiếc xe tải lớn chạy vào trường, trên xe chở đầy nước khoáng Trăn Nhiên, nước bọt khí và Tiểu Tạc Đạn Oxy Nhẹ.
+Khuôn viên sân vận động chật kín người xem, phần lớn là những chàng trai khoác trên mình những bộ đồng phục bóng rổ rực rỡ sắc màu, hôm nay chính là sân nhà để họ tỏa sáng.
 
-Thẩm Tử Ngôn dậy từ rất sớm để ra sân vận động chỉ huy, Triệu Chí Dũng và Vương Duy Đào thì xếp từng kiện hàng ngay ngắn trên sân. Phe nữ phụ trách xếp cho thẳng hàng, phe nam phụ trách bê vác.
+Từ sáng sớm tinh mơ, hai chiếc xe tải hạng nặng đã nối đuôi nhau lăn bánh vào trường, trên thùng xe chất đầy ắp các loại nước khoáng Trăn Nhiên, nước bọt khí và cả dòng sản phẩm bom nước Khinh Dưỡng.
 
-Tất cả số nước này đều được phát miễn phí.
+Thẩm Tử Ngôn thức dậy từ rất sớm, cô có mặt tại sân vận động để trực tiếp chỉ đạo mọi khâu chuẩn bị. Triệu Trí Dũng cùng Vương Duy Đào và các bạn nam phụ trách bốc vác từng thùng nước xuống xe, còn các bạn nữ thì cẩn thận xếp thành từng khối vuông vắn, ngay ngắn và hoành tráng giữa sân.
 
-Cốc Siêu Thừa cũng đến rất sớm, dù không phải tình nguyện viên nhưng cậu ta cứ quanh quẩn bên cạnh Đường Hiểu Tình.
+Toàn bộ số nước uống này đều được ban tổ chức phục vụ hoàn toàn miễn phí.
 
-Một lúc sau, đám bạn cùng lớp của lớp kế toán 1 cũng kéo đến hơn một nửa. Họ nghe nói Triệu Kim An và Đường Hiểu Tình đều đang làm thêm ở công ty này.
+Cốc Siêu Thừa cũng có mặt từ sớm, cậu không phải là tình nguyện viên, chỉ lượn qua lượn lại bên cạnh Đường Hiểu Tình để tìm cơ hội bắt chuyện.
 
-"Lý Lộ, nghe nói giải đấu này do Triệu Kim An phụ trách đấy."
+Một lát sau, quá nửa số sinh viên lớp Kế toán 1 cũng rủ nhau kéo đến đông đủ. Họ nghe phong phanh đâu đó rằng cả Triệu Kim An lẫn Đường Hiểu Tình đều đang làm thêm cho công ty tổ chức sự kiện này.
 
-Lâm Thanh Tuyết nhìn quanh quẩn một hồi nhưng không thấy bóng dáng Triệu Kim An đâu.
+"Lý Lộ, nghe nói giải đấu này do Triệu Kim An đứng đầu phụ trách đấy."
 
-Sau khi bị Triệu Kim An từ chối, suốt dịp Tết Lý Lộ cũng không gửi tin nhắn nào cho hắn.
+Lâm Thanh Tuyết đưa mắt dáo dác nhìn quanh quất khắp bốn phía nhưng vẫn chưa thấy bóng dáng Triệu Kim An đâu.
 
-Con gái mà bị con trai từ chối thì vẫn có chút mất mặt.
+Kể từ lần bị Triệu Kim An thẳng thừng từ chối tình cảm, ngay cả dịp Tết Nguyên đán vừa rồi Lý Lộ cũng chẳng buồn gửi lấy một tin nhắn chúc mừng cho anh.
 
-May mà lời lẽ của Triệu Kim An không quá khó nghe, hắn chỉ bảo: "Tôi chưa muốn yêu đương."
+Con gái chủ động tỏ tình mà bị cự tuyệt, trong lòng ít nhiều cũng cảm thấy mất mặt và tổn thương sâu sắc.
 
-Nhìn tình hình hiện tại, Triệu Kim An quả thật cũng chưa có bạn gái.
+Nhưng cũng may là Triệu Kim An không nói những lời lẽ quá đỗi phũ phàng, anh chỉ nhẹ nhàng bảo: "Hiện tại tôi vẫn chưa muốn yêu đương."
 
-Dù sao thì cũng chẳng nghe nói ai là bạn gái của hắn cả. Vương Duy Đào thì kín miệng như bưng, chưa từng nhắc đến Tô Miền, nhờ vậy mà tâm trạng Lý Lộ cũng nhẹ nhõm hơn nhiều.
+Mà xét trên thực tế, đúng là Triệu Kim An tuyệt nhiên chẳng hề qua lại với bất kỳ cô gái nào.
 
-Nếu mình vừa tỏ tình xong mà Triệu Kim An nói chưa muốn yêu đương, rồi quay ngoắt đi hẹn hò với đứa con gái khác ngay...
+Chí ít là chưa từng nghe ai đồn đại cô nào là bạn gái của Triệu Kim An. Vương Duy Đào lại là kẻ kín miệng như bưng, chưa từng hé răng nửa lời về sự tồn tại của Tô Miến, nhờ thế mà cõi lòng Lý Lộ cũng được an ủi đi phần nào.
 
-Thế thì lòng tự trọng của con gái sẽ bị tổn thương ít nhiều.
+Bằng không, nếu vừa mới từ chối lời tỏ tình của cô với lý do chưa muốn yêu đương, rồi quay ngoắt đi cái đã cặp kè ngay với một cô gái khác...
 
-Lý Ngải Lan lên tiếng: "Triệu Kim An cũng có chút năng lực đấy chứ, mới năm nhất làm thêm mà đã lên tới chức phụ trách hoạt động của công ty, Đường Hiểu Tình còn phải làm việc dưới trướng cậu ấy kìa."
+Thì lòng tự trọng của người con gái ắt hẳn sẽ bị chà đạp đau đớn biết chừng nào.
 
-"Chủ yếu là vì đẹp trai nữa, ha ha ha."
+Lý Ngải Lan tấm tắc khen ngợi: "Xem ra Triệu Kim An cũng có bản lĩnh ra phết đấy chứ, mới sinh viên năm nhất đi làm thêm mà đã leo lên được vị trí người phụ trách sự kiện lớn của công ty, ngay cả Đường Hiểu Tình cũng phải làm việc dưới quyền cậu ấy."
 
-Lý Lộ hơi buồn bã, cô vẫn đang đưa mắt tìm kiếm Triệu Kim An khắp nơi.
+"Nhưng quan trọng nhất vẫn là vì cậu ấy đẹp trai quá xá, ha ha ha!"
 
-Lý Ngải Lan lại trêu: "Tiểu Tuyết, Rukawa Kaede của bà mặc đồng phục bóng rổ đến thi đấu rồi kìa."
+Lý Lộ khẽ thở dài ủ rũ, đôi mắt vẫn không ngừng lùng sục bóng dáng Triệu Kim An giữa đám đông.
+
+Lý Ngải Lan lại huých tay trêu chọc: "Tiểu Tuyết à, chàng Lưu Xuyên Phong của cậu hôm nay cũng mặc áo số ra sân thi đấu kìa!"
 
 Lâm Thanh Tuyết: "..."
 
-Lý Ngải Lan không có ý gì khác.
+Lý Ngải Lan chỉ là buột miệng trêu đùa vô thưởng vô phạt.
 
-Nhưng người nói vô tình, người nghe hữu ý.
+Thế nhưng người nói vô tâm, kẻ nghe lại hữu ý.
 
-Triệu Kim An là người phụ trách giải đấu, còn Lưu Sấm Phong chỉ là một trong những thí sinh đăng ký thi đấu. Có lẽ chỉ những cô nàng nhỏ tuổi não tàn vì tình mới thấy mấy nam sinh thi đấu là đẹp trai thôi.
+Triệu Kim An là người đứng đầu điều hành cả một giải đấu lớn, còn Lưu Sấm Phong chẳng qua cũng chỉ là một trong số hàng trăm gã sinh viên nộp đơn tham gia thi đấu mà thôi. Có lẽ chỉ những cô nàng ngây thơ, mù quáng vì tình yêu mới thấy mấy gã con trai chạy nhảy tranh bóng trên sân là ngầu lòi, đẹp trai.
 
-Lâm Thanh Tuyết không hề não tàn, ngược lại cô rất thực tế.
+Lâm Thanh Tuyết không phải là mẫu con gái sống bằng mộng tưởng ái tình, trái lại, cô là kẻ sống vô cùng thực tế.
 
-Khi biết Trần Trạch lái xe BMW đi học, Lâm Thanh Tuyết đã từng đối tốt với cậu ta vào đầu học kỳ. Lúc quân dịch, cô là người đầu tiên rót nước cho Trần Trạch, ban đêm còn gửi ảnh đẹp để mê hoặc Triệu Kim An.
+Hồi đầu năm học, vừa hay tin Trần Trạch lái xe BMW đi học, Lâm Thanh Tuyết đã từng ra sức săn đón, đon đả lấy lòng. Ngày đầu tiên huấn luyện quân sự, cốc nước mát đầu tiên cô cũng cố tình đem dâng tận tay cho Trần Trạch, đêm hôm khuya khoắt lại còn gửi những bức ảnh quyến rũ qua mạng để thả thính, mê hoặc Triệu Kim An.
 
-Kết quả phát hiện Trần Trạch đã có Từ Mạn Mạn, còn Triệu Kim An chỉ là một sinh viên nghèo!
+Rốt cuộc sau đó cô mới ngã ngửa khi biết Trần Trạch đã có một cô bạn gái xinh như mộng là Hứa Mạn Mạn, còn Triệu Kim An thực chất chỉ là một gã sinh viên thuộc diện nghèo kiết xác!
 
-Đúng là cái đệch...
+Mẹ kiếp chứ...
 
-Nam sinh giàu nhất lớp, nam sinh đẹp trai nhất lớp...
+Gã con trai giàu có nhất lớp, cùng chàng trai khôi ngô tuấn tú nhất lớp Kế toán 1...
 
-Giờ chỉ còn lại một "lốp dự phòng" là Lưu Sấm Phong.
+Cuối cùng bên cạnh cô chỉ còn sót lại đúng một kẻ bám đuôi dai dẳng như Lưu Sấm Phong.
 
-Lâm Thanh Tuyết còn từng định nuôi Triệu Kim An trong "ao cá" của mình. Sinh viên nghèo thì nghèo, nhưng đẹp trai thế kia thì cô chẳng cần tiêu tiền của hắn, cùng lắm vào nhà nghỉ nhỏ một chút cũng không phải là không thể.
+Lâm Thanh Tuyết từng toan tính biến Triệu Kim An thành một "con cá" nuôi trong ao của mình. Nghèo thì nghèo, nhưng sở hữu gương mặt cực phẩm như thế, cô có thể không cần tiêu tiền của anh, thậm chí cùng nhau dắt tay vào nhà nghỉ bình dân cũng chẳng phải là không thể chấp nhận được.
 
-Chưa biết ai ăn thịt ai đâu.
+Chưa biết chừng ai mới là người được lợi trong chuyện đó đâu.
 
-Lúc này Lưu Sấm Phong chạy lại, nói: "Tiểu Tuyết, lát nữa các bà phải đến cổ vũ cho tôi đấy nhé!"
+Đúng lúc ấy, Lưu Sấm Phong hăm hở chạy lại gần, hào hứng khoe: "Tiểu Tuyết, lát nữa các cậu nhớ ra sân hò hét cổ vũ cho tôi thật to đấy nhé!"
 
-Lâm Thanh Tuyết gượng cười, gật đầu đồng ý.
+Lâm Thanh Tuyết gượng gạo nở nụ cười nhạt, khẽ gật đầu đồng ý cho xong chuyện.
 
-Lý Ngải Lan và Lý Lộ đều nói: "Chắc chắn rồi, lớp phó Rukawa Kaede!"
+Cả Lý Ngải Lan lẫn Lý Lộ đều đồng thanh hưởng ứng: "Nhất định rồi, đội trưởng Lưu Xuyên Phong cứ yên tâm!"
 
-Điều này chẳng liên quan gì đến việc Lưu Sấm Phong đang theo đuổi Lâm Thanh Tuyết, vì có bạn nam trong lớp tham gia thi đấu nên dù không xem hết các trận thì chắc chắn cũng phải đến cổ vũ một lần. Hơn nữa, cậu lớp phó Lưu Sấm Phong này cũng rất nhiệt tình với mọi người.
+Chuyện này chẳng liên quan gì đến việc Lưu Sấm Phong đang ráo riết theo đuổi Lâm Thanh Tuyết cả. Lớp có bạn nam đại diện đi thi đấu, dẫu không thể đi cổ vũ trọn vẹn từng trận thì ngày khai mạc cũng phải đến tiếp sức chứ, huống hồ thường ngày Lưu Sấm Phong ở cương vị lớp phó luôn đối đãi rất nhiệt tình, xởi lởi với bạn bè trong lớp.
 
-Vé tàu về nhà kỳ nghỉ đông của Lý Ngải Lan cũng là do Lưu Sấm Phong bỏ tiền ra mua giúp, đến giờ cô vẫn chưa trả tiền cho cậu ta.
+Tấm vé tàu hỏa đưa Lý Ngải Lan về quê dịp nghỉ đông vừa rồi cũng là do Lưu Sấm Phong hào phóng tự bỏ tiền túi ra mua hộ, đến tận bây giờ cô vẫn chưa có tiền trả lại cho cậu ta.
 
-Lưu Sấm Phong kiếm được hơn 3 nghìn tệ nên cũng ngại không đòi Lý Ngải Lan.
+Đợt đó kiếm được hơn ba ngàn tệ, Lưu Sấm Phong cũng ngại chẳng nỡ mở miệng đòi nợ bạn học.
 
-Lớp trưởng Vương Học Ân nói: "Lưu Sấm Phong, cậu cố gắng thi đấu cho tốt, chúng tôi đều đến cổ vũ cho cậu!"
+Lớp trưởng Vương Học Ân vỗ vai khích lệ: "Lưu Sấm Phong, cậu cứ thi đấu cho thật tốt, cả lớp sẽ luôn đứng sau lưng ủng hộ cậu!"
 
-Chuyện này lập tức được nâng lên thành danh dự tập thể của lớp.
+Thế là câu chuyện bỗng chốc được nâng tầm lên thành niềm vinh dự của cả tập thể lớp.
 
-Thời gian qua Lưu Sấm Phong cũng không ít lần khoe khoang trong lớp, bảo mình chơi bóng rổ cực siêu, hồi cấp ba còn có biệt danh là Rukawa Kaede.
+Dạo gần đây Lưu Sấm Phong không ít lần ba hoa khoác lác trước mặt bạn bè rằng kỹ thuật chơi bóng rổ của mình siêu đẳng đến nhường nào, bảo rằng hồi học cấp ba cậu từng có biệt danh lừng lẫy là Lưu Xuyên Phong.
 
-Trần Trạch đi cùng Từ Mạn Mạn đến, còn có Mộc Dao và Diêu Tân.
+...
+
+Trần Trạch cùng đi tới với Hứa Mạn Mạn, theo sau còn có Mộc Dao và Diêu Tân.
 
 "Tử Ngôn!!"
 
-Diêu Tân vẫy tay với Thẩm Tử Ngôn rồi chạy lại phía đó.
+Diêu Tân giơ cao tay vẫy gọi Thẩm Tử Ngôn rồi thoăn thoắt chạy lại gần.
 
-Từ Mạn Mạn và Mộc Dao đi theo sau.
+Hứa Mạn Mạn và Mộc Dao lẳng lặng bước theo sau.
 
-Hôm nay Thẩm Tử Ngôn mặc trang phục chỉnh tề, quần tây áo sơ mi trắng, trông hệt như người đã đi làm. Cô đang kiểm tra lần cuối, bao gồm cả các thiết bị điều chỉnh âm thanh bên cạnh.
+Hôm nay Thẩm Tử Ngôn diện một bộ âu phục công sở chỉn chu, quần tây đen kết hợp cùng áo sơ mi trắng tinh khôi, trông chẳng khác nào một nữ quản lý chuyên nghiệp đã đi làm. Cô đang tiến hành những bước kiểm tra rà soát cuối cùng, bao gồm cả hệ thống âm thanh, ánh sáng đặt bên cạnh sân khấu.
 
-"Mọi người đến rồi à?"
+"Các cậu đến rồi đấy à?"
 
-Dù chỉ là tình nguyện viên nhưng Thẩm Tử Ngôn không cho phép bản thân để xảy ra một sai sót nhỏ nào.
+Dẫu chỉ mang danh nghĩa một tình nguyện viên, nhưng tính cách của Thẩm Tử Ngôn tuyệt đối không cho phép bản thân để xảy ra bất kỳ sai sót nào dù là nhỏ nhất.
 
-Thẩm Tử Ngôn đưa cho mỗi người vài chai nước khoáng, bảo mọi người cứ uống tự nhiên rồi lại tiếp tục bận rộn.
+Thẩm Tử Ngôn tiện tay lấy mấy chai nước khoáng đưa cho ba người, bảo các cậu cứ tự nhiên uống, rồi lại vội vã quay đi lo liệu công việc tiếp theo.
 
-Đây cũng coi như là một chút đặc quyền nhỏ!
+Đây cũng coi như một chút đặc quyền nho nhỏ!
 
-Khi hoạt động chưa chính thức bắt đầu thì không được tùy tiện lấy nước, nếu không hàng lối đang xếp sẽ không còn đẹp mắt và hoành tráng nữa.
+Bởi khi sự kiện chưa chính thức khai mạc, người ngoài không được phép tự ý lấy nước uống, nếu không sẽ làm hỏng mất khối tháp trưng bày hoành tráng giữa sân.
 
-Trần Trạch gãi đầu, làm cái gì mà phải có trách nhiệm đến mức đó chứ.
+Trần Trạch gãi đầu càu nhàu, làm cái trò gì không biết, làm như mình là người quan trọng lắm không bằng.
 
-Diêu Tân cười nói: "Dao Dao, nghe nói giải đấu này do Triệu Kim An phụ trách đấy."
+Diêu Tân mỉm cười thì thầm: "Dao Dao này, nghe bảo giải đấu này là do Triệu Kim An đứng ra tổ chức đấy nhé."
 
-Mộc Dao nhìn chai Tiểu Tạc Đạn Oxy Nhẹ trong tay, không biết đang nghĩ gì.
+Mộc Dao đăm đăm nhìn chai bom nước Khinh Dưỡng trong tay, trong lòng ngổn ngang bao suy nghĩ chẳng rõ là vui hay buồn.
 
-"Kim An đâu?"
+"Kim An đâu rồi nhỉ?"
 
-Trần Trạch cũng nhìn quanh: "Cậu ta là người phụ trách mà sao giờ vẫn chưa tới?"
+Trần Trạch cũng đưa mắt dáo dác nhìn quanh: "Nó là người phụ trách mà sao giờ này vẫn chưa thấy mặt mũi đâu?"
 
-Từ Mạn Mạn liếc nhìn Đường Hiểu Tình, nhìn người bạn học từng cùng mình nỗ lực, lại nhìn Thẩm Tử Ngôn đang chạy tới chạy lui, cô xắn tay áo lên bảo: "Tôi đi giúp họ một tay."
+Hứa Mạn Mạn đưa mắt nhìn Đường Hiểu Tình, nhìn những người bạn từng cùng mình kề vai sát cánh mấy hôm trước, rồi lại nhìn bóng dáng Thẩm Tử Ngôn đang tất bật chạy ngược chạy xuôi, cô liền xắn cao tay áo bảo: "Để tớ qua phụ giúp các cậu ấy một tay."
 
-"Từ Mạn Mạn, bà lại tới à?"
+"Ủa, Hứa Mạn Mạn, cậu lại sang đây làm nữa à?"
 
-Triệu Chí Dũng mồ hôi đầm đìa, cười toe toét hỏi.
+Triệu Trí Dũng mồ hôi nhễ nhại khắp trán, nhe răng cười toe toét hỏi.
 
-"Ừ, đưa tôi."
+"Ừm, đưa cho tớ nào."
 
-Từ Mạn Mạn mỉm cười dịu dàng, đưa tay định đón lấy hai kiện nước khoáng mà Triệu Chí Dũng đang bê.
+Hứa Mạn Mạn mỉm cười dịu dàng, chìa hai tay ra đón lấy hai thùng nước khoáng mà Triệu Trí Dũng đang ôm trước ngực.
 
-Triệu Chí Dũng bảo: "Bà bê một kiện thôi là được rồi."
+Triệu Trí Dũng vội can: "Cậu ôm một thùng thôi là được rồi, nặng lắm đấy."
 
-Trần Trạch: "..."
+Trần Trạch đứng đực mặt ra: "..."
 
-Ơ hay, chẳng lẽ mình không có sự tồn tại nào ở đây sao!?
+Ơ kìa, chẳng phải hôm nọ chính miệng em bảo mấy việc này chẳng còn gì thú vị nữa hay sao!?
 
-Diêu Tân cũng nói: "Tớ cũng đi giúp một tay."
+Diêu Tân thấy vậy cũng xắn tay áo: "Để tớ sang phụ một tay với!"
 
-Không chỉ Triệu Chí Dũng, Mộc Dao còn phát hiện ra Du Phỉ ở đằng xa.
+Không chỉ riêng Triệu Trí Dũng, ánh mắt Mộc Dao lúc này còn vô tình nhìn thấy bóng dáng Du Phi ở phía xa xa.
 
-Du Phỉ cũng đang vừa nói vừa cười giúp đỡ mấy bạn tình nguyện viên khác. Sau này Mộc Dao mới biết Triệu Kim An làm thêm ở công ty này.
+Du Phi cũng đang cùng mấy bạn tình nguyện viên vừa cười vừa nói rôm rả, tay chân luôn thoăn thoắt làm việc. Mộc Dao sau này cũng nghe phong phanh chuyện Triệu Kim An đi làm thêm ở công ty này.
 
-Đúng vậy, là làm thêm.
+Đúng vậy, trong mắt cô, anh cũng chỉ là một nhân viên đi làm thêm mà thôi.
 
-Chính vì quá rõ hoàn cảnh gia đình của Triệu Kim An, mùa hè còn từng thấy hắn và Triệu Chí Dũng bán cá ở chợ nên Mộc Dao chưa bao giờ nghĩ sâu xa hơn.
+Chính vì nắm quá rõ hoàn cảnh gia đình khốn khó của Triệu Kim An, lại từng tận mắt chứng kiến cảnh anh cùng Triệu Trí Dũng ngồi xổm mổ cá ở chợ trong kỳ nghỉ hè vừa rồi, nên Mộc Dao chưa bao giờ nghĩ sâu xa hơn.
 
-Về phương diện năng lực này nọ, cô lại càng không bao giờ nghĩ rằng công ty này là của Triệu Kim An.
+Về mặt năng lực hay bản lĩnh kinh doanh, cô càng không bao giờ dám mảy may tin rằng công ty này lại có thể thuộc về Triệu Kim An.
 
-Đúng là người trong cuộc thường u mê.
+Đúng là người trong cuộc bao giờ cũng u mê, mù quáng.
 
-Đến 8 giờ rưỡi, Triệu Kim An và Lạc Cẩn Chi cùng nhau xuất hiện.
+...
 
-Đơn Vĩ đi theo phía sau.
+Tám giờ rưỡi sáng, Triệu Kim An và Lạc Cẩn Chi cùng nhau xuất hiện tại sân vận động.
 
-Không có phô trương gì cả, xe không vào được sân vận động nên họ đỗ xe rồi đi bộ vào, cũng không có mấy ai nhận ra họ.
+Đan Vĩ lẳng lặng đi theo sát phía sau.
 
-Họ không làm về mảng internet nên cũng chẳng cần ai phải nhận ra mình.
+Họ không hề bày vẽ phô trương thanh thế gì to tát, xe ô tô không thể chạy vào sân vận động nên đành phải đỗ bên ngoài rồi đi bộ vào, xung quanh cũng chẳng mấy ai nhận ra thân phận của họ.
 
-"Kim An, cậu mặc áo sơ mi trông đẹp đấy."
+Dù sao thì họ cũng không phải làm trong ngành công nghệ internet, chẳng cần phải được đám đông tung hô hay biết mặt làm gì.
 
-"Là do chị nhất định bắt tôi mặc thôi."
+"Kim An, em mặc áo sơ mi trắng trông đẹp trai lắm đấy."
 
-Lạc Cẩn Chi mỉm cười, đưa tay định khoác lấy cánh tay Triệu Kim An.
+"Là do chị nằng nặc bắt em phải mặc đấy chứ."
 
-Triệu Kim An cúi đầu nhìn một cái: "Bao giờ sang Nasdaq gõ chuông thì hãy khoác."
+Lạc Cẩn Chi khẽ mỉm cười, thò tay định khoác lấy cánh tay Triệu Kim An.
 
-Lạc Cẩn Chi giả vờ giận dỗi. Cô đã soi gương vô số lần, một người phụ nữ khiến loại người như Lưu Sấm Phong thèm khát đến mức muốn uống cả nước tắm của cô, vậy mà chàng trai trước mắt này lại không chút tơ tưởng gì đến mình.
+Triệu Kim An cúi đầu liếc nhìn một cái, thản nhiên buông lời trêu: "Bao giờ công ty mình sang sàn NASDAQ bên Mỹ rung chuông niêm yết thì chị hẵng khoác tay em nhé."
 
-Triệu Kim An cười nói: "Bạn học lớp tôi đều ở đây cả, chị khoác tay tôi... thì tôi thành trai bao của chị thật mất, nếu không thì sao tôi lại là người phụ trách hoạt động này được."
+Lạc Cẩn Chi vờ giận dỗi. Cô đã từng soi gương không biết bao nhiêu lần, một người phụ nữ quyến rũ đến mức khiến những gã đàn ông như Lưu Sấm Phong thèm khát đến phát cuồng, vậy mà chàng trai trẻ trước mặt này lại tuyệt nhiên không hề có lấy nửa phần tà niệm đối với cô.
 
-"Đúng không, Lạc tổng?"
+Triệu Kim An cười bảo: "Bạn học cùng lớp của em đều đang có mặt ở đây hết cả, chị mà khoác tay em thế này... Khéo người ta lại đồn ầm lên em là tiểu bạch kiểm được nữ đại gia bao nuôi mất, bằng không làm sao một đứa sinh viên quèn như em lại nghiễm nhiên trở thành người phụ trách sự kiện lớn thế này được."
 
-Lạc Cẩn Chi bật cười: "Trai bao thì đã sao? Ăn cơm bằng bản lĩnh mà."
+"Đúng không hả Lạc tổng?"
 
-"Đúng rồi, có nhiều bạn học như vậy, cậu không lên đài phát biểu vài câu à?"
+Lạc Cẩn Chi bật cười khúc khích: "Tiểu bạch kiểm thì đã sao nào? Kiếm cơm bằng chính bản lĩnh của mình thì có gì phải xấu hổ."
 
-"Có người nói rồi."
+"À phải rồi, nhiều bạn học của em có mặt thế này, em không định bước lên sân khấu phát biểu vài câu khai mạc à?"
 
-"Cô bé tên Thẩm Tử Ngôn kia à?"
+"Có người phát biểu thay rồi."
 
-Triệu Kim An cười gật đầu: "Tôi bảo Đường Hiểu Tình lên, nhưng Đường Hiểu Tình lắp bắp nửa ngày trời bảo không dám."
+"Cô bé tên Thẩm Tử Ngôn đó ư?"
 
-Lạc Cẩn Chi cũng cười: "Tính cách con bé Đường Hiểu Tình đó đúng là không dám lộ diện trước đám đông thật, nhưng làm việc rất chắc chắn. Tôi có nghe loáng thoáng về hoàn cảnh gia đình con bé..."
+Triệu Kim An mỉm cười gật đầu: "Em vừa bảo Đường Hiểu Tình lên, con bé cứ ấp a ấp úng nửa ngày trời, bảo sợ không dám đứng trước đám đông."
 
-"1 nghìn 2 đúng là thấp thật, cậu tăng lương cho con bé đi."
+Lạc Cẩn Chi cũng khẽ cười: "Tính cách của con bé Đường Hiểu Tình đúng là không dám ra chỗ đông người thật, nhưng bù lại làm việc thì cực kỳ chăm chỉ và chắc chắn. Chị có nghe qua đôi chút về hoàn cảnh gia đình khó khăn của con bé..."
 
-"Không phải vì đồng cảm, mà vì con bé không có hoa hồng... xứng đáng được nhận mức lương cao hơn."
+"Mức lương một ngàn hai trăm tệ một tháng đúng là hơi thấp thật, em xem xét tăng lương thêm cho nó đi."
 
-Triệu Kim An gật đầu.
+"Không phải vì thương hại đâu, mà vì con bé không có hoa hồng theo doanh số... Nó hoàn toàn xứng đáng được nhận một mức đãi ngộ cao hơn."
 
-Hai người vừa trò chuyện vừa xuyên qua đám đông.
+Triệu Kim An gật đầu tán thành.
 
-Đơn Vĩ đi sau lưng với ánh mắt sắc lẹm như chim ưng, xung quanh toàn là sinh viên đại học mà không biết ông ta đang đề phòng cái gì.
+Hai người vừa rôm rả trò chuyện vừa thong thả bước xuyên qua dòng người đông đúc.
 
-"Cái đệch, đó chẳng phải là chị họ sao!?"
+Đan Vĩ đi theo sau với đôi mắt sắc như chim ưng, xung quanh toàn là sinh viên đại học ngây ngô, chẳng hiểu anh ta đang cảnh giác, đề phòng điều gì.
 
-Lưu Sấm Phong và Cốc Siêu Thừa liếc mắt một cái đã nhận ra Lạc Cẩn Chi.
+"Vãi chưởng, kia chẳng phải là bà chị họ lái Land Rover hôm nọ đấy sao!?"
 
-Quả nhiên đúng như Triệu Kim An dự đoán.
+Lưu Sấm Phong và Cốc Siêu Thừa vừa liếc mắt một cái đã nhận ra ngay bóng dáng kiều diễm của Lạc Cẩn Chi.
 
-Ngày quân dịch, rất nhiều người ở lớp kế toán 1 đã nhìn thấy Lạc Cẩn Chi lái chiếc Range Rover, hèn gì Triệu Kim An chỉ đi làm thêm mà đã leo lên được chức phụ trách hoạt động, hóa ra là như vậy.
+Quả nhiên mọi chuyện diễn ra y hệt như những gì Triệu Kim An đã dự liệu.
 
-Mẹ nó, đẹp trai đúng là lợi thế!
+Hồi đợt huấn luyện quân sự đầu khóa, có rất nhiều người trong lớp Kế toán 1 từng tận mắt nhìn thấy Lạc Cẩn Chi lái chiếc Land Rover sang chảnh đến đón Triệu Kim An. Thảo nào một đứa sinh viên đi làm thêm lại có thể leo tót lên vị trí người đứng đầu sự kiện, hóa ra nội tình phía sau là như vậy!
 
-Dù là nam hay nữ cũng đều như nhau cả!
+Mẹ kiếp chứ, sinh ra có được gương mặt đẹp trai đúng là một thứ đặc ân quá lớn!
+
+Đàn ông hay đàn bà thì cũng đều mê cái đẹp như nhau cả thôi...

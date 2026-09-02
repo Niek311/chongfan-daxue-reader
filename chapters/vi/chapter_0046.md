@@ -1,245 +1,247 @@
-# Chương 46: Ký túc xá tất cả đều là kỳ hoa.
+# Chương 46: Ký túc xá toàn những kẻ kỳ quặc
 
-Bên này thôn vân thổ vụ, cũng không chọc người ngại.
+> **Tiêu đề gốc**: 第46章 宿舍全是奇葩。
 
-Lại không tại trong đám người rút, không có khói thuốc tổn hại.
+Chỗ này khói thuốc lượn lờ mịt mù nhưng chẳng khiến ai khó chịu.
+
+Dù sao cũng không đứng giữa đám đông phì phèo, chẳng sợ làm phiền người khác bằng khói thuốc thụ động.
 
 Cách đó không xa.
 
-Dưới bóng cây có rất nhiều thùng trang nước khoáng, phía trên dán vào lớp học nhãn hiệu, đoàn bí thư chi bộ Lâm Thanh Tuyết cùng hai nữ sinh cầm duy nhất một lần cái chén phụ trách đổ nước.
+Dưới tán cây râm mát xếp đầy những bình nước khoáng loại lớn có dán nhãn phân chia từng lớp. Bí thư Chi đoàn Lâm Thanh Tuyết cùng hai bạn nữ tay cầm cốc giấy dùng một lần, đảm nhận việc rót nước cho mọi người.
 
-Một người nữ sinh bưng tới một chén nước:"Triệu Kim An, ngươi."
+Một cô bạn bưng cốc nước bước lại: "Triệu Kim An, của cậu này."
 
-Triệu Kim An tiếp nhận chén nước, một giọng nói cảm tạ.
+Triệu Kim An đón lấy chiếc cốc, khẽ nói tiếng cảm ơn.
 
-Nữ sinh cười nói:"ta gọi Đường Hiểu tinh."
+Cô bạn mỉm cười xưng tên: "Mình tên là Đường Hiểu Tình."
 
-Lý Lộ cầm duy nhất một lần cái chén, chậm một bước, con mắt nhìn chằm chằm Đường Hiểu tinh.
+Lý Lộ cũng cầm cốc giấy bước tới nhưng chậm mất một bước, đôi mắt không khỏi liếc nhìn Đường Hiểu Tình chằm chằm.
 
-Lưu xông phong nhỏ giọng chế nhạo nói:"Kim An, vừa lòng đẹp ý a."
+Lưu Sấm Phong ghé tai trêu nhỏ: "Kim An, số sướng thật đấy nhé."
 
-Hắn phát giác Lý Lộ cùng Đường Hiểu tinh cũng không có Lâm Thanh Tuyết xinh đẹp liền không cần thiết, còn có thể nói đùa.
+Hắn nhận ra cả Lý Lộ lẫn Đường Hiểu Tình đều không xinh xắn bằng Lâm Thanh Tuyết nên chẳng thèm để tâm tranh giành, trái lại còn thoải mái đùa cợt.
 
-Vương duy đào cùng mấy cái nam sinh gây rối, nói:"Đường Hiểu tinh thứ nhất cho ngươi, chúng ta còn phải tự đi cầm."
+Vương Duy Đào cùng mấy cậu bạn nam đứng cạnh bắt đầu ùa vào trêu chọc: "Đường Hiểu Tình đưa cốc đầu tiên cho cậu nhé, bọn này còn phải tự lết xác đi lấy đây này."
 
-Triệu Kim An nói chỉ là đồng học rót cốc nước, tất cả mọi người có.
+Triệu Kim An chỉ đáp bạn học rót giúp cốc nước mà thôi, ai rồi cũng có phần.
 
-Trần trạch trong tay liền cầm lấy duy nhất một lần cái chén, Lâm Thanh Tuyết thứ nhất chính là cho hắn ngã, lưu xông phong có chút ghen, cũng may hắn biết trần trạch có bạn gái.
+Trần Trạch trong tay cũng đang cầm một chiếc cốc giấy, ban nãy chính Lâm Thanh Tuyết là người đầu tiên rót cho hắn. Lưu Sấm Phong có chút ghen tị chua chát, nhưng nghĩ lại biết Trần Trạch đã có bạn gái nên lòng cũng nguôi ngoai phần nào.
 
-Đáy vực siêu nhận: · · · · · ·
+Cốc Siêu Thừa đứng đực mặt: "..."
 
-"ta, ta không có, ta cách gần nhất, còn muốn xếp hàng!"
+"Còn... còn tao thì chẳng có phần, đứng gần nhất mà vẫn phải xếp hàng chờ rã họng!"
 
-Một ngày huấn luyện quân sự kết thúc, đường trở về nhà trọ bên trên, lưu xông phong nói:"trạch ca, ngươi có bạn gái, Lâm Thanh Tuyết là ta, huynh đệ vợ không thể lừa gạt a!"
+Một ngày huấn luyện quân sự kết thúc. Trên đường quay về ký túc xá, Lưu Sấm Phong lên tiếng: "Anh Trạch, anh có bạn gái rồi, Lâm Thanh Tuyết là của em đấy nhé, vợ bạn không được đụng vào đâu đấy!"
 
-"còn có, Kim An, ngươi có Lý Lộ cùng Đường Hiểu tinh."
+"Còn Kim An, chú mày có Lý Lộ với Đường Hiểu Tình bao bọc rồi."
 
-Bỏ dài sớm đem người liền"phân phối"xong.
+Trưởng phòng ký túc xá đã tự tiện "phân chia chỉ tiêu" xong xuôi từ trước.
 
-Đến nỗi gầy đến khỉ một dạng của đáy vực siêu nhận, hoàn toàn bị không nhìn rồi.
+Riêng Cốc Siêu Thừa người gầy trơ xương như con khỉ khô thì bị phớt lờ hoàn toàn.
 
-"ngươi.... Đuổi kịp rồi nói sau."
+"Cậu... cứ tán đổ đi rồi hẵng tính."
 
-Trần trạch một hơi ngăn ở ngực, nghĩ thầm lưu xông phong là thực sự chưa từng va chạm xã hội, hắn lái xe đi bên trong nam, lưu xông phong cùng đáy vực siêu nhận đi theo.
+Trần Trạch nghẹn một cục tức ngang ngực, thầm nghĩ thằng cha Lưu Sấm Phong này đúng là loại chưa từng thấy sự đời. Hắn lái xe sang bên Đại học Trung Nam, Lưu Sấm Phong và Cốc Siêu Thừa cũng vội vàng bám đuôi đi cùng.
 
-Triệu Kim An không có đi, hắn cùng vương duy đào ký túc xá mấy người đi nhà ăn.
+Triệu Kim An không đi, anh cùng mấy người phòng Vương Duy Đào rủ nhau đến nhà ăn.
 
-Trần trạch có BMW kế toán lớp một đều biết, đạo viên Lưu Huy cũng biết.
+Chuyện Trần Trạch có xe BMW thì cả lớp Kế toán 1 đều đã biết, ngay cả thầy cố vấn Lưu Huy cũng nắm rõ.
 
-Tại đi bên trong nam đại học trên đường, lưu xông phong nói Triệu Kim An quá không hợp nhóm rồi, lúc nào cũng ưa thích một người hành động.
+Trên đường phóng xe sang Đại học Trung Nam, Lưu Sấm Phong bảo Triệu Kim An quá mức lập dị, chẳng hòa đồng chút nào, lúc nào cũng thích lủi thủi hành động một mình.
 
-Hàng sau đáy vực siêu nhận nói như vậy không phải học sinh tiểu học, đi nơi nào đều kết bạn, đi nhà vệ sinh đều kết bạn.
+Cốc Siêu Thừa ngồi ở băng ghế sau buông một câu: "Có phải học sinh tiểu học đâu mà đi đâu cũng phải túm năm tụm ba, đến đi vệ sinh cũng phải rủ nhau đi cùng."
 
-Trần trạch vừa lái xe một bên gọi điện thoại, cúp điện thoại tay lái một xoay trong triều nam nhà ăn phương hướng mở ra.
+Trần Trạch vừa lái xe vừa nghe điện thoại. Cúp máy xong, hắn đánh tay lái rẽ ngoặt về hướng nhà ăn của trường Trung Nam.
 
-Nhà ăn chỗ ngã ba.
+Ngã ba đường gần nhà ăn.
 
-Từ Mạn Mạn quải điệu một chiếc điện thoại nói muốn chờ cá nhân.
+Từ Mạn Mạn vừa ngắt cuộc gọi liền bảo mọi người đứng lại chờ một người.
 
-"bạn trai!?"
+"Bạn trai cậu à!?"
 
-Ba nữ sinh dừng bước, rất hiếu kì, các nàng chỉ ở ban công gặp qua trần trạch của thân ảnh.
+Ba cô gái dừng bước, ánh mắt đầy tò mò. Trước giờ họ mới chỉ nhìn thấy bóng lưng mờ ảo của Trần Trạch từ ban công ký túc xá mà thôi.
 
-Từ Mạn Mạn lại là cười cười, không có nói là, cũng không nói không phải, nói bọn hắn lập tức tới ngay.
+Từ Mạn Mạn lại nở nụ cười dịu dàng, chẳng nhận mà cũng chẳng phủ nhận, chỉ bảo bọn họ sắp tới nơi rồi.
 
-Một mà tiếp, thẩm tử nói có chút kỳ quái, còn nói không nổi không đúng chỗ nào.
+Hết lần này đến lần khác úp mở như vậy khiến Thẩm Tử Ngôn cảm thấy có chút kỳ lạ, nhưng lại chẳng thể chỉ rõ rốt cuộc bất thường ở chỗ nào.
 
-Du Phỉ nói Mộc Dao so Từ Mạn Mạn xinh đẹp, kỳ thực Từ Mạn Mạn cũng rất xinh đẹp, bất quá Từ Mạn Mạn thuộc về dịu dàng loại hình, ở chung một đoạn thời gian thẩm tử nói cảm thấy Từ Mạn Mạn là loại kia rất hiểu chuyện rất thiện giải nhân ý nữ sinh.
+Du Phi từng nhận xét Mộc Dao xinh hơn Từ Mạn Mạn, thực ra Từ Mạn Mạn cũng rất ưa nhìn, có điều cô thuộc tuýp dịu dàng thục nữ. Tiếp xúc một thời gian, Thẩm Tử Ngôn cảm thấy Từ Mạn Mạn là kiểu con gái hiểu chuyện, tinh tế và rất biết săn sóc người khác.
 
-4 0 6 của bốn cái nữ sinh mặc quân huấn phục, Mộc Dao không quan tâm, nàng có chút nhớ nhà, muốn Triệu Kim An rồi.
+Bốn cô gái phòng 406 đều khoác trên mình bộ quân phục. Mộc Dao có vẻ lơ đãng, trong lòng cô đang nhớ nhà, và cũng nhớ cả Triệu Kim An.
 
-Nàng rất hâm mộ Từ Mạn Mạn, vì cái gì mẹ ta cùng tiểu di liền không thích Kim An nhỉ?
+Cô vô cùng ghen tị với Từ Mạn Mạn. Tại sao mẹ và dì lại chẳng hề ưa nổi Kim An cơ chứ?
 
-Còn có, Từ Mạn Mạn giống như.... Cái gì đều chiếm tịnh.
+Hơn nữa, Từ Mạn Mạn dường như... cái gì cũng vẹn toàn, chiếm trọn mọi điều tốt đẹp.
 
-Bạn trai của mụ mụ ưa thích, trong nhà còn có tiền như vậy.
+Mẹ bạn trai yêu quý, gia đình lại giàu có nhường ấy.
 
-Không bao lâu trần trạch đến rồi, mở cửa xuống xe, trong tay lại mang theo một cái cái túi.
+Chẳng mấy chốc chiếc xe của Trần Trạch đã trờ tới. Hắn mở cửa bước xuống, trên tay lại xách theo một chiếc túi quà.
 
-"Mạn Mạn, thời tiết phải đổi lạnh."
+"Mạn Mạn, trời sắp trở lạnh rồi đấy."
 
-Ánh mắt của hắn lại tại Mộc Dao cùng thẩm tử nói trên thân quét tới quét lui, Mộc Dao bộ dáng thanh thuần, thẩm tử nói ngự tỷ phạm mười phần, mặc quân huấn phục cũng xinh đẹp như vậy.
+Ánh mắt hắn lại không tự chủ được mà quét qua quét lại trên người Mộc Dao và Thẩm Tử Ngôn. Mộc Dao mang nét đẹp thanh thuần trong trẻo, còn Thẩm Tử Ngôn lại toát lên khí chất ngự tỷ sang chảnh ngút ngàn, dẫu khoác lên mình bộ quân phục thùng thình vẫn không giấu nổi vẻ kiều diễm hút hồn.
 
-Trần trạch nói mang lưu xông phong tới gặp việc đời, chính hắn cũng sửng sốt một cái chớp mắt.
+Trần Trạch vốn bảo đưa Lưu Sấm Phong đi mở rộng tầm mắt, nhưng chính bản thân hắn cũng phải sững người mất một thoáng.
 
-Ta sát!
+Mẹ kiếp!
 
-Lưu xông phong cùng đáy vực siêu nhận sau khi xuống xe cũng ngẩn ra.
+Lưu Sấm Phong và Cốc Siêu Thừa vừa bước xuống xe cũng đứng đực ra như tượng gỗ.
 
-"đừng xem, người khác có bạn trai."
+"Đừng nhìn nữa, người ta có bạn trai cả rồi đấy."
 
-Từ Mạn Mạn tiến lên tiếp nhận cái túi nhỏ giọng nói.
+Từ Mạn Mạn bước lên đón lấy chiếc túi xách, khẽ cất lời nhắc nhở.
 
-"hai cái cũng có?"
+"Cả hai người đều có rồi á?"
 
-"Mộc Dao có, thẩm tử nói không biết."Từ Mạn Mạn nói.
+"Mộc Dao có rồi, còn Thẩm Tử Ngôn thì tớ không rõ." Từ Mạn Mạn đáp.
 
-"các ngươi tốt."
+"Chào các cậu."
 
-Trần trạch rất có phong độ thân sĩ chào hỏi, nhìn nhiều mắt Mộc Dao.
+Trần Trạch bày ra phong thái lịch thiệp của một quý ông tiến lại chào hỏi, không quên liếc nhìn Mộc Dao thêm một cái.
 
-"ngươi tốt."
+"Chào cậu."
 
-Cách đó không xa ba nữ sinh cười đáp lại, bạn cùng phòng của bạn trai không thể quá lạnh nhạt rồi, thẩm tử nói nhìn một chút trần trạch cùng Từ Mạn Mạn, cảm thấy các nàng rất xứng của.
+Ba cô gái đứng cách đó không xa liền mỉm cười đáp lễ. Dù sao cũng là bạn trai của bạn cùng phòng, không thể tỏ ra quá mức lạnh nhạt. Thẩm Tử Ngôn đưa mắt đánh giá Trần Trạch và Từ Mạn Mạn một lượt, thầm nghĩ hai người này trông cũng khá xứng đôi vừa lứa.
 
-Mộc Dao trong lòng điểm thăng bằng rồi, Từ Mạn Mạn của bạn trai, trần trạch không có Triệu Kim An dễ nhìn.
+Tâm trạng Mộc Dao lúc này mới tìm lại được chút cân bằng: Bạn trai của Từ Mạn Mạn - Trần Trạch kia rõ ràng chẳng thể nào đẹp trai bằng Triệu Kim An của cô.
 
-Trần trạch 1 7 5 của kích thước, tại phương nam tới nói rất tiêu chuẩn chiều cao rồi, bộ dáng cũng không tệ, thỏa thỏa của ông chủ nhỏ, chính là trường kỳ nhấm nuốt cây cau, hai bên quai hàm có chút lớn.
+Trần Trạch cao tầm một mét bảy mươi lăm, ở phương Nam thì đây là chiều cao chuẩn chỉnh, diện mạo cũng ưa nhìn, đúng chuẩn phong thái một thiếu gia nhà giàu. Duy chỉ có điều do thói quen nhai trầu lâu năm nên hai bên quai hàm hơi bạnh ra một chút.
 
-Dài gốc đầm bên này có quá nhiều người trường kỳ nhai cây cau rồi, hoặc nhiều hoặc ít có chút.
+Ở khu vực Trường Chu Đàm này có quá nhiều người nghiện nhai trầu, ít nhiều ai nấy đều mang nét quai hàm như thế.
 
-Trong lòng bọn họ, khói cùng cây cau là không phân biệt của.
+Trong quan niệm của họ, thuốc lá và trầu cau là đôi bạn không thể tách rời.
 
-Thậm chí có vài nữ nhân cũng nhai.
+Thậm chí có cả những người phụ nữ cũng giữ thói quen nhai trầu.
 
-Từ Mạn Mạn nhìn một chút hỏi trần trạch:"ngươi còn có một cái bạn cùng phòng nhỉ?"
+Từ Mạn Mạn đưa mắt nhìn quanh rồi hỏi Trần Trạch: "Cậu còn một người bạn cùng phòng nữa đâu rồi?"
 
-"không đến."trần trạch nói.
+"Không đi." Trần Trạch đáp.
 
-"ngươi sẽ không vừa khai giảng liền kéo bè kết phái, cô lập người khác đi?"
+"Cậu đấy nhé, vừa mới khai giảng đừng có bày trò chia bè kết phái rồi cô lập người ta đấy."
 
-Từ Mạn Mạn cùng trần trạch là cao trung đồng học, lại càng giống tỷ tỷ một dạng dạy bảo trần trạch, trần trạch vừa mới rõ ràng có nhìn lén mình bạn cùng phòng, nàng cũng không gặp sinh khí.
+Từ Mạn Mạn và Trần Trạch vốn là bạn học cấp ba, nhưng cách cô nói chuyện lại giống như một người chị gái đang chỉ bảo cậu em trai. Vừa rồi thấy rõ ràng Trần Trạch có liếc trộm bạn cùng phòng của mình, cô cũng chẳng hề lộ vẻ giận dỗi.
 
-"ta cô lập hắn? Là hắn cô lập chúng ta!"
+"Tớ cô lập nó á? Là nó tự cô lập cả phòng bọn tớ thì có!"
 
-Trần trạch nghĩ nghĩ đột nhiên cười nói:"đúng, dáng dấp thật đẹp trai, Lý Lộ khai giảng ngày đầu tiên thì nhìn trúng hắn rồi."
+Trần Trạch ngẫm nghĩ một lát rồi bỗng cười bảo: "Mà này, thằng đó trông đẹp trai phết đấy, Lý Lộ vừa ngày đầu nhập học đã chấm trúng nó rồi."
 
-Từ Mạn Mạn có chút ngoài ý muốn:"chúng ta mới đại học khai giảng, nhanh như vậy?"
+Từ Mạn Mạn hơi bất ngờ: "Bọn mình mới chân ướt chân ráo vào đại học mà, nhanh thế cơ à?"
 
-Một bên khác đối mặt lưu xông phong của cười ngây ngô nhiệt huyết, Mộc Dao thoáng nghiêng người, biểu hiện ra có chút chán ghét.
+Ở phía bên kia, đối diện với nụ cười ngây ngô đầy nhiệt tình của Lưu Sấm Phong, Mộc Dao khẽ nghiêng người né tránh, trên mặt lộ rõ vẻ không mấy thiện cảm.
 
-Thẩm tử nói vẫn còn hảo, nàng mỉm cười, một giọng nói:"các ngươi tốt."
+Thẩm Tử Ngôn thì bình thản hơn, cô khẽ mỉm cười nói một câu: "Chào hai cậu."
 
-Chưa từng nghĩ lưu xông phong là thực sự có"xã ngưu chứng", hắn lấy điện thoại cầm tay ra liền hỏi nữ hài tử số điện thoại, nói về sau đại gia tại quận cát có cái giúp đỡ.
+Chẳng ngờ Lưu Sấm Phong đúng chuẩn là kẻ "mặt dày vô đối", hắn lập tức rút điện thoại ra hỏi xin số của các cô gái, miệng liến thoắng bảo sau này cùng ở Quận Sa thì tiện bề tương trợ, giúp đỡ lẫn nhau.
 
-Lần này thẩm tử nói cũng ngây ngẩn cả người.
+Lần này đến lượt Thẩm Tử Ngôn cũng phải ngẩn người vì bất ngờ.
 
-"mất mặt a."
+"Thật mất mặt quá đi mất."
 
-Trần trạch nhanh chóng tới, lúc này cũng không tốt ngăn cản, chỉ có thể nói tất cả mọi người đem phương thức liên lạc tăng thêm.
+Trần Trạch vội vàng bước lại giải vây. Vào lúc này cũng chẳng tiện ngăn cản, hắn đành nói để mọi người trao đổi phương thức liên lạc với nhau.
 
-Như vậy thì không đột ngột rồi.
+Như vậy trông sẽ đỡ đường đột và gượng gạo hơn.
 
-Trở lại ký túc xá đã là ban đêm 1 0 điểm, trần trạch tại phê bình lưu xông phong:"ngươi có thể hay không đừng như vậy trực tiếp?"
+Mãi đến mười giờ đêm cả bọn mới về lại ký túc xá. Trần Trạch vẫn không ngừng cằn nhằn Lưu Sấm Phong: "Cậu làm ơn đừng có sỗ sàng, bộc trực quá mức như thế được không?"
 
-Đáy vực siêu nhận cũng nói:"lão Lưu, ngươi không phải ưa thích Lâm Thanh Tuyết sao?"
+Cốc Siêu Thừa cũng chen vào: "Lão Lưu, chẳng phải cậu bảo thích Lâm Thanh Tuyết sao?"
 
-Lưu xông phong nói thẩm tử nói so Lâm Thanh Tuyết xinh đẹp hơn, còn nhắc nhở trần trạch nói ngươi có Từ Mạn Mạn, không thể cùng chính mình cướp thẩm tử nói.
+Lưu Sấm Phong cãi lại, bảo Thẩm Tử Ngôn xinh đẹp hơn Lâm Thanh Tuyết nhiều lần, còn không quên nhắc nhở Trần Trạch rằng hắn đã có Từ Mạn Mạn rồi, tuyệt đối không được tranh giành Thẩm Tử Ngôn với mình.
 
-Trần trạch có chút bất đắc dĩ, nói thẩm tử nói cái này nữ hài rất khó truy, ngươi không đuổi kịp.
+Trần Trạch đành bất lực thở dài, bảo mẫu con gái như Thẩm Tử Ngôn cực kỳ khó theo đuổi, cậu không với tới nổi đâu.
 
-"bằng gì?"
+"Sao lại không?"
 
-Lưu xông phong nói thẩm tử nói vừa mới đối với ta cười.
+Lưu Sấm Phong cãi: "Vừa nãy Thẩm Tử Ngôn còn mỉm cười với tao đấy thôi."
 
-Trần trạch: · · · · · ·
+Trần Trạch cạn lời: "..."
 
-"ngươi chính là truy Lâm Thanh Tuyết đi, nàng có thể thích hợp ngươi hơn."
+"Cậu tốt nhất là nên theo đuổi Lâm Thanh Tuyết đi, cô ấy có lẽ hợp với cậu hơn đấy."
 
-Đáy vực siêu nhận cảm thấy Mộc Dao rất xinh đẹp, không được trên đường trần trạch nói Mộc Dao có bạn trai, ba người hứng thú nói chuyện rất lớn, còn đã hẹn lần sau liên hoan.
+Cốc Siêu Thừa thì thấy Mộc Dao rất xinh xắn, nhưng trên đường về Trần Trạch đã bảo cô ấy có bạn trai rồi. Ba người bọn họ rôm rả bàn tán suốt dọc đường, còn hẹn nhau lần sau sẽ tụ tập ăn uống một bữa.
 
-Có rồi trần trạch cùng Từ Mạn Mạn giật dây, 4 0 6 của ba nữ sinh cũng không tốt cự tuyệt.
+Có Trần Trạch và Từ Mạn Mạn làm cầu nối trung gian, ba cô gái phòng 406 cũng chẳng tiện từ chối.
 
-Chỉ bất quá không có gì chờ mong, các nàng đối với 3 0 3 của lưu xông phong cùng đáy vực siêu nhận không có hứng thú gì.
+Chỉ là trong lòng họ chẳng có chút mong đợi nào, bởi họ hoàn toàn không có chút hứng thú với Lưu Sấm Phong và Cốc Siêu Thừa của phòng 303.
 
-"đúng, Kim An người đâu?"
+"Mà này, Kim An đâu rồi?"
 
-Trần trạch cầm lấy khăn mặt đi phòng tắm, phát giác bình kia 9 khối 9 của lục bình chứa phiêu nhu một mực đặt ở xó xỉnh, hắn mắt nhìn tại ký túc xá"không có việc gì"của Triệu Kim An.
+Trần Trạch cầm khăn tắm định bước vào phòng vệ sinh thì phát hiện chai dầu gội Rejoice màu xanh lá loại chín tệ chín xu vẫn luôn đặt im lìm ở góc. Hắn liếc nhìn Triệu Kim An đang đứng "nhàn rỗi không có việc gì làm" trong phòng.
 
-Lại cầm lấy phiêu nhu nhìn một chút, hẳn là liền Triệu Kim An một người dùng.
+Hắn lại cầm chai dầu gội lên ngó nghiêng, đoán chừng cả phòng chắc chỉ có mỗi mình Triệu Kim An dùng loại này.
 
-"ở đây."
+"Ở đây."
 
-Triệu Kim An tại ban công cửa ra vào, cầm trong tay mình mua lập trắng bột giặt, hết sức chăm chú.
+Triệu Kim An đang đứng ngay cạnh cửa ban công, trên tay cầm túi bột giặt Liby do chính mình mua, dáng vẻ chăm chú đến xuất thần.
 
-Trước gương của đáy vực siêu nhận nhìn thấy, hắn đụng đụng lưu xông phong hạ giọng nói:"ngươi có phải hay không bột giặt cũng không mua? Một mực dùng Kim An của?"
+Cốc Siêu Thừa đứng trước gương nhìn thấy cảnh đó, liền lấy khuỷu tay huých nhẹ Lưu Sấm Phong, hạ thấp giọng thì thầm: "Có phải mày cũng không thèm mua bột giặt, toàn dùng chùa của Kim An không đấy?"
 
-Lưu xông phong mắt nhìn tấm gương, trong gương có thể nhìn thấy Triệu Kim An, hắn há to miệng:"không thể nào?"
+Lưu Sấm Phong nhìn vào gương, qua tấm gương có thể thấy rõ bóng dáng của Triệu Kim An, hắn há hốc mồm: "Không thể nào chứ?"
 
-"ta sẽ dùng ba bốn lần, cái này cũng có thể phát giác?"
+"Tao mới dùng có ba bốn lần thôi mà, thế cũng bị phát hiện á?"
 
-Đáy vực siêu nhận lườm lưu xông phong một cái, nói:"ai biết ngươi một lần đổ bao nhiêu?"
+Cốc Siêu Thừa liếc xéo Lưu Sấm Phong một cái: "Ai mà biết được mỗi lần giặt mày xúc bao nhiêu muỗng?"
 
-Trần trạch trong lòng cười một tiếng, đối với lưu xông phong nói:"bỏ dài, ngươi còn không có mua nước gội đầu?"
+Trần Trạch trong lòng cười thầm, quay sang bảo Lưu Sấm Phong: "Trưởng phòng, cậu vẫn chưa chịu mua dầu gội đầu à?"
 
-"ha ha, quên đi, ngày mai mua, ngày mai mua."
+"Hì hì, tôi quên mất, mai mua, ngày mai nhất định tôi sẽ mua."
 
-Lưu xông phong lúng túng cười cười, đối với Triệu Kim An thẳng thắn:"Kim An, ta quên mua bột giặt rồi, tối hôm qua dùng ngươi, chờ ta mua về, ngươi cũng dùng ta một lần."
+Lưu Sấm Phong gãi đầu cười ngượng ngùng, đành quay sang thú nhận với Triệu Kim An: "Kim An à, tao quên mua bột giặt, tối qua có trót dùng tạm của mày một tí. Đợi tao mua về rồi mày cứ lấy dùng lại một lần nhé."
 
-Triệu Kim An nghe vậy quay người, nói không quan hệ, trong tay còn cầm bột giặt.
+Triệu Kim An nghe thấy liền xoay người lại, bảo không sao đâu, trên tay vẫn cầm khư khư túi bột giặt.
 
-Lưu xông phong: · · · · · ·
+Lưu Sấm Phong ngượng chín mặt: "..."
 
-"liền ngươi dạng này còn không quan hệ? Muốn hay không lại rõ ràng điểm?"
+"Mày làm cái vẻ mặt thế kia mà bảo là không sao à? Có cần phải biểu hiện lộ liễu thế không cơ chứ?"
 
-Trần trạch suýt chút nữa thì cười ra tiếng rồi, ký túc xá thực sự là quá sung sướng rồi.
+Trần Trạch suýt nữa thì bật cười thành tiếng, cái ký túc xá này đúng là tràn ngập niềm vui giải trí.
 
-Lưu xông phong chỉ vào Triệu Kim An trong tay bột giặt, hỏi:"cái kia sao, ngươi đây là....."
+Lưu Sấm Phong chỉ vào túi bột giặt trên tay Triệu Kim An, gặng hỏi: "Thế Kim An, mày đang cầm cái đó làm gì đấy..."
 
-Triệu Kim An cúi đầu nhìn một chút, nói:"ta sẽ nhìn một chút phối phương bày tỏ."
+Triệu Kim An cúi đầu nhìn lướt qua một lượt, thản nhiên đáp: "Tôi chỉ xem bảng thành phần công thức thôi."
 
-"phối phương bày tỏ!?"
+"Bảng thành phần công thức!?"
 
-Ba người một mặt mộng bức, chúng ta một hồi kế chuyên nghiệp cũng không phải thực phẩm chuyên nghiệp, ngươi nghiên cứu cái gì phối phương bày tỏ?
+Cả ba người ngơ ngác nhìn nhau như trời trồng. Bọn mình học chuyên ngành Kế toán chứ có phải ngành Công nghệ thực phẩm hay Hóa chất đâu, mày rảnh rỗi đi nghiên cứu bảng thành phần làm cái quái gì?
 
-".... Ngươi là có nhiều nhàm chán a!?"
+"... Mày rảnh rỗi đến mức độ này luôn đấy à!?"
 
-Triệu Kim An không có phản ứng đến bọn hắn.
+Triệu Kim An chẳng buồn để ý đến bọn họ.
 
-Hắn đang suy nghĩ.
+Anh đang mải suy nghĩ.
 
-Béo tây tới một năm tiêu thụ ngạch 1 4 0 thêm cái ức, đủ loại bán trực tiếp sản phẩm bán được bán hết, vẫn chỉ là tại một cái địa cấp thành phố, nếu như loại mô thức này đi tới tỉnh lị, hướng đi cả nước.....
+Chuỗi siêu thị Bàn Đông Lai sau này đạt doanh thu hàng năm lên tới hơn 14 tỷ tệ, đủ loại sản phẩm tự doanh bán chạy đến mức cháy hàng, mà đó mới chỉ là phát triển trong phạm vi một thành phố cấp địa khu. Nếu như mô hình kinh doanh này được đưa về các thành phố thủ phủ tỉnh, rồi vươn mình ra toàn quốc...
 
-Có tính khả thi sao?
+Liệu có tính khả thi hay không?
 
-Trần trạch tiện tay chụp tấm hình, màu tin phát cho Từ Mạn Mạn.
+Trần Trạch tiện tay chụp một bức ảnh bằng điện thoại rồi gửi tin nhắn đa phương tiện MMS cho Từ Mạn Mạn.
 
-  thấy không, không phải ta cô lập hắn, là hắn cô lập chúng ta.  
+[Thấy chưa, không phải tớ cô lập nó đâu nhé, mà là nó tự cô lập cả phòng bọn tớ đấy.]
 
-Sau đó đi vào phòng tắm.
+Gửi xong, hắn mới bước vào phòng tắm.
 
-Triệu Kim An một mực rất chuyên chú, hắn đang suy nghĩ nếu như có thể giống béo tây tới như thế, Triệu gia thôn của mà liền đều có thể lợi dụng, loại rau quả hoa quả đều có nguồn tiêu thụ.
+Triệu Kim An vẫn chìm đắm trong sự tập trung cao độ. Anh đang tính toán nếu có thể làm được như mô hình của Bàn Đông Lai, toàn bộ quỹ đất ở Triệu Gia Thôn sẽ đều được tận dụng triệt để, trồng rau củ quả hay hoa trái nông sản đều sẽ có đầu ra tiêu thụ ổn định.
 
-Triệu gia thôn chỉ có 6 0 0 nhiều gia đình, thuộc về hoang vắng.
+Triệu Gia Thôn chỉ có vỏn vẹn hơn 600 hộ dân, thuộc diện đất rộng người thưa.
 
-Đương nhiên, Triệu Kim An không phải thánh nhân, có thể giúp hương thân hương lý làm giàu, nhưng thu hàng giá cả chỉ có thể thoáng cao hơn giá thị trường.
+Tất nhiên, Triệu Kim An không phải thánh nhân gì, anh có thể giúp bà con chòm xóm cùng nhau làm giàu, nhưng mức giá thu mua nông sản cũng chỉ có thể nhỉnh hơn đôi chút so với giá thị trường mà thôi.
 
-Trần trạch tắm rửa xong bò lên giường, mở ra laptop, đăng nhập Q Q Từ Mạn Mạn của ảnh chân dung đang nhảy nhót.
+Trần Trạch tắm rửa xong xuôi trèo lên giường, mở chiếc máy tính xách tay ra rồi đăng nhập QQ, thấy avatar của Từ Mạn Mạn đang nhấp nháy liên hồi.
 
-Man thương thương:?? Ai.
+Mạn Đau Đau: [?? Ai thế.]
 
-Trạch thiếu: ngươi nói ta cô lập của người kia, như thế nào? Lý Lộ ngày đầu tiên thì nhìn trúng hắn rồi.
+Trạch Thiếu: [Cái người mà cậu bảo tớ cô lập ấy, thấy sao? Lý Lộ vừa ngày đầu nhập học đã chấm trúng nó rồi đấy.]
 
-Man thương thương: hắn là đang làm gì? Cầm trong tay cái gì?
+Mạn Đau Đau: [Cậu ấy đang làm gì thế? Cầm cái gì trên tay vậy?]
 
-Trạch thiếu: bột giặt (răng hô), nói nhìn phối phương bày tỏ, nhà trọ chúng ta tất cả đều là kỳ hoa.
+Trạch Thiếu: [Bột giặt (icon vẩu răng), bảo là đang đọc bảng thành phần công thức. Cái phòng ký túc xá của tớ toàn một lũ quái nhân kỳ quặc.]
 
-Man thương thương: mới đi học, ngươi đừng nói như vậy bạn cùng phòng mình, các ngươi muốn tại một cái ký túc xá sinh hoạt 4 năm, ngươi cho rằng vẫn là cao trung tan học liền về nhà?
+Mạn Đau Đau: [Mới khai giảng thôi, cậu đừng có nói bạn cùng phòng của mình như thế. Mọi người còn phải sống chung một phòng suốt bốn năm trời đấy, cậu tưởng như thời cấp ba tan học là được về nhà chắc?]
 
-Trạch thiếu: khó trách ta mẹ như vậy thích ngươi, ngươi giống như mẹ ta.
+Trạch Thiếu: [Bảo sao mẹ tớ lại quý cậu đến thế, cậu nói chuyện y hệt mẹ tớ vậy.]
 
-Trạch thiếu: ha ha, ta cũng thích ngươi, (ái tâm)
+Trạch Thiếu: [Hì hì, tớ cũng thích cậu lắm, (trái tim)]
 
-Từ Mạn Mạn không có trả lời tin tức rồi, nàng tại trên máy vi tính phóng đại ảnh chụp.
+Từ Mạn Mạn không nhắn lại nữa, cô đưa tay phóng to bức ảnh trên màn hình máy tính.
 
-Trên thực tế từ trần trạch tiến phòng tắm tắm rửa nàng vẫn tại
+Thực tế là ngay từ khoảnh khắc Trần Trạch bước vào phòng tắm, cô đã luôn chăm chú ngắm nhìn bức hình ấy mãi không thôi.

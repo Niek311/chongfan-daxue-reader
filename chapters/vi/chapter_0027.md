@@ -1,241 +1,243 @@
-# Chương 27: Sự Trừng Phạt Tà Ác
+# Chương 27: Hình phạt... tà ác!
 
-Trình Tử Liên cũng không biết tại sao, nàng chính là rất thích sự sạch sẽ và tĩnh lặng của Triệu Kim An.
+> **Tiêu đề gốc**: 第27章 邪恶...的惩罚！
 
-Còn nữa, là nghe lời.
+Trình Tử Liên cũng chẳng hiểu tại sao bản thân lại có cảm tình đặc biệt với nét sạch sẽ và dáng vẻ trầm tĩnh của Triệu Kim An đến thế.
 
-Từ đồng nghĩa của nghe lời là thuận tùng.
+Lại thêm cái tính nghe lời nữa.
 
-Thuận tùng, cái từ này rất dễ khiến người ta liên tưởng miên man.
+Đồng nghĩa với "nghe lời" chính là sự "phục tùng".
 
-Trong nhà có máy tính, từng lướt qua các trang web, thầy Trình vốn có tư tưởng đại nữ tử chủ nghĩa rất mạnh mẽ, dường như những người làm giáo viên thì tính cách đều tương đối cứng rắn.
+Mà hai chữ "phục tùng" này lại rất dễ khơi gợi cho người ta những liên tưởng miên man.
 
-Đặc biệt là giáo viên dạy những lớp lớn như trung học cơ sở hay trung học phổ thông.
+Cô giáo Trình trong nhà có máy tính, đã từng lướt qua không ít trang web, tính cách vốn có phần nữ quyền và rất mạnh mẽ. Dường như những người làm nghề gõ đầu trẻ, ai nấy tính khí cũng đều có đôi phần lấn lướt như vậy.
 
-Tháng Tám, trong căn bếp chật hẹp, nấu một bữa cơm khiến cả hai người vã mồ hôi hột, những tiếp xúc cơ thể hữu ý hay vô tình của Trình Tử Liên càng làm Triệu Kim An mồ hôi chảy ròng ròng.
+Đặc biệt là giáo viên dạy cấp hai, cấp ba — những khối lớp lớn.
 
-"Kim An, đừng đứng đối diện điều hòa mà thổi, dễ cảm lạnh lắm!"
+Giữa tháng Tám oi ả, trong gian bếp chật hẹp tù túng, nấu xong một bữa cơm thì cả hai người đều ướt đẫm mồ hôi. Những va chạm cơ thể hữu ý hay vô tình của Trình Tử Liên lại càng khiến Triệu Kim An toát mồ hôi hột vì căng thẳng.
 
-Trình Tử Liên nhắc nhở một câu, đi vào phòng tắm, một lát sau cầm ra một chiếc khăn ướt: "Lau đi."
+"Kim An, đừng đứng thẳng trước luồng gió điều hòa, dễ cảm lạnh đấy!"
 
-Khăn mặt của ai?
+Trình Tử Liên cất tiếng nhắc nhở, rồi bước vào phòng tắm. Lát sau, cô cầm ra một chiếc khăn mặt ẩm: "Lau đi em."
 
-Nàng cứ như vậy đứng canh chừng Triệu Kim An, ngẩng đầu, đợi hắn lau xong mới đón lấy chiếc khăn, lại đi vào phòng tắm.
+Khăn mặt của ai thế này?
+
+Cô cứ thế đứng sát cạnh trông chừng Triệu Kim An, khẽ ngẩng đầu nhìn, đợi cậu lau xong xuôi mới đón lấy chiếc khăn rồi lại thong thả đi vào phòng tắm.
 
 Triệu Kim An: "..."
 
-Bị cưỡng ép rồi.
+Bị ép buộc một cách trắng trợn rồi.
 
-Hắn biết khăn mặt đó là của Trình Tử Liên, có mùi hương của nàng.
+Cậu thừa biết chiếc khăn mặt này là của riêng Trình Tử Liên, trên đó còn vương vấn mùi hương quen thuộc của cô.
 
-"Kim An, qua ăn cơm thôi."
+"Kim An, ra ăn cơm thôi em."
 
-Căn nhà cũ hai phòng ngủ một phòng khách, nhìn từ bố cục và trang trí, Trình Tử Liên là kiểu phụ nữ rất chú trọng phong tình cuộc sống.
+Căn hộ hai phòng ngủ một phòng khách kiểu cũ, nhìn từ cách bài trí và trang hoàng có thể thấy Trình Tử Liên là mẫu phụ nữ rất chuộng phong cách sống thi vị, có gu.
 
-Đừng coi thường những giáo viên dạy lớp mười hai này, lương của họ có lẽ không cao, nhưng các loại phụ cấp, rồi cả tiền dạy thêm, nói ít ra thì một năm cũng phải có 200 nghìn tệ.
+Đừng coi thường những giáo viên luyện thi khối 12 này. Lương bổng của họ tuy không quá cao, nhưng các khoản phụ cấp cùng tiền dạy thêm gom góp lại, chẳng dám nói nhiều, chứ một năm hai trăm nghìn tệ chắc chắn nằm trong tầm tay.
 
-Thật ra kiếp trước Trình Tử Liên từng gọi Triệu Kim An đến ăn cơm, mà còn không chỉ một lần.
+Thực ra ở kiếp trước, Trình Tử Liên đã từng gọi Triệu Kim An tới nhà ăn cơm, mà còn chẳng phải chỉ một lần.
 
-Nhưng Triệu Kim An xấu hổ nên không đến.
+Thế nhưng hồi đó Triệu Kim An hay xấu hổ, rụt rè nên không dám tới.
 
-Còn có một loại sợ hãi xuất phát từ đối với giáo viên.
+Phần nữa là nỗi sợ sệt cố hữu của học trò đối với thầy cô giáo.
 
-Không thân không thích, ai lại chạy đến nhà giáo viên ăn cơm chứ?
+Không thân không thích, ai lại tự dưng chạy tới nhà giáo viên ăn cơm làm gì?
 
-Hiện tại, hai người ngồi đối diện nhau, Trình Tử Liên không ngừng gắp thức ăn cho Triệu Kim An.
+Còn lúc này, hai người ngồi đối diện nhau bên bàn ăn, Trình Tử Liên liên tục gắp thức ăn bỏ vào bát Triệu Kim An.
 
-Triệu Kim An không khách sáo cũng không từ chối, không nói một lời, chỉ nói: "Cảm ơn cô."
+Triệu Kim An không khách sáo cũng chẳng từ chối, chỉ lặng lẽ cắm cúi ăn, miệng luôn khẽ nói: "Em cảm ơn cô."
 
-Nhìn Triệu Kim An ngồi thẳng lưng, bưng bát ăn cơm, không hề phát ra tiếng động, trong lòng Trình Tử Liên dâng lên niềm thương xót.
+Nhìn Triệu Kim An ngồi thẳng lưng ngay ngắn, hai tay nâng bát cơm ăn từng miếng nhỏ, không hề phát ra một tiếng động thô thiển nào, sâu thẳm trong lòng Trình Tử Liên bỗng dâng lên một niềm thương xót khôn nguôi.
 
-Đó là niềm thương xót của người phụ nữ 40 tuổi dành cho chàng trai 18 tuổi.
+Đó là sự thương xót, che chở của một người phụ nữ bốn mươi tuổi dành cho một cậu thiếu niên mười tám tuổi.
 
-Nàng từng nghĩ đến cảnh tượng này, nghĩ rằng Triệu Kim An là người như thế, chỉ là không ngờ Triệu Kim An đến cả từ chối cũng không biết.
+Cô từng mường tượng ra khung cảnh này, từng nghĩ Triệu Kim An sẽ là một người như thế, chỉ là không ngờ cậu bé lại ngây thơ đến mức ngay cả từ chối cũng không biết đường từ chối.
 
-Cứ như vậy bưng bát yên lặng ăn, tư thế ngồi đoan chính, không phát ra tiếng động.
+Cứ thế ngoan ngoãn bưng bát yên lặng ăn cơm, tư thế đoan chính, nhai nuốt nhẹ nhàng.
 
-Nàng nhớ tới con gái mình, ăn cơm không bưng bát, điện thoại không rời tay, cái này không ăn cái kia không ăn.
+Cô chợt nhớ đến cô con gái rượu ở nhà, ăn cơm chẳng bao giờ chịu bưng bát, tay lúc nào cũng dán chặt vào màn hình điện thoại, món này chê dở, món kia không thèm đụng đũa.
 
-"Kim An, em có món gì không ăn được không? Ví dụ như rau mùi?"
+"Kim An, em có kiêng ăn món gì không? Chẳng hạn như rau mùi?"
 
-Trình Tử Liên tò mò hỏi.
+Trình Tử Liên tò mò cất tiếng hỏi.
 
-"Dạ không."
+"Dạ không ạ."
 
-Triệu Kim An ngẩng đầu, lắc đầu, giống như đang hồi tưởng kỹ càng.
+Triệu Kim An ngẩng đầu lên lắc nhẹ, như thể đang nghiêm túc lục lọi lại trong ký ức.
 
-"Bà nội không trồng rau mùi."
+"Bà nội em không trồng rau mùi."
 
-Câu nói này đã đánh trúng vào nội tâm của Trình Tử Liên, nàng biết gia cảnh của Triệu Kim An, nên hiểu thành "Triệu Kim An không có tư cách kén ăn", rau mùi thuộc loại gia vị, sao có thể nỡ bỏ tiền ra mua.
+Câu nói giản đơn ấy bỗng chốc đánh thẳng vào chỗ mềm yếu nhất nơi đáy lòng Trình Tử Liên. Cô hiểu rõ hoàn cảnh gia cảnh của Triệu Kim An, nên tự động hiểu câu nói đó thành "Triệu Kim An làm gì có tư cách mà kén cá chọn canh", rau mùi vốn thuộc loại rau gia vị mua ngoài, nhà nghèo như thế làm sao nỡ bấm bụng bỏ tiền ra mua.
 
-"Kim An, em rất sợ cô sao?"
+"Kim An, em sợ cô lắm à?"
 
-Triệu Kim An gật đầu rồi lại lắc đầu, không biết trả lời thế nào.
+Triệu Kim An vừa gật đầu lại vừa lắc đầu, lúng túng chẳng biết nên trả lời ra sao.
 
-"Được rồi, đừng gò bó như vậy, em đã tốt nghiệp rồi, cô cũng không thể trừng phạt em nữa."
+"Thôi được rồi, đừng gò bó thế nữa, em tốt nghiệp rồi cơ mà, cô đâu thể phạt em được nữa."
 
-Nói đến hai chữ trừng phạt, chính Trình Tử Liên cũng sững sờ, nhìn Triệu Kim An sạch sẽ lại đẹp trai, thầm nghĩ nếu chuyện gì cũng có thể trừng phạt thì tốt biết mấy.
+Vừa thốt ra hai chữ "trừng phạt", chính Trình Tử Liên cũng khẽ sững sờ. Đôi mắt nhìn chăm chú vào gương mặt sạch sẽ, thanh tú của Triệu Kim An, trong lòng cô thầm nghĩ, giá như chuyện gì cũng có thể mang cậu ra "trừng phạt" thì hay biết mấy.
 
-Trương Tuệ cảm thấy Triệu Kim An rất dễ thao túng tâm lý, còn Trình Tử Liên thì nghĩ xa hơn, thậm chí còn có chút tà ác.
+Trương Tuệ nghĩ Triệu Kim An rất dễ thao túng, nhưng Trình Tử Liên còn nghĩ xa hơn thế nhiều, thậm chí còn nhuốm chút tà niệm đen tối.
 
-Trong điện thoại, nàng đã nói dối chồng mình, vốn dĩ là một chuyện rất bình thường, nàng lại nói là đi tham gia tiệc mừng tân khoa của học sinh.
+Lúc ở trong điện thoại, cô đã nói dối chồng. Vốn dĩ chỉ là một chuyện hết sức bình thường, thế mà cô lại bịa lý do phải đi dự tiệc mừng đỗ đại học của học sinh.
 
-Thật ra nàng không định để chuyện gì xảy ra, nhưng ngay khoảnh khắc bấm số điện thoại, nàng đã nói dối chồng mình.
+Thực ra cô chẳng hề có ý định vượt quá giới hạn làm điều gì xằng bậy, nhưng ngay khoảnh khắc bấm số gọi đi, cô đã buột miệng dối gạt người bạn đời của mình.
 
-Lúc rời đi, Trình Tử Liên vào phòng ngủ, lấy ra một phong bao lì xì, hai nghìn tệ.
+Lúc tiễn khách ra về, Trình Tử Liên bước vào phòng ngủ, cầm ra một phong bao đỏ bên trong có hai nghìn tệ.
 
-Nàng đã tạm thời bỏ thêm một nghìn.
+Cô đã cố tình nhét thêm một nghìn tệ vào đó.
 
-"Kim An, đây là chút tấm lòng của cô."
+"Kim An, đây là chút lòng thành của cô giáo dành cho em."
 
-"Thầy Trình?"
+"Cô Trình?"
 
-Triệu Kim An rất kinh ngạc, họ tham gia tiệc mừng tân khoa đều không cần tặng lễ, huống hồ bây giờ hắn đã có tiền.
+Triệu Kim An vô cùng bất ngờ. Thầy cô đi dự tiệc mừng đỗ đại học bình thường còn chẳng nhận phong bì, huống chi bây giờ trong tay cậu đâu hề thiếu thốn tiền bạc.
 
-"Cầm lấy!"
+"Cầm lấy đi!"
 
-Giọng điệu của Trình Tử Liên không cho phép từ chối, nàng nhét phong bao vào tay Triệu Kim An, dặn dò: "Lên đại học thì cố gắng học tập, nghỉ lễ về nhớ tới thăm cô."
+Bằng một giọng điệu dứt khoát không cho phép chối từ, Trình Tử Liên dúi chặt chiếc phong bao đỏ thắm vào tay Triệu Kim An, ân cần dặn dò: "Lên đại học rồi phải chăm chỉ học hành, nghỉ hè nghỉ đông về nhớ ghé qua thăm cô đấy nhé."
 
-"Cảm ơn thầy Trình."
+"Em cảm ơn cô Trình nhiều ạ."
 
-Triệu Kim An nhận lấy phong bao, quay người chuẩn bị rời đi.
+Triệu Kim An nhận lấy phong bao rồi xoay người chuẩn bị bước ra cửa.
 
 "Kim An!"
 
-Trình Tử Liên gọi một tiếng, đột nhiên đưa tay vuốt ve khuôn mặt Triệu Kim An, rồi ghé sát lại nhẹ nhàng ôm hắn một cái.
+Trình Tử Liên bỗng cất tiếng gọi giật lại. Bất ngờ, cô vươn bàn tay mềm mại khẽ vuốt ve lên má Triệu Kim An, rồi nhẹ nhàng áp sát người tới, ôm chầm lấy cậu vào lòng.
 
-Hành động đột ngột này khiến Triệu Kim An không dám nhúc nhích, chỉ cảm nhận được sự mềm mại.
+Trước cử chỉ đường đột ấy, Triệu Kim An đứng sững người không dám nhúc nhích, chỉ cảm nhận được một sự mềm mại ấm áp ùa tới.
 
-Trình Tử Liên cười nói: "Kim An, em mà là con trai cô thì tốt biết mấy."
+Trình Tử Liên khẽ mỉm cười dịu dàng: "Kim An, giá như em là con trai của cô thì tốt biết mấy."
 
-Đây là... chồng chất buff sao?
+Đây là... phép cộng dồn thuộc tính à?
 
-Triệu Kim An bày tỏ sự nghi ngờ đối với câu nói này, có người mẹ 40 tuổi nào lại ôm con trai mình như thế này không?
+Triệu Kim An thầm bán tín bán nghi với câu nói này. Có người mẹ bốn mươi tuổi nào lại ôm ấp con trai theo cái kiểu nồng nàn thế này không?
 
-Còn nữa... vuốt ve mặt?
+Lại còn... âu yếm vuốt má nữa chứ?
 
 ...
 
-Từ trường học đi ra, nhìn thời gian đã 8 giờ rưỡi, nội tâm Triệu Kim An không chút gợn sóng.
+Bước ra khỏi cổng trường, nhìn đồng hồ đã tám giờ rưỡi tối, tâm trạng Triệu Kim An phẳng lặng như mặt hồ không gợn chút sóng lăn tăn.
 
-Hắn gọi một cuộc điện thoại cho Du Phỉ, sau đó đi đến ngân hàng.
+Cậu bấm số gọi cho Du Phi, sau đó thong thả đi về phía cây ATM ngân hàng.
 
-Mượn của Du Phỉ 4500 tệ, hắn không trả lại cho nàng ngay khi World Cup kết thúc.
+Khoản tiền 4.500 tệ mượn của Du Phi, cậu không trả lại ngay sau khi World Cup kết thúc.
 
-Trùng sinh là bí mật lớn nhất của hắn.
+Trùng sinh chính là bí mật lớn nhất của cuộc đời cậu.
 
-Hắn sợ bị các đơn vị liên quan bắt đi làm thí nghiệm.
+Cậu sợ bị các cơ quan ban ngành tóm đi làm vật thí nghiệm nghiên cứu.
 
-Cứ như vậy, Du Phỉ quả thực nghi ngờ hắn, chẳng lẽ Triệu Kim An mượn tiền không phải để mua bóng đá sao?
+Làm như vậy quả thực khiến Du Phi hoài nghi, chẳng lẽ Triệu Kim An vay tiền không phải để ném vào cá độ bóng đá?
 
-Nàng không nghĩ nhiều như vậy, thậm chí còn thấy tiếc cho Triệu Kim An.
+Cô bé cũng chẳng nghĩ ngợi sâu xa, thậm chí còn thấy tiếc hùi hụi thay cho Triệu Kim An.
 
-Nếu Triệu Kim An đem 4500 tệ mượn của mình mua hết vào trận đấu cuối cùng thì tốt rồi, như vậy hắn đã có tiền.
+Nếu như Triệu Kim An đem toàn bộ 4.500 tệ mượn mình đập hết vào trận chung kết thì hay biết mấy, như thế giờ này cậu ấy đã có cả một món tiền lớn rồi.
 
-Nhận được điện thoại, Du Phỉ phi thân xuống lầu, không hề có sự kiêu kỳ của con gái là nhất định phải bắt con trai đợi thêm một lát.
+Nhận được điện thoại, Du Phi lập tức phi như bay xuống lầu, chẳng thèm làm bộ làm tịch kiểu con gái bắt con trai phải đứng đợi dài cổ dưới sương gió.
 
-Nhà nàng cũng là kiểu nhà chung cư 6 tầng cũ, năm 2006 nhà thương phẩm còn tương đối ít, ngành bất động sản hưng thịnh là bắt đầu từ năm 2008, 2009.
+Nhà cô bé cũng thuộc khu tập thể sáu tầng dùng cầu thang bộ. Vào năm 2006, các khu chung cư thương mại hiện đại vẫn còn khá hiếm hoi, cơn sốt bất động sản thực sự bùng nổ phải từ những năm 2008, 2009.
 
-Vào năm 2009, giá nhà toàn quốc đón một đợt tăng vọt gấp đôi.
+Đến năm 2009, giá nhà đất trên toàn quốc đón một đợt tăng phi mã gấp đôi.
 
-Cũng chính vào năm này, nhà cửa trở thành một câu hỏi mà bên nữ nhất định phải hỏi bên nam trong thị trường xem mắt kết hôn.
+Và cũng chính từ năm ấy trở đi, "đã có nhà riêng hay chưa" trở thành câu hỏi cửa miệng bắt buộc của đằng gái dành cho đằng trai trên thị trường mai mối, kết hôn.
 
-Du Phỉ mặc áo phông quần jean chạy ra, thấy Triệu Kim An đang ngồi trên gờ đá trước cổng khu nhà, dưới đất có hai mẩu thuốc lá, khuôn mặt nàng đầy vẻ kinh ngạc.
+Mặc chiếc áo phông kết hợp quần jean năng động, Du Phi chạy ào ra cổng, trông thấy Triệu Kim An đang ngồi bệt trên gờ vỉa hè trước cổng khu tập thể, dưới chân vương vãi hai mẩu đầu thuốc lá, cô tròn xoe mắt kinh ngạc.
 
-"Kim An, cậu... cậu hút thuốc thật à?"
+"Kim An, cậu... cậu biết hút thuốc thật đấy à?"
 
-Đúng vậy, sao Triệu Kim An có thể hút thuốc chứ? Thuốc lá không phải tốn tiền mua sao?
+Đúng vậy, Triệu Kim An sao lại có thể hút thuốc cơ chứ? Thuốc lá đâu phải thứ muốn có là có, chẳng phải tốn tiền mua hay sao?
 
-Triệu Kim An ở nhà thì nhịn không hút, trước mặt Trình Tử Liên cũng không hút, hắn đứng dậy móc từ túi quần ra một xấp tiền đưa qua.
+Triệu Kim An ở nhà thì nhịn không dám hút, đứng trước mặt cô Trình Tử Liên cũng không dám hó hé, cậu đứng dậy thò tay vào túi quần rút ra một xấp tiền ngay ngắn đưa sang.
 
-"Cảm ơn cậu, đã trì hoãn nhiều ngày như vậy."
+"Cảm ơn cậu nhé, để dây dưa ngần ấy ngày trời."
 
-"Ồ."
+"À, ừ."
 
-Du Phỉ nhận tiền cũng không đếm, nhét luôn vào túi quần.
+Du Phi nhận lấy xấp tiền mà không thèm đếm, nhét thẳng vào túi quần.
 
-Thấy Triệu Kim An vẫn nhìn chằm chằm mình, nàng sờ sờ mặt, chẳng lẽ trên mặt có dính gì sao, lại cúi đầu nhìn thoáng qua quần jean, khóa kéo đã kéo lên rồi mà.
+Thấy Triệu Kim An vẫn đứng chôn chân nhìn mình chằm chằm, cô bé lúng túng đưa tay sờ lên má, tưởng mặt mình dính bẩn, rồi lại cúi đầu liếc nhìn chiếc quần jean, khóa quần vẫn kéo cẩn thận mà.
 
-"Sao thế?"
+"Sao thế cậu?"
 
-Triệu Kim An đưa tay: "Giấy nợ."
+Triệu Kim An chìa bàn tay ra: "Giấy ghi nợ."
 
-Du Phỉ: "..."
+Du Phi: "..."
 
-Tức đến mức muốn cắn người, có hạng người như vậy sao?
+Tức đến mức muốn cắn cho một phát, trên đời sao lại có cái thể loại người như thế này cơ chứ?
 
-Hồi đó cậu mượn tiền tớ còn không thèm viết giấy nợ, Du Phỉ 18 tuổi cảm thấy Triệu Kim An đã "vấy bẩn" tình bạn giữa các bạn học, đúng rồi, còn là bạn cùng bàn nữa chứ.
+Hồi đầu lúc cậu mượn tiền tớ đã bảo không cần viết giấy nợ rồi. Cô thiếu nữ mười tám tuổi Du Phi cảm thấy hành động này của Triệu Kim An như đang "vấy bẩn" tình bạn trong sáng giữa hai người, à mà khoan, bọn họ còn là bạn cùng bàn suốt bao năm nữa cơ đấy.
 
-"Giấy nợ để ở nhà rồi, tớ quên mang theo, ừm... tớ về sẽ xé đi là được chứ gì, lần sau đưa lại cho cậu cũng được!"
+"Giấy nợ tớ để trên nhà rồi, quên không mang xuống. Hừ... tớ về phòng xé nát nó đi là được chứ gì, không thì lần sau tớ trả lại cho cậu!"
 
-Du Phỉ tức giận dậm chân, thấy dáng vẻ nghiêm túc của Triệu Kim An, nàng lại cảm thấy rất buồn cười.
+Du Phi tức tối giậm chân một cái, nhưng nhìn thấy vẻ mặt nghiêm túc đến ngô nghê của Triệu Kim An, cô lại không kìm được mà bật cười khúc khích.
 
-... Đúng là đồ thẳng nam!
+... Đúng là cái đồ thẳng nam hết thuốc chữa!
 
-"Này, cậu nói là mời tớ ăn cơm mà."
+"Này, cậu từng bảo sẽ mời tớ một bữa đấy nhé."
 
-Du Phỉ vẫn luôn nhớ kỹ chuyện này.
+Du Phi vẫn nhớ như in lời hứa ấy trong lòng.
 
-Triệu Kim An nhìn thời gian: "9 giờ rồi, tớ ăn no rồi."
+Triệu Kim An liếc nhìn đồng hồ: "Chín giờ rồi, tớ ăn no căng bụng rồi."
 
-"Cậu ăn no rồi!?"
+"Cậu ăn no rồi á?!"
 
-Du Phỉ: "..."
+Du Phi: "..."
 
-Chàng trai như thế này thì làm sao dỗ dành con gái vui vẻ được?
+Cái ngữ con trai thế này thì muôn đời không biết cách dỗ dành, làm con gái vui vẻ nổi đâu!
 
-"Tớ mời cậu được chưa."
+"Thôi để tớ mời cậu, được chưa!"
 
-Nàng chỉ vào một tiệm đồ nướng bên đường đối diện: "9 giờ rồi ăn đêm đi, tớ mời cậu ăn đồ nướng, tớ theo cậu mua World Cup kiếm được 340 tệ đó, hi hi."
+Cô bé giơ ngón tay chỉ về phía một quán đồ nướng vỉa hè bên kia đường: "Chín giờ tối thì ăn bữa khuya, tớ mời cậu ăn thịt nướng. Hôm theo chân cậu mua cá độ World Cup tớ kiếm được tận 340 tệ lận đấy, hi hi."
 
-"Đúng rồi, Kim An, cậu mượn tiền để làm gì vậy?"
+"À đúng rồi Kim An, cậu mượn tiền tớ rốt cuộc là để làm gì thế?"
 
 "Thi bằng lái xe."
 
-"Thi bằng lái xe!?"
+"Học lái xe á?!"
 
-Hai người băng qua đường, Du Phỉ nhìn Triệu Kim An, không hiểu tại sao lúc này hắn lại bỏ tiền đi thi bằng lái.
+Hai người sóng đôi băng qua đường, Du Phi nghiêng đầu ngắm nhìn Triệu Kim An, hoàn toàn không hiểu nổi tại sao vào thời điểm này cậu lại ném tiền đi học lái ô tô làm gì.
 
-"Vậy... Kim An, học phí của cậu đủ chưa? Tiền này cậu trả tớ muộn chút cũng được."
+"Thế... Kim An này, tiền học phí đại học của cậu đã lo đủ chưa? Chỗ tiền này cậu trả tớ muộn một chút cũng chẳng sao đâu mà."
 
-"Chuẩn bị xong cả rồi."
+"Tớ chuẩn bị đủ cả rồi."
 
-Du Phỉ ở trước quầy gọi rất nhiều món, không hề hỏi Triệu Kim An.
+Đứng trước quầy đồ nướng, Du Phi gọi một thôi một hồi bao nhiêu món ngon mà chẳng thèm hỏi qua ý kiến Triệu Kim An.
 
-Triệu Kim An tranh trả tiền.
+Lúc thanh toán, Triệu Kim An nhanh tay giành trả tiền trước.
 
-"Kim An, để tớ!"
+"Kim An, để tớ trả!"
 
-Du Phỉ cũng móc tiền ra tranh trả.
+Du Phi cũng sốt sắng móc ví ra tranh trả tiền.
 
-"Đôi tình nhân nhỏ hẹn hò đương nhiên là con trai trả tiền chứ."
+"Các cháu là một đôi đang hẹn hò thì dĩ nhiên là bạn trai phải trả tiền chứ."
 
-Ông chủ là một kẻ nịnh nọt, chưa từng trải qua sự tẩy lễ của các video ngắn, đưa tay giật lấy tiền trong tay Triệu Kim An.
+Bác chủ quán mang tư tưởng chiều lòng phái đẹp kiểu truyền thống, chưa từng trải qua sự tẩy não của mấy trào lưu bình đẳng trên mạng xã hội sau này, liền đưa tay giật phắt lấy tờ tiền trong tay Triệu Kim An.
 
-Dĩ nhiên, Du Phỉ cũng không phải kiểu con gái giả vờ giả vịt trả tiền.
+Dĩ nhiên, Du Phi cũng chẳng phải là hạng con gái làm bộ làm tịch vờ vịt rút ví cho có lệ.
 
-"Kim An, cậu và Mộc Dao chia tay thật rồi sao?"
+"Kim An, cậu với Mộc Dao chia tay thật rồi à?"
 
-Du Phỉ vừa gặm đùi gà vừa ngập ngừng hỏi, nàng thật sự rất tò mò.
+Du Phi vừa gặm chiếc đùi gà thơm phức vừa ngập ngừng cất tiếng hỏi, đáy lòng cô bé thực sự tò mò khôn xiết.
 
 "Ừ."
 
-Triệu Kim An gật đầu, cũng đang gặm đùi gà.
+Triệu Kim An gật đầu xác nhận, miệng cũng thong thả gặm cánh gà.
 
-"Tiệc mừng tân khoa của tớ cậu cũng không đến..."
+"Tiệc mừng đỗ đại học của tớ cậu cũng chẳng thèm tới dự..."
 
-Du Phỉ nói rất nhỏ, liếc nhìn Triệu Kim An, nàng cũng không tin lắm, cho rằng đến đại học Triệu Kim An nhất định sẽ tìm Mộc Dao.
+Du Phi lí nhí trách móc trong miệng, liếc nhìn Triệu Kim An một cái. Trong thâm tâm, cô bé vẫn nửa tin nửa ngờ, chắc mẩm rằng lên đến đại học rồi Triệu Kim An nhất định sẽ lại tìm Mộc Dao cho mà xem.
 
-Bây giờ ấy mà, thuộc về kiểu cha mẹ bên nữ chia rẽ uyên ương.
+Chuyện bây giờ chẳng qua là do bố mẹ đằng gái ngang nhiên chia uyên rẽ thúy mà thôi.
 
-Đến Quận Sa rồi hai người chắc chắn sẽ lại âm thầm yêu đương thôi.
+Lên đến Quận Sa rộng lớn, hai người bọn họ chắc chắn sẽ lại lén lút qua lại hẹn hò với nhau.
 
-Chắc là Mộc Dao đi tìm Triệu Kim An một lần, với tính cách tốt như vậy của Triệu Kim An, chắc chắn chuyện gì cũng sẽ đồng ý hết.
+Chỉ cần Mộc Dao chủ động tìm tới Triệu Kim An một lần, với cái tính khí hiền lành, dễ dãi của Triệu Kim An thì thể nào chẳng gật đầu đồng ý hết thảy mọi chuyện.
 
-Chỉ là nghĩ đến cảnh tượng trong tiệc mừng của Mộc Dao, Du Phỉ lại thấy hơi xót xa cho Triệu Kim An, giả sử họ ở bên nhau, cha mẹ Mộc Dao sau này chắc chắn sẽ gây khó dễ đủ điều cho hắn.
+Chỉ là khi nhớ lại cảnh tượng trong bữa tiệc mừng đỗ đại học của Mộc Dao hôm ấy, Du Phi lại dấy lên niềm xót xa cho Triệu Kim An. Giả sử sau này hai người thực sự đến với nhau, bố mẹ Mộc Dao chắc chắn sẽ tìm đủ mọi cách làm khó làm dễ, bắt bẻ Triệu Kim An đủ điều.
 
-Trên đường về, Du Phỉ lấy tiền ra đếm, lại nghiêm túc đếm thêm một lần nữa.
+Trên đường đi bộ trở về nhà, Du Phi rút xấp tiền trong túi quần ra đếm, rồi lại cẩn thận đếm đi đếm lại một lượt nữa.
 
-4800?
+4.800 tệ?
 
-300 này coi như là tiền lãi sao?
+Thừa ra 300 tệ, coi như là tiền lãi sao?

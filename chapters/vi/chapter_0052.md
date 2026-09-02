@@ -1,215 +1,209 @@
-# Chương 52: Điểm Yếu
+# Chương 52: Điểm yếu
 
-Bước ra khỏi nhà ăn, còn chưa đến trước chiếc BMW, Triệu Kim An liếc nhìn điện thoại rồi nói: "Tôi về ký túc xá trước đây."
+> **Tiêu đề gốc**: 第52章 弱点。
 
-Lưu Sấm Phong đi bên cạnh Trần Trạch, thao thao bất tuyệt kể về kế hoạch học đại học của mình, chỉ vì Trần Trạch vừa khen gã một câu.
+Rời khỏi nhà ăn, khi còn chưa bước tới gần chiếc BMW, Triệu Kim An cúi đầu liếc nhìn màn hình điện thoại rồi nói: "Tớ về ký túc xá trước nhé."
 
-Như vậy rất tốt, có chí tiến thủ.
+Lưu Sấm Phong rảo bước sóng đôi bên cạnh Thẩm Tử Ngôn, say sưa thao thao bất tuyệt về những dự định và hoài bão của mình thời đại học, chỉ vì vừa rồi được Thẩm Tử Ngôn buông lời khen một câu: "Thế là rất tốt, có chí tiến thủ."
 
-Trần Trạch nghe tai trái ra tai phải, chẳng hề để tâm chút nào, nhưng ngoài mặt vẫn tỏ vẻ lắng nghe rất nghiêm túc, dành cho đối phương sự tôn trọng cơ bản.
+Thẩm Tử Ngôn nghe tai này lọt qua tai kia, căn bản chẳng để vào đầu, nhưng bên ngoài vẫn giữ vẻ mặt chăm chú lắng nghe, dành cho đối phương sự tôn trọng tối thiểu.
 
-Đây là nguyên tắc làm người cơ bản của Trần Trạch.
+Đó là nguyên tắc đối nhân xử thế cơ bản của cô.
 
-Lưu Sấm Phong cảm thấy mình lại "ngon lành" rồi, đã chiếm được cảm tình của nữ thần.
+Lưu Sấm Phong thì lại ngỡ mình phong độ ngời ngời, đã thành công chiếm trọn cảm tình của nữ thần. Hắn thấy cô không giống Mộc Dao chút nào. Mộc Dao một khi không thích ai là biểu lộ rõ vẻ chán ghét ra mặt, hôm nọ Lưu Sấm Phong cũng đã nếm mùi bị Mộc Dao "ghét bỏ".
 
-Không giống như Mộc Dao, Mộc Dao nếu không thích sẽ biểu lộ sự chán ghét ra mặt, hôm đó Lưu Sấm Phong cũng nhận ra Mộc Dao "khinh bỉ" mình.
+Thực ra khi nhìn thấy chiếc áo phông của Lưu Sấm Phong, Thẩm Tử Ngôn cũng muốn bật cười, nhưng cô đã khéo léo kìm lại được.
 
-Thật ra nhìn thấy chiếc áo thun của Lưu Sấm Phong, Thẩm Tử Ngôn cũng muốn cười, nhưng nàng đã nhịn được.
+Trần Trạch rút chìa khóa xe bấm một tiếng "tít".
 
-Trần Trạch lấy chìa khóa xe ra, ấn "tít" một tiếng.
+Từ Mạn Mạn nắm lấy tay nắm cửa xe, đưa mắt nhìn theo hướng Triệu Kim An vừa rời đi, rồi quay sang bảo: "Để bọn mình chở hai cậu về ký túc xá nhé."
 
-Từ Mạn Mạn nắm lấy tay nắm cửa xe, nhìn theo hướng Triệu Kim An rời đi, nói: "Hay là đưa các cậu ấy về ký túc xá đi."
+Thẩm Tử Ngôn xua tay: "Thôi khỏi, tụi mình đi bộ một lát cho dễ tiêu cơm."
 
-Thẩm Tử Ngôn đáp: "Không cần đâu, chúng tôi đi bộ một chút cho tiêu cơm."
+Sáu người đứng tụ tập bên cạnh chiếc BMW, Lưu Sấm Phong bỗng nảy ra một sáng kiến, hào hứng đề xuất: "Hay là hai phòng chúng ta hôm nào làm buổi giao lưu liên hoan đi?"
 
-Sáu người đứng bên cạnh chiếc BMW, Lưu Sấm Phong đột nhiên nảy ra ý định đề nghị: "Hay là hai ký túc xá chúng ta tìm lúc nào đó liên hoan đi?"
+Cốc Siêu Thừa nóng lòng muốn gặp lại Mộc Dao, lập tức giơ cả hai tay tán thành.
 
-Cốc Siêu Thừa muốn gặp Mộc Dao nên lập tức tán thành.
+Lần này Thẩm Tử Ngôn không hề qua loa lấy lệ mà khẽ gật đầu đồng ý.
 
-Lần này Thẩm Tử Ngôn không lấy lệ nữa mà gật đầu đồng ý.
+Từ Mạn Mạn tay vẫn giữ tay nắm cửa xe cũng bảo được, dù thoạt đầu cô là người ít mong đợi nhất.
 
-Từ Mạn Mạn đang vịn cửa xe cũng nói được, vốn dĩ nàng là người ít kỳ vọng nhất.
+Quá đỗi hoàn hảo.
 
-Hoàn mỹ.
+Lưu Sấm Phong thầm đắc ý thấy bản thân sao mà thông minh thế, hắn lại cười hề hề quay sang bảo Trần Trạch: "Anh Trạch, anh rành khu Đại học thành này nhất, bữa liên hoan tới tuyệt đối đừng dẫn ra nhà ăn nữa nhé."
 
-Lưu Sấm Phong cảm thấy mình quá thông minh, gã lại cười hì hì nói với Trần Trạch: "Trạch ca, anh rành khu đại học này như vậy, liên hoan thì đừng đến nhà ăn nữa nhé."
+"OK, địa điểm cứ để anh lo!"
 
-"OK, địa điểm cứ để tôi sắp xếp!"
+Trần Trạch làm động tác tay OK, tỏ vẻ chuyện nhỏ như con thỏ.
 
-Trần Trạch ra dấu tay OK, biểu thị không thành vấn đề.
+Thẩm Tử Ngôn nhìn hai người bọn họ một lượt rồi từ tốn nói: "Campuchia, chia đều tiền nhé."
 
-Thẩm Tử Ngôn nhìn hai người bọn họ, nói: "Campuchia nhé."
+Lưu Sấm Phong nhất thời câm nín: "..."
 
-Lưu Sấm Phong: "..."
+Ban đầu hắn còn tính để Trần Trạch bao trọn gói ở một nhà hàng sang trọng nào đó, vừa được ăn chực miễn phí một bữa no nê, lại vừa có cơ hội kéo gần khoảng cách với Thẩm Tử Ngôn.
 
-Gã vốn còn muốn để Trần Trạch sắp xếp một nơi cao cấp chút.
+Trần Trạch thực chất cũng tính toán sẽ chọn một nơi thật đẳng cấp, đắt đỏ để phô diễn chút mị lực (hay đúng hơn là tài lực) khó lòng kìm nén của mình trước mặt Thẩm Tử Ngôn và Mộc Dao.
 
-Thế là hết được ăn chực rồi.
+Chỉ qua vài lần tiếp xúc, Thẩm Tử Ngôn đã sớm nhìn thấu gia cảnh của mọi người: điều kiện nhà Lưu Sấm Phong hẳn là không mấy dư dả; Cốc Siêu Thừa và Diêu Tân ở phòng cô thuộc diện bình thường; chỉ riêng Triệu Kim An là cô chưa thể nhìn thấu hoàn toàn.
 
-Nhưng dù sao cũng có cơ hội kéo gần quan hệ với Thẩm Tử Ngôn.
+Dù nghe đồn chị họ cậu ta lái Range Rover, nhưng điều đó cũng chẳng nói lên được gì nhiều, dẫu sao cũng đâu phải chị ruột.
 
-Trần Trạch thật ra cũng định sắp xếp một nơi sang trọng để thể hiện sức hấp dẫn (tài lực) không chỗ phát tiết của mình trước mặt Thẩm Tử Ngôn và Mộc Dao.
+"Cứ tìm một quán ăn nhỏ là được rồi." Thẩm Tử Ngôn khéo léo, thấu hiểu nói thêm.
 
-Thẩm Tử Ngôn vừa tiếp xúc đã nhận ra, điều kiện gia đình của Lưu Sấm Phong chắc là không tốt lắm, Cốc Siêu Thừa và Diêu Tân cùng phòng nàng thuộc diện bình thường, chỉ có Triệu Kim An là nàng nhìn không ra.
+Quả nhiên, Cốc Siêu Thừa và Diêu Tân đều lập tức đồng tình, bảo rằng sinh viên với nhau thì không cần phải bày vẽ xa hoa lãng phí làm gì.
 
-Tuy chị họ hắn lái chiếc Land Rover, nhưng điều đó không đại diện cho thứ gì cả, dù sao cũng chẳng phải chị ruột.
+...
 
-"Tìm một quán cơm nhỏ là được rồi." Thẩm Tử Ngôn thấu hiểu lòng người nói.
+Trên đường trở về, Từ Mạn Mạn ngồi ở ghế phụ, Trần Trạch vừa cầm lái vừa cười hỏi: "Thế nào? Chẳng phải lúc trước em tò mò vì sao cậu ta lại cầm gói bột giặt đứng ngẩn ngơ sao?"
 
-Quả nhiên, Cốc Siêu Thừa và Diêu Tân đều bày tỏ tán thành, bảo không cần thiết phải phô trương lãng phí.
+"Sao anh lại đi hỏi người ta cái câu kỳ cục thế chứ, Thẩm Tử Ngôn cũng có thèm hỏi đâu."
 
-Trên đường về, Từ Mạn Mạn ngồi ở ghế phụ, Trần Trạch lái xe, hắn cười hì hì hỏi: "Thế nào? Không phải em thấy lạ chuyện hắn cầm túi bột giặt đứng thẫn thờ sao?"
+Từ Mạn Mạn trầm ngâm một lúc rồi nói: "Em thấy cậu ấy rất bình thường."
 
-"Sao anh lại đi hỏi người ta câu đó, Thẩm Tử Ngôn còn chẳng hỏi nữa là."
+Mối quan hệ giữa Trần Trạch và Từ Mạn Mạn dường như đã được đôi bên ngầm định sẵn. Lúc nãy Trần Trạch có lén liếc nhìn Thẩm Tử Ngôn vài lần, Từ Mạn Mạn cũng chẳng thèm nói gì.
 
-Từ Mạn Mạn im lặng một lúc rồi nói: "Cậu ấy khá bình thường."
+Muốn nhìn thì cứ nhìn, dù sao cũng chỉ là nhìn mà thôi.
 
-Mối quan hệ giữa Trần Trạch và Từ Mạn Mạn dường như đã được cả hai ngầm định trong lòng, vừa rồi Trần Trạch có liếc nhìn Thẩm Tử Ngôn vài cái, Từ Mạn Mạn cũng không nói gì.
+Trần Trạch lại gợi ý: "Về nhà anh nhé, mẹ anh vừa nhắn tin bảo hầm canh tẩm bổ cho em đấy."
 
-Nhìn thì cứ nhìn thôi, dù sao cũng chỉ là nhìn.
+Từ Mạn Mạn đưa mắt nhìn ra ngoài cửa sổ xe, dứt khoát đáp: "Không đi đâu."
 
-Trần Trạch nói: "Ghé nhà tôi đi, mẹ tôi nhắn tin bảo có hầm canh cho em đấy."
+Trần Trạch gãi đầu gãi tai: "Chuyện là... cái đó..."
 
-Từ Mạn Mạn nhìn ra ngoài cửa sổ xe, đáp: "Không đi đâu."
+"Không được, bây giờ chưa được đâu!"
 
-Trần Trạch gãi đầu: "Cái đó... hay là..."
+Ở nhà Trần Trạch, bà Dương Thục Mỹ đã sớm dọn sẵn một phòng ngủ riêng cho Từ Mạn Mạn, bà đã chắc mẩm nhận cô làm con dâu tương lai. Thế nhưng Từ Mạn Mạn chưa từng ngủ lại căn phòng đó lấy một lần.
 
-"Không được, bây giờ chưa được!"
+...
 
-Tại nhà Trần Trạch, Dương Thù Mỹ đã để dành một phòng ngủ cho Từ Mạn Mạn, bà đã nhận định đây là cô con dâu của mình, nhưng Từ Mạn Mạn chưa bao giờ ngủ lại căn phòng đó.
+Ngày mùng 1 tháng 10.
 
-......
+Triệu Kim An một mình dạo bước trên phố đi bộ, có ý quan sát xung quanh xem có mặt bằng kinh doanh nào phù hợp hay không. Anh từng có ý định gom tiền lên Bắc Kinh ôm vài căn nhà ở những vị trí đắc địa, ung dung ngồi chờ bất động sản tăng giá vùn vụt.
 
-Ngày 1 tháng 10.
+Đó cũng có thể coi là "vốn liếng phòng thân" vững chắc cuối cùng của anh.
 
-Triệu Kim An đi đến phố đi bộ, có ý dạo quanh xem có mặt bằng nào phù hợp không, hắn từng nghĩ đến việc tới Kinh Đô gom vài căn nhà ở vị trí đẹp.
+Thế nhưng cân nhắc thấy nguồn vốn hiện tại chưa đủ dồi dào, mà gom "hũ vàng đầu tiên" lại là giai đoạn gian nan nhất, Triệu Kim An quyết định tạm thời gác lại "kế hoạch gom nhà".
 
-Chỉ việc ngồi chờ tăng giá.
+Ngộ nhỡ Lạc Cẩn Chi đột ngột gọi điện cần vốn xoay vòng mà anh lại không rút ra nổi tiền, chẳng lẽ lại bảo với chị ấy rằng mình đã đem tiền đi mua nhà đất rồi sao?
 
-Đó cũng có thể coi là "vốn liếng cơ bản" cuối cùng của hắn.
+Hơn nữa, thị trường chứng khoán thời điểm này đang bước vào giai đoạn bùng nổ cực kỳ rực rỡ, tốc độ tăng giá của nhà đất lúc này chưa thể đuổi kịp đà sinh lời nhanh chóng của cổ phiếu.
 
-Nhưng cân nhắc thấy vốn liếng hiện tại không dư dả, khó khăn nhất chính là hũ vàng đầu tiên, nên Triệu Kim An quyết định tạm hoãn "kế hoạch gom nhà" lại.
+Sang ngày hôm sau.
 
-Vạn nhất Lạc Cẩn Chi đột nhiên gọi điện tới mà mình không lấy ra được tiền thì sao, chẳng lẽ bảo nàng là mình đi mua nhà rồi?
+Triệu Kim An tiếp tục ghé qua các đại siêu thị lớn như Tân Nhất Giai, Walmart, Carrefour. Anh mang theo cả sổ tay và bút, cẩn thận ghi chép lại khung giá đại khái của từng nhóm mặt hàng, cùng những mảng kiến thức mà trước đây mình chưa từng chạm tới.
 
-Hơn nữa hiện tại thị trường chứng khoán đang rất tốt, tốc độ tăng giá của nhà cửa không nhanh bằng bỏ vào chứng khoán.
+Có những dãy kệ hàng rất ít khách ghé thăm nhưng siêu thị lớn lại tuyệt đối không thể thiếu, chẳng hạn như khu thực phẩm chức năng, đồ bổ dưỡng, hay khu dụng cụ vệ sinh gia dụng...
 
-Ngày thứ hai.
+Thực lòng mà nói, còn có một nơi nữa mà Triệu Kim An rất muốn đặt chân tới: Hoài Hóa.
 
-Triệu Kim An lại đi Tân Nhất Giai, Walmart, Carrefour, còn mang theo bút và sổ tay để tìm hiểu khoảng giá của các loại hàng hóa, cũng như những mảng kiến thức mù mờ của mình.
+Nơi thành phố mà Trần Thanh Trĩ đang sinh sống.
 
-Có vài khu kệ hàng rất ít người ghé qua, nhưng siêu thị lớn lại không thể không có, ví dụ như khu thực phẩm chức năng/dinh dưỡng, khu dụng cụ vệ sinh nhà cửa...
+"Dịp Quốc khánh chắc cô ấy cũng được nghỉ học rồi nhỉ?"
 
-Thật ra còn một nơi nữa Triệu Kim An muốn đi, đó là Hoài Hóa.
+Triệu Kim An tự tìm cho mình một lý do để thôi không đi nữa.
 
-Thành phố nơi Trần Thanh Trĩ đang ở.
+Kiếp trước hai người đã ly hôn, Triệu Kim An cũng chẳng mong mầu nhiệm gì thêm, chỉ là bốn năm nghĩa vợ tình chồng sâu nặng, thỉnh thoảng những đêm nằm trằn trọc trong ký túc xá, anh lại bất giác muốn đến ngắm nhìn bóng hình Trần Thanh Trĩ thuở mười lăm, mười sáu tuổi.
 
-"Quốc khánh chắc cô ấy cũng được nghỉ rồi nhỉ?"
+Kiếp trước khi quen biết nhau, Trần Thanh Trĩ khi ấy đã bước sang tuổi hai mươi lăm, hai mươi sáu mất rồi.
 
-Triệu Kim An tự tìm cho mình một lý do để không đi.
+Tháng mười, trời về đêm bắt đầu se se lạnh.
 
-Kiếp trước đã ly hôn rồi, Triệu Kim An cũng chẳng muốn thế nào, chỉ là bốn năm vợ chồng, đôi khi buổi tối nằm trong ký túc xá sẽ muốn đi xem thử, xem thử Trần Thanh Trĩ tuổi mười lăm, mười sáu.
+Triệu Kim An không bắt taxi về trường mà từ quảng trường Ngũ Nhất thong thả tản bộ qua mạn bờ Tây sông. Gió sông thổi lồng lộng, mát rượi từng cơn. Anh rút điện thoại ra, màn hình hiển thị hai lời mời kết bạn mới trên QQ:
 
-Kiếp trước khi quen biết Trần Thanh Trĩ, nàng đã hai mươi lăm, hai mươi sáu tuổi rồi.
+*Mạn Đau Đau*: "Triệu Kim An, chào cậu, mình là Từ Mạn Mạn."
 
-Tháng mười, buổi tối đã bắt đầu se lạnh.
+*Thẩm Tử Ngôn*: "Chào cậu."
 
-Triệu Kim An không bắt xe về trường mà đi bộ từ quảng trường Ngũ Nhất qua Hà Tây, gió sông thổi lồng lộng rất mát mẻ. Hắn lấy điện thoại ra, có hai yêu cầu kết bạn.
+Tên tài khoản QQ của Thẩm Tử Ngôn chính là tên thật của cô.
 
-Mạn Đau Đau: Triệu Kim An, chào cậu, mình là Từ Mạn Mạn.
+Bước tới giữa cây cầu, Triệu Kim An châm một điếu thuốc. Cù lao Quất Tử Châu phía xa lúc này chưa có những màn trình diễn pháo hoa rực rỡ.
 
-Thẩm Tử Ngôn: Chào anh.
+Kiếp trước, Mộc Dao từng kéo Triệu Kim An tới đây ngắm pháo hoa không biết bao nhiêu lần vào mỗi dịp cuối tuần. Anh cũng từng cùng Trần Thanh Trĩ ngắm pháo hoa rất nhiều bận, chỉ có điều khi ở bên Trần Thanh Trĩ, họ chẳng cần phải chen chúc ra bờ sông Tương làm gì, bởi căn hộ họ mua khi ấy vốn đã có tầm nhìn trọn vẹn hướng ra mặt sông.
 
-Tên mạng của Thẩm Tử Ngôn chính là tên thật.
+"Có thuốc lá không chú em?"
 
-Đi đến giữa cầu, Triệu Kim An châm một điếu thuốc, ở đầu đảo Cam Quýt không có biểu diễn pháo hoa.
+Đột nhiên có tiếng người vang lên bên cạnh, cất giọng hỏi Triệu Kim An: "Cho xin một điếu được không?"
 
-Kiếp trước Mộc Dao từng kéo Triệu Kim An tới đây xem rất nhiều lần vào cuối tuần, hắn cũng từng đi cùng Trần Thanh Trĩ nhiều lần, chỉ có điều với Trần Thanh Trĩ thì không cần phải ra ven sông Tương, vì căn nhà họ mua chính là căn hộ view sông.
+Đó là một người đàn ông râu ria lởm chởm, một bên ống quần xắn cao, trông chừng trạc ngoài năm mươi tuổi. Thấy Triệu Kim An nhìn mình, người nọ đưa tay sờ túi áo rồi gượng gạo nói: "Cảm ơn nhé."
 
-"Có thuốc không?"
+"Có bật lửa chưa?"
 
-Đột nhiên có người lên tiếng, nói với Triệu Kim An: "Cho tôi xin một điếu được không?"
+Triệu Kim An đưa luôn chiếc bật lửa sang. Động tác sờ túi của người đàn ông chứng tỏ trong người không có thuốc, Triệu Kim An đoán chừng đến bật lửa ông ta cũng chẳng mang theo. Người này lúc nãy đứng cách anh chừng bốn, năm mét.
 
-Một người đàn ông râu ria lởm chởm, một bên ống quần xắn cao, trông tầm năm mươi tuổi. Thấy Triệu Kim An nhìn mình, ông ta sờ túi áo nói: "Cảm ơn nhé."
+Lúc Triệu Kim An vừa bước lên cầu thì ông ta đã đứng sẵn ở đó rồi.
 
-"Có bật lửa không?"
+Phía sau lưng thỉnh thoảng có người đi bộ lướt qua, kèm theo tiếng xình xịch của xe đạp và xe máy điện. Người đàn ông châm xong điếu thuốc, cất tiếng cảm ơn rồi đưa trả lại chiếc bật lửa cho Triệu Kim An.
 
-Triệu Kim An đưa luôn cả bật lửa qua. Người đàn ông sờ túi áo chính là biểu thị không mang thuốc, Triệu Kim An nghi là ông ta cũng chẳng có bật lửa. Người này vừa nãy đứng cách hắn khoảng bốn, năm mét.
+Triệu Kim An đưa mắt nhìn xuống bàn tay ông ta. Người đàn ông cười trừ: "Làm lụng tay chân nên hơi bẩn một tí."
 
-Lúc Triệu Kim An tới đây, ông ta đã đứng đó rồi.
+"Không chỉ đơn thuần là làm lụng tay chân đâu nhỉ." Triệu Kim An thản nhiên nói.
 
-Phía sau lục tục có người đi qua, còn có cả người đạp xe điện và xe đạp chạy qua. Người đàn ông châm thuốc xong nói lời cảm ơn rồi trả lại bật lửa cho Triệu Kim An.
-
-Triệu Kim An nhìn đôi bàn tay của ông ta, người đàn ông cười gượng: "Làm việc chân tay, hơi bẩn chút."
-
-"Chắc không chỉ là làm việc đâu nhỉ." Triệu Kim An nói.
-
-Người đàn ông xòe lòng bàn tay ra: "Hì hì, từng đi lính mấy năm."
+Người đàn ông xòe rộng lòng bàn tay đầy vết chai sần, cười khà khà: "Haha, từng đi lính mấy năm."
 
 "Năm năm à?"
 
-Người đàn ông mỉm cười, tướng tá trông có vẻ dữ dằn nhưng khi cười lại hiện lên vẻ đôn hậu. Triệu Kim An nói: "Chú đứng ở đây lâu lắm rồi đấy."
+Người đàn ông cười trừ. Gương mặt ông ta trông có vẻ dữ dằn, bặm trợn, nhưng khi cười lên lại lộ rõ nét chất phác, thật thà. Triệu Kim An lại nói: "Chú đứng ở đây lâu lắm rồi đấy."
 
-"Cậu cũng đứng được hai mươi lăm phút rồi." Người đàn ông đáp.
+"Cậu cũng đứng được hai mươi lăm phút rồi đấy thôi." Người đàn ông đáp.
 
-Ông ta không nói là nửa tiếng. Triệu Kim An lấy điện thoại ra xem giờ, khá bất ngờ, hắn lại trầm ngâm hỏi: "Chú định nhảy à?"
+Ông ta không nói là nửa tiếng mà nói chính xác hai mươi lăm phút. Triệu Kim An rút điện thoại ra xem giờ, trong lòng thoáng chút kinh ngạc, rồi trầm giọng hỏi: "Chú muốn nhảy xuống à?"
 
-"Không muốn, cũng không thể."
+"Không muốn, mà cũng không thể."
 
-Người đàn ông rít một hơi thuốc sâu, giống như tìm được người để dốc bầu tâm sự, ông ta nở nụ cười nói con gái có bệnh phải uống thuốc, mình không thể nhảy được. Khi nhắc đến con gái, trông ông ta còn có chút tự hào.
+Người đàn ông rít một hơi thuốc thật sâu, dường như tìm được người để trút bầu tâm sự. Trên gương mặt ông ta ánh lên nụ cười, bảo rằng con gái đang mang bệnh cần tiền mua thuốc uống hàng ngày, bản thân tuyệt đối không được phép nhảy. Khi nhắc đến cô con gái, trong ánh mắt ông ta còn thoáng hiện vẻ tự hào khôn xiết.
 
 Triệu Kim An hỏi: "Cần tốn nhiều tiền lắm sao?"
 
-Người đàn ông vừa gật đầu vừa lắc đầu, bảo không phải bệnh gì quá lớn, chỉ là cần uống thuốc lâu dài. Ông ta nói một tràng gì đó là bạch cầu mãn tính, Triệu Kim An nghe không hiểu.
+Người đàn ông vừa gật đầu lại vừa lắc đầu, bảo không phải bệnh nan y nguy hiểm đến tính mạng ngay lập tức, chỉ là phải uống thuốc duy trì suốt đời. Ông ta nói một tràng tên bệnh gì mà "bạch cầu dòng tủy mạn tính", Triệu Kim An nghe không hiểu hết chuyên môn y khoa.
 
-Nhìn dáng vẻ không cười thì có chút hung dữ của người đàn ông, Triệu Kim An nói: "Có thể dẫn cháu đi xem được không?"
+Nhìn gương mặt không cười thì trông vô cùng hung hãn của người đàn ông, Triệu Kim An cất lời: "Có thể dẫn cháu về nhà chú xem thử được không?"
 
-Hắn biết nhược điểm của mình, Vương Kim Như cứ luôn lo hắn bị bắt nạt, kiếp trước bà không ít lần cãi nhau với mẹ vợ của Triệu Kim An.
+Anh hiểu rất rõ điểm yếu của bản thân. Thím Vương Kim Như kiếp trước lúc nào cũng nơm nớp lo anh bị người ta ức hiếp, cũng vì thế mà không ít lần cãi nhau nảy lửa với mẹ vợ của Triệu Kim An.
 
-Người đàn ông: "???"
+Người đàn ông ngơ ngác: "???"
 
-"Cậu đi xem cái gì?"
+"Cậu qua nhà tôi xem cái gì?"
 
-Triệu Kim An đưa cho ông ta thêm một điếu thuốc, hỏi: "Một tháng chú cần bao nhiêu tiền?"
+Triệu Kim An đưa thêm cho ông ta một điếu thuốc nữa, hỏi thẳng: "Một tháng chú cần bao nhiêu tiền?"
 
-Người đàn ông do dự một hồi, xòe ra bốn ngón tay: "Bốn ngàn."
+Người đàn ông ngập ngừng một lát, rồi dè dặt giơ bốn ngón tay lên: "Bốn nghìn."
 
-Triệu Kim An thở phào nhẹ nhõm, không phải bốn mươi ngàn là tốt rồi, hắn nói: "Đi thôi."
+Triệu Kim An thầm thở phào một hơi, bốn nghìn chứ không phải bốn vạn là tốt rồi. Anh dứt khoát: "Đi thôi."
 
-Trên đường đi, Triệu Kim An biết được người đàn ông tên là Đan Vĩ.
+Trên đường đi, Triệu Kim An mới biết người đàn ông này tên là Đan Vĩ.
 
-Mới có bốn mươi mốt tuổi, làm thợ sửa chữa ở xưởng sửa xe nên tay chân trông rất bẩn. Có một cô con gái đang học lớp mười một, còn chuyện đi lính thì ông ta tuyệt nhiên không nhắc tới.
+Năm nay ông mới bốn mươi mốt tuổi, làm thợ sửa chữa trong một xưởng sửa xe ô tô, hèn chi bàn tay lúc nào cũng lấm lem dầu mỡ. Ông có một cô con gái đang học lớp 11, chỉ riêng chuyện đi lính năm xưa là ông tuyệt nhiên không hé răng nửa lời.
 
-Đan Vĩ hỏi Triệu Kim An làm nghề gì, hắn thành thật trả lời. Đan Vĩ liền dừng bước không đi tiếp, Triệu Kim An bảo có thể trả trước cho chú một tháng tiền lương, nhưng phải đến nhà chú trước đã.
+Đan Vĩ tò mò hỏi Triệu Kim An làm nghề gì, Triệu Kim An nói thật mình là sinh viên, Đan Vĩ nghe xong liền khựng lại không muốn đi tiếp nữa. Triệu Kim An bảo có thể ứng trước cho ông một tháng tiền lương, nhưng điều kiện là phải đến tận nhà ông xem thực tế thế nào đã.
 
-Rất rõ ràng, nhược điểm của Đan Vĩ chính là con gái, Triệu Kim An muốn đi xác thực nhược điểm này.
+Rõ ràng điểm yếu duy nhất của Đan Vĩ chính là cô con gái. Triệu Kim An cần phải tận mắt kiểm chứng điểm yếu đó.
 
-Đan Vĩ dẫn đường, đi lên một con dốc ở trấn Vinh Loan, lại rẽ một cái vòng, bảo là nhà thuê, hai trăm sáu mươi tệ một tháng, còn nói mình chỉ vì ở gần nên mới ra đó hóng gió thôi.
+Đan Vĩ dẫn đường, rẽ lên một con dốc ở trấn Vinh Loan, rồi quẹo thêm một khúc cua nữa. Ông giải thích căn nhà này là nhà thuê, giá hai trăm sáu mươi tệ một tháng, bảo ban nãy mình chỉ vì ở gần nên mới tạt ra cầu hóng gió chút thôi.
 
-Đến cửa nhà, Đan Vĩ kéo ống quần xuống, lại phủi phủi bộ quần áo căn bản không thể phủi sạch, rặn ra một bộ mặt tươi cười gọi: "Na Tề, bố về rồi đây!"
+Đến trước cửa nhà, Đan Vĩ vội kéo ống quần xuống ngay ngắn, phủi phủi lớp bụi trên bộ quần áo vốn dĩ chẳng thể nào giặt sạch nổi dầu mỡ, rồi cố nặn ra một nụ cười tươi rói gọi to: "Na Tề ơi, bố về rồi này!"
 
 "Đan Na Tề?"
 
-Triệu Kim An không ngờ Đan Vĩ còn có thể đặt cho con gái cái tên như thế này.
+Triệu Kim An thầm bất ngờ, không nghĩ một người thô ráp như Đan Vĩ lại có thể đặt cho con gái một cái tên mang phong vị như thế.
 
-"Cạch" một tiếng, cửa mở.
+"Két" một tiếng, cánh cửa gỗ mở ra.
 
-Đan Na Tề tay vẫn còn cầm cây bút bi, nhìn thấy Triệu Kim An ở phía sau bố mình: "Bố, anh này là..."
+Đan Na Tề tay vẫn còn cầm chiếc bút bi, ngơ ngác nhìn chàng trai lạ mặt đứng sau lưng bố mình: "Bố, anh ấy là..."
 
-Đan Vĩ không biết giới thiệu thế nào, bảo là ông chủ sao?
+Đan Vĩ ấp úng không biết phải giới thiệu thế nào, chẳng lẽ lại bảo đây là ông chủ mới?
 
-Triệu Kim An nói: "Chào em, anh là Triệu Kim An."
+Triệu Kim An chủ động lên tiếng: "Chào em, anh là Triệu Kim An."
 
-Đan Na Tề vẫn không hiểu, bố nàng chưa bao giờ dẫn đồng nghiệp về nhà, anh chàng trước mắt này ăn mặc sạch sẽ như vậy, quần áo không một vết dầu mỡ, cũng không giống đồng nghiệp của bố.
+Đan Na Tề vẫn chưa hiểu chuyện gì đang xảy ra. Bố cô chưa từng dẫn đồng nghiệp về nhà bao giờ, mà cậu bạn trước mắt này ăn mặc sạch sẽ tươm tất, quần áo không dính lấy một vệt dầu mỡ, nhìn kiểu gì cũng không giống đồng nghiệp xưởng xe của bố.
 
-"Anh vào trong được chứ?"
+"Anh vào nhà được chứ?"
 
-Đan Na Tề nhìn bố mình một cái, rồi nghiêng người nhường đường.
+Đan Na Tề đưa mắt nhìn bố, rồi né người sang một bên nhường lối.
 
-Tầng một, căn hộ hai phòng ngủ, cái giá thuê hai trăm sáu mươi tệ cho một căn hai phòng ngủ thì có thể hình dung được vị trí và môi trường thế nào, nhưng hai cha con bắt buộc phải thuê hai phòng, vệ sinh cũng coi là sạch sẽ.
+Căn hộ tầng một gồm hai phòng ngủ nhỏ, với mức giá thuê hai trăm sáu mươi tệ một tháng thì có thể hình dung được vị trí và môi trường sống ẩm thấp ra sao. Hai bố con bắt buộc phải thuê căn hai phòng ngủ riêng biệt, nhưng bên trong được dọn dẹp khá ngăn nắp, sạch sẽ.
 
-Cửa phòng ngủ đang mở, trên bàn học chất đống những chồng sách giáo khoa cấp ba cao ngất.
+Cửa phòng ngủ của cô bé đang mở toang, trên bàn học chất đầy những chồng sách giáo khoa cấp ba cao ngất ngưởng.
 
-Triệu Kim An liếc nhìn một cái, không đi vào phòng ngủ của con gái người ta.
+Triệu Kim An chỉ liếc nhìn qua một cái chứ không bước chân vào phòng ngủ của thiếu nữ.
 
-Đan Vĩ rửa tay dưới vòi nước ngoài cửa, Đan Na Tề rót một ly nước bưng tới nói: "Trong nhà không có trà ạ."
+Đan Vĩ đứng ở vòi nước ngoài cửa rửa tay, Đan Na Tề rót một cốc nước lọc mang ra, ngượng ngùng nói: "Nhà em hết trà mất rồi..."

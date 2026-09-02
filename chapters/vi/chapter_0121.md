@@ -1,223 +1,229 @@
-# Chương 121: Có bất đồng riêng của nghỉ hè, 2.
+# Chương 121: Kỳ nghỉ hè mỗi người một vẻ (2)
 
-Thẩm tử nói: nghề này cứ như vậy, không phải ở văn phòng gõ bàn phím làm phương án làm tiêu thư, công ty thiếu đi người giao hàng cũng chỉ có thể chính mình bên trên.
+> **Tiêu đề gốc**: 第121章 各有不同的暑假，2.
 
-Tân thật có ngươi: tử nói, ta đã cảm thấy ngươi mở xe taxi..... Ta ngay cả xe đạp cũng không biết cưỡi.
+Thẩm Tử Ngôn: Ngành này là vậy đó, không ngồi văn phòng gõ phím làm phương án, viết hồ sơ thầu thì lúc công ty thiếu người giao hàng cũng đành phải tự mình xắn tay áo lên thôi.
 
-Thẩm tử nói: không cùng các ngươi hàn huyên, trước mấy ngày đến rồi phê lãnh tàng quỹ, ta muốn tìm bọn hắn họp, trước tiên ưu tiên chạy những đất kia lý vị trí hơi tốt cửa hàng giá rẻ.
+Hân Có Cậu Rồi: Tử Ngôn à, tớ thấy cậu biết lái cả xe tải van mà phục sát đất... tớ đến xe đạp còn chẳng biết đi nữa là.
 
-Nhìn thấy cái tin này, Từ Mạn Mạn nhẹ gật đầu, nếu như là nàng, nàng cũng sẽ an bài như vậy.
+Thẩm Tử Ngôn: Thôi không buôn chuyện với mấy cậu nữa, mấy hôm trước mới về một lô tủ đông, tớ phải họp với mọi người để ưu tiên phân bổ cho các cửa hàng tiện lợi có vị trí đắc địa trước đã.
 
-Tân thật có ngươi: tử nói, trò chuyện tiếp vài câu, ta ở nhà quá nhàm chán.
+Nhìn dòng tin nhắn này, Hứa Mạn Mạn khẽ gật đầu. Nếu là cô, cô cũng sẽ sắp xếp như thế.
 
-Thẩm tử nói: nhàm chán thì nhìn TV, ta buổi chiều còn có người tới nhận lời mời.
+Hân Có Cậu Rồi: Tử Ngôn ơi, nói thêm vài câu nữa đi, tớ ở nhà chán đến phát rồ rồi này.
 
-Tân thật có ngươi: Mạn Mạn nhỉ? Ngươi nói chuyện, ngươi lại làm gì đi?
+Thẩm Tử Ngôn: Chán thì bật tivi lên mà xem, chiều nay tớ còn có mấy người đến phỏng vấn xin việc nữa.
 
-Tân thật có ngươi: còn có Dao Dao, ngươi ở nhà làm gì?
+Hân Có Cậu Rồi: Mạn Mạn đâu rồi? Lên tiếng đi chứ, cậu lại bận gì đấy?
 
-Mộc Dao không có ở trong đám lên tiếng.
+Hân Có Cậu Rồi: Còn Dao Dao nữa, cậu ở nhà làm gì thế?
 
-Tân thật có ngươi: Mạn Mạn nhỉ? Ngươi có phải hay không cùng trần trạch đang hẹn hò?
+Mộc Dao im lặng, không thấy lên tiếng trong nhóm.
 
-Man thương thương: không có ước hẹn, ta tại tinh sa.
+Hân Có Cậu Rồi: Mạn Mạn đâu rồi? Có phải cậu đang hẹn hò với Trần Trạch không đấy?
 
-Tân thật có ngươi: ngươi chạy tinh sa đi làm cái gì?
+Mạn Sợ Đau: Không hẹn hò gì đâu, tớ đang ở Tinh Sa.
 
-Man thương thương: có nhà máy ở chỗ này.
+Hân Có Cậu Rồi: Cậu chạy sang Tinh Sa làm gì thế?
 
-Không chờ các nàng hỏi, Từ Mạn Mạn lại chủ động bổ sung một câu: trần trạch nhà của nhà máy.
+Mạn Sợ Đau: Có nhà máy bên này.
 
-Trong đám an tĩnh sẽ.
+Chẳng đợi mọi người kịp hỏi dồn, Hứa Mạn Mạn đã chủ động bồi thêm một câu: Nhà máy của nhà Trần Trạch.
 
-Các nàng đại nhất khai giảng liền nghe nói trần trạch của mụ mụ rất ưa thích Từ Mạn Mạn, Từ Mạn Mạn bây giờ lại tại trần trạch nhà của nhà máy.
+Nhóm chat bỗng chốc im ắng lạ thường.
 
-Tân thật có ngươi:......
+Ngay từ hồi mới nhập học năm nhất, họ đã nghe phong phanh chuyện mẹ của Trần Trạch quý Hứa Mạn Mạn đến mức nào, giờ đây Mạn Mạn lại đang có mặt ngay tại nhà máy của gia đình cậu ấy.
 
-Diêu tân ở trong bầy phát một chuỗi im lặng tuyệt đối, có hâm mộ đi.
+Hân Có Cậu Rồi: ......
 
-Dạng này bạn trai, nhà như vậy cảnh, tương lai mụ mụ lại như vậy ưa thích, bây giờ liền mang nhà máy nhà mình đi.
+Diêu Hân gửi một chuỗi dấu chấm lửng vào nhóm, trong lòng không giấu nổi chút ghen tị.
 
-Lúc này Mộc Dao ở trong bầy nói chuyện.
+Có một người bạn trai như thế, gia cảnh hiển hách nhường ấy, mẹ chồng tương lai lại cưng chiều hết mực, giờ còn dẫn thẳng tới cơ ngơi của gia đình nữa chứ.
 
-Dao Dao thỏ: Mạn Mạn, ngươi nghỉ hè cũng đang làm việc sao?
+Đúng lúc này, Mộc Dao mới mở lời trong nhóm.
 
-Từ Mạn Mạn phát cái khuôn mặt tươi cười.
+Thỏ Dao Dao: Mạn Mạn, kỳ nghỉ hè cậu cũng đi làm à?
 
-Tân thật có ngươi: Mạn Mạn, trần trạch của mụ mụ là dự định để các ngươi kế thừa gia nghiệp sao?
+Hứa Mạn Mạn gửi một biểu tượng mặt cười.
 
-Man thương thương: không tính.
+Hân Có Cậu Rồi: Mạn Mạn, mẹ Trần Trạch tính để hai cậu kế thừa sản nghiệp gia đình rồi đấy phỏng?
 
-Tân thật có ngươi: thật hâm mộ ngươi Hiyoko nói, mới đại nhất nghỉ hè liền tiếp xúc công việc bận rộn như vậy.
+Mạn Sợ Đau: Chưa tính là vậy đâu.
 
-Kỳ thực một cái ký túc xá sinh hoạt một năm, diêu tân có cảm giác, ký túc xá chỉ nàng cùng Mộc Dao giống nhất sinh viên, thẩm tử nói không nói, Từ Mạn Mạn ôn hòa không hiển sơn không lộ thủy.
+Hân Có Cậu Rồi: Ngưỡng mộ cậu với Tử Ngôn ghê cơ, mới nghỉ hè năm nhất mà đã va chạm công việc bận rộn túi bụi rồi.
 
-Nhưng cho người cảm giác, tùy thời có thể"bốc lên trọng trách."
+Thực ra sau một năm sống chung dưới một mái ký túc xá, Diêu Hân lờ mờ cảm nhận được rằng trong phòng chỉ có cô và Mộc Dao là giống sinh viên đại học bình thường nhất. Thẩm Tử Ngôn thì chẳng cần phải bàn, còn Hứa Mạn Mạn trông ôn hòa, kín kẽ không để lộ tâm tư...
 
-Giống như không thể so với thẩm tử nói kém, chỉ là thiếu đi phong mang.
+Thế nhưng cô gái ấy luôn tạo cho người ta cảm giác có thể sẵn sàng “gánh vác việc lớn” bất cứ lúc nào.
 
-Nhìn xem chung quanh các bạn học cười cười nói nói, Mộc Dao cũng có loại cảm giác nói không ra lời.
+Dường như chẳng hề thua kém Thẩm Tử Ngôn, chỉ là giấu đi vẻ sắc sảo mà thôi.
 
-Thẩm tử giảng hòa Từ Mạn Mạn đều bận rộn như vậy, chỉ có chính mình ở nhà ăn ngủ, ngủ rồi ăn, tham gia họp lớp.
+Nhìn bạn bè xung quanh nói cười rôm rả, trong lòng Mộc Dao dâng lên một cảm giác khó tả thành lời.
 
-Một màn này giống như đã từng quen biết, Triệu Kim An năm ngoái nghỉ hè tại chợ bán thức ăn bán cá, chính mình cũng là dạng này, ở nhà ăn ăn ngủ ngủ, tham gia họp lớp.
+Thẩm Tử Ngôn và Hứa Mạn Mạn đều bận rộn như thế, chỉ có mỗi mình cô ở nhà ăn rồi lại ngủ, ngủ dậy lại ăn, hết ngày thì đi tụ tập họp lớp.
 
-Mộc Dao trong lòng đột nhiên cảm giác đột nhiên trống rỗng.
+Khung cảnh này sao mà quen thuộc đến thế. Hè năm ngoái Triệu Kim An dầm mưa dãi nắng bán cá ngoài chợ rau, cô cũng nhàn nhã thế này, ở nhà ăn ngủ đẫy đà rồi đi chơi bời với bạn bè cũ.
 
-Loại cảm giác này năm ngoái nghỉ hè không có.
+Trong lòng Mộc Dao bỗng trào dâng một nỗi trống trải khôn nguôi.
 
-Tinh sa.
+Cảm giác hụt hẫng này, kỳ nghỉ hè năm ngoái chưa từng xuất hiện.
 
-Văn phòng, Dương thù đẹp làm xong một hồi công việc, nhìn trên ghế sa lon chơi điện thoại di động trần trạch, cái mũi không phải cái mũi, mắt không phải mắt.
+***
 
-Nhìn Từ Mạn Mạn, thần sắc liền ôn hòa rất nhiều.
+Tinh Sa.
 
-"Mạn Mạn, a di dẫn ngươi đi nhà máy xem."
+Trong văn phòng làm việc, Dương Thù Mỹ vừa giải quyết xong một đống sổ sách, quay sang nhìn Trần Trạch đang cắm mặt bấm điện thoại trên ghế sofa mà bực bội ra mặt, nhìn chỗ nào cũng thấy chướng mắt.
 
-Vừa nói vừa trừng một cái trên ghế sa lon trần trạch:"đi theo!!"
+Nhưng khi quay sang nhìn Hứa Mạn Mạn, nét mặt bà lại dịu dàng hơn hẳn.
 
-Lưu xông phong cùng đáy vực siêu nhận nói trần trạch của mụ mụ rất xinh đẹp, chỉ có thể nói Dương thù đẹp bảo dưỡng rất tốt, phong vận vẫn còn, dáng người rất nở nang, thật sự rất nở nang.
+"Mạn Mạn, dì đưa cháu xuống xưởng tham quan nhé."
 
-1 6 3 của kích thước, đạp giày cao gót, eo nhỏ, hông có chút lớn, bờ mông có thịt, vểnh lên mà tròn.
+Nói rồi bà lại trừng mắt lườm thằng con trai trên sofa: "Đi theo mau lên!!"
 
-Quần tây đứng dậy muốn kéo một chút, không phải vậy lõm đi vào một đường nhỏ rất rõ ràng.
+Lưu Sấm Phong và Cốc Siêu Thừa từng khen mẹ của Trần Trạch rất đẹp, quả thực chỉ có thể nói Dương Thù Mỹ bảo dưỡng nhan sắc vô cùng xuất sắc, phong vận vẫn mặn mà, thân hình lại đẫy đà nở nang, là kiểu đẫy đà thực sự.
 
-Khó trách lưu xông phong cùng đáy vực siêu nhận khai giảng đêm đó sẽ thảo luận, nữ nhân như vậy nằm sấp trên giường chỉnh lý giường chiếu..... 1 8 tuổi nam sinh có rất ít không"ý nghĩ kỳ quái"của.
+Vóc người cao mét sáu mươi ba, bước đi trên đôi giày cao gót, vòng eo thon gọn đối lập với bờ hông nở nang, cặp mông tròn trịa săn chắc và cong vút.
 
-Dương thù đẹp ôm Từ Mạn Mạn, nhìn Từ Mạn Mạn nhìn thế nào như thế nào thuận mắt.
+Mỗi lần đứng dậy, chiếc quần âu lại phải kéo chỉnh lại một chút, nếu không nếp hằn bó sát sẽ lộ rõ mồn một.
 
-"Mạn Mạn, ngươi muốn mua cái gì, a di mua cho ngươi."
+Chẳng trách đêm đầu tiên nhập học, Lưu Sấm Phong và Cốc Siêu Thừa lại bàn tán rôm rả đến thế. Một người phụ nữ như vậy mà khom lưng trải ga giường... mấy cậu nhóc mười tám tuổi đời hiếm ai không nảy sinh vài phần tơ tưởng vẩn vơ.
 
-"a di, ngươi đừng lúc nào cũng tiễn đưa ta đồ vật, quá quý trọng."
+Dương Thù Mỹ khoác tay Hứa Mạn Mạn, nhìn cô bé thế nào cũng thấy vừa mắt, thuận lòng.
 
-Dương thù đẹp cúi đầu nhìn một chút, Từ Mạn Mạn không có lấy nàng tặng hương nại nhi.
+"Mạn Mạn, cháu thích mua gì cứ bảo, dì mua cho."
 
-Lại nhìn mắt phía sau trần trạch.
+"Dì ơi, dì đừng lúc nào cũng tặng đồ cho cháu nữa, đắt đỏ quá ạ."
 
-"ngươi đi nhanh một chút!"
+Dương Thù Mỹ cúi đầu nhìn lướt qua, thấy Hứa Mạn Mạn không hề đeo chiếc túi Chanel mà bà đã tặng.
 
-"mẹ, ngươi còn còn trẻ như vậy, ta mới lên đại nhất, ngươi muốn ta tới nhà máy làm gì?"
+Bà ngoái đầu nhìn Trần Trạch đang lẽo đẽo phía sau:
 
-Trần trạch theo sau, ba người song song đi.
+"Đi nhanh cái chân lên xem nào!"
 
-"ta không có có thể trông cậy vào ngươi rồi, muốn ngươi tới, ngươi đã đến mấy lần?"
+"Mẹ ơi, mẹ vẫn còn trẻ trung thế này, con mới học năm nhất đại học, mẹ bắt con đến xưởng làm cái gì cơ chứ?"
 
-Dương thù đẹp liếc nhìn hắn một cái, tức giận nói:"vẫn là Mạn Mạn ổn thỏa, công ty về sau giao cho ngươi xử lý sớm muộn phải xong đời."
+Trần Trạch rảo bước đuổi kịp, ba người sóng vai cùng đi.
 
-Từ Mạn Mạn mỉm cười, không có đáp lời.
+"Tao không trông mong gì vào mày được nữa rồi. Bảo mày đến xưởng, mày đã chịu đến được mấy lần?"
 
-Trần trạch:......
+Dương Thù Mỹ liếc xéo cậu con trai, bực dọc nói: "Vẫn là Mạn Mạn chững chạc, công ty này mà giao cho mày quản lý thì sớm muộn gì cũng sạt nghiệp."
 
-"mẹ, ngươi có 4 0 tuổi sao? Còn có ta đến cùng phải hay không con của ngươi?"
+Hứa Mạn Mạn mỉm cười nhã nhặn, không tiếp lời.
 
-Dương thù đẹp cười gõ xuống trần trạch của đầu, vẫn là rất cưng chiều nhi tử của.
+Trần Trạch câm nín: "......"
 
-"công ty trong nhà ngươi từ bỏ giải sao?"
+"Mẹ, mẹ đã đến bốn mươi tuổi đâu cơ chứ? Với lại con có phải con ruột của mẹ không đấy?"
 
-"nghỉ hè thời gian dài như vậy, mỗi ngày liền biết lái xe cùng ngươi cái kia chút hồ bằng cẩu hữu lêu lổng."
+Dương Thù Mỹ bật cười, đưa tay gõ nhẹ vào đầu Trần Trạch một cái, trong đáy mắt vẫn ngập tràn vẻ cưng chiều dành cho con trai.
 
-Nói, Dương thù đẹp dư quang nhìn Từ Mạn Mạn.
+"Công ty của gia đình mà mày không cần tìm hiểu à?"
 
-Từ Mạn Mạn không giống cái khác tiểu nữ sinh, Dương thù đẹp tự nhận mình có chút sản nghiệp.
+"Nghỉ hè dài dằng dặc thế này, ngày nào cũng chỉ biết vác xe đi lêu lổng với lũ bạn bè bù khú."
 
-Không thôi quận cát, Dương Thành cũng có mấy nhà nhà máy.
+Vừa nói, khóe mắt Dương Thù Mỹ vừa kín đáo quan sát Hứa Mạn Mạn.
 
-Nếu như là cái khác tiểu nữ sinh, nhất định sẽ rất kinh hỉ, rất muốn gả đến trong nhà mình tới.
+Hứa Mạn Mạn không giống những cô nữ sinh khác. Dương Thù Mỹ tự biết cơ nghiệp của gia đình mình không hề nhỏ.
 
-"Mạn Mạn, trần trạch nếu là ở bên ngoài dám làm loạn, ngươi liền nói cho ta biết, nhìn ta có đánh hay không hắn."
+Không chỉ ở Quận Sa, mà dưới Dương Thành bà cũng có vài ba nhà máy xí nghiệp.
 
-Từ Mạn Mạn mỉm cười một chút.
+Nếu là những cô gái khác, ắt hẳn đã sớm mừng rỡ ra mặt, nóng lòng muốn gả ngay vào hào môn nhà này rồi.
 
-Dương thù đẹp lại gõ cửa phía dưới trần trạch:"ngươi nếu dám ở trường học hái hoa ngắt cỏ, cũng đừng nghĩ dựa dẫm vào ta cầm một phần tiền."
+"Mạn Mạn, thằng Trần Trạch này mà dám làm bậy bạ ở ngoài, cháu cứ nói với dì, xem dì có nện cho nó một trận không."
 
-Trần trạch gãi gãi đầu:"mẹ, ngươi kêu ta tới nhà máy, lại không hiện tại giao cho ta quản lý."
+Hứa Mạn Mạn khẽ mỉm cười.
 
-"ngươi cũng phải có năng lực này, ta mới dám giao cho ngươi."
+Dương Thù Mỹ lại gõ thêm một cái vào đầu Trần Trạch: "Mày mà dám tơ hào ong bướm ở trường học thì đừng hòng cầm được một đồng cắc nào từ tay tao."
 
-Dương thù đẹp một đường giảng giải công ty vận hành, làm buôn bán bên ngoài của quá trình, phải chú ý thứ gì.... Còn có nhà máy có cái nào bộ môn khoan đã.
+Trần Trạch gãi đầu gãi tai: "Mẹ à, mẹ gọi con đến xưởng nhưng lại đâu có giao quyền quản lý cho con ngay bây giờ đâu."
 
-Từ Mạn Mạn rất chân thành nghe.
+"Mày cũng phải có cái bản lĩnh ấy thì tao mới dám giao chứ!"
 
-Trần trạch đi bên cạnh cũng không chơi điện thoại di động.
+Dọc đường đi, Dương Thù Mỹ kiên nhẫn giảng giải về cách thức vận hành của công ty, quy trình làm hàng xuất khẩu mậu dịch, những điều cần đặc biệt lưu ý... rồi nhà máy gồm có những phòng ban nào.
 
-Dương thù đẹp lúc này mới hài lòng, nàng tại Dương Thành còn có nhà máy, thường xuyên muốn đi Dương Thành, liền kêu trần trạch mùa hè này nhiều làm quen một chút phía dưới chính nhà mình nhà máy, dù sao cũng so mỗi ngày ở bên ngoài mù chơi hảo.
+Hứa Mạn Mạn lắng nghe vô cùng chăm chú.
 
-Còn gọi Từ Mạn Mạn cũng tới.
+Trần Trạch đi bên cạnh cũng cất điện thoại đi, không dám lơ là nữa.
 
-Từ Mạn Mạn không có trả lời, lại còn không có đến nhà các nàng, nàng nơi nào hảo tới?
+Lúc này Dương Thù Mỹ mới tạm hài lòng. Bà còn có nhà xưởng ở Dương Thành nên phải thường xuyên bay đi bay về, thế nên mới giục Trần Trạch tranh thủ kỳ nghỉ hè này làm quen nhiều hơn với nhà máy của gia đình, dẫu sao cũng tốt hơn việc ngày ngày đàn đúm chơi bời vô bổ bên ngoài.
 
-Dương thù chuyện tốt nghiệp bên trên lôi lệ phong hành, cùng Từ Mạn Mạn nói chuyện cũng rất ôn nhu, nàng còn gọi Từ Mạn Mạn muốn đốc xúc trần trạch.
+Bà còn bảo cả Hứa Mạn Mạn cùng tới.
 
-Từ Mạn Mạn đột nhiên nghĩ tới, nghỉ đông thi cuối kỳ lúc đó, thẩm tử nói có lần nói qua, nói Mạn Mạn, ngươi càng giống trần trạch của mụ mụ.
+Nhưng Hứa Mạn Mạn không nhận lời. Cô vẫn chưa chính thức gả vào nhà họ, làm sao tiện đường chen chân vào cơ ngơi này được?
 
-Trần trạch nghiêm túc nghe xong sẽ, điện thoại liền vang lên, nói đã sớm cùng bằng hữu đã hẹn.
+Trên thương trường Dương Thù Mỹ là người quyết đoán, sấm truyền gió giật, nhưng nói chuyện với Hứa Mạn Mạn lại dịu dàng hết mực. Bà còn dặn dò Mạn Mạn phải nghiêm khắc đốc thúc Trần Trạch.
 
-Dương thù đẹp mắng một câu, trần trạch cười đùa tí tửng bỏ trốn mất dạng.
+Hứa Mạn Mạn bỗng sực nhớ lại, hồi đợt thi cuối kỳ mùa đông năm ngoái, Thẩm Tử Ngôn từng buông một câu bâng quơ: "Mạn Mạn à, tớ thấy cậu giống mẹ của Trần Trạch hơn là người yêu đấy."
 
-Đây là thân mẫu tử.
+Trần Trạch kiên nhẫn nghe mẹ nói được một lúc thì chuông điện thoại vang lên, cậu liền phân bua là đã có hẹn trước với bạn bè từ sớm.
 
-Trần trạch nói mụ mụ còn trẻ, kỳ thực Dương thù Mỹ Dã không nghĩ đổi kíp của chuyện.
+Dương Thù Mỹ mắng với theo một câu, Trần Trạch đã toe toét cười rồi nhanh chân chuồn mất dạng.
 
-Nhìn xem trần trạch một bên gọi điện thoại một bên lên xe, Từ Mạn Mạn nhớ tới Triệu Kim An, đồng dạng niên kỷ.....
+Đúng là mẹ con ruột thịt.
+
+Trần Trạch bảo mẹ vẫn còn trẻ, thực ra Dương Thù Mỹ cũng chưa từng nghĩ đến chuyện chuyển giao quyền lực sớm như vậy.
+
+Nhìn bóng lưng Trần Trạch vừa gọi điện thoại vừa bước lên xe, Hứa Mạn Mạn bất giác nhớ đến Triệu Kim An. Cùng trạc tuổi nhau, vậy mà...
+
+***
+
+Tối hôm đó.
+
+Trần Trạch gọi điện rủ Hứa Mạn Mạn tới quán bar trên đường Giải Phóng Tây chơi.
+
+Hứa Mạn Mạn từ chối.
+
+Cúp máy xong, cô ngồi lặng lẽ một mình trên chiếc ghế trong phòng ngủ, ngón tay nhẹ nhàng vuốt ve màn hình điện thoại.
+
+Lưỡng lự miết một hồi lâu, cô mới lấy hết can đảm gửi đi một dòng tin nhắn cho Triệu Kim An.
+
+Mạn Sợ Đau: Triệu Kim An, cậu có ở Quận Sa không?
+
+Quen biết nhau đã tròn một năm, tính cả mối quan hệ giữa hai phòng ký túc xá kết nghĩa, đây là lần đầu tiên Hứa Mạn Mạn gửi cho Triệu Kim An một tin nhắn mang tính chất "riêng tư", không dính dáng gì đến công việc, cũng chẳng phải những lời chúc tụng xã giao vào dịp lễ tết.
+
+Khoảng chừng hai mươi phút sau.
+
+Triệu Kim An: Có chứ, tớ vừa từ ngoài về tới nơi.
+
+Hứa Mạn Mạn cứ thế ngồi thừ ra suốt hai mươi phút đồng hồ, cô liếc nhìn góc màn hình: 21 giờ 45 phút.
+
+Cô hiểu Triệu Kim An nhắn như vậy là để giải thích lý do vì sao giờ mới thấy tin nhắn.
+
+Mạn Sợ Đau: Cậu vừa đi giao hàng về lại văn phòng à?
+
+Triệu Kim An: Ừm.
+
+Không còn tin nhắn hồi đáp nào nữa.
+
+Triệu Kim An cũng chẳng buồn gặng hỏi xem Hứa Mạn Mạn tìm mình có việc gì.
+
+Trong phòng ngủ.
+
+Hứa Mạn Mạn không còn giữ tư thế ngồi đoan trang nữa. Cô buông lỏng người, khom lưng gục xuống bàn học, vùi mặt vào cánh tay, bàn tay vẫn nắm chặt chiếc điện thoại.
+
+Ở một đầu khác.
+
+Triệu Kim An bước xuống xe, vốc làn nước lạnh rửa mặt cho tỉnh táo, rồi ngồi bệt xuống bên cạnh vòi nước, mở nắp chai nước khoáng ngửa cổ tu ừng ực mấy ngụm lớn.
+
+Anh ngước nhìn bầu trời đêm rực rỡ ánh đèn neon chốn đô hội, tâm trí có đôi phần trống rỗng.
+
+Thực lòng mà nói, khi nhìn thấy tin nhắn của Hứa Mạn Mạn, Triệu Kim An cảm thấy có chút bất ngờ.
+
+Ở kiếp trước, Hứa Mạn Mạn đã để lại trong lòng anh một ấn tượng vô cùng sâu sắc. Hình bóng của cô trong ký ức anh thường dừng lại ở đêm hôm ấy tại quán bar.
 
 Đêm đó.
 
-Trần trạch gọi điện thoại cho Từ Mạn Mạn, gọi Từ Mạn Mạn tới giải phóng tây lộ quán bar chơi.
+Người phụ nữ ấy ngồi lặng lẽ nơi góc khuất của bàn tiệc, trơ mắt nhìn người chồng của mình trêu đùa, tương tác với cô đào tiếp rượu giá tám trăm tệ, thản nhiên quét mã liên lạc, rồi quay sang nở nụ cười nhạt với Triệu Kim An, nhẹ giọng bảo: "Không sao đâu, anh ấy uống say thôi mà."
 
-Từ Mạn Mạn không có đi.
+Cuối cùng, cô vẫn cư xử như thể chẳng có chuyện gì to tát.
 
-Cúp điện thoại, một người tại phòng ngủ yên tĩnh ghế ngồi bên trên, vuốt ve màn hình điện thoại di động.
+Rời khỏi quán bar, cô chào hỏi mọi người vô cùng chu đáo, rồi lặng lẽ lái xe đưa chồng về nhà.
 
-Vuốt nhẹ một hồi lâu, nàng lấy dũng khí cho Triệu Kim An dây cót tin tức.
+Ngồi thừ ra một lúc, Triệu Kim An lại rút điện thoại ra bấm một dòng tin nhắn gửi đi.
 
-Man thương thương: Triệu Kim An, ngươi tại quận cát sao?
+Triệu Kim An: Sao nick chat của cậu lại đặt là Mạn Sợ Đau thế?
 
-Nhận biết có một năm rồi, quan hệ hữu nghị ký túc xá, đây là Từ Mạn Mạn lần thứ nhất cùng Triệu Kim An phát"tư nhân"tin tức, cùng công việc không quan hệ, không phải ngày tết cái chủng loại kia tin tức.
+Một lúc sau, khoảng chừng ba phút trôi qua.
 
-Đại khái qua 2 0 phút.
+Hứa Mạn Mạn: Tớ sợ đau mà, từ bé tớ đã rất sợ bị tiêm rồi.
 
-Triệu Kim An: tại a, mới từ bên ngoài trở về.
-
-Từ Mạn Mạn cứ như vậy ngồi 2 0 phút, nhìn xem thời gian 2 1 điểm 4 5.
-
-Nàng biết Triệu Kim An là giảng giải chính mình mới nhìn thấy tin tức.
-
-Man thương thương: là mới đưa xong hàng trở về văn phòng sao?
-
-Triệu Kim An: ân.
-
-Không có hồi âm.
-
-Triệu Kim An cũng không hỏi Từ Mạn Mạn tìm mình là có chuyện gì không?
-
-Phòng ngủ.
-
-Từ Mạn Mạn không còn ngồi đoan trang, loan liễu yêu, phục nằm sấp bàn học, gối trên cánh tay, nắm trong tay điện thoại di động.
-
-Một bên khác.
-
-Triệu Kim An xuống xe tẩy đem nước lạnh khuôn mặt, an vị tại vòi nước bên cạnh, cầm lấy nước khoáng ngửa đầu uống vào mấy ngụm.
-
-Nhìn qua hiện nghê hồng của bầu trời đêm, suy nghĩ có chút chạy không.
-
-Trên thực tế, nhìn thấy Từ Mạn Mạn của tin tức, Triệu Kim An có chút ngoài ý muốn.
-
-Ở kiếp trước Từ Mạn Mạn cho Triệu Kim An lưu lại ấn tượng rất sâu sắc, Triệu Kim An đối với Từ Mạn Mạn của ấn tượng, thường xuyên sẽ dừng lại ở đêm đó tại quán bar nhìn thấy Từ Mạn Mạn.
-
-Đêm đó.
-
-Cái kia ngồi ở ghế dài xó xỉnh, nhìn xem lão công cùng 8 trăm bồi tửu muội ảnh hưởng lẫn nhau, tác động qua lại, quét mã hai chiều, còn đối với Triệu Kim An nói không quan hệ, hắn drunk; vinous; drunken; screwed; laid out; crocked; squiffed; stoned; befuddled; gassed; tanked; malty; fried; canned; smashed; tipsy; pie eyed nữ nhân.
-
-Cuối cùng người không việc gì một dạng.
-
-Từ quán bar đi ra, rất chu đáo cùng tất cả mọi người chào hỏi bắt chuyện xong, lái xe lại lão công về nhà.
-
-Cứ như vậy ngồi một hồi, Triệu Kim An lại lấy ra điện thoại, gửi nhắn tin.
-
-Triệu Kim An: vì cái gì ngươi nickname gọi man thương thương?
-
-Một lát sau, đại khái 3 phút.
-
-Từ Mạn Mạn: ta sợ đau, hồi nhỏ rất sợ chích.
-
-Nhìn xem tin nhắn, Triệu Kim An cười một tiếng, tinh bì lực tẫn lùi ra sau vách tường
+Nhìn dòng tin nhắn hiển thị trên màn hình, Triệu Kim An bật cười khẽ một tiếng, cả người rã rời kiệt sức ngả đầu tựa vào vách tường phía sau.

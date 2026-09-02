@@ -1,205 +1,211 @@
-# Chương 141: Bắt đầu.
+# Chương 141: Bắt đầu
 
-Cứ như vậy, đoạn thu bình dắt tống gia nguyệt không ăn cơm liền đi.
+> **Tiêu đề gốc**: 第141章 开始了。
 
-Tống gia nguyệt một mực quay đầu nhìn xem cái này mụ mụ muốn chính mình hô ca ca của người.
+Cứ như thế, Đoạn Thu Bình dắt tay Tống Gia Nguyệt rời đi khi bữa cơm trưa còn chưa kịp động đũa.
 
-"mụ mụ ~"
+Suốt dọc đường ra ngõ, con bé Tống Gia Nguyệt cứ liên tục ngoái đầu lại, ngơ ngác nhìn người mà mẹ vừa bảo mình phải gọi là "anh trai".
 
-"tiểu nguyệt, mụ mụ không có việc gì."
+"Mẹ ơi..."
 
-Đoạn thu bình ôm lấy tống gia nguyệt, quay đầu vụng trộm lau khóe mắt một cái.
+"Tiểu Nguyệt, mẹ không sao."
 
-Tống đẹp lúa cúi đầu theo ở phía sau, nàng không nghĩ tới hôm nay lại là cục diện này.
+Đoạn Thu Bình bế bổng con gái lên, khẽ nghiêng đầu sang một bên, lén lấy mu bàn tay gạt đi giọt nước mắt nơi khóe mi.
 
-Đoạn thu bình không nhìn nàng, chỉ quay đầu mắt nhìn nhà này lầu nhỏ hai tầng.
+Tống Uyển Hòa cúi gằm mặt lẳng lặng đi phía sau, cô thật sự không ngờ cơ sự hôm nay lại thành ra nông nỗi này.
 
-Xế chiều hôm đó, tô xa gọi điện thoại cũng rời đi.
+Đoạn Thu Bình không nhìn cô cháu gái lấy một lần, chỉ dừng bước quay đầu, nhìn lại căn nhà hai tầng nhỏ bé kia thêm một cái nhìn đau đáu.
 
-"Kim An, ta đi."
+Chiều hôm ấy, Tô Miến nhận một cuộc điện thoại rồi cũng sửa soạn rời đi.
 
-Triệu Kim An giúp nàng chỉnh lý váy, tô xa liền sờ đầu của hắn, tiếp đó nhẹ nhàng ôm lấy.
+"Kim An, em về nhé."
 
-Ngô hiểu bảo vệ ở một bên.
+Triệu Kim An cúi người giúp cô chỉnh lại nếp váy, Tô Miến đưa bàn tay mềm mại xoa đầu anh, rồi nhẹ nhàng ôm lấy anh vào lòng.
 
-Sau khi trở về, nãi nãi nắm Triệu Kim An của tay, hỏi tô xa đi có phải hay không bởi vì đoạn thu bình.
+Ngô Hiểu đứng lặng lẽ canh chừng ở một bên.
 
-Triệu Kim An lắc đầu, nói không có.
+Sau khi tiễn người đi rồi quay vào nhà, bà nội nắm chặt lấy tay Triệu Kim An, gặng hỏi có phải Tô Miến bỏ về là vì chuyện của Đoạn Thu Bình hay không.
 
-Vương kim như hùng hùng hổ hổ, cũng không biết đang mắng ai, cuối cùng Triệu Quốc Hoa tan tầm trở về gánh chịu tất cả.
+Triệu Kim An lắc đầu, bảo không phải.
 
-Những ngày này vương kim như thật có đem tô xa làm nữ nhi một dạng chiếu cố.
+Vương Kim Như thì cứ lầm bầm chửi đổng, chẳng biết là đang trút giận lên ai, cuối cùng lúc Triệu Quốc Hoa tan làm trở về nhà, ông lại là người gánh chịu toàn bộ cơn tam bành của vợ.
 
-Nàng và nãi nãi không có đi ra ngoài làm việc, một ngày trông coi tô xa.
+Mấy ngày qua, Vương Kim Như thật lòng chăm sóc Tô Miến chẳng khác nào con gái ruột.
 
-Du Phỉ cùng Triệu Chí Dũng 7 hào trở về quận cát, Triệu Kim An chậm trễ bốn ngày.
+Bà cùng với bà nội chẳng buồn bước chân ra ngoài làm lụng việc gì, cả ngày chỉ quẩn quanh bên cạnh chăm chút cho cô.
 
-"Kim An, có cái gì không vui? Nói ra."
+Du Phi và Triệu Trí Dũng đã quay lại Quận Sa từ hôm mùng bảy, còn Triệu Kim An thì nán lại thêm bốn ngày nữa.
 
-Triệu Kim An lườm lạc cẩn chi một cái, lạc cẩn chi cười nói:"ngươi muốn thế nào mới mở tâm? Ta dỗ ngươi vui vẻ."
+...
 
-"....."
+"Kim An, có chuyện gì không vui thế? Nói ra xem nào."
 
-Triệu Kim An nhìn xem đang tại xây của nhà máy nước:"không hối hận đem cổ phần bán cho ta đi?"
+Triệu Kim An liếc nhìn Lạc Cẩn Chi một cái. Lạc Cẩn Chi cười tủm tỉm: "Cậu muốn thế nào mới vui? Để tôi dỗ cho cậu vui nhé."
 
-Lạc cẩn chi gật đầu:"chính là công ty kiếm lời điểm lại tập trung vào."
+"..."
 
-"đừng lo lắng tiền, nhiều như vậy lãnh tàng quỹ đưa vào thị trường, đã bắt đầu chính phản quỹ rồi."
+Triệu Kim An đưa mắt nhìn công trình nhà máy nước đang rầm rộ thi công: "Không hối hận vì đã bán cổ phần cho tôi đấy chứ?"
 
-Lạc cẩn chi tức giận nói:"cùng ngươi hùn vốn sau, ta liền không có từ công ty cầm qua một phần tiền, ta cũng muốn sinh hoạt! Triệu Bác lan chính là của ngươi chân chó!"
+Lạc Cẩn Chi gật đầu: "Chỉ là công ty vừa kiếm được chút đỉnh thì lại đổ hết vào đầu tư tái sản xuất rồi."
 
-"các ngươi làm kế toán chính là không phải đều tính toán tỉ mỉ, bệnh nghề nghiệp?"
+"Đừng lo chuyện tiền bạc, ngần ấy tủ mát được tung ra thị trường đã bắt đầu đem lại phản hồi tích cực rồi đấy thôi."
 
-"công ty tài vụ không phải như vậy sao?"
+Lạc Cẩn Chi hờn dỗi lườm anh: "Từ ngày hợp tác với cậu, tôi chưa từng được rút ra một xu cắc bạc nào từ công ty cả, tôi cũng phải sống chứ bộ! Con bé Triệu Bác Lan kia đúng là chân chạy trung thành của cậu mà!"
 
-Triệu Kim An cười cười, hắn không cần từ công ty lấy tiền.
+"Mấy người làm kế toán các chị ai cũng tính toán chi li, mắc bệnh nghề nghiệp cả thế à?"
 
-Bành Trung Ngạn đi theo hai người sau lưng, chỉ nghe lạc cuối cùng còn lời nói câu dẫn Triệu tổng.
+"Tài chính công ty chẳng phải nên như thế sao?"
 
-Hồ thần nhắc nhở qua hắn, đừng bị Triệu tổng của bề ngoài lừa gạt, người này hung ác lên tâm địa rất cứng.
+Triệu Kim An bật cười, bản thân anh cũng chưa từng rút tiền từ công ty về túi riêng.
 
-Nhà máy nước bây giờ bề bộn nhiều việc, nhẹ dưỡng tiểu bom cùng góc quang trà sữa lượng tiêu thụ rất tốt.
+Bành Trung Ngạn đi sau lưng hai người, chỉ nghe thấy Lạc tổng buông lời trêu ghẹo, đưa đẩy với Triệu tổng.
 
-Triệu Kim An nhắc nhở lạc cẩn chi, kiếm lợi nhiều nhất của vẫn là nước khoáng, khác đồ uống cũng là bổ sung.
+Hồ Thần từng nhắc nhở ông ta rằng chớ có bị vẻ ngoài trẻ tuổi của Triệu tổng đánh lừa, người thanh niên này một khi đã ra tay thì tâm địa sắt đá vô cùng.
 
-Cửa nhà kho có xe hàng lớn, Triệu Quốc Hoa cùng mấy cái công nhân đang tại dỡ hàng.
+Nhà máy nước lúc này đang bận rộn tối mắt tối mũi, sản phẩm nước khoáng "Tiểu Tạc Đạn Khinh Dưỡng" và trà sữa "Ngu Quang" bán chạy như tôm tươi.
 
-Bành Trung Ngạn dọa giật mình, nhanh chóng giảng giải:"Triệu tổng, không có người an bài thúc thúc của ngươi, là thúc thúc của ngươi nói ngược lại không có việc gì...."
+Triệu Kim An nhắc nhở Lạc Cẩn Chi, mảng kiếm tiền bền vững nhất vẫn là nước khoáng, các loại nước giải khát khác chỉ mang tính chất bổ trợ mà thôi.
 
-Triệu Kim An gật gật đầu.
+Trước cửa kho hàng có mấy chiếc xe tải lớn đang đậu, Triệu Quốc Hoa cùng mấy người công nhân đang tất bật bốc dỡ hàng hóa.
 
-Hắn biết Triệu Quốc Hoa của làm người, là vương kim như liền chỉ biết mù chỉ huy.
+Bành Trung Ngạn giật thót mình, vội vàng chạy lại phân trần: "Triệu tổng, không ai sắp xếp cho chú của cậu làm việc này đâu, là chú ấy bảo dù sao ở không cũng chẳng có việc gì làm nên..."
 
-Bành Trung Ngạn nghĩ thầm Triệu tổng ngươi mau trở lại quận cát người chỉ huy đại cục đi, sinh sản phương diện có ta cùng lạc cuối cùng như vậy đủ rồi.
+Triệu Kim An khẽ gật đầu.
 
-"Kim An, ngươi cũng không từ công ty cầm qua một phần tiền, ngươi bây giờ là lão bản, không có khả năng chi tiêu nhỏ như vậy đi?"
+Anh hiểu rõ tính cách của chú hai mình, nếu là thím hai Vương Kim Như thì chỉ biết đứng đó chỉ tay năm ngón mà thôi.
 
-Lạc cẩn chi thật sự là hiếu kì.
+Bành Trung Ngạn thầm nghĩ trong bụng, Triệu tổng ơi cậu mau quay về Quận Sa mà chỉ huy đại cục đi, khâu sản xuất ở đây đã có tôi với Lạc tổng lo liệu là quá đủ rồi.
 
-"cẩn Chi tỷ, 1 0 vạn đủ sao?"
+"Kim An này, bản thân cậu cũng chưa từng lấy một đồng nào từ công ty, giờ đã là ông chủ lớn rồi, chẳng lẽ chi tiêu thường ngày lại ít ỏi đến thế sao?"
 
-Triệu Kim An lấy điện thoại di động ra gọi điện thoại cho Triệu Bác lan.
+Lạc Cẩn Chi thật sự tò mò không chịu nổi.
 
-"bây giờ tiêu ít tiền còn muốn hỏi ngươi."
+"Chị Cẩn Chi, mười vạn tệ đã đủ cho chị chi tiêu chưa?"
 
-Lạc cẩn chi có thể trên thân thật không có tiền gì rồi, nàng cũng không phải là cái tiết kiệm của nữ nhân.
+Triệu Kim An rút điện thoại ra bấm gọi cho Triệu Bác Lan.
 
-"về sau có cái gì cứ việc nói thẳng, không muốn bên cạnh kích bên cạnh gõ."
+"Giờ muốn tiêu chút tiền cũng phải ngửa tay hỏi cậu rồi đấy."
 
-Triệu Kim An đột nhiên nghĩ đến, kéo lạc cẩn chi đến một bên vấn đạo:"cẩn Chi tỷ, ngươi có phải hay không mua cổ phiếu?"
+Lạc Cẩn Chi dạo này có lẽ cạn tiền thật, chị vốn dĩ chẳng phải mẫu phụ nữ biết tằn tiện chi ly.
 
-"mua điểm, thế nào?"
+"Sau này có chuyện gì cứ nói thẳng, đừng nói bóng nói gió."
 
-Lạc cẩn chi dạng này người chắc chắn mua cổ phiếu quản lý tài sản.
+Triệu Kim An chợt nhớ ra điều gì, kéo Lạc Cẩn Chi sang một góc rồi hỏi nhỏ: "Chị Cẩn Chi, có phải chị đang chơi cổ phiếu không?"
 
-Triệu Kim An nghĩ nghĩ:"cẩn Chi tỷ, ngươi nếu là tin tưởng ta liền nhanh chóng bán, thị trường chứng khoán tăng giá đến đỉnh rồi, ngươi biết chuyên nghiệp của ta, lão sư chúng ta lên lớp còn cùng một chỗ thảo luận."
+"Có mua một ít, sao thế?"
 
-"nhưng là bây giờ đang thị trường chứng khoán tăng giá, chuyên gia đều nói mâm lớn lần này cần đến vạn điểm."
+Mẫu người như Lạc Cẩn Chi chắc chắn sẽ bỏ tiền đầu tư vào chứng khoán để quản lý tài chính.
 
-"tùy ngươi vậy, tiền tiêu vặt mất liền mất."
+Triệu Kim An trầm ngâm một lát rồi nói: "Chị Cẩn Chi, nếu chị tin tôi thì mau chóng bán hết đi. Thị trường bò tót đã chạm đỉnh rồi đấy. Chị biết chuyên ngành của tôi mà, trên lớp giảng viên của chúng tôi cũng vừa thảo luận về vấn đề này."
 
-Triệu Kim An không thể nói chính mình biết trước, đây là hắn bí mật lớn nhất.
+"Nhưng mà thị trường đang tăng trưởng mạnh mẽ thế kia mà, các chuyên gia đều nhận định đợt này chỉ số thị trường chung sẽ cán mốc một vạn điểm đấy."
 
-Bằng không, ngươi trốn quốc gia nào cũng là phòng thí nghiệm của hàng.
+"Tùy chị thôi, mất đi số tiền tiêu vặt ấy cũng chẳng sao."
 
-Trở về quận cát phía trước, Triệu Kim An lại lặng lẽ lấp hai ngàn đồng tiền cho Doãn Hiểu Lan.
+Triệu Kim An không thể nói toạc ra là mình có năng lực biết trước tương lai, đây là bí mật sinh tử lớn nhất của anh.
 
-Bí mật này chỉ có nãi nãi biết.
+Bằng không, dù có trốn sang bất kỳ quốc gia nào thì kết cục cũng chỉ là nằm trên bàn thí nghiệm của người ta mà thôi.
 
-Doãn Hiểu Lan mỗi lần đều sẽ nói cho nãi nãi, nãi nãi chỉ nói, Kim An cho ngươi, ngươi liền cầm lấy.
+Trước khi quay lại Quận Sa, Triệu Kim An lại lén lút nhét hai nghìn tệ vào tay thím dâu Doãn Hiểu Lan.
 
-Triệu Kim An không biết thời gian cụ thể rồi, thẳng đến 1 0 nguyệt 1 7 hào, lạc cẩn chi gọi điện thoại tới, nói mâm lớn thật sự giảm lớn rồi, còn hỏi Triệu Kim An là giả ngã sao?
+Bí mật này chỉ có bà nội biết.
 
-Triệu Kim An chỉ hỏi ngươi bán sao?
+Lần nào Doãn Hiểu Lan cũng đem chuyện kể cho bà nội nghe, bà chỉ ân cần bảo: "Kim An nó cho con thì con cứ cầm lấy mà chi tiêu."
 
-Lạc cẩn chi nói ba ngày trước bán.
+...
 
-Triệu Kim An chỉ đùa một chút, ngươi muốn mua hơn mà nói, có phải hay không hẳn là tiễn đưa ta cái lễ vật?
+Triệu Kim An không nhớ chính xác từng mốc thời gian cụ thể, mãi cho đến ngày 17 tháng 10, Lạc Cẩn Chi gọi điện tới, giọng điệu hốt hoảng bảo rằng chỉ số thị trường chung sụt giảm nghiêm trọng, còn hỏi anh liệu đây có phải là một đợt giảm giả tạo để rung lắc gom hàng hay không.
 
-Lạc cẩn chi khanh khách cười không ngừng, hỏi người muốn hay không?
+Triệu Kim An chỉ hỏi lại đúng một câu: "Chị đã bán chưa?"
 
-"....."
+Lạc Cẩn Chi đáp rằng ba ngày trước đã bán sạch rồi.
 
-Triệu Kim An đã tay tại đẹp cỗ kiếm tiền, ba trăm vạn đô la mỹ coi như muốn làm khoảng không cũng không thực lực, chỉ có thể thuận thế mà làm.
+Triệu Kim An bông đùa một câu: "Nếu chị kiếm được nhiều như thế, có phải nên tặng tôi một món quà không?"
 
-Không dám quá phách lối, đại khái Triệu Kim An của tính cách chính là như vậy ổn.
+Lạc Cẩn Chi cười khúc khích trong điện thoại, hỏi lại: "Tặng luôn người này cho cậu, chịu không?"
 
-Cho nên ở kiếp trước Mộc Dao có mấy lời không có nói sai.
+"..."
 
-Du Phỉ sau khi trở về, nhiều lần nhìn thấy Mộc Dao không biết như thế nào há mồm, để nàng đối với Triệu Kim An dẹp ý niệm này?
+Lúc này Triệu Kim An đã bắt đầu rục rịch kiếm tiền trên thị trường chứng khoán Mỹ. Với số vốn ba triệu đô la Mỹ, dù có muốn bán khống thì cũng chưa đủ thực lực, chỉ có thể nương theo chiều gió mà hành động.
 
-Tô xa chỉ ở ngày hôm sau phát cái tin tức, nói mình về kinh đô rồi.
+Không dám quá ngông cuồng, tính cách của Triệu Kim An trước nay vẫn luôn điềm tĩnh và cẩn trọng như thế.
 
-Hôm nay trở lại ký túc xá, trần trạch đang tại nghe điện thoại.
+Cho nên ở kiếp trước, Mộc Dao từng nói vài câu về anh cũng chẳng hề sai chút nào.
 
-Dương thù đẹp nói ngươi dùng tiền cho ta tiết kiệm một chút, còn có đừng ngày ngày nhớ chơi, không có việc gì thì đi một chuyến tinh sa của nhà máy.....
+Sau khi Du Phi trở về trường, mấy lần chạm mặt Mộc Dao mà cứ ngập ngừng không biết mở lời thế nào, chẳng lẽ lại khuyên cô ấy hãy từ bỏ Triệu Kim An đi sao?
 
-Trần trạch nâng điện thoại đi ban công, một lát sau trở về ký túc xá bật máy tính lên.
+Còn Tô Miến thì mãi đến ngày thứ hai mới gửi cho anh một mẩu tin nhắn ngắn ngủi, báo rằng mình đã bình an trở về thủ đô Bắc Kinh.
 
-"ta dựa vào, mấy ngày nay mâm lớn ngã thành dạng con chim này rồi!?"
+...
 
-"trạch ca, thế nào?"
+Hôm nay khi trở về phòng ký túc xá, Triệu Kim An thấy Trần Trạch đang nghe điện thoại.
 
-Lưu xông phong vấn đạo.
+Đầu dây bên kia, giọng của Dương Thục Mỹ vang lên gay gắt, bảo con trai phải biết tiết kiệm tiền bạc, đừng suốt ngày chỉ mải mê đàn đúm chơi bời, rảnh rỗi thì chạy qua xưởng ở Tinh Sa một chuyến...
 
-"không có gì."
+Trần Trạch cầm điện thoại đi ra ngoài ban công, một lát sau quay vào phòng, vội vã mở máy tính lên.
 
-Trần trạch ôm lấy máy tính bò lên giường, đại khái Dương thù đẹp nói có chút nghiêm trọng, làm không tốt chính mình liền từ phú nhị đại biến thành phụ nhị đại rồi.
+"Mẹ kiếp, mấy ngày nay thị trường sập như ngả rạ thế này á?!"
 
-Triệu Kim An không có gì ngoài ý muốn, mắt nhìn trần trạch.
+"Anh Trạch, có chuyện gì thế?" Lưu Sấm Phong ngẩng đầu hỏi.
 
-Lần này mâm lớn ngã xuống, có rất ít người có thể may mắn thoát khỏi.
+"Không có gì."
 
-Lần này Đại Ngưu thành phố có quá nhiều người xông vào thị trường chứng khoán rồi.
+Trần Trạch ôm máy tính trèo tót lên giường tầng. Có lẽ những lời mẹ vừa nói qua điện thoại khá nghiêm trọng, không chừng bản thân từ một "phú nhị đại" giàu có sắp biến thành một "phụ nhị đại" gánh nợ ngập đầu cũng nên.
 
-Mâm lớn từ 6 1 2 4 điểm ngã xuống 1 6 6 4 điểm, ai bổ thương, ai bác bắn ngược, ai chết.
+Triệu Kim An không hề cảm thấy bất ngờ, khẽ đưa mắt liếc nhìn Trần Trạch một cái.
 
-Cái này cũng chưa tính.
+Cơn bão sụp đổ thị trường lần này, hiếm có ai có thể may mắn thoát nạn.
 
-Trần trạch nhà vẫn là làm buôn bán bên ngoài buôn bán, bây giờ mới chính thức bắt đầu, lần này khủng hoảng cho vay toàn thế giới cũng không thể may mắn thoát khỏi, quốc nội phòng giới còn chưa bắt đầu ngã xuống.
+Đợt sóng tăng trưởng dữ dội vừa qua đã cuốn theo quá nhiều người đổ xô vào thị trường chứng khoán.
 
-Chỉ là ở kiếp trước trần trạch giống như cũng không chịu ảnh hưởng gì, lên mã BMW một mực cầm lái.
+Chỉ số chung sẽ lao dốc không phanh từ đỉnh 6124 điểm xuống tận đáy 1664 điểm, lúc này ai nhảy vào bắt đáy, ai ham hố lướt sóng đón nhịp hồi phục, kẻ đó cầm chắc cái chết.
 
-Sau khi tốt nghiệp đại học, trần trạch liền tiến vào công ty nhà mình, chứng minh Dương thù đẹp có chút năng lực, lên mã không có bể sinh.
+Mà đó còn chưa phải là tất cả.
 
-Trần trạch không muốn để cho cùng phòng biết, lốp bốp gõ bàn phím.
+Gia đình Trần Trạch vốn làm ăn trong ngành ngoại thương xuất khẩu, giờ đây cơn ác mộng mới thực sự bắt đầu. Cuộc khủng hoảng tài chính nợ dưới chuẩn lần này cả thế giới đều không tránh khỏi, mà giá nhà đất trong nước thì còn chưa bắt đầu giảm.
 
-Trạch thiếu: Mạn Mạn, mẹ ta trong tay nhàn rỗi tài chính cũng mua rồi cổ phiếu, bây giờ mâm lớn giảm lớn bảo hộ rồi.
+Chỉ là ở kiếp trước, dường như Trần Trạch cũng chẳng bị ảnh hưởng gì mấy, ít nhất thì chiếc xe BMW vẫn chạy tà tà suốt thời đại học.
 
-Man thương thương: công ty mắt xích tài chính có gãy lìa nguy hiểm không?
+Sau khi tốt nghiệp, Trần Trạch liền về tiếp quản công ty gia đình, điều đó chứng tỏ Dương Thục Mỹ cũng là người có bản lĩnh thực sự, chí ít cũng không để cơ nghiệp bị phá sản.
 
-Lúc này trần trạch giống như chỉ muốn tìm Từ Mạn Mạn rồi, có thể có điểm tâm lý ỷ lại đi.
+Trần Trạch không muốn cho các bạn cùng phòng biết chuyện, ngón tay gõ bàn phím lách cách liên hồi.
 
-Trạch thiếu: chính là ta mẹ nói công ty tài chính khẩn trương, muốn ta thiếu tiêu ít tiền.
+*Thiếu Gia Trạch:* "Mạn Mạn, toàn bộ số tiền vốn lưu động rảnh rỗi của mẹ anh đều đem đổ vào cổ phiếu hết rồi, giờ thị trường sập mạnh, bị kẹt cứng ngắc rồi."
 
-Bên trong nam, 4 0 6.
+*Mạn Đau Đau:* "Chuỗi dòng tiền của công ty có nguy cơ bị đứt gãy không?"
 
-Từ Mạn Mạn cũng mở ra website, xem xét thị trường chứng khoán, sinh viên không đầu tư cổ phiếu rất ít chú ý phương diện này tin tức.
+Lúc này, dường như người duy nhất mà Trần Trạch muốn tìm đến để tâm sự chỉ có Từ Mạn Mạn, có lẽ trong tiềm thức anh ta luôn có một sự ỷ lại vào cô.
 
-"các ngươi biết A cỗ mấy ngày nay sụt giảm sao?"
+*Thiếu Gia Trạch:* "Mẹ anh chỉ bảo dòng tiền của công ty đang căng thẳng, dặn anh phải chi tiêu tiết kiệm lại."
 
-Thẩm tử nói thổi tóc:"biết a, cha ta cũng đầu tư cổ phiếu, ngã ngày hôm sau ta gọi hắn toàn bộ vứt ra."
+...
 
-"thị trường chứng khoán tăng giá kết thúc, hay là giả ngã? Có cơ hội hay không bắn ngược?"
+Đại học Trung Nam, phòng 406.
 
-Từ Mạn Mạn vấn đạo.
+Từ Mạn Mạn cũng mở trang web lên, tra cứu thông tin thị trường chứng khoán. Sinh viên không chơi cổ phiếu thì rất hiếm khi để tâm đến những tin tức dạng này.
 
-"ai biết?"
+"Mọi người có biết mấy ngày nay cổ phiếu A sụt giảm nghiêm trọng không?"
 
-Thẩm tử nói rất nhẹ nhàng:"cha ta mấy ngày nay còn nghĩ bác bắn ngược, ta gọi mẹ ta đem công ty tiền giám sát chặt chẽ, ta trả lại cho ta cha gọi điện thoại gọi hắn đừng không làm việc đàng hoàng."
+Thẩm Tử Ngôn vừa sấy tóc vừa đáp: "Biết chứ, bố mình cũng chơi chứng khoán mà, ngay ngày thứ hai khi thấy thị trường giảm là mình đã giục bố bán sạch toàn bộ rồi."
 
-Từ Mạn Mạn nhẹ gật đầu, bắt đầu hồi phục.
+"Là đợt tăng giá đã kết thúc thật rồi, hay chỉ là cú giảm điều chỉnh tạm thời thôi? Liệu có cơ hội bật tăng trở lại không?" Từ Mạn Mạn hỏi dồn.
 
-Man thương thương: ngươi trước gọi mẹ ngươi đem cổ phiếu bán, đừng chết trông coi chờ giải bộ.
+"Ai mà biết được?"
 
-Trạch thiếu: Mạn Mạn, nhà ta có thể muốn phá sản.
+Thẩm Tử Ngôn trả lời với vẻ mặt vô cùng thoải mái: "Mấy hôm nay bố mình vẫn còn ôm mộng bắt đáy kiếm lời kìa, mình phải dặn mẹ quản chặt tiền của công ty, còn gọi điện mắng bố một trận, bảo ông đừng có làm mấy trò không đâu nữa."
 
-Man thương thương: đừng hoảng hốt, công ty tại, đừng nghĩ kiếm lời nhanh tiền.
+Từ Mạn Mạn khẽ gật đầu, bắt đầu gõ phím trả lời tin nhắn.
 
-Trạch thiếu: Mạn Mạn, nhà ta nếu là phá sản, ngươi sẽ không không quan tâm ta đi, (đáng thương).
+*Mạn Đau Đau:* "Anh bảo bác gái bán hết cổ phiếu đi, đừng có cố chấp ôm mãi chờ ngày về bờ."
 
-Nhìn xem tin tức, Từ Mạn Mạn có chút bất đắc dĩ, lúc này trần trạch còn dạng này.....
+*Thiếu Gia Trạch:* "Mạn Mạn, nhà anh có khi sắp phá sản thật rồi."
 
-Man thương thương: ngươi trước gọi mẹ ngươi đem cổ phiếu vứt ra, tiếp đó nghe ngươi lời của mẹ, dùng tiền tiết kiệm một chút, thiếu nhường ngươi mẹ lo lắng.
+*Mạn Đau Đau:* "Đừng có hoảng, nhà xưởng công ty vẫn còn đó, đừng bao giờ nghĩ đến chuyện kiếm tiền nhanh."
 
-Man thương thương: ta cùng ngươi đi tinh sa của công việc
+*Thiếu Gia Trạch:* "Mạn Mạn, nếu nhà anh phá sản thật, em sẽ không bỏ rơi anh chứ? (Mặt đáng thương)."
+
+Nhìn dòng tin nhắn hiện lên, Từ Mạn Mạn cảm thấy có chút bất lực, đến nước này rồi mà Trần Trạch vẫn còn tâm trạng nói mấy câu bông đùa như thế...
+
+*Mạn Đau Đau:* "Trước tiên anh cứ giục mẹ bán hết cổ phiếu đi đã, rồi ngoan ngoãn nghe lời mẹ, chi tiêu tiết kiệm lại, bớt để mẹ phải bận lòng."
+
+*Mạn Đau Đau:* "Sáng mai em đi cùng anh xuống xưởng ở Tinh Sa."

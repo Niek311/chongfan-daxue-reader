@@ -1,207 +1,209 @@
-# Chương 74: Hai Bức Thư Tình
+# Chương 74: Hai bức thư tình
 
-"Kim An, tối qua cậu ngủ ở khách sạn à..."
+> **Tiêu đề gốc**: 第74章 两封情书。
 
-Trần Trạch nói, giọng điệu có chút hâm mộ, hắn đã nhìn rõ dung nhan của Tô Miền.
+"Kim An tối qua ngủ lại khách sạn..."
 
-Mấy người im lặng trong giây lát.
+Trần Trạch buột miệng nói, trong lòng còn có chút ghen tị thầm kín, bởi anh ta đã nhìn rõ diện mạo tuyệt mỹ của Tô Miến.
 
-Mộc Dao nắm chặt nắm tay nhỏ: "Vậy tối nay Kim An còn phải đến khách sạn nữa không?"
+Mấy người xung quanh im bặt trong giây lát.
 
-Nhìn thấy Triệu Kim An hầu hạ người phụ nữ khác, Mộc Dao có cảm giác như bạn trai mình đang ngoại tình.
+Mộc Dao siết chặt nắm tay nhỏ nhắn: "Thế tối nay Kim An có phải tới khách sạn nữa không?"
 
-Không ai lên tiếng.
+Nhìn thấy Triệu Kim An đi phục vụ người phụ nữ khác, trong lòng Mộc Dao dâng lên cảm giác như bạn trai mình đang lăng nhăng vậy.
 
-Từ Mạn Mạn ngồi thẳng lưng nhìn về phía hàng ghế trước, nàng là người ít có "tư cách" nhất, bản thân nàng đã có bạn trai, nhưng trong lòng lại mong đợi Triệu Kim An có thể luôn "giữ mình trong sạch".
+Không ai dám lên tiếng đáp lời.
 
-Chính nàng cũng không nói rõ được tâm lý này là gì.
+Từ Mạn Mạn ngồi thẳng lưng dõi mắt nhìn về hàng ghế đầu. Cô là người ít có "tư cách" lên tiếng nhất ở đây, bản thân đã có bạn trai nhưng trong lòng lại thầm mong mỏi Triệu Kim An có thể mãi mãi "giữ mình trong sạch".
 
-May mà chỉ nửa giờ sau Tô Miền đã rời đi, Ngô Hiểu nghe một cuộc điện thoại, Triệu Kim An đẩy xe lăn, hiệu trưởng Cung và mấy vị phó hiệu trưởng cũng đi theo ra cửa.
+Đến chính bản thân cô cũng không lý giải nổi tâm lý phức tạp này của mình.
 
-Triệu Kim An để Ngô Hiểu tiếp quản xe lăn, Tô Miền không nói gì.
+May sao chỉ chừng nửa tiếng sau Tô Miến đã rời đi. Ngô Hiểu nhận được một cuộc điện thoại, Triệu Kim An đẩy xe lăn đưa cô ra ngoài, Hiệu trưởng Cung cùng vài vị Phó Hiệu trưởng cũng vội vã tiễn chân ra tận cửa.
 
-Cách nhà thi đấu không xa có một chiếc Audi màu đen đang đậu, mấy vị hiệu trưởng đứng bên xe hàn huyên với một người đàn ông, Triệu Kim An biết người đó chính là anh trai thứ hai của Tô Miền, Tô Cảnh Hành.
+Triệu Kim An nhường tay đẩy xe lăn lại cho Ngô Hiểu, Tô Miến không nói gì thêm.
 
-Cũng giống như lúc ở bên bờ sông Tương Giang, Triệu Kim An không dừng lại lâu mà xoay người rời đi.
+Cách nhà thi đấu không xa có một chiếc xe Audi màu đen đang đỗ sẵn, mấy vị hiệu trưởng đứng cạnh xe rôm rả trò chuyện, bắt tay với người bên trong. Triệu Kim An thừa biết người đàn ông đó chính là anh hai của Tô Miến - Tô Cảnh Hành.
 
-Tô Cảnh Hành liếc nhìn về phía này thêm vài lần.
+Cũng giống như lần ở bờ sông Tương Giang, Triệu Kim An không hề nán lại nửa bước, dứt khoát quay người rời đi.
 
-"Không lên đây bắt chuyện sao?"
+Tô Cảnh Hành đưa mắt nhìn theo bóng lưng anh nhiều hơn vài lần.
 
-Tô Cảnh Hành thấy hơi lạ.
+"Không thèm lại đây bắt quàng làm họ sao?"
 
-Sẽ có người nói Triệu Kim An không biết trân trọng cơ hội, đó là Thị trưởng thành phố Quận Sa đấy, nhưng những người đó đều tự cho mình là thông minh nhất, còn người khác đều ngốc, không biết mưu đồ của mình.
+Tô Cảnh Hành có phần ngạc nhiên.
 
-Đi chưa được bao xa, Mộc Dao đã đuổi theo, phía sau là Thẩm Tử Ngôn và Diêu Tân.
+Sẽ có người trách Triệu Kim An không biết nắm bắt cơ hội ngàn vàng, trước mặt là Thị trưởng thành phố Quận Sa cơ mà. Thế nhưng những kẻ nghĩ vậy đều tự cho mình là thông minh nhất thiên hạ, coi người khác là kẻ ngốc chẳng biết toan tính của mình là gì.
 
-Duy chỉ thiếu Từ Mạn Mạn.
+Đi chưa được bao xa, Mộc Dao đã vội vã chạy theo gọi giật lại, theo sau là Thẩm Tử Ngôn và Diêu Sân.
 
-"Kim An, anh còn phải đến khách sạn nữa không?" Mộc Dao gọi to.
+Duy chỉ thiếu vắng Từ Mạn Mạn.
 
-Đã bế Tô Miền bao nhiêu lần rồi, Triệu Kim An quay đầu nhìn Mộc Dao, lắc đầu nói: "Không đi nữa."
+"Kim An, cậu có phải tới khách sạn nữa không?" Mộc Dao cất tiếng gọi.
 
-Hai ngày sau, Ngô Hiểu gọi điện tới, tay xách mấy túi quần áo, không biết nhãn hiệu gì nhưng sờ vào chất liệu chắc chắn không rẻ, không phải loại vải polyester.
+Đã bế Tô Miến biết bao nhiêu lần, Triệu Kim An xoay người nhìn Mộc Dao, lắc đầu bảo: "Không đi nữa đâu."
 
-Tô Miền nói "Tôi mua cho cậu" là thật sự mua.
+Hai ngày sau, Ngô Hiểu gọi điện thoại hẹn gặp, trên tay xách theo mấy túi quần áo lớn. Chẳng rõ là nhãn hiệu gì, nhưng sờ vào chất vải là biết ngay đắt tiền, tuyệt đối không phải loại sợi polyester rẻ tiền.
 
-Triệu Kim An xách quần áo hỏi: "Nàng đâu rồi?"
+Tô Miến bảo "tôi mua cho cậu" là thực sự bỏ tiền ra mua.
 
-Ngô Hiểu bảo Tô Miền đã về Kinh Đô, Tô Minh Tùng nhất định bắt nàng quay về, Tô Cảnh Hành xin nghỉ phép đưa em gái ra sân bay, chị dâu Phùng Nhược Đan cũng cùng về Kinh Đô.
+Triệu Kim An xách mấy túi đồ lên hỏi: "Cô ấy đâu rồi?"
 
-Triệu Kim An cười.
+Ngô Hiểu bảo Tô Miến đã bay về Kinh Đô rồi, ông cụ Tô Minh Tùng nhất quyết bắt cô phải về. Tô Cảnh Hành xin nghỉ phép để đích thân đưa em gái ra sân bay, còn chị dâu Phùng Nhược Đan tháp tùng cùng về Kinh Đô.
 
-Người phụ nữ này thật sự là tùy hứng!
+Triệu Kim An bật cười.
 
-Trở về ký túc xá, Vu Tu Nhiên đích thân mang tới mấy tờ phiếu ăn miễn phí và 60 tệ, tính là tiền công ba ngày, Trưởng bộ phận Vu còn nán lại phòng 303 một lát.
+Người phụ nữ này quả thực quá đỗi tùy hứng!
 
-Vương Duy Đào cũng ở đó, dù sao chỉ cần Triệu Kim An ở ký túc xá thì hắn cũng sẽ ở phòng 303.
+Trở về ký túc xá, đích thân Vu Tu Nhiên mang sang mấy phiếu ăn miễn phí cùng 60 tệ tiền mặt, tính đủ tiền thù lao cho ba ngày công. Trưởng ban Vu còn nán lại phòng 303 một lát.
 
-Thấy Vu Tu Nhiên là Trưởng bộ phận Tổ chức của Hội sinh viên, Trần Trạch không biết lại móc từ đâu ra một bao Hòa Thiên Hạ.
+Vương Duy Đào cũng đang có mặt ở đó, cậu ta hễ thấy Triệu Kim An ở phòng là y như rằng tót sang 303 chơi.
 
-"Trưởng bộ phận Vu, việc kiểm tra phòng của ký túc xá chúng tôi..."
+Thấy Vu Tu Nhiên là Trưởng ban Tổ chức Hội Sinh viên trường, Trần Trạch chẳng biết lôi từ đâu ra một bao thuốc lá Hòa Thiên Hạ sang xịn.
 
-Lưu Sấm Phong sờ soạn hồi lâu chẳng có gì, cũng dày mặt lên bắt chuyện: "Trưởng bộ phận Vu, tôi là Lưu Sấm Phong ở Ban Đối ngoại của Học viện Thương mại, sau này mong anh nâng đỡ nhiều hơn..."
+"Trưởng ban Vu, chuyện kiểm tra phòng ký túc xá bên em..."
 
-Có lẽ thấy Trần Trạch hối lộ trưởng bộ phận Thể dục, tư tưởng của Lưu Sấm Phong cũng đang lặng lẽ thay đổi.
+Lưu Sấm Phong sờ soạng túi áo túi quần nửa ngày trời chẳng có gì, cũng muối mặt sấn lại gần bắt quàng làm họ: "Trưởng ban Vu, em là Lưu Sấm Phong bên Ban Đối ngoại của Học viện Thương mại, sau này mong anh nâng đỡ chiếu cố nhiều hơn..."
 
-Vu Tu Nhiên liếc nhìn chìa khóa xe BMW trên bàn của Trần Trạch, vỗ vỗ vai Triệu Kim An: "Ký túc xá của các cậu đúng là... ngọa hổ tàng long."
+Có lẽ sau khi tận mắt chứng kiến Trần Trạch đút lót thuốc lá cho Trưởng ban Thể dục thể thao, tư tưởng của Lưu Sấm Phong cũng đã âm thầm thay đổi.
 
-Hắn nói với Lưu Sấm Phong rằng mình đã từ chức ở Hội sinh viên, lại thì thầm với Triệu Kim An rằng nếu cậu muốn vào Hội sinh viên, tôi có thể giới thiệu vài người để làm quen.
+Vu Tu Nhiên liếc nhìn chùm chìa khóa xe BMW đặt trên bàn của Trần Trạch, rồi vỗ vỗ vai Triệu Kim An: "Phòng ký túc xá của các chú mày quả đúng là... ngọa hổ tàng long."
 
-Cuối cùng lại nói nếu cậu đã có lời của Tô nhiệm Tô... thì không cần đến tôi.
+Anh ta nói với Lưu Sấm Phong rằng mình đã nộp đơn xin từ chức ở Hội Sinh viên rồi, sau đó lại ghé tai thì thầm với Triệu Kim An: "Nếu chú mày muốn vào Hội Sinh viên, anh có thể giới thiệu cho vài mối quan hệ."
 
-Nếu không ở lại trường làm việc thì Vu Tu Nhiên sắp phải rời trường rồi.
+Đoạn, anh ta lại bồi thêm một câu: "Nhưng có hậu thuẫn của Tô Chủ nhiệm thì... chú mày đâu cần đến anh giúp."
 
-Nếu không phải trùng hợp gặp lễ kỷ niệm 70 năm thành lập trường, Hội sinh viên đã sớm cải tổ.
+Nếu không được giữ lại trường công tác thì Vu Tu Nhiên cũng sắp sửa rời trường đi làm rồi.
 
-Mấy người đi tới nhà ăn, Triệu Kim An dùng phiếu ăn miễn phí của trường đổi mấy cái đùi gà, Lưu Sấm Phong không nỡ dùng, Trần Trạch bảo hắn keo kiệt.
+Nếu không phải đúng vào dịp kỷ niệm 70 năm thành lập trường thì Hội Sinh viên đã sớm được cải tổ, bàn giao thế hệ mới từ lâu.
 
-Cốc Siêu Thừa nói: "Lớp trưởng bây giờ đã sa sút đến mức ngày nào cũng gặm bánh bao rồi."
+Mấy cậu con trai kéo nhau xuống nhà ăn, Triệu Kim An dùng phiếu ăn miễn phí của trường đổi lấy mấy chiếc đùi gà. Lưu Sấm Phong tiếc của không nỡ xài, bị Trần Trạch mắng là đồ bủn xỉn ki bo.
 
-Vương Duy Đào rất biết cách làm người, đi mua mấy cốc sữa đậu nành, hỏi: "Có chuyện gì thế?"
+Cốc Siêu Thừa nói chen vào: "Trưởng phòng của chúng ta giờ đã rơi vào cảnh ngày nào cũng phải gặm bánh bao chay sống qua ngày rồi."
 
-Triệu Kim An cũng thấy lạ: "Bây giờ chẳng phải đầu tháng sao? Sao đã hết tiền rồi?"
+Vương Duy Đào rất biết điều, cậu ta đi mua mấy cốc sữa đậu nành mang lại, tò mò hỏi: "Có chuyện gì thế?"
 
-Ai cũng biết chuyện gặm bánh bao ăn mì tôm thường xảy ra vào giữa tháng và cuối tháng, đầu tháng là lúc sinh viên đại học có tiền nhất.
+Triệu Kim An cũng lấy làm lạ: "Bây giờ mới là đầu tháng cơ mà? Sao đã hết sạch tiền rồi?"
 
-Lưu Sấm Phong lắp bắp nói: "Tiền cước điện thoại vượt mức rồi."
+Ai cũng biết cảnh gặm bánh bao chay hay ăn mì tôm thường chỉ diễn ra vào giữa tháng hoặc cuối tháng, còn đầu tháng là lúc sinh viên rủng rỉnh tiền bạc nhất.
 
-"Mày gọi điện cho ai?"
+Lưu Sấm Phong ấp úng lí nhí: "Tiền cước điện thoại vượt định mức rồi."
 
-Vương Duy Đào gặm đùi gà: "Mày đã có bạn trai bạn gái gì đâu, vả lại Lâm Thanh Tuyết đang ở ngay trong trường mà."
+"Mày gọi điện cho ai mà dữ vậy?"
 
-"Không phải gọi điện thoại, là gửi tin nhắn."
+Vương Duy Đào vừa gặm đùi gà vừa hỏi: "Mày làm gì có bạn gái, vả lại Lâm Thanh Tuyết cũng ở ngay trong trường mà."
 
-Triệu Kim An hiểu ra.
+"Không phải gọi điện thoại, mà là gửi tin nhắn."
 
-Mỗi tối màn hình điện thoại của Lưu Sấm Phong đều sáng rất muộn, hắn không có máy tính nên chỉ có thể gửi tin nhắn, gói tin nhắn cũng tốn tiền, vượt quá gói cước là 1 hào một tin.
+Triệu Kim An hiểu ra ngay.
 
-Đừng coi thường 1 hào một tin, một tháng tích lũy lại cũng mất mấy chục tệ.
+Mỗi buổi tối màn hình điện thoại của Lưu Sấm Phong đều sáng đèn tới tận khuya. Cậu ta không có máy tính nên chỉ có thể cắm cúi nhắn tin. Gói cước tin nhắn cũng tốn tiền, một khi đã vượt quá gói ưu đãi thì cứ 1 hào một tin nhắn.
 
-Lúc sến súa lên, một tháng gửi cả nghìn tin nhắn cũng là chuyện có thể.
+Đừng có coi thường 1 hào mỗi tin, tích cóp một tháng cũng lên tới cả mấy chục tệ.
 
-Phải biết rằng sinh viên đại học hiện nay, nhiều người một tháng chỉ có 3, 4 trăm tệ tiền sinh hoạt, nuôi một chiếc điện thoại đã mất đi một phần ba.
+Một khi đã quấn quýt nhắn tin qua lại thì một tháng gửi cả nghìn tin nhắn là chuyện bình thường.
 
-Kiếp trước lúc Triệu Kim An và Mộc Dao sến nhất, một tháng gửi hơn 1.000 tin nhắn, tiền điện thoại tháng đó lên tới 190 tệ, lúc ấy hắn xót đứt ruột.
+Phải biết rằng sinh viên thời điểm năm 2006, rất nhiều người một tháng chỉ có từ ba đến bốn trăm tệ tiền sinh hoạt phí, nuôi một chiếc điện thoại đã ngốn đứt một phần ba số tiền đó rồi.
 
-Chỉ là không biết Lưu Sấm Phong đang nhắn với ai, Lâm Thanh Tuyết mà lại thèm đoái hoài tới hắn sao?
+Kiếp trước, hồi Triệu Kim An và Mộc Dao mặn nồng quấn quýt nhất, một tháng gửi tới hơn một nghìn tin nhắn, tiền cước tháng đó vọt lên tới 190 tệ, lúc ấy xót ruột đến thắt cả lòng.
 
-Trên đường về ký túc xá, Lưu Sấm Phong mới nói ra sự thật, hóa ra hắn không phải là "lốp dự phòng" bình thường, hắn đang nhắn tin cùng lúc với cả ba người Lâm Thanh Tuyết, Thẩm Tử Ngôn và Lý Ngải Lan.
+Chỉ là không biết Lưu Sấm Phong đang nhắn tin với ai, chẳng lẽ Lâm Thanh Tuyết lại chịu khó tiếp chuyện cậu ta như thế?
 
-Vương Duy Đào châm chọc: "Phó lớp trưởng, mày cứ tiếp tục gặm bánh bao đi."
+Trên đường quay về ký túc xá, Lưu Sấm Phong mới chịu khai thật. Hóa ra cậu ta không phải là một kẻ "liếm cẩu" đơn thuần, mà là đang cùng lúc tán tỉnh, nhắn tin qua lại với cả ba cô nàng: Lâm Thanh Tuyết, Thẩm Tử Ngôn và Lý Ngải Lan.
 
-Triệu Kim An cũng sững sờ.
+Vương Duy Đào châm chọc: "Lớp phó ơi là lớp phó, mày cứ việc tiếp tục gặm bánh bao chay đi nhé."
 
-Theo đuổi một người là kẻ lụy tình, theo đuổi một trăm người chính là chiến thần mà.
+Triệu Kim An cũng phải kinh ngạc trợn tròn mắt.
 
-Lưu Sấm Phong cảm thấy Trần Trạch có kinh nghiệm, liền hỏi: "Trạch ca, tôi với Lâm Thanh Tuyết chỉ còn thiếu một chút nữa thôi, anh nói xem tiếp theo tôi nên theo đuổi Lâm Thanh Tuyết thế nào?"
+Bám riết cung phụng một người thì bị coi là liếm cẩu hèn mọn, chứ cung phụng rải thính một lúc cả trăm người thì chính là sói chiến dũng mãnh rồi.
 
-Trần Trạch nói: "Cái này đơn giản, mày cứ dẫn cô ấy đi chơi, tặng quà cho cô ấy."
+Lưu Sấm Phong nghĩ Trần Trạch là người có nhiều kinh nghiệm tình trường nhất bèn quay sang hỏi: "Trạch ca, em với Lâm Thanh Tuyết chỉ còn thiếu một chút xíu nữa thôi, anh bảo bước tiếp theo em nên theo đuổi cô ấy thế nào?"
 
-"Thế chẳng phải là tốn tiền sao?"
+Trần Trạch bảo: "Cái này dễ ợt, mày cứ dắt cô ấy đi chơi bời, mua quà cáp đắt tiền tặng cho cô ấy."
 
-Lưu Sấm Phong cảm thấy kinh nghiệm của Trần Trạch không có giá trị tham khảo, Triệu Kim An và hắn cũng xấp xỉ nhau, bạn gái cũ lại là mỹ nhân như Mộc Dao, liền hỏi Triệu Kim An: "Kim An, ông thấy sao?"
+"Thế thì chẳng phải là tốn tiền à?"
 
-Triệu Kim An đẩy Vương Duy Đào ra, suy nghĩ một chút rồi hỏi: "Ông muốn yêu đương, hay là muốn sở hữu cô ấy?"
+Lưu Sấm Phong thấy kinh nghiệm của công tử lắm tiền như Trần Trạch chẳng có giá trị tham khảo gì với mình. Triệu Kim An có hoàn cảnh xuất thân tương tự mình mà bạn gái cũ lại là mỹ nhân tầm cỡ như Mộc Dao, cậu ta liền quay sang thỉnh giáo: "Kim An, theo cậu thì sao?"
 
-Đây là câu hỏi gì vậy?
+Triệu Kim An đẩy Vương Duy Đào đang ghé sát ra, ngẫm nghĩ một chút rồi hỏi: "Cậu chỉ muốn yêu đương hẹn hò, hay là muốn sở hữu trọn vẹn người ta?"
 
-Hai cái đó có gì khác nhau không?
+Câu hỏi kiểu quái gì thế này?
 
-Hắn không hiểu nổi.
+Hai cái đó có gì khác biệt nhau sao?
 
-Trần Trạch và Vương Duy Đào cũng không quá hiểu, nhưng nghe có vẻ hơi thâm sâu, mang chút triết lý, xem ra Triệu Kim An cũng có bản lĩnh đấy.
+Mọi người ngơ ngác chẳng hiểu ra làm sao.
 
-Cốc Siêu Thừa càng muốn quỳ xuống nghe xem Triệu Kim An đã theo đuổi Mộc Dao như thế nào.
+Trần Trạch và Vương Duy Đào cũng không hiểu rõ lắm, nhưng nghe qua có vẻ rất cao siêu, nhuốm màu triết lý sâu xa, xem chừng Triệu Kim An quả thực có bản lĩnh giấu kín.
 
-Lưu Sấm Phong cũng càng thêm khiêm tốn, xoa tay vẻ nịnh nọt: "Chắc chắn là yêu đương, rồi kết hôn, sở hữu cô ấy rồi."
+Cốc Siêu Thừa thậm chí chỉ muốn quỳ xuống lắng nghe xem năm xưa Triệu Kim An đã tán đổ Mộc Dao bằng cách nào.
 
-Triệu Kim An nói: "Rất đơn giản, ông mua một chiếc xe giống của Trần Trạch tặng cho Lâm Thanh Tuyết, cô ấy chắc chắn sẽ rất thích."
+Lưu Sấm Phong càng thêm phần khiêm tốn, xoa xoa hai bàn tay vẻ mặt nịnh nọt: "Tất nhiên là muốn yêu đương, rồi sau đó tiến tới kết hôn, sở hữu trọn vẹn cô ấy chứ."
 
-Thế thôi á!?
+Triệu Kim An nói tỉnh queo: "Rất đơn giản, cậu cứ mua một chiếc xe giống của Trần Trạch tặng cho Lâm Thanh Tuyết, cô ấy chắc chắn sẽ thích mê."
 
-Lưu Sấm Phong suýt nữa phun ra một búng máu già, ông nói cái thứ vô nghĩa gì vậy, còn chẳng bằng Trần Trạch.
+Chỉ có thế thôi á!?
+
+Lưu Sấm Phong tức đến suýt ộc máu mồm, cậu nói thế thì bằng huề, còn chẳng bằng lời khuyên của Trần Trạch.
 
 "Phụt!"
 
-Trần Trạch và Vương Duy Đào cười sằng sặc.
+Trần Trạch và Vương Duy Đào ôm bụng cười ngặt nghẽo.
 
-Cốc Siêu Thừa đứng bật dậy: "Ông cũng đâu có tặng Mộc Dao chiếc BMW nào."
+Cốc Siêu Thừa đứng bật dậy: "Hồi trước cậu có tặng BMW cho Mộc Dao đâu nào."
 
-Lưu Sấm Phong lại tò mò hỏi: "Kim An, vậy nếu theo đuổi Thẩm Tử Ngôn thì sao?"
+Lưu Sấm Phong lại tò mò hỏi tiếp: "Kim An, thế nếu muốn theo đuổi Thẩm Tử Ngôn thì sao?"
 
-Triệu Kim An nói: "Tặng một trăm chiếc BMW series 3."
+Triệu Kim An đáp: "Tặng một trăm chiếc BMW 3-series."
 
-"Ha ha ha..."
+"Hahaha..."
 
-Không ai coi là thật, ai lại đi tặng một trăm chiếc BMW chứ, Lưu Sấm Phong còn cười nhạo Trần Trạch: "Trạch ca, anh có tặng nổi cho Từ Mạn Mạn một trăm chiếc BMW không?"
+Không một ai coi đó là lời nói thật, trên đời này làm gì có ai điên rồ đến mức tặng một trăm chiếc BMW. Lưu Sấm Phong còn quay sang trêu chọc Trần Trạch: "Trạch ca, anh có đủ sức tặng nổi Từ Mạn Mạn một trăm chiếc BMW không?"
 
-Thực ra Triệu Kim An rất nghiêm túc, không hề nói đùa, chẳng qua những chàng trai 18 tuổi như họ bây giờ nghe không hiểu, tặng một trăm chiếc BMW không phải là tặng thật sự một trăm chiếc.
+Kỳ thực Triệu Kim An nói rất nghiêm túc, không hề bông đùa nửa lời. Chỉ là những chàng trai mười tám tuổi ở thời điểm hiện tại vẫn chưa thể hiểu được: tặng một trăm chiếc BMW không phải là mang một trăm chiếc xe ra tặng theo nghĩa đen.
 
-Mà là chỉ việc có năng lực tặng một trăm chiếc BMW.
+Mà là năng lực để có thể kiếm được một trăm chiếc BMW ấy!
 
-Hoặc là tiềm lực!
+Hoặc chí ít là tiềm lực trong tương lai!
 
-Cho nên ngay từ đầu Triệu Kim An mới hỏi Lưu Sấm Phong, ông chỉ muốn yêu đương hay là muốn sở hữu cô ấy.
+Thế nên ngay từ đầu Triệu Kim An mới hỏi Lưu Sấm Phong rằng cậu chỉ muốn yêu đương chơi bời, hay muốn sở hữu trọn vẹn người ta.
 
-Không ngờ Lưu Sấm Phong lại lấy chuyện này làm "điểm đột phá" để kể cho Thẩm Tử Ngôn.
+Nào ngờ Lưu Sấm Phong lại lấy chuyện này làm "cái cớ mở đầu câu chuyện" để nhắn tin kể lại cho Thẩm Tử Ngôn nghe.
 
-Quả nhiên, Thẩm Tử Ngôn lập tức nhắn tin lại.
+Quả nhiên, Thẩm Tử Ngôn lập tức nhắn tin hồi đáp.
 
- Ai nói thế!? 
+【Ai nói thế!?】
 
-Có vẻ như nàng đang giận, Lưu Sấm Phong vội vàng giải thích: Không phải tôi, là Triệu Kim An nói, Triệu Kim An bảo theo đuổi cậu rất đơn giản, tặng cậu một trăm chiếc BMW là được.
+Trông có vẻ đang giận dữ, Lưu Sấm Phong vội vàng nhắn tin phân bua: "Không phải tớ nói đâu, là Triệu Kim An nói đấy. Cậu ấy bảo theo đuổi cậu dễ ợt, chỉ cần tặng cậu một trăm chiếc BMW là xong."
 
-Thấy Thẩm Tử Ngôn một hồi lâu không hồi âm, bộ não thông minh của Lưu Sấm Phong bắt đầu hoạt động.
+Thấy Thẩm Tử Ngôn mãi không nhắn lại, bộ não thông minh của Lưu Sấm Phong bắt đầu vận hành hết công suất.
 
-Ngón tay bay múa trên bàn phím điện thoại.
+Ngón tay thoăn thoắt gõ phím điện thoại liên hồi.
 
-Lưu Sấm Phong: Thật sự không phải tôi nói đâu, cậu làm sao có thể là loại phụ nữ ham vật chất đó được.
+Lưu Sấm Phong: "Thật sự không phải tớ nói đâu, cậu làm sao có thể là mẫu con gái thực dụng hám tiền như thế được chứ."
 
-Lưu Sấm Phong: Tử Ngôn, tôi tin tưởng cậu!
+Lưu Sấm Phong: "Tử Ngôn à, tớ luôn tin tưởng cậu!"
 
-Lưu Sấm Phong: Trần Trạch và Triệu Kim An đều bảo theo đuổi con gái cứ tốn tiền tặng quà là được, ha ha ha.
+Lưu Sấm Phong: "Trần Trạch với Triệu Kim An cứ bảo theo đuổi con gái chỉ cần vung tiền mua quà cáp là xong, đúng là buồn cười thật đấy, hahaha."
 
-Cũng phải thừa nhận Lưu Sấm Phong thông minh, tam quan của hắn mới chính trực làm sao, Triệu Kim An và Trần Trạch liền trở nên quá đỗi nông cạn, Lưu Sấm Phong rất hài lòng với mấy tin nhắn của mình.
+Cũng phải thừa nhận Lưu Sấm Phong rất biết cách tính toán, tam quan của cậu ta chính trực biết bao, so ra thì Triệu Kim An và Trần Trạch quả là quá đỗi nông cạn, thiển cận. Lưu Sấm Phong vô cùng đắc ý với mấy dòng tin nhắn mình vừa gửi đi.
 
-Thẩm Tử Ngôn lại rùng mình một cái, nổi hết cả da gà.
+Thế nhưng ở đầu dây bên kia, Thẩm Tử Ngôn lại rùng mình một cái, nổi hết cả da gà da vịt.
 
 Tử Ngôn?
 
-Nàng sợ hãi vội vàng xóa tin nhắn này đi.
+Cô sợ đến mức vội vàng bấm nút xóa ngay dòng tin nhắn kinh dị đó.
 
-"Theo đuổi tôi rất đơn giản, tặng tôi một trăm chiếc BMW?"
+"Theo đuổi mình dễ ợt, chỉ cần tặng một trăm chiếc BMW?"
 
-"Một trăm chiếc!?"
+"Một trăm chiếc cơ á!?"
 
-Nhìn tin nhắn, Thẩm Tử Ngôn không nhịn được mà bật cười.
+Nhìn dòng chữ trên màn hình, Thẩm Tử Ngôn không kìm được bật cười khúc khích.
 
-Không kết hợp với ngữ cảnh, nàng không biết Triệu Kim An đã nói ra lời như vậy trong tình huống nào.
+Không đặt trong ngữ cảnh trò chuyện cụ thể, cô không rõ Triệu Kim An đã thốt ra câu nói ấy trong hoàn cảnh và tâm thế như thế nào.
 
-Nghĩ đi nghĩ lại, Thẩm Tử Ngôn trái lại cảm thấy Triệu Kim An có chút ngây thơ và lãng mạn như trẻ con.
+Càng ngẫm nghĩ, Thẩm Tử Ngôn lại càng cảm thấy Triệu Kim An có nét ngây thơ và lãng mạn như một đứa trẻ con vậy.
 
-Đứa trẻ đem món đồ chơi mà mình cho là tốt nhất, đáng tiền nhất tặng cho cô bé mình thích, rồi nói làm bạn gái mình nhé.
+Giống như một cậu bé đem món đồ chơi mà mình cho là đẹp nhất, quý giá nhất trần đời mang tới tặng cho cô bé mình thích, rồi ngây ngô bảo: "Cậu làm bạn gái tớ nhé."
 
-Nghĩ đến đây, Thẩm Tử Ngôn liếc nhìn giường của Mộc Dao, khơi gợi chủ đề: "Dao Dao, Triệu Kim An theo đuổi cậu như thế nào, hắn tỏ tình với cậu ra sao?"
+Nghĩ đến đây, Thẩm Tử Ngôn đưa mắt nhìn sang giường của Mộc Dao, khẽ khơi mào câu chuyện: "Dao Dao này, hồi trước Triệu Kim An theo đuổi cậu thế nào, cậu ấy tỏ tình với cậu ra sao thế?"
 
-"Có hoa hồng hay là gấu bông gì không?"
+"Có tặng hoa hồng hay gấu bông gì không?"

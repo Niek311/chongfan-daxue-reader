@@ -1,249 +1,255 @@
-# Chương 102: Đáp ứng ta ngày mai không đi.
+# Chương 102: Hứa với anh ngày mai đừng đi nữa
 
-Trở lại ký túc xá Từ Mạn Mạn tắm rửa xong bò lên giường, ôm máy tính ngồi ở trên giường, nhìn thấy trần trạch của cái tin này, trong lòng của tư vị có chút nói không ra.
+> **Tiêu đề gốc**: 第102章 答应我明天不去了。
 
-Nhìn xem Q Q khung chat.
+Trở về phòng ký túc xá, Hứa Mạn Mạn tắm rửa sạch sẽ rồi leo lên giường. Cô ôm chiếc máy tính xách tay đặt trên đùi, nhìn dòng tin nhắn vừa gửi đến của Trần Trạch mà trong lòng trào dâng một cảm giác khó tả thành lời.
 
-Trần trạch của Q Q mở hội viên, đốt sáng lên ngọc xanh, hồng toản, hoàng toản, đủ loại chui.
+Cô đưa mắt nhìn khung cửa sổ trò chuyện QQ.
 
-Q Q tú của quần áo sẽ lóe lên lóe lên, bỏ tiền mua của.
+Tài khoản QQ của Trần Trạch được nâng cấp thẻ hội viên VIP sáng loáng, thắp sáng đủ mọi loại danh hiệu: Kim Cương Xanh, Kim Cương Đỏ, Kim Cương Vàng, đủ các sắc màu rực rỡ.
 
-Q Q không gian cũng hao tốn tiền, loè loẹt đủ loại cuồng huyễn khốc, ấn mở đi con mắt, người tuổi trẻ bây giờ không có không chơi Q Q dimensional; spatial, còn ưa thích treo Q Q đẳng cấp.
+Hình đại diện QQ Tú của cậu ta mặc những bộ trang phục ảo đắt tiền, lấp lánh ánh kim sa, toàn là những thứ phải nạp tiền thật vào mới mua được.
 
-Thậm chí có thể đăng nhập trang web, offline treo Q Q đẳng cấp.
+Không gian blog cá nhân QQ cũng được đầu tư không ít tiền của, bài trí đủ mọi hiệu ứng hoa hòe hoa sói, phong cách ngầu lòi thời thượng, mỗi lần nhấp chuột vào là chớp nháy đến lóa cả mắt. Giới trẻ thời nay hầu như chẳng có ai là không đắm chìm trong việc chăm chút cho blog QQ, lại còn có thú vui "treo nick" để cày cấp độ mặt trời, mặt trăng, ngôi sao.
 
-Lưu xông phong cùng đáy vực siêu nhận liền mỗi ngày mượn máy tính treo Q Q đẳng cấp.
+Thậm chí người ta còn có thể đăng nhập vào các trang web trung gian để cắm tài khoản cày cấp ngoại tuyến suốt ngày đêm.
 
-Từ Mạn Mạn lại ấn mở Triệu Kim An của Q Q ảnh chân dung, không có gì cả.
+Mấy cậu bạn như Lưu Sấm Phong và Cốc Siêu Thừa ngày nào cũng sang mượn máy tính chỉ để cắm nick cày cấp QQ như thế.
 
-Một đầu màu trắng lớn quần cộc, liền ảnh chân dung cũng là hệ thống tự định nghĩa của.
+Hứa Mạn Mạn khẽ rê chuột, nhấp vào ảnh đại diện QQ của Triệu Kim An. Nơi ấy hoàn toàn trống trơn, chẳng có lấy một thứ gì.
 
-Tư liệu trống rỗng.
+Hình đại diện chỉ là một nhân vật mặc chiếc quần đùi trắng đơn sơ mặc định sẵn của hệ thống.
 
-Q Q không gian, chưa hề nói nói, không có nhật ký, không có album ảnh, không có gì cả.
+Phần thông tin cá nhân để trắng toàn bộ.
 
-Từ Mạn Mạn không biết Triệu Kim An trước đó cũng có một nickname.
+Vào không gian blog QQ của anh, không một dòng trạng thái, không một bài nhật ký, không một album ảnh lưu niệm, trống rỗng đến lạ kỳ.
 
-Gọi truy phong thiếu niên!
+Hứa Mạn Mạn đâu biết rằng, thuở xa xưa Triệu Kim An cũng từng đặt một cái biệt danh mạng rất đỗi ngây ngô.
+
+Đó là: Thiếu Niên Đuổi Gió!
+
+...
 
 Ngày hôm sau.
 
-Từ Mạn Mạn đổi đầu quần jean, một kiện đơn giản T lo lắng, bao cũng đổi.
+Hứa Mạn Mạn đổi sang mặc một chiếc quần bò gọn gàng, khoác lên mình chiếc áo thun chữ T đơn giản, chiếc túi xách hàng hiệu cũng được cô cất kỹ ở nhà.
 
-Ngươi xách theo hương nại nhi chính xác không giống tới làm việc của.
+Dù sao thì một thân một mình xách túi Chanel đi làm việc tay chân trông thực sự quá mức kệch cỡm.
 
-Triệu Kim An không có đi phòng học, hắn cùng Triệu Bác lan đi xe buýt công ty.
+Hôm nay Triệu Kim An không ghé qua phòng học trù bị, anh cùng Triệu Bác Lan trực tiếp đến công ty xe buýt công cộng của thành phố.
 
-Không có tiền, chỉ chọn lấy mấy cái tuyến xe buýt advertising; advertizing.
+Vì ngân sách eo hẹp, hai người chỉ cẩn thận chọn lọc vài tuyến xe buýt huyết mạch để dán biển quảng cáo thân xe.
 
-Một là, mở rộng đạt đến nhiên sản phẩm.
+Thứ nhất là để quảng bá rộng rãi dòng sản phẩm nước giải khát Trăn Nhiên.
 
-Hai là, tuyên truyền tỉnh Tương Nam trường cao đẳng đạt đến nhiên ly.
+Thứ hai là để truyền thông cho giải đấu bóng rổ "Cúp Trăn Nhiên" của các trường đại học toàn tỉnh Tương Nam.
 
-Bây giờ của xe buýt thể quảng cáo tuyên truyền hiệu quả rất tốt, bọn chúng ở trong thành quay tới quay lui, đầu tiên cái kia chút cửa hàng giá rẻ lão bản liền nhìn thấy, lợi cho công ty nghiệp vụ viên chào hàng.
+Vào thời điểm này, hình thức quảng cáo trên thân xe buýt mang lại hiệu quả truyền thông cực kỳ rõ rệt. Những chuyến xe buýt chạy vòng vèo khắp mọi ngõ ngách trong nội thành, trước hết là lọt vào tầm mắt của các ông chủ tiệm tạp hóa, cửa hàng tiện lợi, từ đó tạo điều kiện vô cùng thuận lợi cho đội ngũ nhân viên kinh doanh của công ty đi chào hàng.
 
-Đánh quảng cáo, cái kia chút cửa hàng giá rẻ lão bản đã cảm thấy sẽ bán chạy điểm.
+Một khi đã thấy sản phẩm được quảng cáo rầm rộ trên xe buýt, các chủ tiệm tạp hóa sẽ có niềm tin rằng mặt hàng này sẽ dễ bán chạy hơn nhiều.
 
-Lạc cẩn chi gọi điện thoại tới nói sâm thành cũng muốn chọn mấy cái xe buýt con đường.
+Lạc Cẩn Chi gọi điện thoại từ Sâm Thành tới, đề xuất nên chọn vài tuyến xe buýt ở Sâm Thành để chạy quảng cáo tương tự.
 
-Triệu Kim An nói sâm thành liền một cái tương nam học viện, lần này là kết hợp đạt đến nhiên ly cùng một chỗ tuyên truyền.
+Triệu Kim An giải thích rằng ở Sâm Thành chỉ có duy nhất trường Học viện Tương Nam, đợt này công ty làm truyền thông là để kết hợp song hành cùng giải đấu Cúp Trăn Nhiên.
 
-Lạc cẩn chi liền nói ngươi không muốn sản phẩm của ngươi tại sâm thành vòng tới vòng lui sao, mẹ của ngươi cùng tỷ tỷ đều có thể nhìn thấy a, có hay không cảm giác thành tựu? Các nàng sau khi biết sẽ ra sao?
+Lạc Cẩn Chi liền cười trêu: "Chẳng lẽ em không muốn nhìn thấy sản phẩm do chính tay mình làm ra chạy bon bon khắp phố phường Sâm Thành hay sao? Mẹ và chị gái của em ngày ngày đều có thể nhìn thấy đấy nhé, có thấy tự hào không nào? Nếu hai người họ biết được thì sẽ nghĩ thế nào đây?"
 
-Triệu Kim An:.....
+Triệu Kim An: "..."
 
-Công ty lượng tiêu thụ đột nhiên tăng vọt, Triệu Quốc Hoa có rất trực quan cảm thụ.
+Lượng tiêu thụ của công ty bỗng nhiên tăng vọt đột biến, người cảm nhận được sự thay đổi rõ rệt và trực quan nhất chính là chú ba Triệu Quốc Hoa.
 
-6. 8 mét xe hàng lớn, 9. 6 mét xe hàng lớn, một chuyến một chuyến hướng về quận cát vận.
+Từng chuyến xe tải thùng dài sáu mét tám, chín mét sáu chở đầy ắp hàng hóa nườm nượp nối đuôi nhau lăn bánh vận chuyển lên Quận Sa.
 
-Triệu Bác lan mỗi ngày nhận được tiền hàng cũng đột nhiên bạo tăng, không phải bán đi rồi, là kết hợp 4 ngàn 8 đài lãnh tàng quỹ của tiền hàng.
+Số tiền thanh toán tiền hàng mà Triệu Bác Lan thu về mỗi ngày cũng tăng vọt với tốc độ chóng mặt. Đó chưa hẳn là toàn bộ tiền bán lẻ ra thị trường, mà chủ yếu là tiền hàng thu kèm theo bốn ngàn tám trăm chiếc tủ mát bảo quản.
 
-Khó mà nói lợi nhuận.
+Lúc này tạm thời chưa tính đến con số lợi nhuận ròng.
 
-Ngược lại công ty vốn lưu động có rồi.
+Nhưng chí ít, dòng tiền lưu động của công ty đã bắt đầu dồi dào và thông suốt.
 
-Đương nhiên, lượng tiêu thụ khẳng định có chỗ dâng lên, lên mã đại học thành của sinh viên muốn mua mà nói chọn nếm thử một chút đạt đến nhiên.
+Tất nhiên, sản lượng tiêu thụ thực tế chắc chắn cũng tăng trưởng theo, ít nhất là sinh viên trong khắp khu Làng Đại học hễ muốn mua nước uống là sẽ có xu hướng chọn uống thử sản phẩm của Trăn Nhiên.
 
-Triệu Quốc Hoa chỉ là dây chuyền sản xuất của một thành viên, tới xe hàng lớn sẽ chủ động cướp chuyển hàng.
+Triệu Quốc Hoa vốn chỉ là một công nhân bình thường trên dây chuyền sản xuất, nhưng hễ cứ có xe tải lớn ghé vào xưởng là ông lại chủ động xông xáo tranh phần bốc vác hàng hóa lên xe.
 
-Hắn biết chất tử tại quận cát.
+Ông biết rõ cháu trai mình đang dốc sức bươn chải trên Quận Sa.
 
-Lạc cẩn chi bắt đầu còn có chút lo lắng, suy nghĩ cùng lắm thì một tháng phát Triệu Quốc Hoa chút tiền lương, người khác tới hay không cũng không đáng kể.
+Ban đầu Lạc Cẩn Chi còn có chút băn khoăn lo ngại, thầm nghĩ cùng lắm thì mỗi tháng cứ trích ra ít tiền phát lương cho Triệu Quốc Hoa, ông có đi làm đều đặn hay không cũng chẳng thành vấn đề.
 
-Nãi nãi cùng vương kim như cho là Triệu Quốc Hoa tại tư cách tinh tiền lương không cao.
+Bà nội và dì Vương Kim Như ở quê cứ đinh ninh rằng mức lương của Triệu Quốc Hoa khi làm việc ở Tư Tinh chắc cũng chẳng được bao nhiêu.
 
-Lạc cẩn chi cho Triệu Quốc Hoa mở hai ngàn.
+Nào ngờ Lạc Cẩn Chi đã chủ động định mức lương cho Triệu Quốc Hoa lên tới hai ngàn tệ mỗi tháng.
 
-Cứ như vậy so Triệu Quốc Hoa tại Dương Thành đi làm, tiền lương còn cao điểm.
+Mức thu nhập này tính ra còn cao hơn hẳn so với hồi ông lặn lội đi làm thuê vất vả tận Dương Thành.
 
-2 0 0 7 năm nói như thế nào đây.
+Nói sao nhỉ, vào những năm 2006 - 2007 này, mức lương hai ngàn tệ ở một huyện lỵ nhỏ như Tư Tinh đã thuộc hàng trung lưu khá giả, còn chạm ngưỡng ba ngàn tệ thì đã ngang ngửa với giới trí thức cổ cồn trắng ngồi phòng máy lạnh rồi.
 
-Hai ngàn của tiền lương tại tư cách tinh thuộc về trung thượng tiêu chuẩn đi, 3 ngàn chính là ngồi phòng làm việc của bạch lĩnh giai tầng rồi.
+Lưu Xuyên sau khi nhận được đơn đặt hàng khổng lồ lên tới năm mươi ngàn chiếc tủ mát bảo quản, liền âm thầm bắt xe lên Quận Sa "thị sát" tình hình thực tế suốt một ngày trời. Sau khi tận mắt chứng kiến, ông ta lập tức hối hả trở về nhà máy, mở thêm dây chuyền sản xuất mới, đốc thúc công nhân tăng ca tăng kíp ngày đêm để kịp tiến độ giao hàng.
 
-Lưu xuyên tiếp vào 5 vạn đài đơn đặt hàng, lặng lẽ chạy tới quận cát"khảo sát"rồi một ngày, tiếp đó đi trở về, lập tức tăng thêm dây chuyền sản xuất, tăng giờ làm việc của đẩy nhanh tốc độ.
+"Phen này thì phát tài to thật rồi!"
 
-"muốn phát tài a."
+Lưu Xuyên thậm chí không dám tưởng tượng nổi, nếu mô hình kinh doanh này được nhân rộng và phủ sóng khắp cả nước, thì thị trường sẽ cần đến bao nhiêu vạn chiếc tủ mát nữa đây.
 
-Lưu xuyên không dám nghĩ, loại mô thức này mở rộng cả nước cần bao nhiêu đài.
+Hai bên đã đặt bút ký kết hợp đồng chặt chẽ.
 
-Song phương ký hợp đồng.
+Bên cậu chỉ cần thanh toán trước ba mươi phần trăm tiền đặt cọc, đổi lại sau này hễ mở rộng thêm thì bắt buộc phải ưu tiên thu mua tủ mát do chính xưởng của tôi sản xuất.
 
-Ngươi chỉ giao 3 thành tiền đặt cọc, vậy sau này liền muốn ưu tiên mua sắm nhà ta sản xuất.
+...
 
-Hôm nay trở lại văn phòng, Triệu Bác lan gõ cửa đi vào.
+Chiều hôm ấy, khi Triệu Kim An vừa trở về văn phòng, Triệu Bác Lan liền gõ cửa bước vào.
 
-"Kim An, ta tìm công ty làm của tuyên truyền vật liệu, có cái gọi thẩm tử nói của nói hình ảnh không phải rất dễ nhìn, nói nặng nề nhất mới thiết kế."
+"Kim An này, mấy ấn phẩm truyền thông đợt trước chú thuê công ty thiết kế làm, có một cô bé tên là Thẩm Tử Ngôn bảo hình ảnh trông chưa được bắt mắt lắm, khuyên chúng ta tốt nhất nên thiết kế lại toàn bộ."
 
-"thẩm tử nói?"
+"Thẩm Tử Ngôn ư?"
 
-"ân, một cái người tình nguyện."
+"Ừ, một bạn tình nguyện viên bên phòng chuẩn bị."
 
-"....."
+"..."
 
-Triệu Kim An thế mới biết thẩm tử nói cũng tới, hắn ấn mở Triệu Bác lan phát tới hình ảnh, nói:"vậy ngươi liền để nàng đi cái kia in ấn công ty, nếu như nàng có thể lấy ra tốt hơn liền dùng nàng."
+Đến lúc này Triệu Kim An mới hay tin Thẩm Tử Ngôn cũng đã tham gia vào đội ngũ tình nguyện viên. Anh mở tập tin hình ảnh do Triệu Bác Lan gửi qua máy tính lên xem, rồi bảo: "Vậy chú cứ bảo cô ấy trực tiếp đến làm việc với công ty in ấn đó đi. Nếu cô ấy có thể đưa ra được bản thiết kế đẹp hơn thì chúng ta sẽ dùng bản của cô ấy."
 
-"ngươi bộ này trước tiên giữ lại."
+"Còn bộ thiết kế cũ này của chú tạm thời cứ giữ lại làm phương án dự phòng."
 
-Thẩm tử nói thật đi in ấn công ty, sau một ngày phát tới tuyên truyền vật liệu của hình ảnh.
+Thẩm Tử Ngôn quả thực đã đích thân lặn lội đến tận xưởng in ấn. Một ngày sau, cô gửi toàn bộ các mẫu thiết kế ấn phẩm mới qua.
 
-Tại Q Q bên trên hỏi Triệu Kim An: Triệu Kim An, những thứ này có thể chứ?
+Cô nhắn tin hỏi Triệu Kim An qua QQ: [Triệu Kim An, những mẫu này cậu thấy đã ổn chưa?]
 
-Thẩm tử nói: nơi nào không hài lòng, ta ngay tại in ấn công ty có thể cùng bọn hắn câu thông.
+Thẩm Tử Ngôn: [Chỗ nào chưa ưng ý cậu cứ bảo, tớ đang đứng trực tiếp tại xưởng in để trao đổi với thợ thiết kế.]
 
-Triệu Kim An từng tờ từng tờ nhìn, chính xác so Triệu Bác lan gửi tới càng thanh xuân, càng dán vào chủ đề.
+Triệu Kim An mở từng bức ảnh lên xem xét thật kỹ lưỡng. Quả nhiên, những mẫu này mang đậm hơi thở thanh xuân tươi trẻ, bố cục hiện đại và bám sát chủ đề giải đấu hơn hẳn so với những bản thiết kế thô cứng trước đó của Triệu Bác Lan.
 
-Triệu Kim An: có thể.
+Triệu Kim An: [Rất tốt, duyệt bản này đi.]
 
-Thẩm tử nói: vậy ta bây giờ gọi bọn hắn in ấn rồi?
+Thẩm Tử Ngôn: [Vậy bây giờ tớ bảo thợ cho chạy máy in hàng loạt luôn nhé?]
 
-Triệu Kim An: hảo.
+Triệu Kim An: [Được.]
 
-Thẩm tử nói phát tới cái khuôn mặt tươi cười, đối với in ấn người của công ty nói:"cứ như vậy, các ngươi ấn."
+Thẩm Tử Ngôn gửi kèm một biểu tượng mặt cười rạng rỡ, rồi quay sang dõng dạc bảo với nhân viên nhà xưởng: "Cứ theo đúng mẫu này, các anh cho in ngay đi ạ."
 
-Nàng rất hưởng thụ, Triệu Kim An rất tín nhiệm chính mình, có loại cùng Triệu Kim An kề vai chiến đấu của cảm giác.
+Trong lòng cô dâng lên một cảm giác vô cùng thỏa mãn. Triệu Kim An đặt trọn niềm tin nơi cô, khiến cô cảm thấy như mình đang được kề vai sát cánh chiến đấu cùng anh trên một mặt trận.
 
-Càng phần lớn là cảm giác thành tựu.
+Nhưng quan trọng hơn cả chính là cảm giác thành tựu.
 
-Thẩm tử nói là sự nghiệp modal nữ sinh, nàng đối với công ty bây giờ trị giá bao nhiêu tiền không quá chú ý,"chứng kiến"đạt đến nhiên từng bước từng bước trưởng thành mới khiến cho nàng càng có thành tựu cảm giác.
+Thẩm Tử Ngôn vốn là mẫu con gái của sự nghiệp. Cô không quá bận tâm xem hiện tại công ty này đáng giá bao nhiêu tiền, mà chính việc được tận mắt "chứng kiến" Trăn Nhiên từng bước một vươn mình lớn dậy mới là thứ mang lại cho cô niềm hân hoan to lớn nhất.
 
-Tỉnh Tương Nam của trường cao đẳng, đột nhiên nhiều rất nhiều chơi bóng rổ của, bọn hắn đang luyện tập rèn luyện.
+Khắp các sân bóng rổ trong khuôn viên các trường đại học tỉnh Tương Nam bỗng chốc trở nên đông đúc, nhộn nhịp lạ thường. Từng tốp sinh viên hăng say luyện tập, phối hợp chiến thuật.
 
-Có khi cũng bởi vì cướp sân bóng rổ mà phát sinh chút ít ma sát.
+Thậm chí đôi lúc còn xảy ra vài vụ va chạm, cãi vã nhỏ chỉ vì tranh giành sân tập.
 
-Triệu Bác lan nói sâm thành của tương nam học viện còn có mấy chi đội ngũ báo danh.
+Triệu Bác Lan thông báo rằng bên trường Học viện Tương Nam ở tận Sâm Thành cũng có mấy đội bóng gửi đơn đăng ký tham gia.
 
-Công ty không bao ăn ngủ cùng tiền xe, vùng khác sinh viên báo danh ít hơn rất nhiều, chủ yếu là dài gốc đầm địa khu trường cao đẳng.
+Vì công ty không hỗ trợ chi phí ăn ở và đi lại, nên lượng sinh viên ở các tỉnh thành xa xôi đăng ký ít hơn hẳn, lực lượng nòng cốt chủ yếu vẫn tập trung ở khu vực Trường Sa - Chu Châu - Tương Đàm.
 
-Lưu xông phong báo danh, cùng kế toán lớp hai mấy cái đồng học họp thành đội, chiều cao người người vượt qua 1 8 0.
+Lưu Sấm Phong cũng đã ghi danh, cậu ta lập thành một đội cùng với mấy người bạn cùng lớp Kế toán 2, người nào người nấy chiều cao đều vượt mốc một mét tám mươi.
 
-Hắn tìm được vương duy đào, lặng lẽ hỏi có hay không ngầm thao tác.
+Cậu ta lén lút tìm gặp Vương Duy Đào, ghé tai thì thầm hỏi xem có cửa nào "đi đêm" sắp xếp lịch thi đấu thuận lợi được không.
 
-Vương duy đào cho hắn cái khinh khỉnh, lăn!
+Vương Duy Đào trợn tròn mắt lườm cho một cái: "Biến ngay cho khuất mắt tao!"
 
-Kỷ niệm ngày thành lập trường lần kia, trần trạch cho học sinh sẽ thể dục bộ trưởng nhét khói đối với hắn nhân sinh quan có chút ảnh hưởng.
+Kỷ niệm đợt lễ kỷ niệm thành lập trường lần trước, cái cảnh Trần Trạch lén nhét bao thuốc lá ngoại cho Trưởng ban Thể dục Thể thao của Hội Sinh viên dường như đã làm méo mó đi phần nào nhân sinh quan của Lưu Sấm Phong.
 
-Lưu xông phong phát giác thẩm tử nói cũng tại, liền lại hỏi thẩm tử nói.
+Thấy Thẩm Tử Ngôn cũng có mặt trong phòng, Lưu Sấm Phong lại lân la sang hỏi cô.
 
-Thẩm tử nói nói cạnh tranh công bình.
+Thẩm Tử Ngôn thản nhiên đáp gọn một câu: "Thi đấu công bằng."
 
-Đáy vực siêu nhận cũng tới phòng học, hắn đột nhiên phát giác Đường Hiểu tinh giống như trở nên rất có mị lực.
+Cốc Siêu Thừa cũng tìm đến phòng học. Cậu bỗng nhiên phát hiện ra Đường Hiểu Tình dạo này dường như trở nên vô cùng cuốn hút.
 
-Đường Hiểu tinh là công ty duy nhất chính thức nhân viên, ở phòng học nhiều ít muốn quản chút chuyện, có khi muốn người chỉ huy an bài người khác.
+Đường Hiểu Tình là nhân viên chính thức duy nhất của công ty tại đây, nên trong phòng cô ít nhiều cũng phải đứng ra quản lý công việc, thỉnh thoảng còn phải phân công, chỉ đạo mọi người.
 
-Đường Hiểu tinh vốn là khuôn mặt cũng rất xinh đẹp, nho nhỏ vóc dáng, ở phòng học chạy vào chạy ra hùng hùng hổ hổ rất già dặn, đáy vực siêu nhận trong lúc nhất thời thấy có chút mê mẩn.
+Vốn dĩ Đường Hiểu Tình đã sở hữu gương mặt rất thanh tú, vóc dáng nhỏ nhắn, lúc chạy ra chạy vào lo toan công việc toát lên vẻ tháo vát, nhanh nhẹn lạ thường, khiến Cốc Siêu Thừa nhất thời nhìn đến ngẩn ngơ cả người.
 
-Từ Mạn Mạn ôm vật liệu, cùng người tình nguyện bắt đầu ở trường học treo băng biểu ngữ.
+Hứa Mạn Mạn ôm chồng ấn phẩm, cùng các bạn tình nguyện viên bắt đầu đi treo băng rôn khắp các ngả đường trong trường.
 
-Nàng không có người chỉ huy người khác, nhưng sẽ cung cấp một chút đề nghị, rất chăm chỉ.
+Cô không hề lớn tiếng chỉ huy ai, nhưng luôn ân cần đưa ra những lời góp ý hết sức hữu ích và chu đáo.
 
-Tỉ như ở đây treo, chúng ta hẳn là treo bên kia.
+Chẳng hạn như: Chỗ này đã treo rồi thì chúng ta nên dán bổ sung ở đằng kia.
 
-Kỳ thực cũng có chút giống quản sự của.
+Nhìn qua thì cô cũng chẳng khác nào một người quản lý thực thụ.
 
-Có Từ Mạn Mạn tại, Đường Hiểu tinh bớt đi rất nhiều chuyện.
+Có Hứa Mạn Mạn ở đó đỡ đần, Đường Hiểu Tình đã giảm bớt được biết bao nhiêu gánh nặng.
 
-Thái dương có chút phơi, Từ Mạn Mạn quần jean T lo lắng, không có lấy bao hết.
+Ánh nắng ban trưa bắt đầu gay gắt. Hứa Mạn Mạn diện quần bò, áo thun, trên người tuyệt nhiên không còn mang theo chiếc túi hiệu nào nữa.
 
-Trần trạch theo một hồi, gãi đầu nói:"ngươi không phải tự mình chuốc lấy cực khổ sao? Nghe vương duy đào nói nhất thiên tài 3 0 khối tiền."
+Trần Trạch đi theo sau được một đoạn, gãi đầu càu nhàu: "Em rước khổ vào thân làm gì không biết? Nghe thằng Duy Đào bảo làm cả ngày trời cũng chỉ được có ba mươi tệ bạc."
 
-Có khác người tình nguyện ở bên cạnh, Từ Mạn Mạn nhỏ giọng nói:"ngươi đi chơi đi, không cần đi theo ta, ta không sao."
+Xung quanh đang có các tình nguyện viên khác, Hứa Mạn Mạn khẽ hạ giọng nói nhỏ: "Anh cứ đi chơi đi, không cần phải đi theo em đâu, em không sao cả."
 
-Trần trạch nói:"ta đi đây?"
+Trần Trạch hỏi: "Thế anh đi nhé?"
 
-Từ Mạn Mạn gật đầu.
+Hứa Mạn Mạn khẽ gật đầu.
 
-Trần trạch liền lái xe đi.
+Trần Trạch liền quay lưng lên xe ô tô phóng đi mất hút.
 
-Làm một đầu băng biểu ngữ rất rẻ, còn có áp phích càng tiện nghi.
+Chi phí in một dải băng rôn rất rẻ, còn những tấm áp phích quảng cáo thì lại càng rẻ hơn.
 
-Cái kia chút cửa hàng giá rẻ lão bản cùng quán net lão bản, đều nguyện ý dán tấm áp phích, dạng này cũng có thể từ từ đạt đến nhiên ly nhiệt độ.
+Các ông chủ tiệm tạp hóa và quán net đều rất sẵn lòng cho dán một tấm áp phích ngay trước cửa quán, vừa để làm đẹp lại vừa có thể ké chút không khí sôi động từ giải đấu Cúp Trăn Nhiên.
 
-Từ Mạn Mạn cùng mấy cái người tình nguyện liền từng nhà chạy, bắt đầu mấy người kia người tình nguyện còn có chút ngượng ngùng, Từ Mạn Mạn liền chủ động tiến lên cùng lão bản trò chuyện, nói chuyện ôn nhu.
+Hứa Mạn Mạn cùng vài bạn tình nguyện viên chia nhau đi gõ cửa từng quán một. Ban đầu mấy bạn kia còn có phần e dè, ngại ngùng, Hứa Mạn Mạn liền chủ động tiến lên cất giọng dịu dàng trò chuyện, thuyết phục các chủ tiệm.
 
-Đằng sau những người tình nguyện kia đều buông ra.
+Dần dà về sau, các tình nguyện viên khác cũng tự tin cởi mở hơn hẳn.
 
-Triệu Kim An đối với trận bóng rổ bản thân không quá chú ý, hắn càng chú ý đại học thành phô hàng tình huống.
+Triệu Kim An vốn không quá bận tâm đến bản thân giải đấu bóng rổ, điều anh quan tâm sâu sắc hơn chính là tiến độ phủ sóng hàng hóa trên toàn khu Làng Đại học.
 
-Đúng lúc cùng sông công việc chuyện lạ hảo một nhà quầy bán quà vặt, giơ lên một đài lãnh tàng quỹ.
+Đúng lúc anh và Giang Công Kỳ vừa thương lượng xong với một tiệm tạp hóa nhỏ, hai người đang cùng nhau khiêng một chiếc tủ mát bảo quản vào trong quán.
 
-Sông công việc kỳ nói:"Triệu tổng, bây giờ đại học thành của cửa hàng giá rẻ rất tốt đàm luận, nhập hàng còn tiễn đưa lãnh tàng quỹ...."
+Giang Công Kỳ vừa lau mồ hôi vừa hào hứng nói: "Tổng giám đốc Triệu, bây giờ các tiệm tiện lợi trong khu Làng Đại học dễ đàm phán lắm, cứ nhập hàng là được tặng kèm tủ mát bảo quản..."
 
 "Triệu Kim An!"
 
-Từ Mạn Mạn cùng mấy cái người tình nguyện đâm đầu đi tới, Từ Mạn Mạn không nghĩ tới lại ở chỗ này gặp phải Triệu Kim An, làm mấy ngày người tình nguyện đều không ở phòng học nhìn thấy Triệu Kim An.
+Hứa Mạn Mạn cùng vài bạn tình nguyện viên rảo bước đi tới đối diện. Cô thực sự không ngờ lại có thể tình cờ chạm mặt Triệu Kim An ở nơi này, mấy ngày nay làm tình nguyện viên cô chưa từng thấy bóng dáng anh ghé qua phòng học lấy một lần.
 
-"khoan đã!"
+"Chờ một lát nhé!"
 
-"hảo."
+"Vâng."
 
-Từ Mạn Mạn cũng không biết vì cái gì, ứng tiếng hảo.
+Hứa Mạn Mạn cũng chẳng hiểu vì sao bản thân lại ngoan ngoãn đáp lời như một phản xạ tự nhiên.
 
-Triệu Kim An dọn xong lãnh tàng quỹ, sông công việc kỳ cùng lão bản bàn luận tốt của kiếm hàng.
+Triệu Kim An kê ngay ngắn chiếc tủ mát vào vị trí, Giang Công Kỳ nhanh nhẹn đối chiếu danh mục hàng hóa đã thỏa thuận với chủ tiệm để xếp hàng lên kệ.
 
-Từ Mạn Mạn dừng lại, liền lên phía trước hỏi lão bản có thể hay không tại cửa ra vào dán hai tấm áp phích.
+Hứa Mạn Mạn ngập ngừng giây lát, rồi bước tới nhẹ nhàng hỏi ông chủ quán xem có thể cho dán nhờ hai tấm áp phích tuyên truyền ngoài cửa tiệm hay không.
 
-Triệu Kim An làm xong cười cười:"công ty không đủ nhân viên."
+Lo liệu xong xuôi công việc, Triệu Kim An quay sang nở một nụ cười thản nhiên: "Dạo này công ty đang thiếu nhân lực quá."
 
-Đây là lời nói thật, hồ thần cũng lái xe chạy ở bên ngoài.
+Đó hoàn toàn là sự thật, ngay cả Hồ Thần cũng đang phải lái xe chạy đôn chạy đáo khắp nơi bên ngoài.
 
-"ân."
+"Vâng."
 
-Từ Mạn Mạn nhìn Triệu Kim An một hồi, lại nhìn mắt lãnh tàng quỹ, gật đầu"ân"một tiếng.
+Hứa Mạn Mạn ngắm nhìn Triệu Kim An một hồi, rồi lại liếc mắt nhìn chiếc tủ mát mới tinh, khẽ gật đầu đáp một tiếng thật khẽ.
 
-Hai người không có lời nói.
+Giữa hai người bỗng chốc rơi vào khoảng lặng im ắng.
 
-Sông công việc kỳ cùng lão bản thẩm tra đối chiếu hảo sau, thu tiền, 7 6 8 khối.
+Giang Công Kỳ sau khi kiểm đếm xong xuôi với chủ quán liền thu tiền hàng, tổng cộng bảy trăm sáu mươi tám tệ.
 
-Rời đi thời điểm, Triệu Kim An cười nói:"ngươi rám đen, ta không có bồi."
+Trước lúc rời đi, Triệu Kim An mỉm cười trêu: "Cậu mà bị phơi nắng đen nhẻm đi là tôi không đền đâu đấy nhé."
 
-Từ Mạn Mạn liền cười.
+Hứa Mạn Mạn nghe vậy liền bật cười.
 
-Triệu Kim An nói:"3 0 khối tiền một ngày cũng không mua nổi trắng đẹp mỹ phẩm dưỡng da."
+Triệu Kim An lại bồi thêm một câu: "Ba mươi tệ một ngày e là không đủ tiền mua kem dưỡng trắng da đâu."
 
-Từ Mạn Mạn chuckle ý càng đậm.
+Khóe môi Hứa Mạn Mạn mím lại, nụ cười trên gương mặt càng thêm rạng rỡ, ngọt ngào.
 
-Ban đêm.
+...
 
-Triệu Kim An đã khuya trở lại ký túc xá, lưu xông phong hỏi Triệu Kim An đạt đến nhiên ly thật là ngươi phụ trách? Vậy sau này rút thăm thời điểm có thể hay không an bài cái nhược điểm đối thủ?
+Đêm muộn.
 
-Triệu Kim An cũng nói, cạnh tranh công bình.
+Triệu Kim An trở về phòng ký túc xá khi trời đã khuya. Lưu Sấm Phong liền nhổm dậy hỏi dồn: "Kim An, giải đấu Cúp Trăn Nhiên này thực sự là do ông phụ trách à? Thế sau này lúc bốc thăm chia bảng, ông có thể nương tay sắp xếp cho đội tôi gặp đối thủ nào yếu yếu một chút được không?"
 
-Đáy vực siêu nhận nằm sấp mép giường thần sắc có chút phức tạp, cái này kiêm chức như thế nào kiêm chức sống được động người phụ trách rồi?
+Triệu Kim An cũng chỉ đáp gọn một câu: "Cứ thi đấu công bằng thôi."
 
-Trần trạch không chú ý những thứ này, đạt đến nhiên trước đó nghe đều không nghe qua, một nhà vừa cất bước của công ty, hắn xác nhận một lần:"Triệu Kim An, hoạt động thật là ngươi đang phụ trách?"
+Cốc Siêu Thừa nằm nhoài người bên mép giường tầng trên, ánh mắt nhìn Triệu Kim An đầy vẻ phức tạp. Rốt cuộc là đi làm thêm kiểu gì mà làm đến mức trở thành người phụ trách cả một sự kiện lớn tầm cỡ thế này cơ chứ?
 
-Triệu Kim An gật đầu, cầm lấy thay giặt quần áo đi phòng tắm.
+Trần Trạch thì chẳng mấy bận tâm đến mấy chuyện giải đấu thể thao, cái tên Trăn Nhiên trước giờ cậu ta chưa từng nghe qua bao giờ, cùng lắm cũng chỉ là một công ty nhỏ bé mới chập chững bước vào nghề. Cậu ta muốn xác thực lại một lần nữa: "Triệu Kim An, sự kiện này thực sự là do ông đứng đầu phụ trách đấy à?"
 
-Trần trạch trên giường rút một điếu thuốc, cho Từ Mạn Mạn gửi tin tức.
+Triệu Kim An khẽ gật đầu, cầm bộ quần áo sạch rồi bước thẳng vào phòng tắm.
 
-Trạch thiếu: Mạn Mạn, hoạt động này là Triệu Kim An đang phụ trách?
+Trần Trạch ngồi trên giường châm một điếu thuốc, rút điện thoại ra gõ tin nhắn gửi cho Hứa Mạn Mạn.
 
-Phía trước một lát sau hồi âm.
+Trạch Thiếu: [Mạn Mạn, cái sự kiện đó là do Triệu Kim An phụ trách thật đấy à?]
 
-Man thương thương: ân.
+Đầu dây bên kia im lặng một hồi lâu mới có tin nhắn phản hồi.
 
-Trạch thiếu: có thể không đi không?
+Mạn Đau Đau: [Vâng ạ.]
 
-Man thương thương: vì cái gì?
+Trạch Thiếu: [Em đừng sang đó làm nữa có được không?]
 
-Trạch thiếu: không có vì cái gì, ta không có ưa thích, đáp ứng ta ngày mai không đi
+Mạn Đau Đau: [Tại sao lại không được hả anh?]
+
+Trạch Thiếu: [Không có tại sao hết, anh không thích. Hứa với anh ngày mai đừng đi nữa.]

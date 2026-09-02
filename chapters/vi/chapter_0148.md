@@ -1,185 +1,187 @@
-# Chương 148: Trào Lưu Của Thời Đại Đó
+# Chương 148: Trào lưu của một thời đại.
 
-“Kim An, mấy cái giấy phép này cứ để chị đi lo.”
+> **Tiêu đề gốc**: 第148章 那个时代的潮流。
 
-Lạc Cẩn Chi đón được Triệu Kim An và Triệu Quốc Hoa tại một ngã tư đường.
+"Kim An, mấy cái giấy phép với thủ tục kia chị đã đi lo liệu hòm hòm rồi."
 
-Cô còn đặc biệt đưa Triệu Quốc Hoa theo cùng.
+Lạc Cẩn Chi đón Triệu Kim An tại một ngã ba đường, đi cùng với cô còn có cả Triệu Quốc Hoa.
 
-“Chú ạ.”
+Lạc Cẩn Chi đã đặc biệt đưa Triệu Quốc Hoa đi theo chuyến này.
 
-Triệu Kim An vừa xuống xe đã cất tiếng chào.
+"Chú."
 
-“Cái đó... trong giờ làm việc, đừng gọi chú.”
+Vừa bước xuống xe, Triệu Kim An liền cất tiếng chào.
 
-Triệu Quốc Hoa đỏ bừng mặt, vội vàng xua tay.
+"Ấy chết... Đang trong giờ làm việc, đừng có gọi chú xưng cháu thế chứ."
 
-Triệu Kim An: “...”
+Khuôn mặt già nua của Triệu Quốc Hoa đỏ bừng lên, ông vội vàng xua tay lia lịa.
 
-“Vậy gọi là gì?”
+Triệu Kim An dở khóc dở cười: "..."
 
-Lạc Cẩn Chi bật cười một tiếng: “Gọi là lão Kim An.”
+"Thế không gọi chú thì gọi là gì?"
 
-“... Thế thì vẫn nên gọi là chú thôi.”
+Lạc Cẩn Chi cười khúc khích chêm vào: "Hay là gọi lão Triệu nhé."
 
-Triệu Quốc Hoa nhìn chiếc Audi A6 bóng loáng cùng Đơn Vĩ với dáng vẻ từng đi lính, ông không ngờ đứa cháu mình giờ đã có tài xế và vệ sĩ riêng, đây vốn là tiêu chuẩn của các đại ông chủ.
+"... Thôi thôi, thế cứ gọi là chú đi cho lành."
 
-Thông thường các ông chủ nhỏ đều tự mình lái xe.
+Triệu Quốc Hoa đưa mắt nhìn chiếc Audi A6 đen bóng loáng, rồi lại nhìn sang Đan Vĩ với tác phong rắn rỏi của một người lính xuất ngũ. Ông thực sự không ngờ đứa cháu ruột của mình nay đã có cả tài xế kiêm vệ sĩ riêng túc trực bên cạnh. Đây rõ ràng là phong thái và đẳng cấp chỉ có ở những đại tài phiệt lớn.
 
-“Đây là khu vực được phân cho chúng ta, có thể lấy nước ở đây.”
+Còn những ông chủ hạng xoàng thì đa phần vẫn phải tự mình cầm lái.
 
-Lạc Cẩn Chi chỉ xuống một thôn xóm phía dưới, địa thế trông như một hẻm núi: “Nguồn nước ở đây quá tốt, chị từng vục tay uống thử, vị rất ngọt, chúng ta còn được tính là ở thượng nguồn.”
+"Đây là khu vực quy hoạch được phân cho chúng ta, có thể tiến hành lấy nước trực tiếp tại đây."
 
-“Cả thượng nguồn và hạ nguồn đều có một số doanh nghiệp, còn có một công ty nước khoáng địa phương cũng lấy nước tại đây.”
+Lạc Cẩn Chi chỉ tay về phía một ngôi làng nằm nép mình bên dưới thung lũng, địa thế uốn lượn tựa như một hẻm núi sâu: "Nguồn nước ở đây chất lượng tuyệt hảo đến kinh ngạc, chị đã vục tay nếm thử rồi, vị ngọt thanh mát lịm. Vị trí của chúng ta tính ra vẫn là nằm ở thượng nguồn."
 
-“Vị trí địa lý cũng coi như tốt, từ đây đi tầm 30 phút là có lối lên cao tốc, như vậy việc vận chuyển ít nhất có thể bao phủ 5 tỉnh thành lân cận.”
+"Khu vực thượng lưu và hạ lưu cũng có một vài xí nghiệp đóng đô, một công ty nước khoáng của địa phương cũng lấy nước từ mạch này."
 
-“Chị mới chỉ nói ưu điểm, còn nhược điểm thì sao?”
+"Vị trí địa lý ở đây cũng rất đắc địa, từ đây lái xe tầm ba mươi phút là có lối rẽ nhập vào đường cao tốc, nhờ đó việc vận chuyển phân phối có thể bao phủ tới ít nhất năm tỉnh thành lân cận."
 
-Triệu Kim An nhìn xuống phía dưới, nhận thấy phong cảnh nơi đây khá đẹp, từng lớp sương mù trắng xóa lan tỏa khắp hẻm núi, trông hơi giống chốn đào nguyên tách biệt với thế giới.
+"Chị mới chỉ toàn kể ưu điểm, thế còn nhược điểm thì sao?"
 
-“Nhược điểm là phải tốn thêm tiền.”
+Triệu Kim An phóng tầm mắt ngắm nhìn khung cảnh bên dưới thung lũng, chợt nhận ra phong cảnh nơi đây đẹp đến ngỡ ngàng. Từng dải sương mù trắng xóa lững lờ bồng bềnh ôm trọn lấy hẻm núi, nom chẳng khác nào chốn bồng lai tiên cảnh tách biệt với nhân gian.
 
-Lạc Cẩn Chi tức giận nói: “Là do cậu yêu cầu lắm thứ quá, nếu không thì cứ tùy tiện tìm một nguồn nước, dùng nước máy cũng được, người tiêu dùng ai thèm quan tâm mấy cái này?”
+"Nhược điểm là phải tốn thêm kha khá tiền."
 
-“Chị Cẩn Chi, làm như vậy công ty không lớn mạnh được đâu, người tiêu dùng không phải kẻ ngốc.”
+Lạc Cẩn Chi liếc xéo anh một cái, bực bội nói: "Cũng tại cậu vẽ chuyện đòi hỏi lắm tiêu chuẩn quá cơ. Chứ nếu không thì cứ tùy tiện tìm bừa một nguồn nước nào đó, thậm chí dùng nước máy cũng xong, người tiêu dùng ai rỗi hơi đi soi mói mấy cái thứ này?"
 
-Triệu Kim An suy nghĩ một chút rồi vẫn nói ra: “Chị Cẩn Chi, hiện tại thông tin còn hạn chế, nhưng sau này công nghệ thông tin sẽ ngày càng phát triển, trên mạng cái gì cũng có.”
+"Chị Cẩn Chi, làm ăn như thế thì công ty không bao giờ lớn mạnh bền vững được đâu, người tiêu dùng đâu có ngốc."
 
-“Bất cứ chuyện gì cũng có thể bị đào bới ra, chưa kể còn có các đối thủ cạnh tranh của chúng ta nữa.”
+Triệu Kim An trầm ngâm một lát rồi cất lời giải thích: "Chị Cẩn Chi à, thời buổi này thông tin có thể còn hạn chế, nhưng mai sau mạng internet và truyền thông sẽ ngày càng bùng nổ, cái gì trên mạng người ta cũng có thể tìm ra được hết."
 
-“Chị lừa dối người tiêu dùng, sớm muộn gì cũng sẽ bị phản tác dụng thôi.”
+"Bất cứ ngóc ngách nào cũng bị phơi bày ra ánh sáng, chưa kể các đối thủ cạnh tranh của chúng ta luôn chực chờ soi mói."
 
-Lạc Cẩn Chi nhìn Triệu Kim An, không biết phải mô tả thế nào, có chút chủ nghĩa lý tưởng sao?
+"Lừa dối người tiêu dùng thì sớm muộn gì cũng bị thời đại trừng phạt, gậy ông đập lưng ông mà thôi."
 
-“Thực ra việc làm giấy tờ thủ tục tốn thêm chút tiền cũng là chuyện bình thường.”
+Lạc Cẩn Chi nhìn chằm chằm vào Triệu Kim An, trong lòng trào dâng một cảm giác khó tả, không biết nên hình dung thế nào... Cậu chàng này có phải mang nặng chủ nghĩa lý tưởng quá mức rồi không?
 
-“Quan trọng nhất là bảo vệ môi trường.”
+"Thực ra việc làm thủ tục xin giấy phép tốn thêm chút tiền cũng là chuyện bình thường."
 
-Lạc Cẩn Chi vẻ mặt nghiêm trọng: “Chính quyền địa phương nhấn mạnh nhiều lần rằng không được làm ô nhiễm nguồn nước, chị đã đặc biệt điều tra rồi, thượng nguồn và hạ nguồn quả thực không có doanh nghiệp hóa chất nào.”
+"Điều quan trọng nhất ở đây là vấn đề bảo vệ môi trường."
 
-“Nghe nói là văn bản chỉ đạo từ trên tỉnh.”
+Nét mặt Lạc Cẩn Chi trở nên nghiêm túc hẳn: "Chính quyền địa phương năm lần bảy lượt nhấn mạnh rằng tuyệt đối không được làm ô nhiễm nguồn nước. Chị đã cất công điều tra kỹ lưỡng rồi, cả mảng thượng lưu lẫn hạ lưu quả thực không hề có bóng dáng của bất kỳ nhà máy hóa chất nào."
 
-Triệu Kim An gật đầu: “Như vậy càng tốt, chúng ta cũng phải nghiêm túc chấp hành, nếu không thượng nguồn mà có một doanh nghiệp như thế... thì các doanh nghiệp hạ nguồn coi như xong đời.”
+"Nghe đâu đây là văn bản chỉ đạo nghiêm ngặt từ tận cấp tỉnh đưa xuống."
 
-“Đây là bước đi thông minh.”
+Triệu Kim An gật đầu tán thưởng: "Quy định như thế lại càng tốt, chúng ta nhất định phải nghiêm túc tuân thủ. Nếu không lỡ ở thượng nguồn mọc lên một xưởng hóa chất... thì toàn bộ các doanh nghiệp mạn hạ lưu coi như đi tong hết."
 
-“Còn một điểm nữa.”
+"Đây là một bước đi vô cùng sáng suốt."
 
-Lạc Cẩn Chi chỉ tay xuống dưới: “Ở đây nhà nhà đều trồng trà, còn có cả táo và lê, có một xưởng đồ hộp, hiện tại xưởng đó làm ăn không tốt, cậu có hiểu biết nhiều về đồ hộp không?”
+"Còn một chuyện này nữa."
 
-“Trước đây doanh số rất tốt, giờ thì không xong rồi.”
+Lạc Cẩn Chi đưa ngón tay chỉ xuống phía dưới: "Ở đây nhà nào nhà nấy đều trồng chè, ngoài ra còn trồng táo và lê. Trong làng có một xưởng sản xuất đồ hộp, nhưng dạo này làm ăn bết bát lắm, cậu có hiểu biết nhiều về mảng đồ hộp không?"
 
-“Cháu đương nhiên là biết chứ, bà nội cháu ở trong thôn vai vế lớn, có người biếu đồ hộp dịp lễ Tết, bà toàn để dành cho cháu ăn thôi.”
+"Trước đây bán chạy như tôm tươi, giờ thì ế ẩm thoái trào rồi."
 
-Triệu Kim An cười nói: “Giờ người ta không tặng đồ hộp nữa, doanh số đương nhiên là sụt giảm rồi.”
+"Tất nhiên là em biết chứ. Ngày xưa ở trong làng họ Triệu, bà nội em vai vế cao trong họ tộc, cứ mỗi dịp lễ tết người ta mang đồ hộp hoa quả đến biếu xén, bà đều cất dành lại hết cho em ăn."
 
-“Tầm năm 2000 đồ hộp bán rất chạy, đặc biệt là những năm tám mươi chín mươi.”
+Triệu Kim An mỉm cười nhớ lại: "Thời buổi bây giờ người ta đi thăm hỏi chẳng ai mang đồ hộp đi tặng nữa, tự khắc doanh số bán ra phải tụt dốc thảm hại thôi."
 
-Triệu Quốc Hoa tiếp lời: “Hồi đó nhiều người đi thăm thân thích đều xách theo đồ hộp, cả lúc vào bệnh viện thăm người bệnh nữa.”
+"Khoảng tầm những năm 2000 đồ hộp vẫn còn bán rất chạy, đặc biệt là vào những năm thập niên 80, 90."
 
-“Xưởng đồ hộp này trước đây thuộc quyền quản lý của huyện, giờ chuyển sang cho thôn rồi.”
+Triệu Quốc Hoa tiếp lời: "Hồi đó ai đi thăm bà con họ hàng xa cũng xách theo mấy hộp hoa quả ngâm, hay vào bệnh viện thăm người ốm cũng thế."
 
-Lạc Cẩn Chi có chút khó xử: “Một vị lãnh đạo trên huyện hy vọng chúng ta có thể nghĩ cách giúp đỡ, ông ấy trước đây từng quản lý xưởng này, có lẽ là có tình cảm gắn bó, ông ấy không làm khó chị, chỉ nói nếu giúp được thì giúp một tay.”
+"Xưởng đồ hộp này trước đây vốn thuộc quyền quản lý của huyện, sau này chuyển giao lại thành doanh nghiệp của thôn."
 
-“Dù sao ngành nghề của chúng ta cũng có nét tương đồng, một vị lãnh đạo cũ, cũng gần 60 tuổi rồi.”
+Vẻ mặt Lạc Cẩn Chi có chút khó xử: "Có một vị cựu lãnh đạo trên huyện hy vọng chúng ta có thể nghĩ cách giúp đỡ họ một tay. Hồi trước ông ấy từng trực tiếp quản lý nhà máy này, chắc là nặng lòng với nó lắm. Ông ấy không hề gây khó dễ gì cho chị, chỉ nhã nhặn bảo nếu giúp được thì dang tay giúp một phen."
 
-“Có chút chân tình tha thiết...”
+"Dù sao ngành nghề của chúng ta cũng có nét tương đồng. Một vị lãnh đạo già ngót nghét sáu mươi tuổi rồi."
 
-Có lẽ Lạc Cẩn Chi cũng bị cảm động bởi tâm huyết của vị lãnh đạo già kia.
+"Lời lẽ chân thành, tha thiết lắm..."
 
-Triệu Kim An chỉ gật đầu, không đồng ý cũng không từ chối.
+Có lẽ Lạc Cẩn Chi cũng phần nào bị xúc động trước tấm lòng son sắt của vị cựu lãnh đạo già.
 
-“Còn gì nữa không?”
+Triệu Kim An chỉ khẽ gật đầu lắng nghe, không vội vàng nhận lời mà cũng chẳng dứt khoát từ chối.
 
-“Còn nữa, nhưng chị chưa bàn cụ thể.”
+"Còn điều kiện gì nữa không?"
 
-Lạc Cẩn Chi đút hai tay vào túi áo: “Chính là phải hỗ trợ cho thôn, xem mỗi năm hỗ trợ bao nhiêu tiền, giống như có người đến Kim An Gia thôn của các cậu mở doanh nghiệp, chắc chắn phải hỗ trợ cho thôn thôi.”
+"Còn một khoản nữa, chị vẫn chưa đi sâu vào đàm phán cụ thể."
 
-“Cái này là không thể tránh khỏi, nếu không người dân Kim An Gia thôn cũng chẳng để yên.”
+Lạc Cẩn Chi đút hai tay vào túi áo khoác: "Đó là tiền trợ cấp cho thôn bản địa, xem mỗi năm phải chi trả cho họ bao nhiêu tiền. Nó cũng giống như việc có ai đó về làng họ Triệu của cậu mở công ty xí nghiệp, chắc chắn phải đóng góp một khoản kinh phí hỗ trợ cho thôn làng."
 
-“Huống hồ chúng ta còn phải sử dụng nước ở đây.”
+"Khoản này là điều tất yếu không thể tránh khỏi, nếu không người dân làng họ Triệu của cậu cũng chẳng đời nào chịu để yên."
 
-Lạc Cẩn Chi cười hỏi một câu: “Dân phong ở Kim An Gia thôn các cậu có hung hãn không? Nếu không đưa tiền hỗ trợ, liệu họ có dỡ luôn xưởng của mình không?”
+"Huống chi chúng ta lại còn khai thác trực tiếp nguồn tài nguyên nước của họ."
 
-Triệu Quốc Hoa cười đáp: “Kim An Gia thôn chúng tôi đều họ Kim An, Lạc tổng thấy sao?”
+Lạc Cẩn Chi bật cười trêu chọc: "Dân phong làng họ Triệu của các cậu có hung hãn dữ dằn không đấy? Không trả tiền trợ cấp sòng phẳng liệu có vác cuốc xẻng ra đập nát xưởng của người ta không?"
 
-Đơn Vĩ cũng chen vào một câu: “Thôn chúng tôi có một xưởng đũa, mỗi năm hỗ trợ cho thôn năm nghìn tệ.”
+Triệu Quốc Hoa cười ha hả đáp: "Làng họ Triệu chúng tôi cả làng đều mang họ Triệu, giám đốc Lạc nói xem thế nào?"
 
-Đầu tháng mười hai, thời tiết đã rất lạnh.
+Đan Vĩ đứng bên cạnh cũng góp chuyện: "Làng em có một xưởng sản xuất đũa ăn, mỗi năm đều phải đóng cho quỹ thôn năm nghìn tệ tiền trợ cấp."
 
-Tỉnh Thiểm Tây từ sớm đã bước vào mùa đông.
+Đầu tháng Mười Hai, tiết trời đã rét buốt thấu xương.
 
-Màn đêm buông xuống.
+Mảnh đất Thiểm Tây từ lâu đã chìm sâu vào mùa đông lạnh giá.
 
-Mấy người đứng trên con đường phía trên thôn, gió núi quyện theo hơi ẩm dưới khe sâu chui tọt vào cổ áo, thấm tận vào xương tủy.
+Màn đêm buông xuống thật nhanh.
 
-Vẫn có thể nghe thấy tiếng gió rít lúc cao lúc thấp nơi thung lũng.
+Mấy người đứng trên con đường cái vắt ngang sườn núi phía trên làng. Từng cơn gió núi cuốn theo hơi ẩm buốt giá từ các khe rãnh thốc thẳng vào cổ áo, len lỏi ngấm sâu vào tận tủy xương.
 
-Ống khói vừa nhả ra làn khói xanh đã bị thổi tan ngay tức khắc.
+Trong lòng thung lũng, tiếng gió rít qua khe núi khi trầm khi bổng văng vẳng bên tai.
 
-Triệu Kim An chợt nhớ ra: “Chúng ta ngủ ở đâu? Ăn cơm chỗ nào ạ?”
+Những làn khói xanh nhạt vừa mới nhú ra khỏi miệng ống khói của các nếp nhà sàn bên dưới đã lập tức bị luồng gió lạnh thổi tạt tan tác vào hư không.
 
-“Ngủ ngay trong thôn thôi.”
+Triệu Kim An sực nhớ ra bèn hỏi: "Tối nay chúng ta ăn ngủ ở đâu thế?"
 
-Lạc Cẩn Chi nhún vai: “Có vài nhà vẫn còn giường sưởi đất, ăn cũng ở trong thôn, cứ đưa tiền là được, Lư Kiều Vĩ ở phía dưới kia rồi, đã bảo nhà đó làm thêm cơm cho hai người nữa.”
+"Thì ngủ lại trong làng thôi."
 
-“Còn chỗ ngủ thì chia ra.”
+Lạc Cẩn Chi nhún vai: "Nhiều nhà ở đây vẫn còn giữ loại giường sưởi đất đắp bằng gạch, ăn uống cũng ở trong thôn, cứ trả tiền sòng phẳng là được. Lư Kiều Vĩ đang ở dưới kia rồi, đã dặn người ta nấu thêm phần cơm cho hai người nữa."
 
-“Hả? Chẳng lẽ lại ngủ chung sao?”
+"Còn chỗ ngủ thì chia nhau ra ở các nhà."
 
-Đang nói chuyện, eo của Triệu Kim An bị Triệu Quốc Hoa huých một cái, ý bảo đừng có mà dẻo mồm, cẩn thận chú mách Tô Miền.
+"Hả? Chẳng lẽ lại ngủ chung một chỗ?"
 
-Lạc Cẩn Chi trái lại cười rất vui vẻ: “Ý tôi là chúng ta đông người nên phải ngủ ở các nhà khác nhau, đương nhiên rồi, Triệu tổng nếu muốn ngủ chung giường sưởi với tôi thì tôi cũng chẳng có ý kiến gì đâu.”
+Đang nói dở câu, hông Triệu Kim An bỗng bị Triệu Quốc Hoa thúc mạnh một cùi chỏ, ý tứ rõ ràng là cảnh cáo: liệu cái mồm đấy, đừng có mà ăn nói lươn khươn cợt nhả, cẩn thận tao mách thím mày với con bé Tô Miến bây giờ.
 
-Triệu Quốc Hoa: “...”
+Lạc Cẩn Chi lại cười vô cùng sảng khoái: "Ý chị là đoàn chúng ta đông người nên phải chia ra ngủ nhờ ở mấy nhà khác nhau. Nhưng tất nhiên rồi, nếu Triệu tổng đây muốn chung chăn chung giường sưởi với chị thì chị cũng chẳng có ý kiến gì đâu nhé."
 
-Thằng cháu này không quản nổi nữa rồi.
+Triệu Quốc Hoa trố mắt câm nín: "..."
 
-Ông nhìn đứa cháu đang đi phía trước, nghi ngờ rằng Lạc Cẩn Chi thực sự không ngại việc buổi tối ngủ cùng Triệu Kim An.
+Thằng cháu này đúng là hết thuốc chữa rồi!
 
-“Chậc, lớn lên thế này, bảo sao thím nó cứ dặn mình phải trông chừng nó cho kỹ.”
+Ông nhìn bóng lưng đứa cháu trai đang rảo bước phía trước, thầm nghi hoặc không biết chừng cô giám đốc Lạc xinh đẹp kia thực sự chẳng hề ngại ngần việc ngủ chung giường với Triệu Kim An đêm nay.
 
-Triệu Kim An xoa xoa chỗ eo: “Lạc tổng, sao chị lại đưa chú tôi tới đây?”
+"Haizz, lớn tướng lên trông khôi ngô tuấn tú thế kia, hèn chi thím nó cứ dặn đi dặn lại bảo mình phải để mắt canh chừng nó cho cẩn thận."
 
-Lạc Cẩn Chi rất phối hợp gật đầu: “Đúng là không nên đưa tới đây thật, chú Kim An, hay là giờ chú về luôn nhé?”
+Triệu Kim An xoa xoa bên hông, quay sang than thở: "Giám đốc Lạc này, sao chị lại kéo cả chú em theo làm gì thế?"
 
-Triệu Quốc Hoa: “...”
+Lạc Cẩn Chi rất phối hợp gật đầu lia lịa: "Đúng thật, lẽ ra không nên dắt theo chú ấy. Chú Triệu ơi, hay là bây giờ chú bắt xe quay về luôn nhé?"
 
-Thật là loạn rồi!
+Triệu Quốc Hoa nghẹn họng: "..."
 
-Thằng cháu vốn ngoan ngoãn hiểu chuyện là thế, vậy mà có tiền một cái là cũng hư hỏng theo.
+Đúng là tạo phản hết cả rồi!
 
-Đơn Vĩ thì coi như không nghe thấy gì.
+Đứa cháu trai vốn ngoan ngoãn, biết điều là thế, vừa mới kiếm được tý tiền một cái là lập tức đổ đốn hư hỏng ngay.
 
-Bốn người bước vào một nhà nông.
+Đan Vĩ thì cắm cúi bước đi, coi như tai điếc mắt ngơ, chẳng nghe thấy bất kỳ điều gì.
 
-Lư Kiều Vĩ nhiệt tình đón tiếp: “Triệu tổng, tối nay có món mì đổ dầu và bánh kẹp thịt ạ.”
+Bốn người sải bước tiến vào sân một ngôi nhà nông dân mộc mạc.
 
-Đơn Vĩ lấy từ trong xe ra một lọ tương ớt Lão Can Ma và mấy lọ gia vị tương tự.
+Lư Kiều Vĩ niềm nở chạy ùa ra đón: "Triệu tổng, tối nay chúng ta ăn món mì dầu sôi gia truyền với bánh mì kẹp thịt kiểu Thiểm Tây nhé!"
 
-Anh ta bữa nào cũng phải ăn chút ớt, biết là đi công tác nên đã sớm ghé siêu thị mua sắm, chẳng ai biết sẽ phải ở lại bao lâu.
+Đan Vĩ lẳng lặng từ trên xe lôi ra một hũ tương ớt Lão Can Ma cùng vài lọ sốt ớt cay tương tự.
 
-Cặp vợ chồng già cũng rất nhiệt tình, bưng ra mấy bát mì đổ dầu lớn.
+Bữa nào anh cũng bắt buộc phải có chút ớt đưa cơm. Vừa nghe tin phải đi công tác xa là anh đã chủ động ghé siêu thị gom hàng từ trước, bởi chẳng ai biết trước chuyến đi này sẽ kéo dài bao nhiêu ngày.
 
-Họ nói chuyện bằng giọng địa phương đặc sệt, Triệu Kim An nghe không hiểu lắm.
+Đôi vợ chồng già chủ nhà vô cùng hiếu khách, đon đả bưng ra mấy tô mì dầu sôi to đùng, nghi ngút khói thơm lừng.
 
-Chắc là Lạc Cẩn Chi đưa tiền ăn cũng hậu hĩnh.
+Giọng nói của hai ông bà mang âm điệu địa phương nằng nặng, Triệu Kim An nghe câu được câu chăng.
 
-Từ đây lái xe lên huyện mất một tiếng đồng hồ, nên sau khi Lạc Cẩn Chi và mọi người đến thì không quay lại khách sạn trên huyện nữa.
+Có lẽ Lạc Cẩn Chi đã hào phóng chi trả tiền ăn uống rất hậu hĩnh.
 
-Người phương Nam chắc hẳn cũng muốn trải nghiệm cảm giác ngủ trên giường sưởi đất một chút.
+Từ ngôi làng này muốn chạy xe ra trung tâm huyện phải mất trọn một tiếng đồng hồ đường đèo, thế nên kể từ khi tới đây, nhóm của Lạc Cẩn Chi đã không buồn quay về khách sạn ngoài huyện nữa.
 
-Ăn xong một bát mì đổ dầu chính gốc, Triệu Kim An lại cầm thêm một cái bánh kẹp thịt.
+Người phương Nam chắc hẳn cũng muốn nhân dịp này để trải nghiệm cảm giác nằm ngủ trên chiếc giường sưởi đất truyền thống xem sao.
 
-Hắn buân quơ hỏi về xưởng đồ hộp.
+Đánh chén xong một tô mì dầu sôi chuẩn vị thơm cay nức mũi, Triệu Kim An tiện tay với lấy thêm một chiếc bánh mì kẹp thịt giòn rụm.
 
-Bác Tưởng cũng đã gần 60 tuổi, bác vừa rít thuốc lào vừa kể một thôi một hồi.
+Anh bâng quơ cất lời dò hỏi về xưởng đồ hộp trong làng.
 
-Triệu Kim An chăm chú lắng nghe, đại ý là hiện tại làm ăn không tốt, ngay cả lương cũng khó mà phát nổi.
+Bác Tưởng chủ nhà trạc ngoài sáu mươi tuổi, vừa rít từng hơi thuốc lào phì phèo vừa thao thao bất tuyệt kể lại chuyện xưa.
 
-Nhìn biểu cảm của bác Tưởng, xưởng đồ hộp này trước đây hẳn là từng rất “huy hoàng”, khi kể lại khuôn mặt bác tràn đầy sự tự hào và hoài niệm, chỉ vì không kiếm ra tiền nữa nên mới “trở thành” doanh nghiệp của thôn.
+Triệu Kim An chăm chú lắng nghe, đại ý là xưởng bây giờ làm ăn sa sút thảm hại, đến tiền lương công nhân cũng trầy trật mãi chẳng phát nổi.
 
-Điều này rất hợp lý.
+Nhìn nét mặt bác Tưởng, có thể thấy xưởng đồ hộp ngày xưa từng có một thời kỳ vô cùng "huy hoàng". Mỗi khi nhắc lại, ánh mắt ông lão lại ánh lên niềm kiêu hãnh và tự hào khôn xiết. Mãi đến khi không còn kiếm ra lợi nhuận nữa, nhà máy mới bị "chuyển giao" trở thành một doanh nghiệp trực thuộc cấp thôn.
 
-Cũng phù hợp với trào lưu của thời đại đó.
+Điều này hoàn toàn hợp lý.
+
+Và cũng hoàn toàn phù hợp với quy luật trào lưu biến chuyển của thời đại ấy...

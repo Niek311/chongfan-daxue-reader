@@ -1,179 +1,183 @@
-# Chương 2: Năm 2006
+# Chương 2: Năm 2006.
 
-Sau vài câu trao đổi, Triệu Kim An mới nắm rõ mốc thời gian, hiện tại mới là năm 2006, "năng lượng mới" vẫn chưa bị cấm.
+> **Tiêu đề gốc**: 第2章 2006年。
 
-Có lẽ cấp trên đã có văn bản như vậy, nhưng "sống núi ăn núi, sống nước ăn nước", thời này bắt ít cá dưới con sông trước cửa nhà mình thì chẳng ai thèm quản.
+Qua vài câu chuyện trò qua lại, Triệu Kim An mới dần chắp nối được dòng thời gian: hiện tại mới chỉ là năm 2006, cái trò "kích điện" này vẫn chưa bị cấm gắt gao như sau này.
 
-Hai mươi phút sau, Triệu Trí Dũng dựng xe máy bên lề đường, đeo thiết bị "năng lượng mới" trên lưng, băng qua một con đường đầy cỏ dại để xuống sông.
+Có lẽ trên tỉnh cũng đã có văn bản chỉ thị từ lâu, nhưng người xưa có câu "ở núi ăn núi, ở sông ăn nước", thời buổi này ra con sông trước cửa nhà kiếm mớ cá cải thiện bữa ăn, chẳng ai rỗi hơi mà đến hỏi han làm khó.
 
-"Cầm cái giỏ theo đi chứ."
+Hai mươi phút sau, Triệu Trí Dũng tấp chiếc xe máy vào lề đường, lưng đeo bộ ắc quy kích điện, vạch một lối mòn rậm rạp cỏ dại để lội xuống bờ sông.
 
-Hắn phát hiện thằng bạn nối khố ngủ một giấc xong hình như đã mụ mị cả người.
+"Cầm theo cái giỏ tre nữa chứ mày!"
 
-Triệu Kim An cầm giỏ tre đi theo phía sau, hắn mặc áo ngắn tay nên bị cỏ dại cứa vào da thịt đau rát.
+Hắn quay lại, thấy thằng bạn nối khố sau một giấc ngủ trưa dường như ngơ ngẩn như người mất hồn.
 
-Triệu Trí Dũng đi phía trước lải nhải không ngừng.
+Triệu Kim An lẳng lặng nhấc chiếc giỏ tre lẽo đẽo theo sau. Mặc chiếc áo cộc tay mỏng manh, những nhánh cỏ tranh sắc lẹm quẹt qua da thịt rát buốt.
 
-"Hừ, tao còn đặt rất nhiều bẫy trên núi, xem có bắt được mấy con gà rừng không. Gà rừng bán được nhiều tiền hơn, đúng rồi, còn có thỏ hoang nữa..."
+Phía trước, cái miệng của Triệu Trí Dũng vẫn liến thoắng không ngừng:
 
-"Nếu mà bẫy được một con lợn rừng thì tốt quá, đủ tiền sinh hoạt phí cho cả học kỳ luôn."
+"Hê hê, sáng nay tao còn lên rừng giăng sẵn mấy cái bẫy thắt nút, xem thử có tóm được con gà rừng nào không. Gà rừng mang ra phố bán được khối tiền đấy. À, còn cả thỏ rừng nữa chứ..."
 
-Nhìn bóng lưng vạm vỡ, làn da đen nhẻm phía trước, Triệu Kim An có chút ngẩn ngơ.
+"Giá mà vớ được một con lợn rừng thì ấm chén luôn, đủ tiền sinh hoạt phí cho cả một học kỳ chứ chẳng đùa!"
 
-Hắn biết số tiền Triệu Trí Dũng kiếm được phần lớn đều đưa cho mình. Lợn rừng không dễ bắt như vậy, nhưng tiền bán cá dưới sông thì Triệu Trí Dũng luôn nhường phần hơn cho hắn.
+Nhìn tấm lưng vạm vỡ, nước da ngăm đen rám nắng của thằng bạn phía trước, Triệu Kim An thoáng thẫn thờ.
 
-"Đúng rồi Kim An, tiền học phí đại học của mày đã có chỗ nào chưa?"
+Anh biết thừa, số tiền Triệu Trí Dũng kiếm được từ trước đến nay phần lớn đều nhét cả vào tay anh. Lợn rừng thì dễ gì mà săn được, nhưng từng mớ tôm cá vớt được dưới lòng sông mang ra phố bán, thằng Dũng đều dúi cho anh phần hơn.
 
-"Mày đỗ vào Sư Đại, dì không lẽ lại không đưa tiền học phí cho mày đấy chứ?"
+"À này Kim An, tiền học phí đại học của mày đã lo liệu xong chưa?"
 
-Triệu Kim An theo bản năng gật đầu: "Có rồi."
+"Mày đỗ hẳn Đại học Sư phạm danh giá thế kia, dì chắc không nỡ không đóng tiền học cho mày đâu nhỉ?"
 
-"Đưa cho mày luôn rồi à?"
+Triệu Kim An gật đầu theo quán tính: "Có rồi."
 
-Triệu Trí Dũng rất ngạc nhiên. Giờ vẫn còn sớm so với ngày khai giảng, phụ huynh nào lại đưa tiền học phí sớm như vậy?
+"Đưa cho mày luôn rồi á?"
 
-"Bà ấy đồng ý rồi."
+Triệu Trí Dũng tròn mắt ngạc nhiên. Giờ mới giữa mùa hè, còn cả tháng nữa mới đến ngày tựu trường, có bậc phụ huynh nào lại sớm đưa cả cục tiền học phí cho con cái giữ bao giờ?
 
-Triệu Kim An thuận miệng nói dối, hắn vẫn chưa hoàn toàn thoát khỏi trạng thái thẫn thờ.
+"Mẹ tao đồng ý rồi."
 
-Triệu Trí Dũng lúc này mới yên tâm, nói: "Vậy thì tốt, thế thì chúng ta chỉ cần kiếm thêm chút tiền sinh hoạt phí thôi."
+Triệu Kim An thuận miệng nói dối một câu, tâm trí anh thực sự vẫn chưa hoàn toàn định thần lại được sau cú sốc trùng sinh.
 
-"Sư Đại đấy, đại học trọng điểm 211, dì không đời nào mặc kệ mày đâu. Chẳng bù cho tao, tao chỉ đỗ được một trường cao đẳng."
+Triệu Trí Dũng nghe vậy thì thở phào nhẹ nhõm: "Thế thì tốt quá rồi! Vậy tụi mình chỉ cần cày kéo kiếm thêm chút tiền sinh hoạt phí nữa là êm."
 
-"Nếu mày thi thêm được ít điểm nữa thì hay biết mấy, vào được mấy trường 985, nghe nói trong làng sẽ thưởng cho năm nghìn tệ, tiền sinh hoạt phí cả năm thế là dư dả luôn."
+"Đại học Sư phạm cơ mà, trường trọng điểm cấp quốc gia thuộc đề án 211 đàng hoàng, dì làm sao mà bỏ mặc mày được. Đâu có như tao, thi lẹt đẹt chỉ đỗ nổi cái trường cao đẳng nghề."
 
-"Sao mày không bảo tao thi quách vào Thanh Bắc luôn đi?"
+"Giá như đợt thi vừa rồi mày cố thêm vài điểm nữa thì hay biết mấy, vào được mấy trường top 985 là nghe đâu thôn mình thưởng nóng cho năm ngàn tệ đấy. Chừng đó tiền thì tiêu pha rủng rỉnh cả năm đầu không phải nghĩ."
 
-Triệu Kim An hỏi ngược lại: "Thi đỗ Thanh Bắc thì học phí, sinh hoạt phí cho đến nhà cửa cái gì cũng có, lại còn được thưởng mấy trăm nghìn tệ nữa."
+"Sao mày không bảo tao thi thẳng vào Thanh Hoa hay Bắc Đại luôn đi?"
 
-Đây là sự thật.
+Triệu Kim An bật cười hỏi ngược lại: "Thi đỗ Thanh - Bắc thì từ học phí, sinh hoạt phí cho tới nhà cửa người ta lo tất tần tật từ A đến Z, lại còn được thưởng nóng cả mấy trăm ngàn tệ tiền mặt nữa ấy chứ."
 
-Nếu ai thi đỗ Thanh Bắc, chính quyền địa phương và các doanh nghiệp sẽ sắp xếp ổn thỏa mọi thứ cho người đó. Nghe nói còn có cả phần thưởng tiền mặt lên đến năm mươi vạn tệ.
+Đó là sự thật trần trụi.
 
-"Hì hì, đúng rồi."
+Thời này ở các vùng quê, chỉ cần có học sinh nào đỗ Thanh Hoa hay Bắc Đại, chính quyền địa phương cùng các doanh nghiệp lớn sẽ trải thảm đỏ tài trợ không thiếu một thứ gì, nghe đâu còn kèm theo khoản tiền thưởng nửa triệu tệ trao tận tay.
 
-Triệu Trí Dũng gãi đầu, lại đổi chủ đề: "Buổi họp lớp tối nay mày có đi không?"
+"Hì hì, à đúng rồi..."
 
-"Họp lớp?"
+Triệu Trí Dũng gãi gãi đầu, đột nhiên đổi đề tài: "Tối nay lớp mình tổ chức liên hoan chia tay, mày có đi không?"
 
-Triệu Kim An vẫn đang trong trạng thái mơ hồ, buột miệng nói: "Chắc không đi đâu."
+"Họp lớp á?"
 
-"Em..."
+Triệu Kim An vẫn đang trong trạng thái nửa tỉnh nửa mê, buột miệng đáp: "Chắc thôi, tao không đi đâu."
 
-Triệu Trí Dũng đột ngột quay người nhìn chằm chằm thằng bạn thân, hắn luôn cảm thấy chiều nay thằng bạn này cứ quái quái thế nào ấy.
+"Ủa..."
 
-"Mộc Dao cũng đi đấy! Mày không đi thật à?"
+Triệu Trí Dũng đột ngột quay phắt người lại, trố mắt nhìn thằng bạn thân. Hắn cảm thấy chiều nay Triệu Kim An cứ kỳ lạ thế nào ấy, như biến thành một người hoàn toàn khác.
 
-Nghe thấy cái tên vừa quen thuộc vừa xa lạ này, Triệu Kim An như chìm vào ký ức, biểu cảm có chút không tự nhiên. Trong đầu hắn hiện lên ba từ trước khi trùng sinh.
+"Mộc Dao cũng đi đấy! Mày thật sự không đi à?"
 
-Về nước, con gái hai tuổi.
+Nghe lại cái tên vừa thân quen lại vừa xa xôi diệu vợi ấy, Triệu Kim An như chìm sâu vào dòng hồi ức miên man. Nét mặt anh thoáng gượng gạo, trong tâm trí lại văng vẳng ba cụm từ trước khi anh nhắm mắt ở kiếp trước:
 
-Triệu Trí Dũng càng thấy lạ hơn, không lẽ nào.
+Về nước... Đã ly hôn... Một đứa con gái hai tuổi.
 
-"Hôm thi đại học xong, chẳng phải Mộc Dao đã đồng ý làm bạn gái mày rồi sao?"
+Thấy bạn mình im lặng, Triệu Trí Dũng lại càng thấy khó hiểu hơn, chuyện này vô lý quá thể:
 
-"Mày không phải đang bốc phét đấy chứ?"
+"Hôm thi đại học xong, chẳng phải Mộc Dao đã nhận lời làm bạn gái mày rồi sao?"
 
-Thấy thằng bạn không nói lời nào, Triệu Trí Dũng mới sực nhớ ra hoàn cảnh gia đình của Triệu Kim An. Chắc hẳn là trong túi không có tiền, mà không có tiền thì làm sao dám đi hẹn hò với con gái?
+"Đừng bảo với tao là hôm nọ mày chém gió cho oai đấy nhé?"
 
-Hắn lại bắt đầu luyên thuyên để an ủi bạn mình.
+Thấy Triệu Kim An vẫn lặng thinh không nói nửa lời, Triệu Trí Dũng mới sực nhớ ra hoàn cảnh ngặt nghèo của gia đình bạn. Hắn nghĩ chắc mẩm trong túi Kim An đang cạn tiền, mà đàn ông con trai rỗng túi thì lấy đâu ra dũng khí để đi chơi, hẹn hò với bạn gái?
 
-"Mày khó khăn lắm mới theo đuổi được Mộc Dao. Dù cô ấy đỗ vào Trung Nam Công Đại, nhưng mày cũng đâu có kém cạnh gì."
+Thế là cái mồm hắn lại liến thoắng an ủi:
 
-Thời học sinh vẫn là thời đại lấy thành tích làm thước đo duy nhất.
+"Mày vất vả trầy trật mãi mới theo đuổi được Mộc Dao. Dù cô ấy đỗ Đại học Công nghiệp Trung Nam thuộc top 985, nhưng mày đỗ Sư Đại cũng đâu có kém cạnh gì!"
 
-Tỉnh Tương Nam có ba trường đại học thuộc diện 985: Đại học Khoa học Kỹ thuật Quốc phòng, Đại học Trung Nam và Đại học Hồ Nam.
+Thời học sinh ngây ngô, thước đo giá trị cao nhất trong mắt đám trẻ con vẫn luôn là điểm số và danh tiếng của trường đại học.
 
-Đại học Quốc phòng thì không cần bàn tới, đó là cấp bậc "Thanh Bắc" trong quân đội, độ khó để thi vào cực kỳ lớn, không hề thua kém Thanh Bắc.
+Tỉnh Tương Nam này có ba trường đại học thuộc đề án 985 danh giá bậc nhất: Đại học Khoa học Công nghệ Quốc phòng, Đại học Trung Nam và Đại học Hồ Nam.
 
-Sư Đại chỉ là 211 chứ không phải 985, đương nhiên thấp hơn một bậc.
+Riêng trường Quốc phòng thì không cần bàn tới, đó là đẳng cấp "Thanh - Bắc trong quân đội", độ khó để thi đỗ vào đó còn khắt khe gấp vạn lần.
 
-"Mày không đi thì tao cũng chẳng đi nữa, dù sao bọn họ cũng tụ tập ăn uống suốt."
+Đại học Sư phạm chỉ là trường 211, không nằm trong top 985, nên xét theo con mắt của đám học sinh thì tự nhiên bị xếp dưới một bậc.
 
-"Tao tra trên mạng rồi, Sư Đại và Trung Nam Công Đại nằm cùng một khu đại học, sau này mày và Mộc Dao gặp nhau cũng dễ dàng."
+"Mày không đi thì tao cũng ở nhà cho rảnh nợ, đằng nào thì tụi nó cứ ba bữa nửa tháng lại rủ rê ăn uống một lần."
 
-"Có điều, mày vừa mới theo đuổi được người ta, nghỉ hè vẫn nên lên thành phố tìm cô ấy chơi một chút. Người theo đuổi cô ấy nhiều như vậy, nhất là cái thằng Âu Cường kia kìa."
+"Tao lên mạng tra cứu rồi, Đại học Sư phạm với Đại học Công nghiệp Trung Nam nằm chung một làng đại học ở Quận Sa, sau này mày với Mộc Dao muốn gặp nhau tiện như trở bàn tay."
 
-"Cậy mình là lớp trưởng, lần họp lớp này cũng là do nó tổ chức đấy."
+"Cơ mà, mày vừa mới cưa đổ được người ta, đợt nghỉ hè này cũng nên chịu khó lên thị xã dắt cô ấy đi dạo phố chứ. Đám theo đuổi Mộc Dao đông như quân Nguyên, đặc biệt là cái thằng Âu Cường ấy."
 
-Nói thì nói vậy, nhưng Triệu Kim An thấy rõ là Triệu Trí Dũng cũng rất muốn tham gia họp lớp.
+"Cậy có cái mác lớp trưởng, vụ tụ tập tối nay lại do chính tay nó đứng ra đầu trò đấy."
 
-Sau kỳ thi đại học, ngoại trừ những người chuẩn bị ôn thi lại, đây chính là ba tháng ăn chơi điên cuồng nhất.
+Nói thì nói vậy, nhưng Triệu Kim An thừa hiểu trong lòng Triệu Trí Dũng cũng đang háo hức muốn đi góp mặt ở buổi họp lớp lắm.
 
-Bị dồn nén bao nhiêu năm, một khi được "giải phóng", việc chơi bời bù đắp đã trở thành trạng thái bình thường của các sĩ tử mỗi năm.
+Sau kỳ thi đại học cam go, ngoại trừ những đứa xác định thi trượt phải ngậm ngùi ôn luyện để năm sau thi lại, thì ba tháng hè này chính là khoảng thời gian ăn chơi xả láng, bung lụa điên cuồng nhất của đời học sinh.
 
-Triệu Trí Dũng không có ý định thi lại. Hắn, Triệu Kim An và Mộc Dao cùng học một lớp, lớp chọn của trường Trung học số 1 thành phố.
+Bị đè nén, giam cầm trong đống sách vở suốt mười hai năm trời, một khi được "giải phóng", tâm lý xả hơi bù đắp đã trở thành thông lệ của hầu hết các cô cậu tân cử nhân tương lai.
 
-"Nghe nói Âu Cường đỗ vào Phục Đán, giờ ngày nào cũng nhảy nhót trong nhóm chat, hôm nay họp chỗ này, mai tụ tập chỗ kia, vênh váo hết mức."
+Triệu Trí Dũng thì chẳng bao giờ có ý định học lại. Hắn cùng Triệu Kim An và Mộc Dao học chung một lớp — lớp chọn 209 danh tiếng của Trường Trung học Phổ thông Số 1 Thị xã.
 
-"Hôm nay khoe điện thoại mới, mai khoe máy tính xách tay mới, kết quả nghe nói buổi tiệc tối qua vẫn là Campuchia chia đều."
+"Nghe bảo thằng Âu Cường đỗ Phục Đán, dạo này ngày nào cũng nhảy nhót tưng bừng trong nhóm chat QQ, hôm nay tụ tập chỗ này, mai hẹn hò chỗ nọ, oai như cóc cụ."
 
-Chia tiền thì có vấn đề gì không?
+"Hôm nay khoe điện thoại xịn, ngày mai lại khoe máy tính xách tay mới toanh. Thế mà nghe đâu chầu ăn tối qua vẫn chia tiền kiểu Campuchia, ai ăn nấy trả."
 
-Chẳng có vấn đề gì cả.
+Ăn uống chia đều tiền thì có gì sai sao?
 
-Triệu Trí Dũng lầm bầm càu nhàu, ngoài mặt lẫn trong lòng đều đang hạ thấp lớp trưởng Âu Cường.
+Chẳng có gì sai cả.
 
-Triệu Kim An nghe ra được hắn đang nói giúp mình, bởi vì Âu Cường cũng thích Mộc Dao.
+Triệu Trí Dũng lải nhải càu nhàu một tràng, tìm đủ mọi cách nói bóng nói gió hạ bệ lớp trưởng Âu Cường.
 
-Đây chẳng phải bí mật gì ở lớp 209.
+Triệu Kim An nghe ra ngay, thằng bạn đang cố tình bênh vực và nói đỡ cho mình, bởi vì Âu Cường cũng công khai theo đuổi Mộc Dao suốt thời gian qua.
 
-Vấn đề là, sau khi thi đại học xong, Mộc Dao cũng thường xuyên tham gia các buổi họp lớp.
+Chuyện này trong lớp 209 chẳng phải là bí mật gì to tát.
 
-Triệu Trí Dũng cảm thấy Âu Cường là đối thủ cạnh tranh mạnh nhất của bạn mình, không khéo sẽ bị đào góc tường mất, may mà Âu Cường học đại học tận Thượng Hải.
+Khổ nỗi, sau kỳ thi tốt nghiệp, Mộc Dao lại rất thường xuyên tham gia vào các buổi tụ tập của lớp.
 
-Hắn không biết rằng thế giới bên ngoài còn rực rỡ hơn nhiều.
+Triệu Trí Dũng cứ nơm nớp lo sợ Âu Cường sẽ là đối thủ nặng ký nhất của bạn mình, sơ sẩy một cái là bị người ta "đập chậu cướp hoa" như chơi. May mà thằng kia lên tận Thượng Hải học đại học, xa mặt thì cách lòng.
 
-Trên đời này cũng không chỉ có mỗi Triệu Kim An và Âu Cường là đàn ông.
+Hắn nào đâu có hiểu, thế giới phồn hoa ngoài kia còn muôn màu muôn vẻ hơn gấp bội.
 
-Xỏ đôi giày vải Warrior xuống sông, Triệu Trí Dũng đeo thiết bị "năng lượng mới" trên lưng.
+Và trên cõi đời này, cũng đâu chỉ có mỗi hai người đàn ông là Triệu Kim An và Âu Cường.
 
-Hắn và Triệu Kim An ở cùng một làng, Triệu Kim An Gia thôn.
+...
 
-Đàn ông trong làng có đến 90% mang họ Triệu Kim An, lắt léo một hồi kiểu gì cũng nhận được chút họ hàng.
+Triệu Trí Dũng xỏ đôi giày vải Hồi Lực lội tõm xuống dòng nước mát, lưng cõng bộ bình ắc quy kích điện.
 
-Thực tế thì chẳng có quan hệ huyết thống gì mấy.
+Hắn với Triệu Kim An cùng lớn lên ở một làng — làng Triệu Gia.
 
-Nếu thật sự tính toán vai vế, Triệu Trí Dũng còn phải gọi Triệu Kim An một tiếng "thúc".
+Đàn ông con trai trong làng này có đến chín mươi phần trăm mang họ Triệu, lằng ngoằng một hồi là thể nào cũng móc nối ra chút quan hệ họ hàng dây mơ rễ má.
 
-Thời này cá dưới sông rất nhiều nhưng không lớn, việc câu cá lại càng là chuyện viển vông, chẳng ai rảnh rỗi ra sông ngồi câu.
+Nhưng trên thực tế thì chẳng có chung mấy giọt máu mủ ruột rà.
 
-Nhà nào muốn thêm món mặn thì cứ mang lưới ra sông quăng một chập là xong.
+Nếu xét theo đúng vai vế thế thứ gia phả trong họ, Triệu Trí Dũng thậm chí còn phải mở miệng gọi Triệu Kim An một tiếng "chú họ".
 
-Có vẻ như có một vấn đề, đó là chẳng ai nghĩ đến việc bắt cá mang lên thành phố bán.
+Thời này tôm cá dưới sông còn nhiều vô kể, nhưng đa phần toàn cá nhỏ. Chuyện buông cần câu cá thì đúng là chuyện viển vông, chẳng ai rảnh rỗi ra sông ngồi câu cả.
 
-"Trên thành phố bán bao nhiêu một cân?"
+Nhà ai muốn thêm đĩa thức ăn tươi cho bữa cơm chiều, chỉ cần mang cái lưới bén ra quăng một mẻ là xong.
 
-Triệu Kim An nhặt một phiến đá dưới đất lên ném thảy, phiến đá lướt trên mặt nước hơn hai mươi lần.
+Có điều, dường như ở cái vùng quê này chẳng mấy ai nghĩ đến chuyện mang mớ cá sông này lên thành phố bán lấy tiền.
 
-Hành động này chẳng gây ra chút ngạc nhiên nào, bởi ở vùng nông thôn có sông thì ai cũng biết trò này.
+"Trên thành phố cá này bán được bao nhiêu một cân?"
 
-Triệu Trí Dũng vớt lưới lên, động tác rất thuần thục, xem ra đã có một con cá khá lớn mắc lưới.
+Triệu Kim An nhặt một viên đá dẹt bên bờ, vung tay liệng một đường tuyệt đẹp trên mặt nước. Viên đá lướt đi thoăn thoắt, nhảy hơn hai mươi nhịp bọt nước trắng xóa.
 
-"Năm, sáu tệ."
+Kỹ nghệ này chẳng khiến Triệu Trí Dũng mảy may ngạc nhiên, bởi đứa trẻ nào lớn lên bên bờ sông bờ suối ở nông thôn cũng đều thuần thục trò này.
 
-Triệu Kim An gật đầu, đã hiểu.
+Triệu Trí Dũng khéo léo lia chiếc vợt lưới qua một bụi cỏ nước, động tác vô cùng điêu luyện, xem chừng đã tóm gọn một con cá tương đối to vào rọ.
 
-Năm tệ một cân, mười cân mới được năm mươi tệ, mà chưa chắc đã bán hết được ngay.
+"Tầm năm, sáu tệ một cân."
 
-Cái giá này nói sao nhỉ.
+Triệu Kim An gật đầu, trong lòng đã hiểu rõ.
 
-Chẳng bằng đi làm thuê bên ngoài, dù sao kiếm được mười cân cá cũng không phải chuyện dễ dàng.
+Năm tệ một cân, mười cân cá cũng chỉ đổi được năm mươi tệ, mà chưa chắc đã bán hết veo được ngay.
 
-Triệu Kim An nhớ vài năm sau giá cá sẽ vọt lên tận hai mươi lăm tệ một cân, hơn nữa mang lên thành phố là người ta tranh nhau mua sạch, có điều lúc đó dưới sông cũng chẳng còn mấy con cá nào.
+Mức giá này nói sao nhỉ...
 
-"Nếu một ngày được mười cân thì một tháng được một nghìn năm trăm tệ, nghỉ hè chúng ta có thể kiếm được hơn ba nghìn tệ đấy!"
+So ra thì chẳng bằng đi làm thuê làm mướn bên ngoài, dẫu sao kiếm được mười cân cá sông tự nhiên đâu phải chuyện dễ dàng một sớm một chiều.
 
-Triệu Trí Dũng rất phấn khích, đã bắt đầu mơ mộng về cuộc sống đại học tốt đẹp.
+Triệu Kim An nhớ mang máng, chỉ vài năm sau thôi, loại cá sông tự nhiên này trên phố có giá lên tới hai mươi lăm tệ một cân, mang ra chợ là người ta xúm lại tranh nhau mua sạch. Khổ nỗi đến lúc ấy, dưới lòng sông lòng suối cũng chẳng còn mấy con cá mà bắt nữa rồi.
 
-Ý tưởng này vốn là do Triệu Kim An đưa ra, nhưng lúc này tâm trí hắn đã bay đi đâu mất rồi.
+"Nếu mỗi ngày tụi mình kiếm được mười cân, một tháng là có một ngàn rưỡi, cả mùa hè này kiếm ngon lành hơn ba ngàn tệ!"
 
-Không còn cách nào khác, trên người Triệu Kim An không có tiền. Muốn lên thành phố tìm Mộc Dao chơi thì phải có tiền, tham gia họp lớp cũng phải có tiền, chẳng phải vừa nghe nói là chia tiền đều đó sao?
+Triệu Trí Dũng phấn khích ra mặt, trong đầu đã bắt đầu vẽ nên viễn cảnh tươi đẹp về những ngày tháng đại học rủng rỉnh tiền tiêu.
 
-"Thẩn thờ cái gì đấy? Mau lại đây!"
+Ý tưởng bắt cá đi bán này vốn là do Triệu Kim An kiếp trước gợi ý, nhưng giờ đây tâm trí của người đàn ông ngoài ba mươi trong thân xác cậu thiếu niên mười tám tuổi đã bay bổng tận đẩu đâu rồi.
 
-Triệu Trí Dũng giơ cái vợt đầy cá lên thúc giục.
+Chẳng còn cách nào khác, kiếp này Triệu Kim An trắng tay không một xu dính túi. Muốn lên thành phố tìm Mộc Dao thì phải có tiền, đi họp lớp giao lưu cũng phải có tiền, chẳng phải người ta vừa bảo là ăn uống chia đều tiền đấy thôi?
 
-Triệu Kim An xách giỏ tre đi tới, đổ cá vào giỏ mới sực nhớ ra, liền mắng:
+"Đứng đực mặt ra đấy làm gì thế hả? Mau mang cái giỏ lại đây nhanh lên!"
 
-"Mày ăn nói kiểu gì đấy, gọi thúc mau!"
+Triệu Trí Dũng nhấc chiếc vợt lúc lỉu cá giục giã.
+
+Triệu Kim An xách giỏ tre lội tới, đỡ lấy mớ cá đổ vào trong giỏ rồi mới đủng đỉnh buông một câu:
+
+"Nói năng với người lớn thế đấy à? Liệu hồn mà gọi một tiếng Chú đi con trai!"

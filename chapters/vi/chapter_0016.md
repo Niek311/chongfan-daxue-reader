@@ -1,215 +1,225 @@
-# Chương 16: Kiếp Này Sẽ Không Sai
+# Chương 16: Đời này sẽ không sai nữa
 
-"Đang xới cơm cho Tiểu Duyệt Thiên."
+> **Tiêu đề gốc**: 第16章 这一世不会错。
 
-Thật ra nếu Mộc Dao và Du Phỉ không đến, bà nội sẽ không xào nhiều thức ăn như vậy. Gia đình cũng không đến mức bần cùng, chỉ là không cần thiết phải bày vẽ.
+"Đang xới cơm cho bé Duyệt Thiên đấy."
 
-Hơn nữa những món này, ngoại trừ thịt ra thì đều mang chút phong vị "tự cung tự cấp".
+Thực lòng mà nói, nếu Mộc Dao và Du Phi không ghé chơi, bà nội cũng chẳng bày vẽ làm nhiều món đến thế. Nhà tuy không dư dả nhưng cũng chưa đến mức túng bấn cùng cực, chỉ là ngày thường chẳng cần phải cầu kỳ.
 
-Ớt là tự trồng, cá vừa mới bắt dưới sông lên, trứng gà là do gà nhà nuôi đẻ ra.
+Hơn nữa, mâm cơm này ngoài chút thịt ra thì hầu hết đều mang phong vị "của nhà trồng được".
 
-Bốn người bưng bát vừa ăn vừa trò chuyện bên hiên nhà, chủ yếu là Mộc Dao và Du Phỉ hỏi, Triệu Chí Dũng giới thiệu. Doãn Hiểu Lan ở nhà bên cạnh đi ra liếc nhìn một cái rồi rời đi.
+Ớt hái ngoài vườn, cá vừa vớt dưới sông lên, còn trứng gà thì do chính đàn gà nuôi sau nhà đẻ.
 
-Trước khi vào nhà, nàng nhìn kỹ Mộc Dao thêm một chút.
+Bốn người bưng bát cơm ngồi ngoài khoảng sân trước hiên vừa ăn vừa rôm rả trò chuyện. Chủ yếu là Mộc Dao cùng Du Phi tò mò hỏi han, còn Triệu Trí Dũng thì lanh chanh thuyết minh. Chị dâu Doãn Hiểu Lan ở nhà bên bước ra liếc nhìn một cái rồi lại quay vào trong.
 
-"Cô bé này chắc là bạn gái của Kim An nhỉ?"
+Trước khi khép cửa, chị còn nấn ná nhìn Mộc Dao thêm chút nữa.
 
-Suy nghĩ của Doãn Hiểu Lan cũng giống hệt bà nội.
+"Con bé này chắc là bạn gái của Kim An rồi?"
 
-"Bên cạnh là nhà chị dâu, còn đây, căn nhà hai tầng này là nhà chú của Kim An."
+Ý nghĩ của Doãn Hiểu Lan cũng hệt như suy đoán của bà nội lúc nãy.
 
-Triệu Chí Dũng cầm đũa chỉ trỏ hai bên giới thiệu. Hai căn nhà bên cạnh đều ốp gạch men trắng nhỏ, trông như kiểu mẫu thống nhất của nhà tự xây ở nông thôn tỉnh Tương Nam.
+"Sát vách là nhà chị dâu tớ. Nè, còn căn nhà hai tầng đằng này là của chú ruột Kim An."
 
-Đang trò chuyện, phía dưới đường lộ truyền đến giọng nói đanh đá của Vương Kim Như.
+Triệu Trí Dũng cầm đôi đũa chỉ trỏ giới thiệu hai bên. Hai căn nhà bên cạnh đều được ốp gạch men trắng bản nhỏ, đúng chuẩn kiểu dáng phổ biến của những ngôi nhà tự xây ở vùng nông thôn đất Tương Nam.
 
-"Chẳng phải là bắt nạt người quá đáng sao!?"
+Đang lúc rôm rả thì từ con đường cái phía dưới dốc vọng lên giọng nói the thé, đanh đá của Vương Kim Như.
 
-"Thấy nhà chúng tôi không có đàn ông ở nhà à? Cái gì mà 985 với 211, người ta 985 được thưởng năm ngàn, đến lượt Kim An nhà mình thì chỉ có hai ngàn thôi!"
+"Chẳng phải là ỷ thế bắt nạt người ta sao?!"
 
-"Cái cậu gì đó, năm kia thi còn không tốt bằng Kim An nhà mình, dựa vào cái gì mà cậu ta được thưởng năm ngàn!?"
+"Thấy nhà mình không có đàn ông gánh vác nên bắt chẹt chứ gì! 985 với chả 211! Cái gì mà 985 thì thưởng năm nghìn, đến lượt Kim An nhà này thì chỉ có hai nghìn!"
 
-Từ ủy ban thôn trở về, dọc đường cái miệng của Vương Kim Như chưa từng ngừng nghỉ.
+"Cái thằng gì năm kia thi còn kém điểm Kim An nhà mình, cớ sao nó lại được thưởng tận năm nghìn?!"
 
-Bà ta cố tình nói lớn tiếng cho người trong thôn nghe thấy.
+Suốt từ trụ sở ủy ban thôn về, cái miệng của Vương Kim Như chẳng lúc nào chịu ngơi nghỉ.
 
-Bà ta chẳng quan tâm 985 hay 211 là cái gì, chỉ muốn lấy thêm chút tiền từ thôn mà thôi.
+Bà ta cố tình gào to lên cho cả làng cả tổng cùng nghe thấy.
 
-Ở một số vùng nông thôn là như vậy, bà ta còn thường xuyên nói ở nhà rằng: "Nếu không phải tôi đanh đá như thế, cả nhà các người chắc chắn bị thiên hạ bắt nạt đến chết rồi!"
+Bà ta cóc thèm quan tâm 985 hay 211 là cái thá gì, trong đầu chỉ chăm chăm muốn vòi thêm chút tiền từ thôn mà thôi.
 
-Mộc Dao và Du Phỉ đưa mắt nhìn nhau.
+Ở một số vùng quê thường là như vậy. Bà ta cũng hay bô bô trong nhà rằng: "Nếu không nhờ cái miệng đanh đá này của tôi thì cả cái nhà này đã bị thiên hạ bắt nạt đến chết từ đời nào rồi!"
 
-Lần này Triệu Chí Dũng không biết phải giới thiệu thế nào nữa, thím ơi thím, thím có thể thu liễm lại một chút được không.
+Mộc Dao và Du Phi đưa mắt nhìn nhau đầy bối rối.
 
-Lên đến dốc, nhìn thấy hai cô gái xinh đẹp, giọng của Vương Kim Như đột ngột dừng lại.
+Lần này thì Triệu Trí Dũng ngượng chín cả mặt, chẳng biết phải mở lời giới thiệu ra sao. Thím ơi là thím, thím tém tém lại giùm cháu với được không!
 
-Bà ta lập tức biến đổi sắc mặt, tươi cười hớn hở.
+Vừa leo hết con dốc, vừa thấy hai cô thiếu nữ xinh xắn rạng ngời ngồi đó, giọng điệu the thé của Vương Kim Như lập tức im bặt.
 
-"À, Kim An dẫn bạn học về chơi đấy à, ha ha, có nước ngọt không? Để thím đi mua nước ngọt nhé, Sprite nhé?"
+Gương mặt bà ta thoắt cái đã biến đổi sang nụ cười đon đả, xởi lởi vô cùng.
 
-"Dạ thôi, không cần đâu ạ!"
+"Ấy chết, Kim An dắt bạn cùng lớp về chơi đấy à? Ha ha, nhà có nước ngọt chưa nhỉ? Để thím đi mua nhé, uống Sprite được không?"
 
-Mộc Dao và Du Phỉ vội vàng khách khí từ chối.
+"Dạ thôi ạ, thím đừng phiền, chúng cháu không cần đâu ạ!"
 
-Vương Kim Như không ngốc, bà ta biết mình làm vậy sẽ khiến Triệu Kim An "mất mặt", dùng một câu so sánh không quá thỏa đáng chính là "xấu chàng hổ ai".
+Mộc Dao cùng Du Phi vội vàng xua tay từ chối cho phải phép.
 
-Bà ta rất nhiệt tình chào mời Mộc Dao và Du Phỉ gắp thêm thức ăn, Mộc Dao và Du Phỉ chỉ cười gượng gạo, bảo là đã gắp rồi.
+Vương Kim Như chẳng phải kẻ ngu ngốc. Bà ta thừa hiểu bộ dạng vừa rồi của mình sẽ khiến Triệu Kim An mất mặt trước bạn bè. Nói theo cách hơi khiếm nhã thì gọi là "vạch áo cho người xem lưng", chuyện xấu trong nhà không nên bêu riếu ra ngoài.
 
-Bà nội vẫn luôn không xuất hiện.
+Bà ta vô cùng niềm nở gắp thêm thức ăn cho Mộc Dao và Du Phi. Cả hai chỉ biết gượng cười đáp lễ, bảo rằng trong bát vẫn còn đầy ắp.
 
-Ăn cơm xong, dưa hấu vẫn còn ngâm trong nước giếng chưa cắt, Triệu Chí Dũng đã cưỡi mô tô đưa Mộc Dao và Du Phỉ về.
+Bà nội vẫn luôn tránh mặt ở gian trong, không hề bước ra.
 
-Trái dưa hấu này là bà nội tranh thủ lúc họ đang ăn cơm để ra vườn hái.
+Cơm nước xong xuôi, quả dưa hấu thả ngâm dưới giếng nước mát lạnh vẫn chưa kịp bổ thì Triệu Trí Dũng đã nổ máy xe máy, chở Mộc Dao và Du Phi về thị trấn.
 
-Triệu Kim An ngồi xổm bên giếng nước nghịch một lát, dưa hấu vừa to vừa tròn.
+Quả dưa ấy là do bà nội tranh thủ lúc mấy đứa nhỏ đang mải ăn cơm, lặng lẽ ra tận ruộng hái về.
 
-"Bà nội, bọn họ không thiếu dưa hấu, Thanh Trĩ trước kia cũng không thiếu thịt gà thịt vịt để ăn..."
+Triệu Kim An ngồi xổm bên thành giếng đá, vỗ nhẹ vào quả dưa một hồi. Trái dưa to tròn, da xanh bóng bẩy.
 
-"Bà nội, là chúng cháu sai rồi... Chúng cháu cũng không sai, kiếp này sẽ không sai..."
+"Bà ơi, người ta không thiếu dưa hấu đâu... Thanh Trĩ của ngày xưa cũng chẳng thiếu thịt cá để ăn..."
 
-Lúc này bà nội mới bắt đầu ăn cơm, bà bưng bát đứng ở cửa nhìn đứa cháu nội đang ngồi xổm bên giếng nước.
+"Bà ơi, là chúng ta sai rồi... Nhưng chúng ta cũng chẳng hề sai. Đời này, con nhất định sẽ không để mọi chuyện sai lầm thêm lần nữa..."
 
-Về đến nhà, nhìn thấy đôi giày vải trắng của con gái bị ướt, Mộc Nhân Cường và Trương Tuệ bắt đầu sinh nghi.
+Mãi đến lúc này bà nội mới bưng bát cơm ra trước cửa. Bà vừa ăn vừa lặng lẽ nhìn bóng lưng đứa cháu trai đang ngồi xổm bên bờ giếng.
 
-"Con gái, hôm nay con đi đâu chơi thế?"
+...
 
-"Dạ!?"
+Vừa về đến nhà, trông thấy đôi giày vải trắng tinh của con gái lấm lem bùn nước, vợ chồng Mộc Nhân Cường và Trương Tuệ liền dấy lên mối nghi hoặc.
 
-Mộc Dao đang cúi người thay giày, cũng không biết tại sao, nàng không nhắc đến Triệu Kim An, cũng không nói mình đã đến Triệu Kim An Gia thôn.
+"Con gái, hôm nay con đi đâu chơi đấy?"
 
-"Con đi chơi với mấy bạn học một chút ạ."
+"Dạ?!"
 
-Nàng úp úp mở mở trả lời.
+Mộc Dao đang cúi người cởi giày, chẳng hiểu sao cô lại giấu nhẹm chuyện Triệu Kim An, cũng không hề nhắc nửa lời đến việc mình vừa về Triệu gia thôn.
 
-Nhưng sao có thể giấu nổi cha mẹ, Trương Tuệ mỉm cười nói: "Có phải là yêu đương rồi không? Không sao, thời cấp ba không cho con yêu là sợ ảnh hưởng học hành."
+"Con đi chơi với mấy đứa bạn cùng lớp thôi ạ."
 
-"Nói cho mẹ biết, cậu bé đó là ai? Mẹ có thể gặp mặt không?"
+Cô đáp ấp úng, lảng tránh ánh nhìn của bố mẹ.
 
-"Chao ôi, khi nào xác định hẳn con sẽ dẫn về gặp mẹ."
+Nhưng làm sao qua mắt được những bậc phụ huynh từng trải. Trương Tuệ mỉm cười dịu dàng: "Yêu đương rồi đúng không? Không sao đâu con, hồi cấp ba bố mẹ cấm đoán là sợ con xao nhãng việc học hành thôi."
 
-Mộc Dao thay giày xong, chẳng kịp đợi thêm đã vội trốn vào phòng ngủ.
+"Kể cho mẹ nghe xem nào, cậu bạn đó là ai thế? Mẹ gặp mặt một chút được không?"
 
-"Yêu rồi."
+"Ôi dào, bao giờ chính thức yêu thì con dắt về ra mắt mẹ sau."
 
-"Ừ."
+Mộc Dao vừa thay xong đôi dép trong nhà liền vội vã lỉnh tót vào phòng ngủ, đóng chặt cửa lại.
 
-Trương Tuệ và Mộc Nhân Cường nhìn nhau, xác định được dự đoán trong lòng.
-
-"Hỏi thử xem?"
+"Đúng là yêu rồi."
 
 "Ừ."
 
-"Hỏi ai?"
+Trương Tuệ và Mộc Nhân Cường nhìn nhau, trong lòng đã nắm chắc mười mươi phán đoán của mình.
 
-"Giáo viên chủ nhiệm, với cả bạn học của con bé nữa."
+"Có cần đi hỏi thăm chút không?"
 
-"Ông nhớ tối nay canh chừng kỹ vào, không được để nó đi qua đêm đâu đấy."
+"Ừ, nên chứ."
 
-Trong lòng Mộc Nhân Cường, con gái lúc nào cũng dễ chịu thiệt thòi hơn, làm cha chẳng ai muốn bắp cải mình cực khổ nuôi lớn lại để cho heo ủi mất.
+"Hỏi ai bây giờ?"
 
-Nhưng nếu để bắp cải già đi mà vẫn không có ai ủi, làm cha mẹ lại thấy sốt ruột.
+"Chủ nhiệm lớp, với lại mấy đứa bạn thân của con bé."
 
-Mộc Dao mười tám tuổi tự nhiên không có vấn đề đó, con gái mình xuất sắc như vậy, Mộc Nhân Cường và Trương Tuệ đương nhiên hy vọng nửa kia của con mình cũng phải thật ưu tú.
+"Trước mắt bà cứ để mắt kỹ vào buổi tối nhé, tuyệt đối không được để con bé đi qua đêm ở ngoài."
 
-Chỉ là cái sự "ưu tú" này được định nghĩa thế nào?
+Trong thâm tâm của Mộc Nhân Cường, phận con gái lúc nào cũng dễ chịu thiệt thòi. Người làm cha chẳng ai nỡ nhìn luống bắp cải mơn mởn do chính tay mình chăm bẵm bị một con lợn ất ơ nào đó ủi mất.
 
-Kiếp trước cũng từng xảy ra chuyện như vậy, chỉ có điều là vào ngày thứ ba sau khi trận chung kết World Cup kết thúc.
+Nhưng ngặt nỗi, nếu bắp cải già khọm rồi mà vẫn chẳng có ai thèm ngó ngàng thì cha mẹ lại sốt ruột đứng ngồi không yên.
 
-Còn kiếp này là vào đúng ngày diễn ra trận chung kết.
+Mộc Dao ở tuổi mười tám rực rỡ đương nhiên chẳng bao giờ vướng phải nỗi lo ấy. Con gái mình xuất sắc như vậy, Mộc Nhân Cường và Trương Tuệ dĩ nhiên kỳ vọng nửa kia của con cũng phải thật sự ưu tú, rạng danh.
 
-Triệu Kim An nhận được một cuộc gọi từ số lạ, một giọng nói thanh lãnh và đầy xa cách truyền ra.
+Chỉ là, hai chữ "ưu tú" ấy... rốt cuộc được định nghĩa ra sao?
 
-"Alo, xin hỏi có phải là Triệu Kim An không?"
+...
 
-"Là tôi."
+Ở kiếp trước, chuyện này cũng từng xảy ra, chỉ có điều là vào ba ngày sau khi trận chung kết World Cup khép lại.
+
+Còn ở kiếp này, nó lại ập đến ngay trong chính ngày diễn ra trận chung kết.
+
+Triệu Kim An nhận được một cuộc gọi từ số máy lạ. Giọng nói truyền qua loa mang theo vẻ thanh cao, xa cách đến lạnh lùng.
+
+"A-lô, xin hỏi có phải cậu Triệu Kim An đấy không?"
+
+"Vâng, là cháu."
 
 "Chào cậu, tôi là mẹ của Mộc Dao."
 
 "Cháu chào dì ạ."
 
-Đầu dây bên kia rõ ràng sững lại một chút, Triệu Kim An biểu hiện quá đỗi bình thản, không một chút hoảng hốt, không giống như một học sinh vừa mới tốt nghiệp cấp ba.
+Đầu dây bên kia thoáng khựng lại một nhịp rõ rệt. Thái độ của Triệu Kim An quá đỗi bình thản, chẳng hề vương một chút bối rối hay hoảng hốt nào, hoàn toàn không giống tác phong của một cậu học sinh vừa mới tốt nghiệp cấp ba.
 
-Người nhát gan có lẽ khi căng thẳng sẽ cúp máy luôn.
+Gặp phải đứa nhút nhát, có khi cuống quá đã cúp phụt máy từ đời nào.
 
-Thậm chí nếu không cúp máy, tiếng "Cháu chào dì ạ" kia cũng sẽ mang theo chút lúng túng, hoang mang.
+Dẫu không cúp máy thì câu "Cháu chào dì ạ" kia cũng khó lòng giấu nổi sự run rẩy, chột dạ.
 
-"Triệu Kim An, ngày mai cậu có thời gian không?"
+"Triệu Kim An, ngày mai cậu có rảnh không?"
 
-"Có ạ."
+"Dạ có ạ."
 
-"Vậy ngày mai chúng ta gặp mặt một lần được không?"
+"Vậy ngày mai chúng ta gặp nhau một lát được chứ?"
 
-"Dạ được."
+"Vâng ạ."
 
-Cúp điện thoại, Triệu Kim An đang ngồi hóng mát ở hiên nhà theo thói quen định lấy điếu thuốc ra, rồi lại dừng động tác, nhìn về phía chân trời vẫn còn sót lại một tia sáng mà thở dài một hơi.
+Sau khi gác máy, Triệu Kim An ngồi hóng gió ngoài hiên sân, theo thói quen định thò tay vào túi móc bao thuốc lá, nhưng rồi lại dừng tay. Cậu phóng tầm mắt nhìn về phía chân trời xa xăm nơi ánh hoàng hôn sót lại chút vệt sáng le lói cuối cùng, thở dài một hơi thật khẽ.
 
-"Cuối cùng... vẫn đến rồi sao."
+"Rốt cuộc... ngày này cũng đã tới."
 
-Điện thoại kêu lên một tiếng "đinh".
+Điện thoại khẽ rung lên một tiếng "ting".
 
-Số máy lạ: Mười rưỡi sáng mai, cà phê Bang Đặc.
+Số lạ: *10 giờ rưỡi sáng mai, quán cà phê Bonte.*
 
-"Địa điểm vẫn vậy, chỉ có thời gian là thay đổi."
+"Địa điểm vẫn y như cũ, chỉ có thời gian là đổi khác."
 
-Kiếp trước Triệu Kim An và Mộc Dao yêu nhau ở đại học suốt hai năm rưỡi, nói thật là yêu Mộc Dao rất mệt mỏi.
+Kiếp trước, Triệu Kim An và Mộc Dao đã hẹn hò suốt hai năm rưỡi thời đại học. Nói một cách thành thật, yêu Mộc Dao là một hành trình vô cùng mệt mỏi.
 
-Năm nhất, tình cảm của hai người rất tốt, Mộc Dao rất bám người.
+Năm nhất, tình cảm giữa hai người mặn nồng khăng khít, Mộc Dao rất quấn quýt bên cậu.
 
-Triệu Kim An rất nghe lời, rất cầu tiến, hắn nỗ lực khiến bản thân trở nên "ưu tú", cũng làm tròn nghĩa vụ của một người bạn trai.
+Triệu Kim An khi ấy luôn ngoan ngoãn, cầu tiến, dốc hết sức mình để trở nên thật "ưu tú", làm tròn mọi bổn phận của một người bạn trai chu đáo.
 
-Mọi chuyện bắt đầu thay đổi từ lúc nào nhỉ?
+Thế nhưng mọi chuyện bắt đầu rạn nứt từ khi nào?
 
-Hình như là từ học kỳ hai của năm hai, Mộc Dao không còn bám Triệu Kim An như trước nữa.
+Hình như là từ nửa cuối năm thứ hai, Mộc Dao không còn quấn lấy cậu như trước nữa.
 
-Một ngày nọ của năm ba, nàng nói với Triệu Kim An những lời như thế này:
+Rồi đến một ngày của năm thứ ba, cô đã nói với cậu những lời này:
 
-"Kim An, anh rất tốt, rất cầu tiến, đối với em cũng rất tốt, em đều biết cả, nhưng anh không có dã tâm, không phải, cũng không hẳn là dã tâm, là sự yên tĩnh, anh quá yên tĩnh rồi."
+"Kim An, anh rất tốt, rất có chí tiến thủ và cũng đối xử với em chẳng có điểm nào để chê. Em hiểu hết... nhưng ở anh thiếu mất dã tâm. Không, cũng không hẳn là dã tâm, mà là sự tĩnh lặng... anh quá trầm lặng."
 
-"Cũng không đúng, không phải là yên tĩnh."
+"Cũng không đúng nữa, không hẳn là trầm lặng..."
 
-Mộc Dao lắc đầu, có lẽ chính nàng cũng không biết phải diễn đạt thế nào, chia tay cũng không tìm ra được một lý do hợp lý!
+Mộc Dao khẽ lắc đầu. Có lẽ chính bản thân cô cũng chẳng biết phải diễn đạt thế nào cho trúng, bởi muốn chia tay nhưng lại chẳng thể tìm nổi một lý do chính đáng!
 
-Triệu Kim An chỉ hỏi Mộc Dao một câu: "Chán rồi sao?"
+Triệu Kim An khi ấy chỉ nhìn thẳng vào mắt cô, hỏi đúng một câu:
 
-Rồi quay người bước đi.
+"Em chán rồi phải không?"
 
-Mộc Dao gào khóc với hắn: "Anh xem, chính là như vậy, chia tay mà anh cũng vẫn như vậy!"
+Dứt lời, cậu dứt khoát quay lưng bước đi.
 
-Triệu Kim An quay lại, bình thản nói: "Em nói với đám bạn học rằng nhà anh làm kinh doanh, nhưng cha anh đã mất từ khi anh còn học tiểu học."
+Mộc Dao đứng sau lưng gào khóc nức nở: "Anh nhìn xem, lúc nào cũng như vậy! Ngay cả chia tay mà anh cũng dửng dưng như thế!"
 
-"Còn nữa, anh đi làm thêm là để kiếm tiền, không phải để trải nghiệm cuộc sống."
+Triệu Kim An xoay người lại, giọng nói bình thản đến lạ kỳ: "Em đi kể với bạn bè cùng lớp rằng nhà anh làm kinh doanh, nhưng bố anh đã qua đời từ hồi anh học tiểu học rồi."
 
-Những người có thể thi đỗ Trung Nam Công Đại, nhiều chuyện không cần nói quá rõ ràng, bọn họ có thể tự mình đọc hiểu được.
+"Và nữa, anh đi làm thêm là để kiếm tiền mưu sinh trang trải cuộc sống, chứ không phải để 'trải nghiệm phong vị nhân gian'."
 
-Triệu Kim An cũng có thể thấu hiểu Mộc Dao, cái gì mà dã tâm, cái gì mà yên tĩnh, nếu như điều kiện gia đình tốt, có tiền, có bối cảnh, thì sự yên tĩnh có còn là vấn đề không?
+Những kẻ đủ sức thi đỗ vào Đại học Công nghiệp Trung Nam thì nhiều chuyện chẳng cần phải vạch trần quá trần trụi, họ thừa thông minh để tự mình thấu hiểu.
 
-Thực ra dùng từ "thủ đoạn" thì hợp lý hơn.
+Triệu Kim An cũng hiểu cho Mộc Dao. Dã tâm cái gì, trầm lặng cái gì chứ? Nếu gia cảnh bề thế, lắm tiền nhiều của, có chỗ dựa vững chắc thì sự trầm lặng kia liệu có trở thành khuyết điểm không?
 
-Triệu Kim An cứ thế mà "đi", không một chút dây dưa, không níu kéo, không đòi hỏi Mộc Dao phải cho mình một lời giải thích hợp lý.
+Thực chất, phải dùng từ "thủ đoạn" hay "năng lực quyền thế" mới chuẩn xác.
 
-Ví dụ như em có phải đã thay lòng đổi dạ không?
+Kiếp trước, Triệu Kim An đã "rời đi" như thế, dứt khoát không một chút dây dưa, không níu kéo van xin, cũng chẳng thèm đòi hỏi Mộc Dao phải đưa ra một lời giải thích hợp lý.
 
-Ví dụ như có phải có chàng trai ưu tú hơn đang theo đuổi em không, vân vân.
+Chẳng hạn như gặng hỏi: Có phải em đã thay lòng đổi dạ?
 
-Hoặc giống như một chiến thần thuần ái, cầu xin Mộc Dao cho mình thời gian, mình sẽ trở nên ưu tú, trở nên "ưu tú" giống như trong tưởng tượng của nàng.
+Hay là: Có phải đã có chàng trai nào ưu tú, giàu có hơn theo đuổi em?
 
-Mộc Dao ngồi thụp xuống đất bịt mặt khóc nức nở, không biết nàng khóc cho chính mình hay khóc cho đoạn tình cảm này.
+Càng không giống như những kẻ si tình mù quáng, quỳ lụy cầu xin cô cho mình thêm thời gian, hứa hẹn bản thân sẽ trở nên thật xuất sắc, thật "ưu tú" đúng như hình mẫu lý tưởng mà cô hằng mơ ước.
 
-Ngày hôm sau.
+Mộc Dao ngồi sụp xuống đất ôm mặt khóc nấc lên từng cơn. Chẳng rõ khi ấy cô đang khóc cho chính bản thân mình, hay đang khóc cho một đoạn tình cảm đã vỡ vụn.
 
-Triệu Kim An mặc một chiếc áo thun trắng, quần dài đen, thay một đôi giày đế bằng đã đi được hai năm.
+...
 
-Ngày hè nóng nực, không mặc quần đùi đi dép lê cũng là một loại tôn trọng đối với người khác và chính mình.
+Hôm sau.
 
-Vừa mới vẫy tay chặn một chiếc xe khách hướng về phía thành phố ở ven đường, Triệu Kim An lại nhận được điện thoại của Trương Tuệ, nói là địa điểm đã thay đổi, chuyển sang một khách sạn tốt nhất trong thành phố.
+Triệu Kim An khoác lên mình chiếc áo phông trắng đơn giản, quần dài màu đen, xỏ vào đôi giày vải đế bằng đã đi suốt hai năm qua.
+
+Giữa trưa hè oi ả, không mặc quần cộc xỏ dép lê vừa là phép lịch sự tối thiểu dành cho người đối diện, vừa là sự tôn trọng đối với chính bản thân mình.
+
+Vừa bước ra ven đường vẫy tay đón chuyến xe khách chạy tuyến vào nội thành, điện thoại lại đổ chuông. Là Trương Tuệ gọi tới, thông báo địa điểm hẹn đã thay đổi, dời sang khách sạn sang trọng bậc nhất thành phố.
 
 Khách sạn Hùng Hưng.
 
-Một lát sau Mộc Dao lại gọi điện tới.
+Chẳng mấy chốc, Mộc Dao lại gọi điện tới.
 
-Nàng bảo Triệu Kim An hãy mặc đồ tử tế một chút, nghe giọng điệu có vẻ khá căng thẳng.
+Cô dặn dò Triệu Kim An nhớ ăn mặc tươm tất, chỉn chu một chút, giọng điệu nghe chừng vô cùng căng thẳng và thấp thỏm.
 
-Xe khách vừa đến nội thành, điện thoại kêu "đinh" một tiếng, lại nhận được một tin nhắn.
+Xe khách vừa cập bến trung tâm thành phố, túi quần Triệu Kim An bỗng reo lên tiếng "ting", một tin nhắn mới được gửi đến.
 
-Du Phỉ: Oa, Kim An, cậu và Mộc Dao đã gặp mặt phụ huynh hai bên rồi đấy à?
+Du Phi: *Oa oa, Kim An ơi, cậu với Mộc Dao vừa mới thế mà đã dắt nhau đi ra mắt hai bên gia đình rồi đấy à?*
 
-Đúng vậy, hôm qua Mộc Dao mới đến Triệu Kim An Gia thôn gặp bà nội và thím, hôm nay Triệu Kim An đã đi gặp cha mẹ của Mộc Dao, tình yêu như vậy thật khiến những cô gái nhỏ mười tám tuổi phải ngưỡng mộ.
+Phải rồi, mới hôm qua Mộc Dao vừa về Triệu gia thôn diện kiến bà nội và thím, hôm nay Triệu Kim An đã khăn gói đi gặp bố mẹ Mộc Dao. Một chuyện tình thần tốc và lãng mạn như thế, bảo sao không khiến trái tim của những cô thiếu nữ tuổi mười tám ngập tràn mộng tưởng và ngưỡng mộ cơ chứ.

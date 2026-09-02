@@ -1,161 +1,167 @@
-# Chương 50: Có Thể Đi Được Chưa
+# Chương 50: Có thể đi được chưa nào?
 
-Những năm trước, mỗi khi đến mùa gặt lúa, Triệu Kim An đều xin nghỉ học về nhà giúp đỡ.
+> **Tiêu đề gốc**: 第50章 可以走了吧？
 
-Vương Kim Như xuống ruộng làm việc, bà nội ở nhà phụ trách nấu cơm, sau đó gọi thêm vài thanh niên trai tráng trong thôn tới giúp một tay.
+Mọi năm cứ đến mùa gặt lúa, Triệu Kim An đều xin nghỉ học vài hôm để về quê đỡ đần gia đình.
 
-Đến lượt nhà khác gặt lúa, bà nội sẽ sang bếp nhà họ giúp đỡ, coi như là đổi công.
+Thím Vương Kim Như lội xuống ruộng gặt lúa, bà nội ở nhà đảm nhận việc cơm nước, rồi nhờ thêm vài thanh niên trai tráng khỏe mạnh trong làng tới gặt phụ.
 
-Lần này chú Triệu Quốc Hoa xin nghỉ về nhà sớm, Triệu Duyệt Thiên gọi điện tới rất vui vẻ, cô bé reo lên trong điện thoại: "Anh ơi, bố em về rồi!"
+Đến lượt nhà khác thu hoạch lúa, bà nội lại sang gian bếp nhà họ nấu nướng phụ giúp, coi như là hình thức đổi công qua lại giữa chòm xóm láng giềng.
 
-Triệu Kim An mỉm cười ôn hòa, cầm điện thoại hỏi: "Bố có mua gì cho em không?"
+Lần này chú út Triệu Quốc Hoa đã xin nghỉ phép về quê sớm hơn mọi bận. Bé Triệu Duyệt Thiên gọi điện thoại tới với giọng điệu vô cùng hớn hở, con bé tíu tít hét lớn trong ống nghe: "Anh ơi, bố em về rồi này!"
 
-Triệu Duyệt Thiên phấn khích nói: "Có mua váy này, mua cặp sách này, còn mua cả một con búp bê nữa!"
+Triệu Kim An nở nụ cười hiền hậu, áp chặt chiếc điện thoại bên tai ân cần hỏi: "Bố có mua quà gì đẹp cho em không?"
 
-Trong điện thoại còn nghe thấy tiếng Vương Kim Như đang trách móc Triệu Quốc Hoa.
+Triệu Duyệt Thiên thích thú khoe: "Bố mua cho em váy mới này, mua cặp sách mới này, lại còn mua cả một con búp bê tây nữa cơ!"
 
-"Đã bảo là có cặp sách rồi mà ông còn mua làm gì!"
+Trong điện thoại vẫn còn văng vẳng tiếng thím Vương Kim Như cằn nhằn trách móc chú Triệu Quốc Hoa:
 
-Cặp sách là do Đoạn Thu Bình mua cho Triệu Duyệt Thiên, bên trong còn có cả hộp bút.
+"Đã bảo con bé có cặp sách dùng rồi mà ông vẫn cứ mua thêm làm gì không biết!"
 
-Không cần hỏi cũng biết, con búp bê trong miệng Triệu Duyệt Thiên chắc chắn là loại rất rẻ tiền, cô bé có lẽ còn chẳng biết búp bê Barbie là gì.
+Chiếc cặp sách đó là do mẹ Đoạn Thu Bình mua gửi cho Triệu Duyệt Thiên, bên trong còn có đủ cả một hộp bút xinh xắn.
 
-Nhưng Triệu Quốc Hoa vất vả lắm mới về nhà một chuyến, sao có thể không mua quà cho con gái?
+Chẳng cần hỏi cũng biết, con búp bê mà Triệu Duyệt Thiên khoe chắc chắn chỉ là loại búp bê rẻ tiền bán rong ngoài vỉa hè, con bé ở quê có khi còn chưa từng nghe qua khái niệm búp bê Barbie đắt đỏ là gì.
 
-Chú cũng không cãi lại Vương Kim Như, chú biết một mình Vương Kim Như chăm lo cho con gái, quán xuyến cả gia đình vất vả đến nhường nào.
+Thế nhưng người làm cha như chú Triệu Quốc Hoa hiếm hoi lắm mới có dịp về thăm nhà một lần, làm sao có thể nỡ lòng nào về tay không mà không mua chút quà mọn cho cô con gái rượu của mình?
 
-Triệu Quốc Hoa cầm lấy điện thoại, nói với Triệu Kim An: "Kim An à, cháu cứ yên tâm học hành, đừng lo chuyện ở nhà, sinh hoạt phí không đủ thì gọi điện cho thím."
+Chú cũng chẳng buồn đôi co cãi lại lời vợ, bởi chú thừa hiểu một người phụ nữ như Vương Kim Như một mình ở nhà vừa chăm con vừa quán xuyến cả một gia đình vất vả, cực nhọc đến nhường nào.
 
-Triệu Kim An còn có thể nói gì đây, hắn cầm điện thoại hỏi: "Chú, chú về mấy ngày ạ?"
+Triệu Quốc Hoa cầm lấy điện thoại, cất giọng sang sảng bảo với Triệu Kim An: "Kim An đấy à, cháu đừng có bận tâm chuyện đồng áng ở nhà làm gì. Tiền sinh hoạt phí trên đó nếu thiếu thốn thì cứ gọi điện về bảo thím gửi thêm cho nhé."
 
-Nếu Lạc Cẩn Chi ở đây sẽ biết, đây mới là lúc Triệu Kim An dịu dàng nhất.
+Triệu Kim An nghẹn ngào chẳng biết nói gì hơn, anh cầm máy khẽ hỏi: "Chú út, đợt này chú được nghỉ mấy ngày ạ?"
 
-Triệu Quốc Hoa bảo là ba ngày, vất vả lắm mới xin nghỉ được.
+Nếu Lạc Cẩn Chi có mặt ở đây vào lúc này, cô sẽ nhận ra những giây phút này mới chính là lúc Triệu Kim An bộc lộ sự dịu dàng và ấm áp chân thật nhất của mình.
 
-Đàn ông với nhau vốn chẳng có gì để tán gẫu, Triệu Quốc Hoa càng biết cháu mình ít nói, không ngờ Triệu Kim An do dự một hồi rồi bảo: "Chú, chú đối xử với thím tốt một chút, về nhà rồi thì đưa thím lên phố mua vài bộ quần áo mới."
+Triệu Quốc Hoa đáp được ba ngày, khó khăn lắm mới xin nghỉ phép được chừng ấy.
 
-Triệu Quốc Hoa: "..."
+Đàn ông với nhau vốn chẳng có nhiều chuyện để tỉ tê tâm sự, Triệu Quốc Hoa lại càng biết rõ đứa cháu trai này ngày thường vốn kiệm lời. Chẳng ngờ Triệu Kim An ngập ngừng một thoáng rồi đột nhiên dặn dò: "Chú út này, chú hãy đối xử với thím thật tốt nhé. Đợt này về nhà, chú nhớ dẫn thím lên phố huyện mua lấy hai bộ quần áo mới tinh mà mặc."
 
-Chú ngẩn người hồi lâu, gãi gãi đầu.
+Triệu Quốc Hoa ngẩn người ra: "..."
 
-"Hê, lớn thật rồi, thằng nhóc ngốc nghếch này cũng biết dỗ dành con gái rồi cơ đấy."
+Chú đứng chết trân mất một hồi lâu, rồi đưa tay gãi đầu gãi tai bối rối.
 
-Triệu Quốc Hoa nói: "Chú về rồi nên cháu không cần về nữa đâu, lãng phí tiền vé xe."
+"Hây, thằng cháu tôi lớn thật rồi đấy, thằng nhóc ngốc nghếch này cũng đã biết nghĩ cách dỗ dành đàn bà con gái rồi cơ đấy."
 
-Triệu Kim An đột nhiên hỏi: "Chú, thôn mình có hợp trồng loại cây ăn quả nào không ạ?"
+Triệu Quốc Hoa dặn tiếp: "Chú đã về nhà lo liệu rồi thì cháu đừng có bắt xe về nữa, tốn kém tiền vé xe cộ ra."
 
-Đầu dây bên kia Triệu Quốc Hoa lặng đi một lúc, mắng: "Đừng có nghĩ mấy chuyện đó, lên đại học rồi còn định về nhà trồng cây à? Cháu cứ lo mà học cho tốt, đừng có nghĩ lung tung!"
+Triệu Kim An bỗng cất tiếng hỏi: "Chú út, chú thấy đất làng mình có thích hợp để trồng loại cây ăn quả nào không ạ?"
 
-"Thím cháu là người khẩu xà tâm phật thôi."
+Đầu dây bên kia, Triệu Quốc Hoa lại ngớ người ra một lúc, rồi nghiêm giọng bảo: "Cháu đừng có nghĩ ngợi vớ vẩn mấy chuyện đó. Khó khăn lắm mới đỗ đại học, chẳng lẽ học xong lại định vác cuốc về làng làm nông dân trồng cây ăn quả chắc? Cháu cứ việc lo học hành cho tử tế, đừng có tơ tưởng mấy trò linh tinh ngoài luồng!"
 
-Triệu Quốc Hoa chắc là đi ra xa một chút, che điện thoại nói: "Bà ấy nói năng khó nghe thì cháu đừng có nghe, đừng để trong lòng."
+"Thím cháu thì tính tình ngoài miệng dao găm trong lòng bồ tát thôi."
 
-Triệu Quốc Hoa tưởng Triệu Kim An ngại hỏi xin tiền học phí và sinh hoạt phí của Vương Kim Như. Chú có thể trực tiếp đưa tiền cho hắn, nhưng lương tháng của Triệu Quốc Hoa chỉ có hơn một nghìn tệ.
+Triệu Quốc Hoa có lẽ đã rảo bước đi ra một góc thật xa, lấy tay che miệng ống nghe thì thào: "Thím có nói năng khó nghe vài câu thì cháu cũng đừng để bụng, coi như gió thoảng bên tai là được."
 
-Tiền nong không khớp!
+Triệu Quốc Hoa cứ ngỡ Triệu Kim An ngại ngùng không dám mở lời xin thím tiền học phí và sinh hoạt. Bản thân chú cũng muốn trực tiếp giúi tiền cho cháu trai, nhưng lương tháng làm thuê của chú vỏn vẹn chỉ có hơn một nghìn tệ mà thôi.
 
-Căn bản không giấu nổi Vương Kim Như, Vương Kim Như là người phụ nữ tinh minh thế nào chứ.
+Sổ sách chi tiêu trong nhà làm sao mà khớp nổi!
 
-Huống hồ trong nhà mỗi tháng còn bao nhiêu khoản phải chi tiêu.
+Căn bản là không tài nào qua mắt được Vương Kim Như, người phụ nữ ấy khôn ngoan sắc sảo đến mức nào cơ chứ.
 
-Bà nội cũng nhân cơ hội muốn nói với Triệu Kim An vài câu, bà bảo: "Lúa hôm qua gặt một ngày là xong rồi, Doãn Hiểu Lan chạy đôn chạy đáo giúp không ít việc đâu."
+Huống chi gia đình nhỏ mỗi tháng cũng còn biết bao nhiêu khoản chi tiêu đối nội đối ngoại.
 
-Bà còn nói vé xe đắt, không về được thì thôi, phơi thóc cũng có Doãn Hiểu Lan giúp, trong nhà không có gì phải lo lắng.
+Bà nội nhân cơ hội cũng muốn ghé vào nói với đứa cháu cưng vài câu. Giọng bà run run trong máy: "Lúa ngoài đồng ngày hôm qua gặt loáng cái là xong xuôi cả rồi, cái Hiểu Lan nó xốc vác chạy đôn chạy đáo phụ giúp nhà mình không ít việc đâu đấy."
 
-Bà nội gánh nước tưới rau thì còn được, chứ gánh lúa thì gánh không nổi, đều là Vương Kim Như làm cả.
+Bà còn bảo giá vé xe khách đắt đỏ, không về được thì thôi đừng về, việc phơi thóc phơi rơm cũng đã có Hiểu Lan sang giúp đỡ một tay rồi, chuyện trong nhà không có gì phải bận lòng lo nghĩ cả.
 
-Vương Kim Như và Doãn Hiểu Lan không phải kiểu con gái yếu đuối đến mức vặn chai nước khoáng cũng kêu không nổi.
+Bà nội gánh nước tưới rau thì còn kham nổi, chứ bảo gánh những bồ lúa nặng trĩu thì xương cốt già nua không sao chịu xiết, toàn bộ đều trông cậy vào một tay Vương Kim Như.
 
-Chỉ là bà nội cứ mở miệng ra là nhắc đến Doãn Hiểu Lan khiến Triệu Kim An không biết phải tiếp lời thế nào.
+Vương Kim Như và Doãn Hiểu Lan đâu phải những cô tiểu thư thành thị õng ẹo, đến cái nắp chai nước khoáng cũng nũng nịu than không vặn nổi.
 
-"Kim An, mau tới chụp ảnh này!"
+Chỉ là bà nội cứ mở miệng ra là một câu Doãn Hiểu Lan, hai câu Doãn Hiểu Lan khiến Triệu Kim An chẳng biết phải tiếp lời thế nào cho phải.
 
-Đúng lúc này, lớp trưởng Lưu Sấm Phong hét lớn, bảo cả phòng 303 cùng chụp chung một tấm hình.
+"Kim An ơi, mau lại đây chụp ảnh này!"
 
-Trần Trạch không biết kiếm đâu ra một khẩu súng lục, trông rất oai phong, giáo quan cứ chằm chằm nhìn hắn, Lưu Sấm Phong và Cốc Siêu Thừa cũng tranh nhau đòi tạo dáng.
+Đúng lúc này, trưởng phòng Lưu Sấm Phong gào tướng lên, gọi Triệu Kim An lại chụp một kiểu ảnh tập thể cho phòng 303.
 
-Triệu Kim An đứng phía sau chụp chung ba lần.
+Trần Trạch chẳng biết kiếm đâu ra một khẩu súng ngắn mô hình đạo cụ, giắt ngang hông làm dáng trông vô cùng oai phong, khiến vị giáo quan phải đưa mắt canh chừng hắn từng li từng tí. Lưu Sấm Phong và Cốc Siêu Thừa cũng tranh nhau giật lấy khẩu súng để tạo dáng chụp ảnh cho ngầu.
 
-Không ngờ Lý Lộ lao tới đòi chụp cùng, nàng đứng bên cạnh Triệu Kim An chụp một tấm, sau đó đuổi bọn Trần Trạch đi để chụp riêng với hắn.
+Triệu Kim An đứng phía sau mỉm cười chụp chung ba kiểu.
 
-Một chiếc máy ảnh cơ xoay xở không xuể, chụp xong Triệu Kim An lại lẳng lặng bước ra một mình.
+Chẳng ngờ Lý Lộ từ đâu bất thình lình xông tới đòi chụp cùng. Cô nàng chen vào đứng sát sạt bên cạnh Triệu Kim An bấm một kiểu, sau đó lập tức xua đuổi nhóm Trần Trạch ra chỗ khác để được chụp riêng một bức ảnh đôi cùng Triệu Kim An.
 
-Lúc này, Đường Hiểu Tình ngập ngừng đi tới hỏi: "Triệu Kim An, chúng ta có thể chụp chung một tấm không?"
+Chiếc máy ảnh cơ duy nhất của thầy cố vấn quay cuồng phục vụ không xuể. Chụp xong bức ảnh, Triệu Kim An lại lẳng lặng bước lui ra một góc vắng.
 
-Triệu Kim An quay người nhìn Đường Hiểu Tình, nàng đang cầm một chiếc điện thoại rất cũ, cúi đầu nói: "Máy ảnh cơ bọn họ đang dùng rồi, điện thoại... điện thoại chụp một tấm là được rồi."
+Lúc này, Đường Hiểu Tình mới rụt rè, ngập ngừng bước lại gần khẽ hỏi: "Triệu Kim An, mình... mình có thể chụp chung với cậu một tấm ảnh được không?"
 
-"Được."
+Triệu Kim An xoay người nhìn Đường Hiểu Tình. Cô bé hai tay nắm chặt một chiếc điện thoại kiểu dáng đã khá cũ kỹ, lí nhí cúi đầu phân trần: "Máy ảnh xịn thì các bạn ấy đang tranh nhau dùng, bằng điện thoại... điện thoại chụp tạm một tấm là được rồi."
 
-Triệu Kim An đứng yên tại chỗ không nhúc nhích, nở một nụ cười phối hợp.
+"Được chứ."
 
-Đường Hiểu Tình đứng cạnh bên, chiều cao một mét năm mươi hai chỉ đến nách Triệu Kim An. Hắn hơi nghiêng người, nàng giơ điện thoại lên "tách tách" mấy cái nhưng đều không vừa ý.
+Triệu Kim An đứng yên tại chỗ không hề nhúc nhích, nở một nụ cười ấm áp phối hợp cùng cô.
 
-Căn bản là không chụp được.
+Đường Hiểu Tình rón rén bước lại gần, chiều cao một mét năm mươi hai của cô đứng bên cạnh Triệu Kim An chỉ cao vừa vặn tới nách anh. Triệu Kim An liền khẽ nghiêng người hạ thấp xuống một chút. Cô bé giơ cao chiếc điện thoại lên bấm tách tách mấy kiểu nhưng xem lại đều không ưng ý chút nào.
 
-Chưa nói đến độ phân giải, điện thoại thời này đâu có dễ tự sướng, lại càng không có gậy selfie.
+Góc chụp quá hẹp, căn bản là không thể chụp trọn vẹn cả hai người.
 
-"Triệu Kim An, cậu đợi tớ một chút được không?"
+Chưa bàn đến độ phân giải thấp của camera thời bấy giờ, điện thoại năm 2006 làm gì đã có tính năng chụp ảnh tự sướng tiện lợi, lại càng chưa xuất hiện những chiếc gậy selfie như đời sau.
 
-Đường Hiểu Tình nói xong liền chạy biến, chạy mất dạng...
+"Triệu Kim An, cậu... cậu đứng chờ mình một chút được không?"
 
-Triệu Kim An ngơ ngác không hiểu gì.
+Đường Hiểu Tình vừa dứt lời liền thoăn thoắt co giò chạy biến đi mất...
 
-Chỉ thấy Đường Hiểu Tình tìm một bạn nữ lớp bên cạnh, trao đổi hồi lâu mới kéo bạn đó tới, đứng cạnh Triệu Kim An giơ tay chữ V, nở nụ cười rạng rỡ nhất, bảo bạn nữ kia chụp xong rồi.
+Triệu Kim An ngơ ngác chẳng hiểu ất giáp gì.
 
-"Sao không tìm bạn cùng lớp mình?"
+Chỉ thấy Đường Hiểu Tình chạy vội sang tìm một bạn nữ sinh của lớp bên cạnh, líu lo trao đổi một hồi lâu rồi mới kéo được bạn ấy sang. Cô bé đứng nép bên cạnh Triệu Kim An, giơ hai ngón tay tạo dáng chữ V kinh điển, nở nụ cười rạng rỡ và tươi tắn nhất, vui vẻ báo với cô bạn kia là mình đã chuẩn bị xong.
 
-Triệu Kim An hơi thắc mắc: "Cậu chẳng phải có bạn cùng phòng sao?"
+"Sao cậu không nhờ các bạn trong lớp mình chụp giúp?"
 
-Đường Hiểu Tình ngẩng đầu cười cười: "Ai chụp mà chẳng giống nhau."
+Triệu Kim An có chút thắc mắc hỏi: "Chẳng phải cậu cũng có các bạn cùng phòng đó sao?"
 
-Nàng cầm lấy điện thoại từ tay bạn nữ kia, rối rít cảm ơn, nhìn mấy tấm ảnh hơi mờ, Đường Hiểu Tình mãn nguyện mỉm cười, lộ ra hai chiếc răng khểnh nhỏ.
+Đường Hiểu Tình ngẩng đầu lên, khẽ mỉm cười ngượng ngùng: "Ai chụp thì cũng như nhau cả thôi mà."
 
-"Triệu Kim An, cảm ơn cậu." Đường Hiểu Tình nói.
+Cô đón lấy chiếc điện thoại từ tay người bạn kia, miệng liên tục cất lời cảm ơn rối rít. Cúi đầu ngắm nhìn mấy bức ảnh có phần hơi nhòe mờ trên màn hình điện thoại nhỏ xíu, Đường Hiểu Tình mỉm cười mãn nguyện, để lộ hai chiếc răng khểnh nhỏ xíu vô cùng duyên dáng.
 
-Triệu Kim An đáp: "Không có gì."
+"Triệu Kim An, cảm ơn cậu nhiều nhé." Đường Hiểu Tình chân thành nói.
 
-Đường Hiểu Tình ngước nhìn Triệu Kim An một cái rồi lại cười.
+Triệu Kim An thản nhiên đáp: "Có gì đâu mà phải cảm ơn."
 
-Nàng luôn cảm thấy gia cảnh của Triệu Kim An không tệ, lại còn khiêm tốn lễ phép như vậy, một chàng trai như thế mà lại chụp ảnh cùng mình... Đường Hiểu Tình chân thành nói lời cảm ơn.
+Đường Hiểu Tình ngước mắt nhìn Triệu Kim An thêm một cái rồi lại mỉm cười.
 
-Nàng sợ Triệu Kim An sẽ từ chối, sợ hắn coi thường mình, giống như bọn Lý Lộ, hay là Trần Trạch...
+Từ trước tới nay cô luôn cảm thấy gia cảnh của Triệu Kim An chắc chắn không hề tầm thường, vậy mà anh lại luôn giữ thái độ khiêm nhường, kín tiếng và lịch thiệp với mọi người. Một chàng trai nổi bật như vậy lại sẵn sàng đứng chụp ảnh kỷ niệm cùng mình... Đường Hiểu Tình thực lòng cảm kích vô cùng.
 
-Lễ duyệt binh quân huấn vừa kết thúc, Trần Trạch đã biến đâu mất tăm.
+Cô chỉ sợ Triệu Kim An sẽ thẳng thừng từ chối, hoặc trong lòng sẽ nảy sinh ý nghĩ coi thường, khinh miệt mình như cái cách mà nhóm người Lý Lộ hay Trần Trạch vẫn thường biểu hiện ra mặt...
 
-Trung Nam, phòng ký túc xá 406.
+...
 
-"Mạn Mạn, Trần Trạch lái xe đến đón cậu về nhà à?"
+Nghi thức duyệt binh bế mạc kỳ huấn luyện quân sự vừa kết thúc, bóng dáng Trần Trạch đã nhanh chóng biến mất tăm mất tích.
 
-Quân huấn kết thúc là đến kỳ nghỉ lễ Quốc khánh dài ngày, Từ Mạn Mạn thu dọn đồ đạc rồi cầm túi lên. Nàng và Trần Trạch đều là người bản địa Quận Sa, còn Thẩm Tử Ngôn và Diêu Tân không có ý định về nhà.
+Bên phía trường Trung Nam, phòng ký túc xá 406.
 
-"Dao Dao đâu?"
+"Mạn Mạn, Trần Trạch lại lái xe sang đón cậu về nhà ăn lễ đấy à?"
 
-Từ Mạn Mạn tò mò hỏi.
+Kết thúc đợt huấn luyện quân sự là bước ngay vào kỳ nghỉ lễ Quốc khánh dài ngày. Từ Mạn Mạn thu dọn đồ đạc xong xuôi liền cầm túi xách lên. Cô và Trần Trạch đều là dân gốc Quận Sa bản địa, còn Thẩm Tử Ngôn và Diêu Sân thì không có ý định bắt xe về quê.
 
-Diêu Tân đáp: "Dì nhỏ của cậu ấy lái xe đến đón đi rồi, thật ngưỡng mộ các cậu quá."
+"Mộc Dao đâu rồi các cậu?"
 
-Kiếp trước cũng vậy, cứ đến ngày lễ hay cuối tuần, Trương Tuệ sẽ gọi điện kiểm tra, Trương Vân Thiến sẽ lái xe đến trường đón người, chỉ sợ Mộc Dao và Triệu Kim An đi khách sạn với nhau.
+Từ Mạn Mạn tò mò hỏi thăm.
 
-Từ Mạn Mạn nói: "Dẫn các cậu đi gặp một người."
+Diêu Sân đáp: "Dì của cậu ấy lái xe đến đón về từ sớm rồi, đúng là ngưỡng mộ các cậu thật đấy."
 
-"Bạn cùng phòng của bạn trai cậu? Hay là bạn bè?"
+Kiếp trước cũng y hệt như vậy, cứ hễ đến dịp nghỉ lễ hay cuối tuần là bà Trương Tuệ lại liên tục gọi điện thoại kiểm tra giờ giấc nghiêm ngặt, còn bà dì Trương Vân Thiến thì đích thân lái xe đến tận cổng trường rước cháu gái về nhà, chỉ nơm nớp lo sợ Mộc Dao và Triệu Kim An sẽ dắt nhau vào khách sạn.
 
-Thẩm Tử Ngôn không mấy mặn mà, nàng chẳng có hứng thú với kiểu con trai như Trần Trạch, Cốc Siêu Thừa thì quá bình thường, họa chăng chỉ có Lưu Sấm Phong là còn biết chọc cười đôi chút.
+Từ Mạn Mạn cất lời rủ rê: "Hay là tớ dẫn hai cậu đi gặp một người nhé."
+
+"Bạn cùng phòng của bạn trai cậu à? Hay là bạn bè ngoài xã hội thế?"
+
+Thẩm Tử Ngôn chẳng có chút hứng thú nào nên không muốn đi. Cô vốn không mấy thiện cảm với mẫu con trai ăn chơi như Trần Trạch, còn Cốc Siêu Thừa thì quá đỗi bình thường mờ nhạt, may ra chỉ có Lưu Sấm Phong là còn biết pha trò chọc cười thiên hạ.
 
 "Tớ cũng không đi đâu."
 
-Diêu Tân lắc đầu: "Bọn tớ không đi làm bóng đèn cho hai người đâu."
+Diêu Sân lắc đầu nguầy nguậy: "Bọn tớ chẳng dại gì đi làm kỳ đà cản mũi hai người đâu."
 
-"Không phải, phòng bọn họ còn một người nữa, người này hơi kỳ lạ."
+"Không phải đâu, phòng ký túc xá của bọn họ còn có một người nữa cơ, cái người này trông kỳ lạ lắm."
 
-Từ Mạn Mạn vốn cũng định học theo Trần Trạch nói Triệu Kim An hơi không bình thường, nhưng lại thấy như vậy rất bất lịch sự.
+Từ Mạn Mạn ban đầu cũng định học theo giọng điệu của Trần Trạch chê bai Triệu Kim An có chút bất bình thường, nhưng nghĩ lại thấy nói như vậy sau lưng người khác thì thật quá đỗi bất lịch sự.
 
-Thẩm Tử Ngôn hỏi: "Kỳ lạ chỗ nào?"
+Thẩm Tử Ngôn tò mò gặng hỏi: "Kỳ lạ ở chỗ nào cơ?"
 
-"Trần Trạch nói cậu ta ở trong phòng nhìn bảng công thức bột giặt mà cũng nhìn được nửa ngày, còn nữa, bảo là lớp bọn họ có nam sinh thích cậu ta đấy."
+"Trần Trạch kể cậu ấy ở trong phòng có thể đứng ngắm nghía cái bảng thành phần của túi bột giặt suốt cả buổi trời không chán. Chưa hết đâu nhé, nghe bảo trong lớp còn có cả nam sinh thầm thương trộm nhớ cậu ta nữa đấy."
 
-Diêu Tân:     rùng mình một cái.
+Diêu Sân: ⊙▂⊙
 
-"Đùa thôi."
+Cô nàng bất giác rùng mình rợn cả tóc gáy.
 
-Từ Mạn Mạn đứng ở cửa phòng ký túc xá, dáng vẻ hào phóng nhìn hai người bạn cùng phòng nói: "Có thể đi được chưa?"
+"Tớ nói đùa thôi mà."
+
+Từ Mạn Mạn đứng ngay trước cửa phòng ký túc xá với phong thái vô cùng khoan thai, đoan trang và nhã nhặn. Cô đưa mắt nhìn hai cô bạn cùng phòng, mỉm cười giục giã: "Chúng mình có thể xuất phát được chưa nào?"

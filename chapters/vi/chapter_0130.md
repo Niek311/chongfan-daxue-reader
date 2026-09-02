@@ -1,129 +1,133 @@
-# Chương 130: Nghèo Đến Sợ
+# Chương 130: Ám ảnh cái nghèo
 
-Phòng thuê của Đường Hiểu Tình.
+> **Tiêu đề gốc**: 第130章 穷怕了。
 
-Lưu Mỹ Nga đã nấu xong cơm canh, giữ Triệu Kim An lại ăn tối.
+Trong căn nhà trọ nhỏ đơn sơ của Đường Hiểu Tình.
 
-Cá nhân Triệu Kim An mỗi tháng hỗ trợ thêm cho Đường Hiểu Tình sáu trăm tệ, coi như tiền trợ cấp khí đốt, tiền nước và tiền điện.
+Dì Lưu Mỹ Nga đã nấu xong một mâm cơm nóng hổi, nhiệt tình giữ Triệu Kim An ở lại ăn bữa tối.
 
-Đường Hiểu Tình không chịu nhận, là Triệu Kim An ép nàng phải cầm lấy.
+Mỗi tháng, Triệu Kim An đều tự bỏ tiền túi hỗ trợ thêm cho Đường Hiểu Tình sáu trăm tệ, xem như tiền trợ cấp điện nước và tiền ga sinh hoạt.
 
-Tắm rửa cần dùng nước và khí đốt, giặt quần áo cũng tốn nước và điện.
+Đường Hiểu Tình nhất quyết không chịu nhận, là do Triệu Kim An cứ dúi thẳng vào tay ép cô phải cầm.
 
-Lưu Mỹ Nga thỉnh thoảng còn mua thức ăn ngon rồi gọi Triệu Kim An qua dùng bữa.
+Dù sao việc anh ghé qua tắm nhờ cũng tiêu tốn nước sạch và khí đốt, giặt giũ quần áo cũng tốn thêm điện nước.
 
-Nói thật, tiền ở Quận Sa thật sự không chịu nổi chi tiêu, đây là một thành phố tiêu dùng điển hình.
+Thỉnh thoảng, dì Lưu Mỹ Nga lại đi chợ mua thêm chút đồ ăn tươi ngon rồi gọi Triệu Kim An qua dùng bữa.
 
-Lớp Kế toán 1 cứ ngỡ thu nhập của Đường Hiểu Tình rất cao, nhưng thực tế với hai ngàn tệ đó, nàng phải gánh vác tiền thuê nhà, sinh hoạt phí của hai mẹ con, lại còn mua thuốc cho mẹ, rồi phải tiết kiệm để nộp học phí.
+Nói một cách thực lòng, đồng tiền ở đất Quận Sa này quả thực rất nhanh vơi, đây vốn dĩ là một thành phố nổi tiếng về mức độ tiêu dùng đắt đỏ.
 
-Lưu Mỹ Nga là một người đàn bà cực kỳ tiết kiệm, có lẽ đã tiết kiệm thành thói quen.
+Các bạn học trong lớp Kế toán 1 cứ ngỡ rằng thu nhập của Đường Hiểu Tình cao ngất ngưởng, nhưng trên thực tế với mức lương hai nghìn tệ mỗi tháng, Đường Hiểu Tình phải gánh trên vai tiền thuê nhà, chi phí sinh hoạt cho cả hai mẹ con, mua thêm thuốc men chữa bệnh cho mẹ, lại còn phải chắt bóp từng đồng để dành đóng học phí cho năm học mới.
 
-Chỉ khi Triệu Kim An qua ăn cơm, bà mới mua thêm chút thức ăn.
+Dì Lưu Mỹ Nga là một người phụ nữ tằn tiện đến cùng cực, âu cũng bởi cái nết tiết kiệm ấy đã ăn sâu vào máu thịt suốt bao năm tháng khốn khó.
 
-Bình thường hai mẹ con ăn uống đều có thể tiết kiệm được chừng nào hay chừng nấy.
+Chỉ những khi có Triệu Kim An ghé qua ăn cơm, dì mới dám bấm bụng mua thêm vài món ngon tươi tươm tất.
 
-Không phải hai ngàn tệ không đủ tiêu, mà là đã sợ cái cảnh không có tiền, nghèo đến phát sợ rồi.
+Bình thường, bữa cơm đạm bạc của hai mẹ con đều là chắt chiu, bớt xén được chừng nào hay chừng ấy.
 
-Họ muốn để dành tiền để phòng hờ những lúc bất trắc.
+Không hẳn vì hai nghìn tệ một tháng là không đủ sống, mà là bởi hai mẹ con đã quá sợ cảnh không có một xu dính túi, nỗi ám ảnh của cái nghèo đã hằn sâu vào tâm khảm.
 
-Chưa kể, họ còn đang nợ Triệu Kim An hơn hai vạn tệ.
+Họ luôn đau đáu ý nghĩ phải gom góp, tích cóp tiền bạc để phòng những khi tai ương ập đến bất ngờ.
 
-Cho nên các bạn học lớp Kế toán 1 ngưỡng mộ Đường Hiểu Tình có lương tháng hai ngàn tệ – vào năm 2007, mức sinh hoạt phí hai ngàn một tháng đối với sinh viên là rất cao – nhưng thực tế tiền trong túi nàng chẳng hề dư dả gì.
+Huống hồ, họ vẫn còn đang nợ Triệu Kim An hơn hai mươi nghìn tệ tiền viện phí ngày trước.
 
-Tính cách của nàng cũng rất tiết kiệm, không mua quần áo đắt tiền, cũng chưa từng mua son môi.
+Thế nên, bạn bè trong lớp ai nấy đều thầm ghen tị với mức lương hai nghìn tệ mỗi tháng của Đường Hiểu Tình — vào năm 2007, hai nghìn tệ tiền sinh hoạt phí đối với một sinh viên đại học là con số đáng mơ ước — nhưng thực tế trong túi Đường Hiểu Tình chưa bao giờ có được sự dư dả, thảnh thơi.
 
-Nàng sống còn chẳng tiêu sái bằng Lý Ngải Lan, Lý Ngải Lan vừa nhận được học bổng dành cho sinh viên nghèo đã đi mua ngay một thỏi son Dior.
+Bản tính cô cũng là người vô cùng tiết kiệm, chưa bao giờ dám mua cho mình một bộ quần áo đắt tiền, cũng chưa từng biết đến thỏi son môi là gì.
 
-Hôm nay ăn cơm xong Triệu Kim An không quay lại văn phòng.
+Cuộc sống của cô thậm chí còn chẳng được phong lưu, thoải mái bằng Lý Ngải Lan; Lý Ngải Lan vừa nhận được tiền học bổng trợ cấp cho sinh viên nghèo là lập tức sắm ngay một thỏi son hiệu Dior sang chảnh.
 
-Đường Hiểu Tình mở tivi chuyển sang đài vệ tinh Mang Quả, cuộc phỏng vấn Thẩm Tử Ngôn sẽ được phát sóng trong bản tin buổi tối của đài này.
+Hôm nay ăn cơm tối xong, Triệu Kim An không vội quay về văn phòng ngay.
 
-Trong lúc đó, hắn nhận được điện thoại của Lạc Cẩn Chi, chị ấy gọi để xác nhận xem có đúng là phát vào giờ tin tức buổi tối không.
+Đường Hiểu Tình bật chiếc tivi cũ, chuyển sang kênh truyền hình vệ tinh Mango. Phóng sự phỏng vấn Thẩm Tử Ngôn sẽ được phát sóng trong bản tin thời sự buổi tối của đài Mango.
 
-Dòng sản phẩm Đông Giang dưới sự dẫn dắt của Lạc Cẩn Chi bấy lâu nay vẫn chưa bước ra khỏi Tư Tinh, nên tâm trạng kích động của chị ấy hoàn toàn có thể hiểu được.
+Trong lúc chờ đợi, Lạc Cẩn Chi cũng gọi điện tới, hồi hộp xác nhận lại khung giờ phát sóng có đúng là bản tin thời sự tối nay hay không.
 
-Nhìn trên tivi, tại nhà ga, khu đại học, các trường cao đẳng, từng bóng người mặc áo vest đỏ đang bận rộn, thân hình nhỏ nhắn của Đường Hiểu Tình ngồi trước tivi khẽ run lên.
+Dòng sản phẩm nước khoáng Đông Giang dưới sự dẫn dắt của Lạc Cẩn Chi bao năm qua chưa từng một lần bước chân ra khỏi ranh giới Tư Tinh, thế nên tâm trạng xúc động, bồn chồn của Lạc Cẩn Chi lúc này là điều hoàn toàn có thể thấu hiểu.
 
-Đường Hiểu Tình là nhóm người đầu tiên gia nhập công ty, chỉ muộn hơn Triệu Bác Lan một chút.
+Nhìn qua màn hình tivi, tại các điểm nóng như ga tàu hỏa, khu làng đại học và các trường đại học lớn, từng bóng dáng sinh viên trong chiếc áo gi lê đỏ rực rỡ đang tất bật, hăng say phát nước cho bà con, trước màn hình nhỏ, thân hình nhỏ nhắn của Đường Hiểu Tình khẽ run lên vì xúc động.
 
-Nàng đã trải qua những ngày đi từng nhà tiếp thị, bị các ông chủ cửa hàng tiện lợi từ chối vì bày hàng ra chỉ tổ chật chỗ, lâm vào cảnh ngộ vô cùng ngượng ngùng.
+Đường Hiểu Tình là một trong những thành viên đầu tiên gia nhập công ty, chỉ sau mỗi Triệu Bác Lan.
 
-Hồi đó công ty vẫn còn là ký gửi hàng hóa, giao hàng trước trả tiền sau.
+Cô từng nếm trải những ngày tháng lặn lội đi gõ cửa từng tiệm tạp hóa chào hàng, để rồi nhận lại những cái xua tay lạnh lùng của các chủ tiệm bảo rằng không cần, bày ra chỉ tổ chật chội, tốn diện tích gian hàng.
 
-Hiện giờ, các chủ cửa hàng tiện lợi ở tỉnh Hồ Nam không còn ai nói những câu như "bày ra chỉ tổ chật chỗ" nữa.
+Thời điểm ấy, công ty còn phải áp dụng chính sách ký gửi hàng trước, bán được mới thu tiền sau.
 
-Lưu Mỹ Nga không hiểu những chuyện này.
+Vậy mà giờ đây, khắp các tiệm tạp hóa và siêu thị lớn nhỏ trên toàn cõi tỉnh Tương Nam, tuyệt nhiên chẳng còn một ông chủ nào dám buông ra câu nói "bày ra chỉ tổ chật chỗ" ấy nữa.
 
-Nhưng nhìn thấy công ty con gái làm việc được lên tivi, con gái còn là "quản lý" trong miệng người khác, Lưu Mỹ Nga cũng rất vui. Bà không hiểu lắm, nhưng có thể cảm nhận được con gái mình có chút chức quyền trong công ty.
+Dì Lưu Mỹ Nga không hiểu biết nhiều về những chuyện kinh doanh đao to búa lớn này.
 
-Nghe nói tiền lương của những tình nguyện viên kia đều do con gái bà chịu trách nhiệm phát hằng ngày.
+Thế nhưng khi nhìn thấy công ty nơi con gái mình làm việc được vinh danh trên sóng truyền hình đài tỉnh, lại nghe người ta gọi con gái mình là "quản lý", dì Lưu Mỹ Nga không giấu nổi niềm hân hoan rạng ngời. Dì quả thực không rành rẽ sự đời, nhưng dì cảm nhận được sâu sắc rằng con gái mình ở công ty cũng nắm giữ chút quyền hành nhất định.
 
-Lưu Mỹ Nga chưa bao giờ dám nghĩ tới, bà hiểu tính cách của con gái mình, tất cả đều nhờ vào chàng trai trước mắt này.
+Nghe bảo toàn bộ tiền công mỗi ngày của các bạn tình nguyện viên đều do một tay con gái dì trực tiếp chi trả, phát tận tay từng người.
 
-Nếu không có hắn, con gái bà chắc chỉ biết cúi đầu làm việc, chẳng ai thèm chú ý tới nàng cả!
+Điều này trước đây dì Lưu Mỹ Nga có nằm mơ cũng không dám nghĩ tới. Dì quá hiểu tính cách rụt rè, nhút nhát của con gái mình, tất cả những đổi thay kỳ diệu này đều là nhờ có cậu thanh niên đang đứng trước mặt đây mang lại.
 
-Đường Hiểu Tình đã nói vài lần, Lưu Mỹ Nga thỉnh thoảng cũng hỏi thăm.
+Nếu không có Triệu Kim An dìu dắt, con gái dì chắc chắn chỉ biết cắm cúi lầm lũi làm việc như một con thiêu thân.
 
-Đường Hiểu Tình đều bảo ở công ty là Triệu Kim An nắm giữ phương hướng lớn, vạch ra chiến lược, ngay cả Lạc tổng ở công ty cũng nghe lời hắn.
+Sẽ chẳng có một ai đoái hoài hay để mắt tới nó!
 
-Trong lòng Lưu Mỹ Nga, công ty được lên tivi là rất lợi hại, còn mang chút thần thánh.
+Đường Hiểu Tình đã nhiều lần tâm sự với mẹ, dì Lưu Mỹ Nga thi thoảng cũng gặng hỏi han.
 
-Thật sự không hề phóng đại.
+Lần nào Đường Hiểu Tình cũng khẳng định chắc nịch rằng ở công ty, Triệu Kim An mới là người nắm giữ phương hướng chiến lược, vạch ra đường đi nước bước then chốt, ngay cả tổng giám đốc Lạc trên danh nghĩa cũng phải lắng nghe và làm theo ý kiến của anh.
 
-Lưu Mỹ Nga chưa từng ra ngoài, nhận thức chỉ có thế. Trên đài truyền hình có bao nhiêu quảng cáo bán thuốc, tại sao nhiều người tin tưởng đến vậy? Đó là vì uy tín.
+Trong suy nghĩ mộc mạc của dì Lưu Mỹ Nga, một doanh nghiệp được lên sóng truyền hình đài tỉnh là một điều gì đó vô cùng ghê gớm, thậm chí mang một vẻ thiêng liêng, uy tín tột bậc.
 
-Đã lên tivi rồi mà còn không lợi hại, còn có thể là giả sao?
+Thực sự không hề nói quá chút nào.
 
-Triệu Kim An không hề phấn khích, chỉ mỉm cười nhẹ.
+Cả đời dì Lưu Mỹ Nga chưa từng bước chân ra khỏi lũy tre làng, nhận thức của dì chỉ dừng lại ở mức đó. Trên tivi có biết bao nhiêu chương trình quảng cáo thuốc thang, vì sao người dân quê lại tin sái cổ đến vậy? Chính là nhờ vào sức mạnh của uy tín truyền thông.
 
-"Xá trưởng cũng chấp nhận phỏng vấn nói vài câu kìa."
+Đã được lên sóng truyền hình đài tỉnh thì làm sao mà không tài giỏi cho được, làm sao có thể là chuyện giả mạo?
 
-Hắn và Đường Hiểu Tình đều không ngồi, cứ thế đứng trước tivi.
+Triệu Kim An không hề tỏ ra quá khích động, anh chỉ khẽ mỉm cười điềm đạm.
 
-Thấy Lưu Sấm Phong mồ hôi nhễ nhại trả lời phỏng vấn của phóng viên trên tivi, Đường Hiểu Tình cũng cười: "Tớ thấy Lưu Sấm Phong nói rất tốt, tuy có hơi căng thẳng nhưng rất chân thực."
+"Trưởng phòng ký túc xá bọn anh cũng được lên hình phỏng vấn mấy câu kìa."
 
-Lưu Sấm Phong cười trông có vẻ thật thà, các động tác nhỏ hơi nhiều, đều là biểu hiện của sự căng thẳng.
+Cả anh và Đường Hiểu Tình đều không ngồi xuống ghế, cứ thế đứng trước màn hình tivi chăm chú theo dõi.
 
-Còn Thẩm Tử Ngôn thì thể hiện rất phóng khoáng, khéo léo, ứng phó tự nhiên.
+Nhìn thấy Lưu Sấm Phong trên tivi mồ hôi nhễ nhại, lúng túng trả lời phỏng vấn của phóng viên, Đường Hiểu Tình cũng bật cười khúc khích: "Em thấy anh Lưu Sấm Phong nói hay lắm đấy chứ, tuy có hơi run một chút nhưng lại rất chân thật, mộc mạc."
 
-Đường Hiểu Tình nói: "Là tớ thì tớ còn căng thẳng hơn anh ấy."
+Điệu cười của Lưu Sấm Phong trên màn hình trông có phần chất phác, tay chân hơi thừa thãi động đậy liên tục, tất cả đều là biểu hiện của sự hồi hộp, căng thẳng tột độ.
 
-Bản tin chỉ kéo dài vài phút, Triệu Kim An gật đầu, lấy điện thoại ra gọi cho Thẩm Tử Ngôn.
+Trong khi đó, Thẩm Tử Ngôn xuất hiện lại toát lên phong thái vô cùng đĩnh đạc, tự tin, ứng đối trôi chảy và duyên dáng vô cùng.
 
-Đầu dây bên kia Thẩm Tử Ngôn lên tiếng trước: "Kim An, xem chưa? Thế nào?"
+Đường Hiểu Tình thỏ thẻ: "Nếu đổi lại là em đứng trước ống kính, chắc em còn run bần bật hơn cả anh ấy nhiều."
 
-"Rất tốt."
+Đoạn phóng sự tin tức chỉ kéo dài vỏn vẹn vài phút ngắn ngủi. Triệu Kim An khẽ gật đầu hài lòng, rút điện thoại bấm số gọi cho Thẩm Tử Ngôn.
 
-Triệu Kim An nói từ tận đáy lòng, lại cười hỏi Thẩm Tử Ngôn: "Xá trưởng của tụi tôi bị cậu bắt làm quân tình nguyện à?"
+Vừa bắt máy, đầu dây bên kia Thẩm Tử Ngôn đã háo hức mở lời trước: "Kim An, cậu xem thời sự chưa? Thấy thế nào?"
 
-"Không phải tớ bắt anh ấy đâu!"
+"Tuyệt vời lắm."
 
-Thẩm Tử Ngôn cũng đang cười: "Lúc tớ đến ga tàu, Lưu Sấm Phong cứ đứng trước mặt tớ ba hoa chích choè, cậu biết anh ấy rồi đấy, tớ mới bảo vậy lát nữa anh nói vài câu đi, ha ha ha, không ngờ hiệu quả lại tốt thế."
+Triệu Kim An cất lời khen ngợi từ tận đáy lòng, rồi cười hỏi thêm một câu: "Trưởng phòng của bọn tôi bị cậu tóm cổ bắt đi phỏng vấn bất đắc dĩ đấy à?"
 
-"Vừa nãy phóng viên gọi điện cho tớ, cũng nói lúc cắt dựng thấy đoạn của Lưu Sấm Phong rất cộng điểm."
+"Đâu phải do tôi ép cậu ấy đâu!"
 
-Trong điện thoại Thẩm Tử Ngôn cười rất vui vẻ, chắc là vẫn đang đi bộ, cô ấy thật sự rất bận.
+Thẩm Tử Ngôn bật cười giòn giã: "Là do lúc tôi vừa tới ga tàu hỏa, Lưu Sấm Phong cứ đứng trước mặt tôi ba hoa khoác lác suốt thôi. Cậu lạ gì tính cậu ấy nữa, thế là tôi bảo: 'Vậy lát nữa cậu ra trước ống kính nói vài câu nhé', ha ha ha, ai ngờ hiệu ứng lên hình lại tốt ngoài mong đợi."
 
-"Các cậu vất vả rồi."
+"Vừa nãy phóng viên cũng gọi điện cho tôi, khen rằng đoạn của Lưu Sấm Phong sau khi dựng phim tạo được thiện cảm rất lớn đấy."
 
-Triệu Kim An suy nghĩ một chút, cười nói: "Vậy cậu gọi điện cho Lưu Sấm Phong, phát cho anh ấy mấy trăm tiền thưởng đi, thời gian qua đêm nào anh ấy cũng canh ở ga tàu, đúng là vất vả thật."
+Trong điện thoại, tiếng cười của Thẩm Tử Ngôn vang lên rộn rã, tiếng bước chân thoăn thoắt cho thấy cô vẫn đang vừa đi vừa nói chuyện, quả thực cô nàng bận rộn không ngơi tay.
 
-"Được, Triệu Kim An, thế còn tớ?"
+"Mọi người vất vả nhiều rồi."
 
-Triệu Kim An cười cười: "Tớ sợ phát không nổi lương cho cậu, tăng thêm một ngàn nhé?"
+Triệu Kim An ngẫm nghĩ một chút rồi cười nói: "Lát nữa cậu gọi điện cho Lưu Sấm Phong, thưởng nóng cho cậu ấy vài trăm tệ nhé. Đợt này đêm nào cậu ấy cũng phải túc trực ngoài ga tàu, thật sự rất vất vả."
 
-"Cậu nói đấy nhé!"
+"Được thôi, Triệu Kim An, thế còn tôi thì sao?"
 
-Thẩm Tử Ngôn hân hoan chấp nhận: "Triệu tổng, cuối cùng cậu cũng hết keo kiệt rồi."
+Triệu Kim An bật cười: "Tôi chỉ sợ công ty không kham nổi mức lương của cậu thôi, tăng thêm một nghìn tệ nhé?"
 
-Triệu Kim An nói: "Cậu đừng có hở ra là treo chữ keo kiệt trên miệng, công ty bây giờ đúng là đang thiếu tiền mà."
+"Cậu tự miệng nói đấy nhé!"
 
-Thẩm Tử Ngôn cười, có lẽ do đi bộ khá nhanh nên hơi thở có chút dồn dập: "Triệu Kim An, không nói nữa, Lạc tổng gọi điện tới rồi."
+Thẩm Tử Ngôn vui vẻ nhận lời ngay: "Triệu tổng à, cuối cùng thì cậu cũng chịu hết keo kiệt rồi đấy."
 
-Lạc Cẩn Chi chắc chắn cũng vừa xem xong bản tin nên gọi cho Thẩm Tử Ngôn. Lần hoạt động này do một tay Thẩm Tử Ngôn lên kế hoạch và phụ trách, Lạc Cẩn Chi là ông chủ công ty, kiểu gì cũng phải nói vài câu.
+Triệu Kim An phân trần: "Cậu đừng có mở miệng ra là bảo tôi keo kiệt, công ty giai đoạn này quả thực đang thiếu thốn dòng tiền mà."
 
-Còn về chuyện lương của Thẩm Tử Ngôn tăng thêm một ngàn.
+Thẩm Tử Ngôn cười rúc rích, chắc do bước đi hơi nhanh nên hơi thở cô có chút dồn dập: "Triệu Kim An, tôi không nói chuyện với cậu nữa đâu nhé, tổng giám đốc Lạc đang gọi tới rồi."
 
-Ngay cả Đường Hiểu Tình nghe xong cũng không có phản ứng gì, lương Thẩm Tử Ngôn cao một chút cũng là chuyện bình thường.
+Lạc Cẩn Chi chắc chắn cũng vừa theo dõi xong bản tin thời sự nên vội vàng gọi điện cho Thẩm Tử Ngôn. Chiến dịch quy mô lần này đều do một tay Thẩm Tử Ngôn lên kế hoạch và trực tiếp điều hành, Lạc Cẩn Chi với tư cách là người đứng đầu công ty trên danh nghĩa đương nhiên phải có đôi lời thăm hỏi, động viên.
 
-Lưu Mỹ Nga có chút kỳ lạ: "Kim An ông chủ, công ty của các cậu vẫn chưa có tiền sao?"
+Về chuyện mức lương của Thẩm Tử Ngôn được tăng thêm một nghìn tệ.
+
+Ngay cả Đường Hiểu Tình đứng bên cạnh nghe thấy cũng chẳng hề có chút ghen tị hay phản ứng bất bình nào, Thẩm Tử Ngôn nhận mức lương cao hơn là điều hoàn toàn xứng đáng với năng lực và công sức của cô.
+
+Duy chỉ có dì Lưu Mỹ Nga là thoáng thắc mắc trong bụng: "Cậu chủ Triệu này, công ty của các cháu bề thế thế kia mà vẫn còn thiếu tiền cơ à..."

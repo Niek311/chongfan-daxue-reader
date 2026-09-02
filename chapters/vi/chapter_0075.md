@@ -1,209 +1,211 @@
-# Chương 75: Xây Dựng Đội Ngũ
+# Chương 75: Dựng xây bộ khung
 
-Diêu Tân lập tức đặt điện thoại xuống, vẻ mặt hóng hớt tì lên thành giường hướng về phía chỗ nằm của Mộc Dao.
+> **Tiêu đề gốc**: 第75章 搭建班子。
 
-Từ Mạn Mạn cũng vểnh tai lên nghe.
+Diêu Sân lập tức buông điện thoại xuống, gương mặt ngập tràn vẻ hóng hớt, nằm bò trên mép giường hướng mắt về phía giường của Mộc Dao.
 
-Mộc Dao nảy sinh một chút cảm giác nguy cơ, Triệu Kim An lên đại học dường như rất được lòng phái nữ, nàng nói: "Tôi và Kim An là bạn học cấp ba suốt ba năm, Kim An vừa lên lớp mười đã thích tôi rồi."
+Từ Mạn Mạn cũng vểnh tai chăm chú lắng nghe.
 
-Diêu Tân trợn tròn mắt: "Cấp ba các cậu được phép yêu đương sao? Triệu Kim An lớp mười đã tỏ tình với cậu rồi à?"
+Trong lòng Mộc Dao dấy lên một cảm giác bất an cùng chút bồn chồn. Triệu Kim An khi lên đại học dường như rất được lòng các bạn nữ. Cô cất giọng: "Tớ với Kim An học chung cấp ba suốt ba năm liền, Kim An lên lớp 10 là đã thích tớ rồi."
 
-"Chưa có."
+Diêu Sân trợn tròn mắt: "Hồi cấp ba các cậu đã được phép yêu đương rồi á? Triệu Kim An năm lớp 10 đã tỏ tình với cậu rồi sao?"
 
-Đối mặt với ánh mắt tò mò của các bạn cùng phòng, trong lòng Mộc Dao có chút kiêu ngạo, cố tình nói quá lên: "Nhưng Kim An từ lớp mười đã thích tôi rồi, đừng tưởng tôi không biết."
+"Chưa đâu."
 
-"Lúc lên lớp cậu ấy sẽ lén nhìn tôi, tôi trả lời câu hỏi của giáo viên, cậu ấy sẽ nhìn tôi chằm chằm, còn cả lúc tan học tôi ra ngoài chơi, cậu ấy cũng sẽ ở đằng xa lặng lẽ nhìn tôi."
+Đối diện với những ánh mắt tò mò, háo hức của các cô bạn cùng phòng, Mộc Dao cảm thấy vô cùng hãnh diện, liền cố tình nói phóng đại thêm một chút: "Nhưng Kim An từ năm lớp 10 đã thích tớ rồi, đừng tưởng tớ không biết nhé."
 
-"Cậu ấy tưởng tôi không biết, thật ra tôi biết hết."
+"Lúc trong giờ học, cậu ấy cứ lén lút nhìn trộm tớ. Khi tớ đứng dậy trả lời câu hỏi của thầy cô, cậu ấy cứ dán chặt mắt nhìn tớ suốt thôi. Rồi cả lúc ra chơi tớ ra ngoài hành lang chơi đùa, cậu ấy cũng đứng từ đằng xa âm thầm dõi theo tớ."
 
-Mộc Dao cố gắng mô tả về một chàng trai thầm thương trộm nhớ mình.
+"Cậu ấy cứ ngỡ tớ không biết, nhưng thật ra tớ biết tỏng hết cả rồi."
 
-Nếu Du Phỉ ở đây, chắc chắn sẽ đầy một đầu chấm hỏi.
+Mộc Dao cố hết sức phác họa nên hình ảnh một chàng trai thầm thương trộm nhớ mình tha thiết.
 
-Triệu Kim An tan học đi nhìn trộm chúng ta chơi từ bao giờ? Không phải hắn toàn gục xuống bàn học ngủ sao? Cậu vào lớp, hắn đúng là có ngẩng đầu nhìn cậu thật.
+Nếu như có Du Phi ở đây lúc này, chắc chắn cô bạn sẽ phải trợn mắt tròn xoe đầy dấu chấm hỏi.
 
-Diêu Tân há hốc mồm nói: "Dao Dao, cậu nói thế làm Triệu Kim An qua lời cậu kể nghe hơi giống kẻ bám đuôi biến thái đấy."
+Triệu Kim An khi nào ra chơi lại lén nhìn chúng mình chơi đùa chứ? Chẳng phải cậu ta toàn nằm bò ra bàn ngủ say như chết sao? Mỗi lần cậu bước vào lớp thì đúng là cậu ta có ngẩng đầu nhìn cậu thật.
 
-Từ Mạn Mạn nhịn không được bật cười một tiếng.
+Diêu Sân há hốc mồm nói: "Dao Dao này, cậu miêu tả như thế nghe Triệu Kim An trong miệng cậu cứ như kẻ cuồng nhìn trộm ấy nhỉ."
 
-Thẩm Tử Ngôn cũng không mấy tin lời Mộc Dao nói, dựa vào hiểu biết qua vài lần tiếp xúc với Triệu Kim An, Thẩm Tử Ngôn tự suy luận ra kết luận chẳng khác Du Phỉ là bao.
+Từ Mạn Mạn không nhịn được bật cười thành tiếng.
 
-Ở lớp học lặng lẽ nhìn cậu, tin.
+Thẩm Tử Ngôn cũng chẳng mấy tin vào những lời Mộc Dao vừa kể. Qua vài lần tiếp xúc trực tiếp với Triệu Kim An, trong đầu Thẩm Tử Ngôn tự suy đoán ra kết luận cũng không khác mấy so với Du Phi.
 
-Nhưng không đến mức khoa trương như vậy.
+Ở trong lớp len lén nhìn trộm thì cô tin.
 
-Mộc Dao nói lần tỏ tình là khi kỳ thi đại học kết thúc, không có hoa hồng, ngày quay lại trường Triệu Kim An đã dúi cho nàng hai bức thư tình.
+Nhưng bảo khoa trương đến mức kia thì tuyệt đối không có.
 
-"Hai bức?"
+Mộc Dao kể tiếp, chuyện tỏ tình diễn ra vào thời điểm sau khi kỳ thi đại học kết thúc, không có hoa hồng lãng mạn gì cả, ngày quay lại trường lấy giấy báo điểm, Triệu Kim An đã giúi vào tay cô hai bức thư tình.
 
-"Tại sao lại là hai bức?"
+"Hai bức cơ à?"
 
-Ba cô gái đều thấy kỳ lạ.
+"Sao lại là hai bức?"
 
-Mộc Dao nhớ lại với vẻ đắc ý, nàng nói: "Thật ra tôi cũng khá bất ngờ, vì có một bức là Kim An đã viết xong từ năm lớp mười, chỉ là đợi đến khi thi đại học xong mới đưa cho tôi."
+Cả ba cô gái đều lấy làm kỳ lạ.
 
-"Tôi đã hỏi cậu ấy, tại sao lớp mười không đưa cho tôi, cậu ấy nói sợ làm lỡ dở việc học của tôi."
+Nhớ lại chuyện này, Mộc Dao không giấu nổi vẻ đắc ý, cô nói: "Thật ra lúc ấy tớ cũng bất ngờ lắm. Bởi vì có một bức thư là Kim An đã viết xong từ tận năm lớp 10, chỉ là đợi đến khi thi đại học xong xuôi mới dám trao tận tay cho tớ."
 
-Ký túc xá yên tĩnh trong giây lát.
+"Tớ có hỏi cậu ấy vì sao năm lớp 10 không đưa luôn, cậu ấy bảo sợ làm ảnh hưởng đến chuyện học hành của tớ."
 
-Diêu Tân im lặng một hồi rồi nói: "Mộc Dao, Triệu Kim An đối với cậu thật tốt, cậu ấy còn cân nhắc đến việc sợ làm lỡ dở chuyện học hành của cậu."
+Cả căn phòng ký túc xá bỗng chốc im bặt trong giây lát.
 
-"Tử Ngôn, lãng mạn chứ, thư tình lớp mười đến lớp mười hai mới tặng, lãng mạn hơn nhiều so với hoa hồng cậu nói đấy."
+Diêu Sân trầm ngâm một hồi rồi cảm thán: "Mộc Dao à, Triệu Kim An đối xử với cậu tốt thật đấy, cậu ấy còn chu đáo nghĩ đến chuyện sợ làm lỡ dở việc học của cậu nữa cơ."
 
-Diêu Tân còn hỏi Thẩm Tử Ngôn.
+"Tử Ngôn thấy lãng mạn không nào? Bức thư tình năm lớp 10 giữ đến tận lớp 12 mới trao tay, lãng mạn hơn hoa hồng mà cậu nói nhiều lắm nhé."
 
-"Ừm, đúng là lãng mạn hơn ôm bó hoa hồng."
+Diêu Sân còn quay sang hỏi Thẩm Tử Ngôn.
 
-Thẩm Tử Ngôn lại liếc nhìn tin nhắn, thầm nghĩ còn lãng mạn hơn cả việc tặng một trăm chiếc BMW ấy chứ.
+"Ừm, quả thực lãng mạn hơn việc ôm một bó hoa hồng nhiều."
 
-Từ Mạn Mạn cũng nằm thẳng xuống, nhìn trần nhà ngẩn ngơ.
+Thẩm Tử Ngôn lại liếc nhìn dòng tin nhắn trong điện thoại, thầm nghĩ trong bụng: cũng lãng mạn hơn việc tặng một trăm chiếc BMW nhiều lắm.
 
-"Hai bức thư tình, rau khô mặn."
+Từ Mạn Mạn cũng nằm ngửa ra giường, ngước mắt nhìn lên trần nhà xuất thần.
 
-Nàng nói muốn đi chơi, là thật lòng muốn đến Triệu Kim An Gia thôn xem thử.
+"Hai bức thư tình, món dưa muối dầm..."
 
-Nếu không có Trần Trạch, kỳ nghỉ đông này nàng đã muốn đi rồi.
+Cô bảo muốn đi chơi, là thực sự muốn tới thôn Triệu Gia một chuyến để tận mắt nhìn ngắm nơi ấy.
 
-Tô Miền đã trở về Kinh Đô, người giống như biến mất, Triệu Kim An cũng giống như chỉ làm tình nguyện viên hai ngày vậy.
+Nếu như không có Trần Trạch, kỳ nghỉ đông năm nay cô đã muốn đi ngay rồi.
 
-Vào ngày Vu Tu Nhiên rời trường, Triệu Kim An đã đi tiễn hắn.
+Tô Miến quay trở về Kinh Đô, bóng dáng như thể biến mất hoàn toàn, tựa như Triệu Kim An chỉ vừa trải qua hai ngày làm tình nguyện viên ngắn ngủi.
 
-Vu Tu Nhiên châm một điếu thuốc rồi nói: "Triệu Kim An, kỷ niệm 80 năm thành lập trường chúng ta cùng quay lại nhé!"
+Vào ngày Vu Tu Nhiên rời trường, Triệu Kim An đã ra tiễn anh ta.
 
-Triệu Kim An châm thuốc, hướng về phía không xa ngoắc ngoắc ngón tay.
+Vu Tu Nhiên mời một điếu thuốc rồi bảo: "Triệu Kim An, đại lễ kỷ niệm 80 năm ngày thành lập trường, hai anh em mình cùng nhau trở về nhé!"
 
-Chiếc Audi A6 từ từ tiến lại gần, cách 10 mét thì Đơn Vĩ xuống xe.
+Triệu Kim An châm điếu thuốc, giơ ngón tay ngoắc nhẹ về phía không xa.
+
+Chiếc xe Audi A6 từ từ lăn bánh tiến lại gần, cách chừng mười mét thì Đơn Vĩ mở cửa bước xuống xe.
 
 "Mẹ kiếp, tôi đi đây!"
 
-Vu Tu Nhiên xách vali lên xe, lại quay đầu nói: "Triệu Kim An, 10 năm sau, xem ai trong chúng ta lái xe xịn hơn!"
+Vu Tu Nhiên xách va li bước lên xe buýt, lại ngoái đầu hô lớn: "Triệu Kim An, mười năm sau, xem ai trong chúng ta lái xe xịn hơn nhé!"
 
 "Bảo trọng!"
 
-Triệu Kim An tiện tay ném bao Hoàng Phù trong túi cho hắn.
+Triệu Kim An tiện tay ném bao thuốc Phù Dung vàng trong túi qua cho anh ta.
 
-Vu Tu Nhiên chỉ nói là đi Thâm Thành, Triệu Kim An biết hắn học chuyên ngành máy tính nên cũng không giữ lại.
+Vu Tu Nhiên chỉ nói là sẽ vào Thâm Quyến lập nghiệp, Triệu Kim An biết anh ta học chuyên ngành Công nghệ thông tin nên cũng không mở lời giữ lại.
 
-Vu Tu Nhiên có chút tâm cao khí ngạo, cứ để hắn đi xông pha trước, có những chuyện phải nếm mùi vấp ngã mới có thể hiểu ra.
+Vu Tu Nhiên là người có chí khí cao ngạo, cứ để anh ta tự mình bươn chải xông pha ngoài đời, có những chuyện con người ta chỉ khi tự mình va vấp, nếm mùi thất bại đắng cay mới thực sự thấu hiểu được.
 
-Kẻ làm thuê vẫn là kẻ làm thuê, khởi nghiệp là khởi nghiệp, mà tư bản chính là tư bản.
+Đi làm thuê thì mãi là kiếp làm thuê, khởi nghiệp kinh doanh là khởi nghiệp kinh doanh, còn nhà tư bản nắm giữ tư bản lại là một cảnh giới hoàn toàn khác biệt.
 
-"Ông chủ!"
+"Thưa sếp!"
 
-Đợi người đi rồi, Đơn Vĩ mới lái xe qua đây.
+Đợi chiếc xe buýt khuất bóng, Đơn Vĩ mới lái xe trờ tới cạnh anh.
 
-Có lẽ là chịu ảnh hưởng từ Vu Tu Nhiên, Triệu Kim An vươn vai một cái, nói: "Đến lúc làm việc, xây dựng đội ngũ của mình rồi, nếu không 10 năm sau Trưởng bộ phận Vu..."
+Có lẽ chịu đôi chút tác động từ khí thế của Vu Tu Nhiên, Triệu Kim An vươn vai một cái, cất giọng: "Đã đến lúc bắt tay vào việc, dựng xây bộ khung cho riêng mình rồi. Bằng không mười năm sau Trưởng ban Vu lại..."
 
-Đơn Vĩ có chút kỳ lạ, ông chủ dường như lại thay đổi rồi.
+Đơn Vĩ thấy hơi lạ, dường như ông chủ lại có thêm sự thay đổi.
 
-"Ông chủ, tôi chính là một thành viên trong đội ngũ của cậu."
+"Sếp, tôi chính là một thành viên trong bộ khung của sếp đây."
 
-Đơn Vĩ chân thành nói lời trung thành.
+Đơn Vĩ chân thành bày tỏ lòng trung thành.
 
-Triệu Kim An mỉm cười cầm điện thoại gọi vào một dãy số.
+Triệu Kim An khẽ mỉm cười, rút điện thoại bấm một dãy số.
 
-Điện thoại nhanh chóng được kết nối.
+Đầu dây bên kia rất nhanh đã bắt máy.
 
-"Alo, Kim An, có chuyện gì không?"
+"Alo, Kim An đấy à, có chuyện gì thế em?"
 
-"Triệu Bác Lan, đến gặp tôi."
+"Triệu Bác Lan, ra gặp tôi một lát."
 
-Xuất thân là kế toán, điều đầu tiên Triệu Kim An nghĩ đến chính là tài chính của công ty.
+Xuất thân từ dân kế toán, điều đầu tiên Triệu Kim An nghĩ tới chính là mảng tài chính kế toán của công ty.
 
-Không phải không tin tưởng Lạc Cẩn Chi, mà là tài chính của công ty bắt buộc phải là người của mình.
+Không phải anh không tin tưởng Lạc Cẩn Chi, mà là vị trí tài chính của công ty bắt buộc phải do người của mình nắm giữ.
 
-Triệu Bác Lan mờ mịt không hiểu gì.
+Triệu Bác Lan nghe xong mà đầu óc mịt mù chẳng hiểu ất giáp gì.
 
-Triệu Kim An gọi thẳng tên "Triệu Bác Lan" thì không vấn đề gì, dù sao vai vế đặt ở đó, chỉ là "đến gặp tôi"... Triệu Bác Lan còn tưởng Triệu Kim An gặp chuyện gì rồi.
+Triệu Kim An gọi thẳng tên "Triệu Bác Lan" thì chẳng có vấn đề gì, dù sao xét về vai vế trong họ thì anh là bề trên, chỉ có điều câu nói "ra gặp tôi một lát" nghe cứ là lạ... Triệu Bác Lan còn tưởng Triệu Kim An gặp phải chuyện gì rắc rối.
 
-Người vừa bước ra khỏi trường đã thấy Triệu Kim An đang ngồi ở hàng ghế sau chiếc Audi A6.
+Vừa bước chân ra khỏi cổng trường, cô đã trông thấy Triệu Kim An đang ngồi thong thả ở hàng ghế sau của chiếc Audi A6.
 
-"Lên xe."
+"Lên xe đi."
 
-Triệu Bác Lan mơ hồ lên xe, liếc nhìn Đơn Vĩ đang lái xe: "Kim An, em... xe của ai vậy?"
+Triệu Bác Lan ngơ ngác bước lên xe, liếc nhìn người tài xế Đơn Vĩ đang lái xe phía trước: "Kim An, em... xe của ai thế này?"
 
-Chẳng trách Triệu Bác Lan tò mò, cũng không trách Triệu Kim An cố ý phô trương, không làm vậy thì Triệu Bác Lan rất khó nhận thức được Triệu Kim An là ông chủ, nếu không có nhận thức này thì tâm thế sẽ rất khó đặt cho đúng.
+Không trách Triệu Bác Lan tò mò, cũng chẳng thể trách Triệu Kim An cố tình phô trương thanh thế. Nếu không làm như vậy, Triệu Bác Lan sẽ rất khó nhận thức được rằng Triệu Kim An giờ đây đã là một ông chủ. Thiếu đi nhận thức này thì tâm lý làm việc sẽ rất khó đặt cho đúng vị trí.
 
-Trong lòng Triệu Bác Lan, Triệu Kim An vẫn còn dừng lại ở hình ảnh cậu nhóc đeo ba lô lẽo đẽo theo sau mông nàng.
+Trong tâm trí của Triệu Bác Lan, Triệu Kim An vẫn mãi dừng lại ở hình ảnh cậu em nhỏ đeo cặp sách lẽo đẽo chạy theo sau mông cô hồi nào.
 
-Triệu Kim An không giải thích nguồn gốc số tiền, rất khó giải thích.
+Triệu Kim An không giải thích nguồn gốc số tiền, bởi chuyện đó rất khó để nói cho rõ ràng.
 
-Đến nhà Đơn Vĩ, lên tầng hai, Triệu Kim An chỉ vào một căn phòng làm việc: "Đây chính là văn phòng của chị, phòng tài chính."
+Đến nhà Đơn Vĩ, bước lên tầng hai, Triệu Kim An chỉ tay vào một gian phòng: "Đây chính là văn phòng làm việc của chị, phòng Tài chính."
 
-"Kim An, ý em là Đông Giang Ấn Tượng?"
+"Kim An, ý em là... công ty Đông Giang Ấn Tượng sao?"
 
-Triệu Bác Lan vẫn còn hơi ngơ ngác, người Tư Tinh không ai là không biết hồ Đông Giang.
+Triệu Bác Lan vẫn còn chưa hết bàng hoàng, người vùng Tư Tinh chẳng ai là không biết tới hồ Đông Giang.
 
-Nàng liếc nhìn tấm biển trên cửa văn phòng Triệu Kim An: Phó Tổng giám đốc.
+Cô liếc nhìn biển tên treo trên cửa phòng làm việc của Triệu Kim An: Phó Tổng giám đốc.
 
-Triệu Kim An mỉm cười, cầm lấy tấm biển của Lạc Cẩn Chi ở văn phòng bên cạnh nói: "Tấm biển Tổng giám đốc này cài lên cửa của em cũng được."
+Triệu Kim An mỉm cười, cầm lấy biển tên của Lạc Cẩn Chi ở văn phòng bên cạnh đưa lên: "Cái biển Tổng giám đốc này móc lên cửa phòng tôi cũng được luôn đấy."
 
-"Kim An, em đợi chút, để chị xâu chuỗi lại đã."
+"Kim An, em đợi chút đã, để chị sắp xếp lại đầu óc cái đã."
 
-"Không sao, chị cứ thong thả mà xâu chuỗi, nước ngọt cứ tự nhiên mà uống."
+"Không sao, chị cứ từ từ sắp xếp lại suy nghĩ, nước ngọt trong tủ cứ uống thoải mái."
 
-Triệu Bác Lan nhìn quanh quất, khoảng chừng nửa tiếng sau, nàng nhìn Triệu Kim An hỏi: "Kim An, tôi có lương không?"
+Triệu Bác Lan ngó nghiêng khắp xung quanh, chừng nửa tiếng sau mới quay sang nhìn Triệu Kim An hỏi: "Kim An, chị đi làm thế này có được trả lương không?"
 
-Triệu Kim An ngẩn người: "Chị tiếp nhận cũng nhanh đấy, có thể dùng nước ngọt để trừ lương."
+Triệu Kim An thoáng ngẩn người: "Chị thích ứng nhanh thật đấy, có thể lấy nước ngọt trừ vào lương."
 
-Với điều kiện gia đình của Triệu Kim An quả thực không dễ chấp nhận chuyện này, Triệu Bác Lan nói: "Năm nay tôi đã là sinh viên năm ba rồi, vốn dĩ đang tìm đơn vị thực tập, đúng rồi, còn có Chu Sở Hân nữa."
+Với điều kiện gia cảnh nghèo khó của Triệu Kim An, quả thực chuyện này rất khó để một người quen chấp nhận ngay lập tức. Triệu Bác Lan nói: "Chị năm nay đã là sinh viên năm ba rồi, vốn dĩ cũng đang ráo riết tìm chỗ thực tập. À đúng rồi, còn cả Chu Sở Hân nữa đấy."
 
-"Chu Sở Hân không được, hai người thân quá rồi."
+"Chu Sở Hân không được, hai người thân thiết với nhau quá."
 
-Đều là chuyên ngành kế toán, có những lời không cần nói quá rõ ràng.
+Cùng học chuyên ngành kế toán, có những chuyện không cần phải nói toạc móng heo ra làm gì.
 
-Kế toán và thủ quỹ của phòng tài chính lại là bạn thân, thế nào, các người định "chuột dọn nhà" à?
+Trong phòng tài chính mà kế toán với thủ quỹ lại là bạn bè chí cốt của nhau, thì tính sao đây, định "chuột tha cả tổ" chuyển tiền đi à?
 
-"Chị có bằng kế toán chứ?"
+"Chị có chứng chỉ kế toán rồi chứ?"
 
-Triệu Bác Lan ngồi trên sofa với vẻ mặt buồn bực: "Cái đó tôi thi từ năm nhất rồi."
+Triệu Bác Lan ngồi trên ghế sô pha với vẻ mặt ủ rũ: "Cái thứ đó chị thi lấy từ hồi năm nhất rồi."
 
-Triệu Kim An nói: "Lương trước tiên trả chị 1.200, chị giữ kỹ tiền cho em, không có chữ ký của em thì không được chi tiền ra."
+Triệu Kim An nói: "Mức lương trước mắt trả cho chị là 1.200 tệ một tháng, chị phải trông giữ tiền bạc cho cẩn thận, không có chữ ký của tôi thì tuyệt đối không được phép chi bất kỳ một đồng nào ra ngoài."
 
-Triệu Bác Lan nghiêm túc gật đầu: "Em yên tâm."
+Triệu Bác Lan gật đầu vô cùng nghiêm túc: "Em cứ yên tâm."
 
-Chuyện này không cần phải nói, cả hai đều là người Triệu Kim An Gia thôn, Triệu Bác Lan gặp Triệu Kim An còn phải gọi một tiếng "chú", nàng biết mình nên hướng về phía ai, nghe lời ai.
+Chuyện này căn bản không cần phải dặn dò nhiều. Cả hai người đều là dân làng Triệu Gia, xét theo vai vế thì Triệu Bác Lan còn phải gọi Triệu Kim An một tiếng "chú", cô thừa biết mình phải đứng về phía ai và nghe theo lệnh của ai.
 
-Triệu Kim An cũng không có gì phải giấu giếm, tài chính là người hiểu rõ sổ sách công ty nhất, hắn nhìn Triệu Bác Lan một hồi rồi nói: "Trên tài khoản công ty đúng là có mấy triệu, nhưng muốn phát triển..."
+Triệu Kim An cũng chẳng có gì phải giấu giếm, làm tài chính là người hiểu rõ nhất tình hình thu chi sổ sách của công ty. Anh nhìn Triệu Bác Lan một lát rồi nói: "Trong tài khoản của công ty hiện có vài triệu tệ, nhưng sắp tới cần phải đầu tư phát triển..."
 
-"Lương của chị, sau này kiếm được tiền sẽ tăng cho chị."
+"Mức lương của chị, sau này công ty làm ăn có lãi sẽ tăng thêm cho chị."
 
-Năm 2006, tốt nghiệp Sư Đại mà lương 1.200 đúng là hơi thấp, Triệu Bác Lan gật đầu: "Vậy em đừng có học theo mấy ông chủ chỉ biết vẽ bánh cho tôi, em, em vẫn là..."
+Năm 2006, một sinh viên tốt nghiệp trường Sư Đại mà nhận mức lương 1.200 tệ quả thực có hơi thấp một chút. Triệu Bác Lan gật đầu bảo: "Thế em đừng có học theo mấy ông giám đốc ngoài kia chỉ giỏi vẽ bánh vẽ lừa chị đấy nhé. Em... em vẫn là..."
 
-Nhìn Triệu Kim An, Triệu Bác Lan định gọi tiếng "chú" nhưng không thốt ra được lại bật cười.
+Nhìn Triệu Kim An, chữ "chú" nghẹn lại ở khóe môi Triệu Bác Lan chưa thốt ra được, cô lại bật cười khúc khích.
 
-"Thím và bà nội biết chuyện này không?"
+"Chuyện này thím út với bà nội đã biết chưa?"
 
-Triệu Kim An lắc đầu: "Chẳng bao lâu nữa sẽ biết thôi, chị thấy đấy, chị cũng phải mất nửa buổi mới chấp nhận được... chị nghĩ xem bà nội làm sao mà chấp nhận nổi?"
+Triệu Kim An lắc đầu: "Chẳng bao lâu nữa là sẽ biết thôi, chị nhìn xem ngay cả chị cũng phải mất nửa ngày trời mới tiếp nhận nổi... Chị nghĩ bà nội nghe xong thì làm sao mà tiếp nhận được ngay?"
 
-Nói đoạn, Triệu Kim An đứng dậy đóng cửa lại.
+Nói đoạn, Triệu Kim An đứng dậy khép chặt cánh cửa phòng lại.
 
-Triệu Bác Lan biết, đây là sắp bàn chuyện "trong thôn" rồi.
+Triệu Bác Lan hiểu ngay, đây là chuẩn bị nói chuyện "chuyện riêng của làng" rồi.
 
-"Thím mà biết thì loa phát thanh trong thôn chẳng phải sẽ phát sáng trưa tối mỗi ngày ba bận sao?"
+"Nếu thím út mà biết chuyện này, cái loa phát thanh của làng chẳng phải sẽ bật ra rả sáng trưa chiều tối một ngày ba bận sao?"
 
 "Hi hi hi..."
 
-Triệu Bác Lan cười đến nghiêng ngả, Vương Kim Như là hạng người như vậy, thím ấy mà biết Triệu Kim An có tiền đồ như thế thì chắc cũng chẳng thèm làm việc nữa, ngày ngày canh chừng ở ủy ban thôn.
+Triệu Bác Lan cười nghiêng ngả cả người. Vương Kim Như quả đúng là con người như thế, nếu mà bà thím ấy biết Triệu Kim An có tiền đồ rạng rỡ thế này thì đảm bảo ruộng nương đồng áng cũng chẳng thèm làm nữa, ngày nào cũng túc trực ở ban chỉ huy thôn.
 
-Loa phát thanh trong thôn thông báo còn chưa đủ, tự thím ấy còn phải đi lượn lờ khắp thôn cơ.
+Loa phát thanh của thôn phát tin chưa đủ, thím ấy còn phải đích thân đi rêu rao khoe khoang khắp làng trên xóm dưới mới thỏa dạ.
 
-"Triệu Bác Lan, em đang nghĩ xem Kim An Gia thôn chúng ta thích hợp trồng loại cây ăn quả nào..."
+"Triệu Bác Lan này, tôi đang suy nghĩ xem đất làng Triệu Gia mình thích hợp để trồng loại cây ăn quả nào..."
 
-Sống lại một đời, Triệu Kim An có chút lý tưởng hóa, hắn không nói hết câu, nhưng Triệu Bác Lan đã hiểu, nàng chợt cảm thấy công việc này càng thêm có ý nghĩa.
+Sống lại một đời, Triệu Kim An mang trong mình đôi chút lý tưởng tốt đẹp. Anh không nói hết câu, nhưng Triệu Bác Lan lập tức hiểu được tâm ý. Cô bỗng cảm thấy công việc này càng thêm phần ý nghĩa và thiêng liêng.
 
-Nếu có thể giống như huyện Vĩnh Hưng bên cạnh có giống cam đường "ngọt hơn mối tình đầu", người dân Triệu Kim An Gia thôn sẽ có thêm một nguồn thu nhập kinh tế.
+Nếu như làng mình cũng có thể trồng được giống cam đường "ngọt hơn mối tình đầu" như huyện Vĩnh Hưng bên cạnh, thì bà con chòm xóm làng Triệu Gia sẽ có thêm một nguồn thu nhập ổn định để trang trải cuộc sống.
 
-Loại chuyện này thật ra quan trọng nhất chính là đầu ra...
+Loại chuyện này, quan trọng nhất cốt lõi vẫn là đầu ra tiêu thụ...
 
-Triệu Bác Lan nghĩ đến đó, trong lòng trở nên kích động, lúc này cho dù Triệu Kim An không nhắc đến tiền lương thì Triệu Bác Lan cũng sẵn lòng đến làm việc, chỉ có điều Triệu Kim An dù sao cũng là bậc chú.
+Càng nghĩ, lòng Triệu Bác Lan lại càng dâng lên niềm xúc động rạo rực. Lúc này cho dù Triệu Kim An không trả lương thì cô cũng sẵn lòng lăn xả tới làm việc giúp anh. Dẫu sao xét theo vai vế, Triệu Kim An vẫn là bậc chú bác trong họ.
 
-Hai người ở trong văn phòng trò chuyện rất lâu.
+Hai chú cháu ngồi trong văn phòng trò chuyện rất lâu.
 
-Triệu Bác Lan hỏi về sự phát triển của công ty và quy hoạch đối với Triệu Kim An Gia thôn, cuối cùng nghĩ lại vẫn hỏi Triệu Kim An.
+Triệu Bác Lan hỏi han tường tận về định hướng phát triển của công ty cùng những quy hoạch dự định cho làng Triệu Gia, cuối cùng đắn đo mãi cô mới cất tiếng hỏi Triệu Kim An:
 
-"Kim An, mẹ em biết chưa?"
+"Kim An, chuyện này mẹ em có biết không?"
 
-Triệu Kim An lắc đầu.
+Triệu Kim An khẽ lắc đầu.
 
-Triệu Bác Lan cũng không hỏi thêm nữa.
+Triệu Bác Lan cũng hiểu ý không gặng hỏi thêm nữa.

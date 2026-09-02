@@ -1,205 +1,205 @@
-# Chương 168: Hủy đi....
+# Chương 168: Phá vỡ sự tốt đẹp...
 
-Có lẽ là xúc động.
+> **Tiêu đề gốc**: 第168章 毁掉....
 
-Có lẽ là bầu không khí đến rồi, kìm lòng không được.
+Có lẽ là do bốc đồng nhất thời.
 
-Ẩm ướt lộc của sợi tóc, lông mi, lạnh đến trắng bệch gương mặt, trắng bệch bờ môi, Triệu Kim An"hủy đi"rồi trong lòng phần kia mỹ hảo, hủy diệt Bành Trung Ngạn, lư kiều vĩ, đơn vĩ chờ trong lòng phần kia mỹ hảo.
+Hoặc giả là bầu không khí đã chín muồi, khiến tình cảm không kìm nén nổi.
 
-Có lẽ đối với lư kiều vĩ bọn hắn tới nói, là chiếm lấy!
+Mái tóc ướt đẫm làn mưa, hàng mi buốt giá, đôi gò má trắng bợch vì lạnh và bờ môi tái nhợt... Triệu Kim An đã tự tay "phá vỡ" nét đẹp thuần khiết trong lòng mình, cũng phá vỡ luôn biểu tượng thi vị, cao đẹp bấy lâu trong tâm trí của Bành Trung Ngạn, Lư Kiều Vĩ, Đơn Vĩ và những người khác.
 
-Tới Tưởng gia thung lũng, bọn hắn biết rồi đem chỉ tinh của cố sự.
+Có lẽ đối với đám người Lư Kiều Vĩ, hành động này chẳng khác nào sự chiếm đoạt!
 
-Đem chỉ tinh lúc mang thai, trượng phu liền trở về trong thành chữa bệnh, là đem chỉ tinh hai đầu chạy, tiếp thủ xưởng đóng hộp, trượng phu chết bệnh, nàng kiên trì đem hài tử sinh ra.
+Từ ngày về Tưởng Gia Cảo, họ đều đã được nghe kể về câu chuyện đời của Tưởng Chỉ Tình.
 
-Lại tại xưởng đóng hộp giữ vững được 6 năm!
+Hồi Tưởng Chỉ Tình mang thai, chồng cô phát bệnh phải trở về thành phố chữa trị. Chính Tưởng Chỉ Tình là người một mình gánh vác cả hai đầu, chạy đôn chạy đáo nhận lại xưởng đồ hộp. Chồng qua đời vì bạo bệnh, cô vẫn kiên quyết sinh đứa trẻ ra đời.
 
-Khi đó đem chỉ tinh mới 2 3 tuổi, còn có thể nói là nữ sinh, nàng có rất nhiều lựa chọn, lựa chọn không muốn hài tử, phụ thân là đem tăng năm, có thể tiếp tục trở về trong huyện ngồi đơn vị, hết lần này tới lần khác nàng lựa chọn gian nan nhất một con đường.
+Rồi một thân một mình cắn răng bám trụ xưởng đồ hộp suốt sáu năm ròng rã!
 
-"Tưởng xưởng trưởng"chỉ là một cái xưng hô.
+Khi ấy Tưởng Chỉ Tình mới vừa tròn hai mươi ba tuổi, vẫn còn là một cô gái trẻ trung mơn mởn. Cô có biết bao lựa chọn cho tương lai: có thể chọn bỏ đứa con, có người cha là Tưởng Tăng Niên che chở, cô hoàn toàn có thể trở về huyện lỵ ngồi phòng ban nhàn hạ làm việc trong biên chế... Thế nhưng cô lại cố chấp chọn lấy con đường gập ghềnh và gian nan nhất.
 
-Trên thực tế người trong thôn đều biết trong xưởng hiệu quả và lợi ích thật không tốt, phát tiền lương có chút khó khăn.
+"Tưởng xưởng trưởng" nghe thì oai phong, nhưng thực chất chỉ là một danh xưng trên đầu môi.
 
-Cứ như vậy, đem chỉ tinh giữ vững được 6 năm.
+Người trong thôn ai mà chẳng rõ xưởng đồ hộp làm ăn bết bát đến mức nào, ngay cả tiền lương cho công nhân cũng chật vật mãi mới xoay xở nổi.
 
-Có lẽ là chấp niệm trong lòng.
+Cứ như thế, Tưởng Chỉ Tình đã kiên trì suốt sáu năm.
 
-Xưởng đóng hộp chuẩn bị phải tăng thêm"đạt đến nhiên"hai chữ, đem chỉ tinh không có ý định cự tuyệt Triệu Kim An rồi.
+Có lẽ tất cả bắt nguồn từ một niềm chấp niệm sâu kín trong lòng.
 
-Đúng vậy, là không có ý định cự tuyệt, không có nghĩa là chủ động.
+Một khi đã chấp nhận gắn thêm hai chữ "Trăn Nhiên" lên biển hiệu xưởng đồ hộp, Tưởng Chỉ Tình vốn đã không hề có ý định cự tuyệt Triệu Kim An.
 
-Là Triệu Kim An chủ động lời nói, đem chỉ tinh cũng sẽ không cự tuyệt.
+Phải, là không định cự tuyệt, chứ không đồng nghĩa với việc chủ động dấn tới.
 
-Nàng đêm đó tại bờ sông nói"ta là đang tự hỏi chính ta."
+Chỉ cần Triệu Kim An là người chủ động, Tưởng Chỉ Tình sẽ thuận theo mà không hề chối từ.
 
-Làm Triệu Kim An đưa ra tăng thêm"đạt đến nhiên"hai chữ, mấy ngày nay đem chỉ tinh đều đang tự hỏi, đang làm đấu tranh tư tưởng.
+Đêm hôm đó bên bờ sông lạnh, cô đã từng bảo: "Tôi chỉ đang tự ngẫm lại bản thân mình thôi."
 
-Giữ vững được 6 năm, xưởng đóng hộp bây giờ của ý nghĩa, đối với đem chỉ tinh tới nói, làm đồng ý tăng thêm"đạt đến nhiên"hai cái liền đại biểu đem chỉ tinh không có ý định cự tuyệt Triệu Kim An rồi.
+Khoảnh khắc Triệu Kim An đề nghị thêm hai chữ "Trăn Nhiên", mấy ngày nay Tưởng Chỉ Tình luôn trăn trở suy nghĩ, tự giằng xé nội tâm.
 
-Là không có ý định.
+Sáu năm kiên trì, ý nghĩa của xưởng đồ hộp lúc này đối với Tưởng Chỉ Tình... một khi đã gật đầu đồng ý thêm hai chữ "Trăn Nhiên", cũng đồng nghĩa với việc cô đã chấp nhận trao thân cho Triệu Kim An.
 
-Nếu như Triệu Kim An không động vào chính mình, đem chỉ tinh liền lấy Tưởng xưởng trưởng cùng Triệu tổng phương thức ở chung.
+Là không hề có ý định chối từ.
 
-"Kim An, trong nhà không chuẩn bị mới khuôn mặt khăn, ngươi trước tiên dùng ta."
+Còn nếu Triệu Kim An không hề động chạm tới cô, Tưởng Chỉ Tình vẫn sẽ giữ chừng mực, tiếp tục đối đãi với nhau trên danh nghĩa Tưởng xưởng trưởng và Triệu tổng.
 
-Đem chỉ tinh vừa nói vừa tới phòng tắm giật xuống khuôn mặt khăn, cười nói:"tiểu nhân là Uyển nhi của, ta lát nữa đi mua, còn có bàn chải đánh răng."
+"Kim An, trong nhà chưa kịp mua khăn mặt mới, cậu dùng tạm khăn của tôi nhé."
 
-"úc."
+Tưởng Chỉ Tình vừa nói vừa bước vào phòng tắm lấy chiếc khăn mặt xuống, mỉm cười bảo: "Chiếc nhỏ kia là của Uyển Nhi. Lát nữa tôi sẽ ra tiệm mua đồ mới, mua cả bàn chải đánh răng nữa."
 
-Nhìn xem sắc mặt đỏ thắm đem chỉ tinh, Triệu Kim An cười gật đầu.
+"À, vâng."
 
-"bên này là nước nóng, tẩy nhanh lên, mì sợi muốn khét."
+Nhìn gương mặt ửng hồng rạng rỡ của Tưởng Chỉ Tình, Triệu Kim An mỉm cười gật đầu.
 
-"a."
+"Bên này là vòi nước nóng, rửa mặt nhanh lên một chút, để lâu mì nở ra mất ngon đấy."
 
-Triệu Kim An chỉ biết gật đầu, hắn quên tối hôm qua mấy lần, điên cuồng 5 lần?
+"Vâng."
 
-Lần thứ ba, đem chỉ tinh liền hô từ bỏ.
+Triệu Kim An lúc này chỉ biết gật đầu lia lịa. Anh cũng chẳng nhớ nổi đêm qua hai người đã quấn quýt bao nhiêu lần, cuồng nhiệt suốt năm trận chăng?
 
-Đại khái đem chỉ tinh cũng biết Triệu Kim An đối với mình là không có gì tình cảm của, tối hôm qua là hormone.... Đem chỉ tinh chính mình đã nói"ta sẽ ở Tưởng gia thung lũng, không có người biết ta."
+Đến lần thứ ba, Tưởng Chỉ Tình đã cất giọng van nài xin tha.
 
-Nàng tin tưởng Triệu Kim An có thể nghe hiểu.
+Có lẽ Tưởng Chỉ Tình cũng tự hiểu rõ trong lòng, Triệu Kim An đối với mình chẳng có bao nhiêu tình cảm sâu đậm, tất cả những gì diễn ra đêm qua chỉ là sự bùng nổ của hormone tuổi trẻ... Chính miệng Tưởng Chỉ Tình cũng đã nói: "Tôi sẽ ở lại Tưởng Gia Cảo, sẽ không có ai biết chuyện giữa chúng ta đâu."
 
-Đây chính là 3 0 tuổi nữ nhân đem chỉ tinh của"biết chuyện"chỗ.
+Cô tin rằng Triệu Kim An đủ thông minh để hiểu được thấu đáo ý tứ câu nói ấy.
 
-Nếu như đêm đó Triệu Kim An kéo lý Airam đi khách sạn, đoán chừng này lại kế toán lớp một người đều biết lý Airam là Triệu Kim An bạn gái, lý Airam sẽ"biểu thị công khai"chủ quyền.
+Đó chính là sự "biết điều và thấu hiểu" rất riêng của một người đàn bà tuổi ba mươi như Tưởng Chỉ Tình.
 
-Sẽ cố ý tại kế toán ban một Q Q nhóm cùng Triệu Kim An nũng nịu, nói cho Lý Lộ, nói cho Đường Hiểu tinh.
+Nếu như đêm hôm ấy Triệu Kim An kéo Lý Ngải Lan vào khách sạn, phỏng chừng lúc này cả cái lớp Kế toán 1 đều đã râm ran tin tức Lý Ngải Lan là bạn gái của Triệu Kim An rồi, cô nàng chắc chắn sẽ lồng lộn lên "khẳng định chủ quyền".
 
-Các ngươi đều không được, Triệu Kim An bị ta bắt lại rồi!!
+Sẽ cố tình vào nhóm chat QQ của lớp Kế toán 1 nũng nịu với Triệu Kim An, để cho Lý Lộ thấy, cho Đường Hiểu Tình thấy.
 
-Cũng là đem chỉ tinh biết, chính mình có cái 5 tuổi nhiều nữ nhi.
+Mấy người các cô đều vô dụng cả, Triệu Kim An đã bị bà đây thu phục ngon ơ rồi!!
 
-"Uyển nhi rời giường sao?"
+Hơn nữa, Tưởng Chỉ Tình cũng tự ý thức được bản thân mình đã có một đứa con gái hơn năm tuổi.
 
-Triệu Kim An từ phòng tắm đi ra một thoại hoa thoại.
+"Uyển Nhi đã dậy chưa chị?" Triệu Kim An bước ra khỏi phòng tắm, tìm chuyện để nói cho đỡ gượng gạo.
 
-"nàng mỗi ngày 7 đốt lên giường."
+"Con bé ngày nào cũng dậy lúc bảy giờ."
 
-Đem chỉ tinh nhìn xem thời gian:"đi nhà bà ngoại đoán chừng phải ngủ giấc thẳng đến 8 điểm."
+Tưởng Chỉ Tình liếc nhìn đồng hồ: "Nhưng về bên nhà bà ngoại thì chắc phải ngủ nướng tới tận tám giờ."
 
-Triệu Kim An vuốt vuốt mái tóc, nhớ tới Triệu Chí Dũng, là thực sự hảo huynh đệ a.
+Triệu Kim An đưa tay gãi gãi đầu, bỗng nhiên nhớ tới Triệu Trí Dũng, đúng là thằng bạn chí cốt tốt thật đấy.
 
-"thì trách hắn, bị hắn ảnh hưởng tới."
+"Tất cả là tại nó, mình bị thằng nhãi ấy lây thói xấu rồi."
 
-Nghĩ đi nghĩ lại, Triệu Kim An cười một tiếng, Uyển nhi so Triệu Niệm có thể xinh đẹp hơn.
+Càng nghĩ, Triệu Kim An càng bất giác bật cười thành tiếng. Con bé Uyển Nhi trông xinh xắn, đáng yêu hơn con bé Triệu Niệm Khả nhiều.
 
-Nhìn xem phía trước tiểu chính mình 1 0 tuổi nam sinh, đem chỉ tinh có chút không hiểu thấu.
+Nhìn chàng trai trẻ kém mình tới mười tuổi ngồi đối diện, Tưởng Chỉ Tình có chút khó hiểu.
 
-"Kim An, ngươi cười cái gì?"
+"Kim An, cậu cười cái gì thế?"
 
-Đem chỉ tinh bưng bát, ăn cái gì rất ưu nhã, tại đem Thúc gia cũng như vậy.
+Tưởng Chỉ Tình bưng bát mì, phong thái ăn uống vô cùng tao nhã, ngay cả khi ăn cơm bên nhà chú Tưởng cô cũng luôn giữ nét ý tứ như vậy.
 
-"không có gì."
+"Không có gì đâu."
 
-Triệu Kim An nghĩ nghĩ:"5 5 chia, sổ sách hay là muốn phân, công ty không phải ta một người."
+Triệu Kim An ngẫm nghĩ một lát rồi nói: "Tỷ lệ ăn chia cứ tính năm năm đi, sổ sách thì phải rạch ròi, công ty dù sao cũng không phải của một mình tôi."
 
-Đem chỉ tinh gật đầu, tỏ ra hiểu rõ.
+Tưởng Chỉ Tình gật đầu, tỏ ý đã hiểu.
 
-"bất quá...."
+"Có điều..."
 
-Triệu Kim An lại lời nói xoay chuyển:"vẫn là 4 6 đi, ngươi 6, ta 4, này một thành coi như ta cho Uyển nhi của."
+Triệu Kim An bỗng chuyển giọng: "Hay là chia bốn sáu đi. Chị nhận sáu, tôi lấy bốn. Một phần dôi ra kia coi như tôi cho con bé Uyển Nhi."
 
-"..... Ân."
+"...Ừm."
 
-Đem chỉ tinh cúi đầu chọn mì sợi, nghe vậy ngẩng đầu nhìn một chút Triệu Kim An, giống như là thật bất ngờ, sau đó tiếp tục cúi đầu ăn mì.
+Tưởng Chỉ Tình đang cúi đầu gắp mì, nghe thấy thế liền ngước mắt lên nhìn Triệu Kim An, trong ánh mắt thoáng qua vẻ bất ngờ, rồi lại tiếp tục cúi đầu ăn mì.
 
-Triệu Kim An còn nói:"ta lát nữa tới trong xưởng, ngươi tìm mấy cái kinh nghiệm phong phú lão sư phó."
+Triệu Kim An lại dặn dò: "Lát nữa tôi qua xưởng, chị tìm giúp mấy người thợ cả giàu kinh nghiệm trong làng nhé."
 
-"hảo."
+"Được."
 
-Đem chỉ tinh gật đầu:".... Cám ơn ngươi."
+Tưởng Chỉ Tình gật đầu: "...Cảm ơn cậu."
 
-Nghe được"cám ơn ngươi"ba chữ, Triệu Kim An sửng sốt một cái chớp mắt.
+Nghe thấy ba chữ "cảm ơn cậu", Triệu Kim An thoáng sững lại một nhịp.
 
-Chân chính"thân mật vô gian"của người là sẽ không nói cảm tạ của.
+Những người thực sự "thân mật không khoảng cách" bên nhau chẳng bao giờ thốt ra lời cảm ơn khách sáo như thế.
 
-Tại trước tối hôm qua, đem chỉ tinh"cầu viện"qua Triệu Kim An hai lần, Triệu Kim An lần đầu tiên tới Tưởng gia thung lũng trả lời"đây là lớn xu thế", một lần tránh đi cái gì đều không trả lời.
+Trước đêm qua, Tưởng Chỉ Tình từng hai lần mở lời "cầu cứu" Triệu Kim An. Lần đầu tiên anh đến Tưởng Gia Cảo chỉ đáp gọn lỏn "đây là xu thế tất yếu", lần thứ hai thì lảng tránh không trả lời.
 
-Nhìn xem hơi hơi cúi đầu, nghiêm túc ăn điểm tâm đem chỉ tinh, trước khi ra cửa, Triệu Kim An hỏi một câu.
+Nhìn người phụ nữ đang khẽ cúi đầu chăm chú ăn bữa sáng, lúc chuẩn bị bước chân ra cửa, Triệu Kim An bất giác cất tiếng hỏi một câu.
 
-".... Ngươi thích không?"
+"...Chị có thích không?"
 
-Đem chỉ tinh lại giúp Triệu Kim An chỉnh lý cổ áo, thân rồi thân quần áo, nhìn trước mắt của nam sinh hài lòng gật đầu.
+Tưởng Chỉ Tình bước lại gần, ân cần chỉnh lại cổ áo cho Triệu Kim An, vuốt phẳng nếp áo rồi ngắm nhìn chàng trai trước mặt, mỉm cười gật đầu đầy vẻ hài lòng.
 
-"Kim An, ta nói từ nay về sau ta là nữ nhân ngươi rồi."
+"Kim An, tôi đã bảo rồi mà, từ nay về sau tôi là người đàn bà của cậu."
 
-Đem chỉ tinh của dáng người không có rất khoa trương, chính là rất cân xứng, cũng có thể nói tìm không ra khuyết điểm.
+Vóc dáng của Tưởng Chỉ Tình không hề đẫy đà phô trương, mà cân đối, tròn trịa vừa vặn đến mức khó có thể tìm ra tì vết.
 
-Triệu Kim An một chút lầu, liền bắt gặp đơn vĩ.
+Triệu Kim An vừa bước chân xuống tầng một đã chạm mặt ngay Đơn Vĩ.
 
-"lão bản...."
+"Ông chủ..."
 
-"....."
+"..."
 
-Triệu Kim An có chút buồn bực:"ngươi sẽ không một đêm ở nơi này trông coi đi?"
+Triệu Kim An có chút cạn lời: "Không phải anh đứng canh ở đây suốt cả đêm đấy chứ?"
 
-".... Không có."
+"...Dạ không có."
 
-"loại sự tình này rất an toàn.... Không cần bảo tiêu."
+"Mấy chuyện thế này an toàn tuyệt đối... đâu cần phải bảo vệ đứng canh làm gì."
 
-"ha ha."
+"He he."
 
-Đơn vĩ cười ngượng ngùng vài tiếng, chỉ có thể gật đầu.
+Đơn Vĩ cười gượng hai tiếng, chỉ biết gật đầu vâng dạ.
 
-Nếu như là ngày đó tại Hương giang, đơn vĩ thật đúng là không yên lòng, ai biết nữ nhân kia căn nguyên gì.
+Nếu là hôm ở Hong Kong thì Đơn Vĩ quả thực không yên tâm chút nào, ai mà biết lai lịch người đàn bà kia thế nào.
 
-Đến rồi công trường, Bành Trung Ngạn cùng lư kiều vĩ còn rất kỳ quái.
+Tới công trường, Bành Trung Ngạn và Lư Kiều Vĩ đều lấy làm lạ lẫm.
 
-Triệu tổng hôm nay làm sao tới sớm như vậy!?
+Sao hôm nay Triệu tổng lại tới sớm thế này chứ!?
 
-Triệu Kim An gọi điện thoại cho Tô Thành của lạc cẩn chi, lạc cẩn chi tại khách sạn ngủ, nàng không có lý do cự tuyệt, công ty liền ra"đạt đến nhiên"hai chữ, lại không muốn xuất tiền.
+Triệu Kim An gọi một cuộc điện thoại cho Lạc Cẩn Chi đang ở Tô Thành. Lạc Cẩn Chi lúc này vẫn còn đang say giấc nồng trong khách sạn. Chị đương nhiên chẳng có lý do gì để từ chối, công ty chỉ việc nhượng quyền hai chữ "Trăn Nhiên", lại chẳng tốn một xu tiền túi.
 
-Bất quá nửa giờ sau, lạc cẩn chi liền gọi điện thoại tới.
+Thế nhưng chỉ nửa tiếng sau, Lạc Cẩn Chi đã sốt sắng gọi điện ngược trở lại.
 
-"Kim An, lão nương là không phải là bị trộm nhà!!!"
+"Kim An, có phải bà đây bị người ta cướp mất hang ổ rồi không hả?!!"
 
-Triệu Kim An:......
+Triệu Kim An: "..."
 
-"cẩn Chi tỷ, ngươi đang nói cái gì, cái gì trộm nhà?"
+"Chị Cẩn Chi, chị nói cái gì thế, cướp hang ổ gì cơ?"
 
-"ta...."
+"Chị..."
 
-Đầu bên kia điện thoại lạc cẩn chi tức hổn hển, chính mình vừa rời đi Tưởng gia thung lũng, nhà liền không có, cái này đi đâu nói rõ lí lẽ đi, sớm biết đêm đó liền da mặt dày điểm....
+Đầu dây bên kia Lạc Cẩn Chi tức tối đến giậm chân bình bịch. Bản thân mình vừa rời khỏi Tưởng Gia Cảo một cái là mất trắng cả cơ ngơi, chuyện này biết đi đâu mà kêu oan bây giờ! Sớm biết thế này thì đêm hôm đó mình cứ mặt dày bám riết lấy cho xong...
 
-"thì trách Triệu Quốc Hoa! Chính là hắn!!"
+"Tất cả là tại lão Triệu Quốc Hoa! Đích thị là do ông ta!!"
 
-Lạc cẩn chi giận không chỗ phát tiết, Kim An nhất định là lần thứ nhất!
+Lạc Cẩn Chi tức anh ách, Kim An nhất định vẫn là lần đầu tiên!
 
-Khẳng định!
+Chắc chắn là như thế!
 
-Nàng gọi điện thoại cho Triệu Quốc Hoa, Triệu Quốc Hoa vốn là dự định hôm nay mang lão bà nữ nhi ra đường mua quần áo mới mua đồ tết của, kết quả mới rời giường liền tiếp vào lạc cẩn chi điện thoại.
+Chị lập tức bấm máy gọi điện cho Triệu Quốc Hoa. Triệu Quốc Hoa sáng nay vốn định đưa vợ con lên phố sắm sửa quần áo mới và mua sắm đồ Tết, nào ngờ vừa mới bò ra khỏi giường đã nhận ngay cuộc gọi sấm sét của Lạc Cẩn Chi.
 
-"lạc cuối cùng, có chuyện gì không?"
+"Lạc tổng, có việc gì thế chị?"
 
-"ngươi trở về cũng không cần đi làm sao, công ty còn không có thả nghỉ đông! Ngươi nhìn tất cả mọi người không giúp được! Xin phép nghỉ liền trừ tiền lương trừ tiền thưởng, ngươi nói cho Kim An cũng vô dụng!!"
+"Ông về quê rồi là không thèm đi làm nữa à? Công ty đã cho nghỉ Tết đâu! Ông nhìn xem mọi người bận tối mắt tối mũi kia kìa! Dám tự ý nghỉ phép là tôi trừ sạch lương thưởng, ông có đi mách Kim An cũng vô ích thôi!!"
 
-"ta cũng là công ty lão bản!!!"
+"Tôi cũng là cổ đông lớn của công ty đấy nhé!!!"
 
-"lạc cuối cùng, ta trở về một mực tại tư cách tinh nhà máy nước đi làm...."
+"Lạc tổng à, tôi về đây vẫn đang làm việc suốt ở xưởng nước Tư Tinh mà..."
 
-Nhìn xem"tút tút tút"của điện thoại, Triệu Quốc Hoa không hiểu ra sao, lạc cuối cùng hôm nay ăn thuốc súng sao.
+Nhìn màn hình điện thoại vang lên tiếng "tút tút tút" dồn dập, Triệu Quốc Hoa ngơ ngác mặt mày, không hiểu hôm nay Lạc tổng ăn phải thuốc súng ở đâu mà đùng đùng nổi giận như vậy.
 
-Xưởng đóng hộp hôm nay có người bắt đầu làm việc, toàn bộ nhà máy liền 3 5 cá nhân.
+Xưởng đồ hộp hôm nay có người đến làm việc, cả xưởng vỏn vẹn chỉ có ba mươi lăm con người.
 
-Cái này 3 5 cá nhân đều đoán được năm sau xưởng đóng hộp đại khái liền muốn đóng cửa.
+Ba mươi lăm con người này ai nấy đều lờ mờ đoán được sau Tết chắc chắn xưởng đồ hộp sẽ phải đóng cửa.
 
-Nói thực ra, trong lòng là có không nỡ của.
+Nói thật lòng, trong lòng họ ai cũng có phần quyến luyến, tiếc nuối.
 
-Dù sao người đều sẽ có cảm tình.
+Dù sao con người ở với nhau lâu ngày ắt sinh tình cảm.
 
-Nhưng bên cạnh tiền lương cao nhiều lắm.
+Thế nhưng đãi ngộ bên xưởng nước sát vách lại cao hơn quá nhiều.
 
-Ở đây làm một ngày thôi một ngày, có khi thôi hai ngày, một tháng mới nhỏ hơn mấy trăm khối tiền tiền lương.
+Ở đây làm một ngày nghỉ một ngày, có khi nghỉ liền hai ngày, mỗi tháng còm cõi được vài trăm tệ tiền lương ít ỏi.
 
-"Tưởng xưởng trưởng, chúng ta...."
+"Tưởng xưởng trưởng, chúng tôi..."
 
-Mấy cái phụ nhân nhà muốn nói lại thôi, có chút ngượng ngùng, đi bên cạnh nhà máy nước cũng nên dismiss; discharge; quit one's job; resign, không thể gọi cũng không nói một tiếng liền chạy bên cạnh nhà máy nước đi.
+Mấy người phụ nữ ngập ngừng muốn nói lại thôi, nét mặt đầy vẻ áy náy. Muốn sang xưởng nước bên cạnh làm thì trước hết phải xin thôi việc đàng hoàng, không thể không chào một tiếng đã đùng đùng chạy sang làm bên kia được.
 
-"Tưởng xưởng trưởng, chúng ta tiền lương, trong xưởng lúc nào có tiền tái phát...."
+"Tưởng xưởng trưởng à, tiền lương của chúng tôi, bao giờ xưởng có tiền thì gửi sau cũng được..."
 
-"đúng, không vội."
+"Đúng đấy, chúng tôi không vội đâu."
 
-Đem chỉ tinh mỉm cười nói:"không có việc gì, sẽ không đóng môn của."
+Tưởng Chỉ Tình mỉm cười dịu dàng: "Không sao đâu, xưởng của chúng ta sẽ không đóng cửa đâu mà."
 
-Đang nói chuyện, Triệu Kim An tới, đằng sau đi theo đơn vĩ cùng bành trung
+Đang lúc trò chuyện thì Triệu Kim An bước vào, theo sau là Đơn Vĩ và Bành Trung Ngạn.

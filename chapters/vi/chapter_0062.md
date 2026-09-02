@@ -1,175 +1,177 @@
-# Chương 62: Tống Siêu Văn Ông Chủ
+# Chương 62: Tống Siêu Văn: Sếp ơi...
 
-Sau khi rời khỏi Hiên Tụ Đức, Đơn Vĩ vẫn luôn túc trực bên ngoài.
+> **Tiêu đề gốc**: 第62章 宋超文：老板....
 
-Cú đấm vừa rồi của Lưu Sấm Phong, nếu không phải biết đó là bạn cùng phòng của ông chủ, Đơn Vĩ đã xông lên quật ngã gã rồi, khó khăn lắm mới thấy có kẻ dám động thủ với ông chủ.
+Kể từ lúc rời khỏi Hiên Tụ Đức, Đan Vĩ vẫn luôn túc trực đứng gác ở bên ngoài.
 
-Sau khi lên xe, đi được nửa đường Triệu Kim An bỗng hô lên một tiếng: "Dừng xe."
+Cú đấm ban nãy của Lưu Sấm Phong, nếu không phải biết đối phương là bạn cùng phòng ký túc xá của ông chủ, Đan Vĩ đã sớm lao vào quật ngã cậu ta xuống đất rồi. Hiếm hoi lắm mới thấy có kẻ dám động tay động chân với sếp mình cơ chứ.
 
-Xuống xe, anh châm một điếu thuốc, đứng dưới gốc cây bên đường lấy điện thoại ra gọi cho Lạc Cẩn Chi.
+Lên xe đi được nửa đường, Triệu Kim An bỗng cất tiếng: "Dừng xe."
+
+Bước xuống xe, anh châm một điếu thuốc, tựa trán vào thân cây ven đường rồi rút điện thoại bấm số gọi cho Lạc Cẩn Chi.
 
 "Lạc tổng, chị cứ ra giá đi, tôi không mặc cả."
 
-"Kim An, cậu sao thế?"
+"Kim An, em làm sao thế?"
 
-Lạc Cẩn Chi nhận ra cảm xúc của Triệu Kim An qua điện thoại có chút không ổn.
+Lạc Cẩn Chi lập tức nhận ra tâm trạng Triệu Kim An qua điện thoại có chút bất thường.
 
-Triệu Kim An cảm thấy bản thân sau khi trùng sinh có phần quá "chi li". Có trong tay 18 năm tiên tri mà lại đi tính toán chi li cái giá với Lạc Cẩn Chi.
+Triệu Kim An tự thấy bản thân sau khi trọng sinh có phần quá "bủn xỉn hẹp hòi". Rõ ràng nắm trong tay ký ức cùng tầm nhìn tiên tri của mười tám năm tới, vậy mà lại đi cò kè từng đồng từng cắc với Lạc Cẩn Chi.
 
-Có 18 năm tiên tri, hơn kém một hai triệu tệ thì có hệ trọng gì đâu?
+Đã có mười tám năm tầm nhìn đi trước thời đại, nhiều hơn một triệu hay hai triệu tệ thì có ý nghĩa lớn lao đến thế sao?
 
-Triệu Kim An tự kiểm điểm bản thân, anh đã quên mất bà nội và thím ở nhà, họ vẫn đang thắt lưng buộc bụng để dành dụm học phí và sinh hoạt phí cho anh.
+Triệu Kim An tự kiểm điểm lại chính mình. Anh đã quên mất bà nội và thím ở quê nhà, họ vẫn đang chắt bóp từng đồng, tằn tiện từng bữa ăn để dành dụm tiền học phí và tiền sinh hoạt cho anh.
 
-Mười phút sau khi cúp máy, Triệu Kim An nói: "Về Sâm Châu, Tư Tinh."
+Mười phút sau khi gác máy, Triệu Kim An quay sang bảo Đan Vĩ: "Về Sâm Thành, tới Tư Hưng."
 
-Lạc Cẩn Chi nói gặp mặt rồi bàn, chuyện này quả thực không thể chốt xong qua điện thoại.
+Lạc Cẩn Chi bảo gặp mặt nói chuyện trực tiếp, loại chuyện làm ăn lớn thế này quả thực không thể chốt xong xuôi qua điện thoại được.
 
-Đơn Vĩ lấy điện thoại gọi cho con gái: "Na Tề, ba với ông chủ không về nhà đâu, con tự ăn nhé, hả? Không cần đợi đâu, giờ ba phải rời khỏi Quận Sa rồi..."
+Đan Vĩ rút điện thoại gọi cho con gái: "Na Tề à, ba với ông chủ không về nhà đâu, con ăn cơm một mình nhé. Hả? Không cần đợi đâu, giờ ba với sếp phải rời khỏi Quận Sa rồi..."
 
-Đơn Vĩ vẫn chưa ăn cơm, Đơn Na Tề đang ở nhà đợi.
+Đan Vĩ vẫn chưa kịp ăn tối, Đan Na Tề ở nhà vẫn đang ngồi đợi ba.
 
-Trước khi đi Triệu Kim An có bảo "lát nữa sang ăn một chút", nhưng làm gì có đạo lý mình ăn trước để ông chủ phải ăn "cơm thừa canh cặn"?
+Trước khi đi, Triệu Kim An có bảo "lát nữa đi ăn chút gì đó", nhưng làm gì có đạo lý tài xế ăn trước rồi để ông chủ phải ăn "cơm thừa canh cặn" cơ chứ?
 
-20 phút sau, Triệu Kim An nhận được một tin nhắn.
+Hai mươi phút sau, Triệu Kim An nhận được một tin nhắn.
 
-Số lạ: Triệu Kim An, mình là Từ Mạn Mạn, chuyện hôm nay xin lỗi cậu.
+Số lạ: [Triệu Kim An, tôi là Từ Mạn Mạn. Chuyện ban nãy... tôi thật lòng xin lỗi cậu.]
 
-Từ Mạn Mạn đã hỏi Trần Trạch và biết Triệu Kim An vẫn chưa về ký túc xá. Cô mang quần áo vào phòng tắm, chính là ở trong đó để nhắn tin cho anh.
+Từ Mạn Mạn vừa hỏi thăm Trần Trạch và biết Triệu Kim An vẫn chưa về phòng ký túc xá. Cô ôm quần áo bước vào phòng tắm, chính là trốn trong phòng tắm mới dám gửi tin nhắn này cho anh.
 
-Thực ra ở ký túc xá cũng có thể gửi, chẳng ai xem điện thoại của cô, cũng chẳng ai biết cô đang nhắn tin cho ai, nhưng Từ Mạn Mạn vẫn trốn vào phòng tắm mới gửi đi.
+Thực ra gửi ngay tại phòng ký túc xá cũng chẳng sao, chẳng ai rảnh rỗi xem trộm điện thoại của cô, cũng không ai biết cô đang nhắn tin với ai, nhưng Từ Mạn Mạn vẫn lén trốn vào tận phòng tắm mới bấm gửi đi.
 
-Đơn Vĩ lái xe rất vững, 40 phút sau đã vòng lên đường cao tốc. Triệu Kim An nắm chặt điện thoại, nhìn những bóng đen không ngừng lùi lại ngoài cửa sổ xe, thầm nghĩ Từ Mạn Mạn đang xin lỗi thay cho Trần Trạch sao?
+Đan Vĩ lái xe rất đầm và êm, bốn mươi phút sau xe đã lăn bánh vào đường cao tốc. Triệu Kim An siết chặt chiếc điện thoại trong tay, đưa mắt nhìn những bóng cây đen thẫm đang lùi dần về phía sau ngoài cửa sổ, thầm nghĩ có phải Từ Mạn Mạn đang thay mặt Trần Trạch để nói lời xin lỗi hay không?
 
-Chẳng trách mẹ của Trần Trạch lại yêu quý Từ Mạn Mạn đến thế.
+Hèn chi mẹ của Trần Trạch lại ưng ý và quý mến Từ Mạn Mạn đến thế.
 
-Người phụ nữ này đúng là một hiền nội trợ thực thụ...
+Người phụ nữ này quả thực là một người vợ hiền dâu thảo, một hậu phương vô cùng chu toàn...
 
-Kiếp trước Triệu Kim An chưa từng ngưỡng mộ Trần Trạch, cho đến đêm ở quán bar gặp lại Từ Mạn Mạn, nói thật lòng, anh có chút ghen tị khi Trần Trạch có một người vợ như vậy.
+Kiếp trước, Triệu Kim An chưa từng ghen tị với Trần Trạch bất cứ điều gì, cho đến cái đêm gặp lại Từ Mạn Mạn trong quán bar. Thành thật mà nói, khi ấy Triệu Kim An đã có chút ngưỡng mộ và ghen tị khi Trần Trạch cưới được một người vợ tuyệt vời như thế.
 
-Kiếp trước Trần Trạch làm kinh doanh, có lẽ một nửa công lao là thuộc về Từ Mạn Mạn.
+Ở kiếp trước, sự nghiệp kinh doanh của Trần Trạch phất lên, có lẽ một nửa công lao thuộc về Từ Mạn Mạn.
 
-Với tính cách của Trần Trạch... Từ Mạn Mạn chắc hẳn phải đi sau "dọn bãi", bù đắp những thiếu sót cho gã.
+Với cái tính khí bốc đồng, nông nổi của Trần Trạch... Từ Mạn Mạn chắc chắn đã phải âm thầm đứng phía sau thu dọn tàn cuộc, bù đắp lỗ hổng cho anh ta không biết bao nhiêu lần.
 
-Nhớ có lần Trần Trạch uống chút rượu rồi nói: "Trần Trạch tao chơi bời bên ngoài là thỉnh thoảng thôi, chứ đàn bà bên ngoài có đẹp đến mấy cũng đừng hòng thay thế được vợ tao!"
+Nhớ có lần Trần Trạch uống say mèm rồi cao giọng vỗ ngực: "Trần Trạch tao ra ngoài chơi bời ong bướm thế nào thì chơi, nhưng đám đàn bà bên ngoài có xinh đẹp nghiêng nước nghiêng thành đến đâu cũng đừng hòng hòng thay thế được vợ tao!"
 
-Vương Duy Đào huých vào đầu gối Triệu Kim An nói: "Trạch ca, cậu biết đủ đi, cậu đã là người chiến thắng trong cuộc đời rồi."
+Vương Duy Đào lúc đó vỗ nhẹ vào đầu gối Triệu Kim An, cười bảo: "Trạch ca, anh cứ biết đủ là phúc đi, anh đã là người chiến thắng của cuộc đời rồi đấy."
 
-Đó là năm thứ ba sau khi tốt nghiệp đại học, Vương Duy Đào đến Quận Sa công tác, mấy người bạn học ở Quận Sa tụ tập ăn đêm, lúc đó Trần Trạch và Từ Mạn Mạn đã kết hôn được hai năm rưỡi.
+Đó là vào năm thứ ba sau khi tốt nghiệp đại học, Vương Duy Đào có chuyến công tác đến Quận Sa, mấy người bạn học cùng trường hẹn nhau đi ăn đêm. Khi ấy Trần Trạch và Từ Mạn Mạn đã kết hôn được hai năm rưỡi.
 
-Triệu Kim An chợp mắt một lát ở ghế sau, đến Sâm Châu đã là hai rưỡi sáng. Đơn Vĩ tính toán thời gian nên lái không nhanh, vào đến nội thành mới khẽ gọi một tiếng: "Ông chủ?"
+Triệu Kim An ngả lưng chợp mắt một lát ở hàng ghế sau. Khi xe chạy đến Sâm Thành thì trời đã rạng sáng hai giờ rưỡi. Đan Vĩ căn giờ nên không phóng nhanh, vừa vào đến nội thành liền khẽ gọi: "Ông chủ?"
 
-Triệu Kim An mở mắt, chỉ tay về phía cửa hàng KFC vẫn đang mở cửa nói: "Chú đi ăn chút gì đi."
+Triệu Kim An mở mắt, chỉ tay về phía cửa hàng KFC vẫn còn sáng đèn bên đường: "Anh vào đó kiếm cái gì lót dạ đi."
 
-"Ông chủ, tôi không sao."
+"Sếp ơi, tôi không sao đâu, nhịn thêm chút cũng được."
 
-"Không sao, không vội, chi phí ra ngoài cứ tính cho tôi."
+"Không sao, chúng ta không vội, toàn bộ chi phí phát sinh chuyến này tôi lo hết."
 
-Triệu Kim An cũng xuống xe, hít thở không khí của Sâm Châu, nhìn đồng hồ rồi không gọi cho Lạc Cẩn Chi.
+Triệu Kim An cũng mở cửa bước xuống xe, hít thở bầu không khí quen thuộc của mảnh đất Sâm Thành. Anh nhìn đồng hồ, thấy còn quá sớm nên không gọi điện đánh thức Lạc Cẩn Chi.
 
-Đơn Vĩ gặm xong hamburger bước ra, lại đứng bên ngoài hút một điếu thuốc.
+Đan Vĩ vừa gặm xong chiếc burger bước ra, lại đứng bên ngoài rít thêm một điếu thuốc.
 
-Từ Sâm Châu đến Tư Tinh mất thêm 40 phút lái xe, Triệu Kim An bảo Đơn Vĩ đi đường vòng một chút. Tại một ngã tư, anh lại hô lên: "Dừng xe."
+Từ Sâm Thành lái xe về huyện Tư Hưng mất chừng bốn mươi phút nữa. Triệu Kim An bảo Đan Vĩ chạy vòng qua một đoạn đường khác. Đến một ngã tư, Triệu Kim An lại khẽ bảo: "Dừng xe."
 
-Anh chỉ tay về phía trước: "Lái lên trên một chút."
+Anh chỉ tay về phía trước: "Nhích lên đằng kia một đoạn nữa."
 
-Đơn Vĩ nhìn quanh, đầu giao lộ có mấy sạp đồ nướng.
+Đan Vĩ ngó nghiêng hai bên, ở góc ngã tư có mấy quầy bán đồ nướng vỉa hè.
 
-Dưới đất bừa bãi, mấy chủ sạp đang thu dọn ghế ngồi và mấy chiếc bàn xếp nhỏ.
+Mặt đất la liệt rác rưởi, vỏ chai bia cùng xiên que. Mấy chủ quán đang thu dọn ghế nhựa và mấy chiếc bàn gấp nhỏ.
 
-Họ đang chuẩn bị dọn hàng.
+Trời đã về khuya, họ đang chuẩn bị dọn hàng nghỉ bán.
 
-Đơn Vĩ hỏi: "Ông chủ, cậu muốn ăn đồ nướng không, để tôi xuống mua cho."
+Đan Vĩ hỏi: "Sếp muốn ăn đồ nướng à? Để tôi xuống xe mua cho sếp nhé."
 
 "Không cần."
 
-Triệu Kim An tựa lưng vào ghế sau, nhìn chằm chằm người đàn ông đang dọn ghế, Tống Siêu Văn.
+Triệu Kim An ngồi tựa vào hàng ghế sau, ánh mắt dừng lại ở người đàn ông đang lom khom thu dọn ghế đẩu đằng kia — Tống Siêu Văn.
 
-Cứ mỗi tối, Tống Siêu Văn lại dọn hàng ở đây, một sạp đồ nướng, vài chiếc bàn xếp, hơn mười chiếc "ghế nhựa đỏ", miễn là trời không mưa.
+Hầu như đêm nào Tống Siêu Văn cũng bày sạp bán ở góc phố này. Một chiếc xe đẩy nướng thịt, vài cái bàn gấp nhỏ, hơn chục chiếc ghế đẩu nhựa đỏ loại bình dân, chỉ cần trời không mưa là có mặt.
 
-Tầm 9, 10 giờ tối dọn ra, khoảng 3 giờ sáng thì dọn hàng.
+Thường thì khoảng chín, mười giờ tối bắt đầu dọn hàng ra, đến tầm ba giờ sáng thì dọn về.
 
-Hôm nay chắc là buôn bán cũng được, Tống Siêu Văn vừa dọn vừa cười nói với chủ sạp bên cạnh: "Lão Lý, tối nay ông kiếm được bao nhiêu, tôi thấy có bàn của ông gọi nhiều đồ lắm mà."
+Hôm nay buôn bán có vẻ khá khẩm, Tống Siêu Văn vừa thu dọn đồ đạc vừa cười nói rôm rả với chủ quán bên cạnh: "Lão Lý, đêm nay ông kiếm được bao nhiêu thế? Tôi thấy có bàn gọi quá trời món luôn."
 
-"Bảy, tám người, bia thôi đã uống hết ba két!"
+"Bàn bảy, tám người lận, riêng bia đã nốc hết ba két!"
 
-"Hại, bia thì lời lãi gì, bọn họ tự ra tiệm tạp hóa khuân về đấy chứ."
+"Xời, bia thì lời lãi được bao nhiêu đâu, tụi nó tự chạy ra tiệm tạp hóa khuân về đấy chứ."
 
-Lão Lý nói: "Tôi thấy tối nay ông khách khứa cũng ổn đấy, một mình làm không xuể tay."
+Lão Lý đáp lời: "Tôi thấy tối nay ông bán cũng đắt hàng phết đấy, một mình làm không ngơi tay."
 
-Tống Siêu Văn cười bảo: "Giờ là lúc thời tiết đẹp thôi, chứ đến mùa đông thì tối đến chẳng có mấy ai ra ngoài đâu."
+Tống Siêu Văn cười híp mắt: "Đang độ thời tiết mát mẻ dễ chịu mà, chứ sang mùa đông rét buốt thì nửa đêm làm gì có ma nào mò ra đường ăn uống nữa."
 
-Triệu Kim An hạ cửa kính xe xuống một chút, vừa đủ để nghe thấy họ tán gẫu.
+Triệu Kim An hạ mép kính xe xuống một chút, vừa đủ để nghe rõ tiếng trò chuyện của họ.
 
-Lão Lý lại nói: "Lão Tống này, chẳng phải ông bảo cái thằng 'con trai' ông thi đỗ Sư Đại sao?"
+Lão Lý lại cất giọng: "Lão Tống này, chẳng phải ông bảo thằng 'con trai' của ông thi đỗ Đại học Sư phạm đấy sao?"
 
-Một chủ sạp khác cất giọng oang oang, cười ha hả nói: "Lão Tống, sau này ông tha hồ hưởng phúc nhé, hai đứa con gái một đứa con trai, con gái lớn đi làm rồi, con trai lại đỗ đại học xịn thế!"
+Một chủ quán khác ở gần đó cũng vươn cổ, cười ha hả phụ họa: "Lão Tống, sau này tha hồ mà hưởng phúc nhé! Hai đứa con gái, một thằng con trai, con gái lớn đi làm rồi, thằng con trai lại đỗ vào trường đại học danh giá thế kia!"
 
-"Lão Tống, ông vớ bở rồi đấy!" Lão Lý phụ họa.
+"Lão Tống à, ông vớ được món hời lớn rồi đấy!" Lão Lý trêu.
 
-Tống Siêu Văn ngượng nghịu đáp: "Nó có nhận tôi đâu."
+Tống Siêu Văn ngượng ngùng cười trừ: "Nó... nó có chịu nhận tôi đâu."
 
 "Ha ha ha..."
 
-Hai người kia cười rộ lên. Khi Triệu Kim An nhận được giấy báo nhập học của Sư Đại, Tống Siêu Văn đã đem chuyện này kể lể khắp lượt với hàng xóm láng giềng, dù sao thì cũng thấy có chút hãnh diện.
+Hai người kia bật cười khoái trá. Hồi Triệu Kim An nhận được giấy báo trúng tuyển Đại học Sư phạm, Tống Siêu Văn đã đi rêu rao khoe khắp đầu làng ngõ xóm, dù sao thì trong lòng cũng cảm thấy nở mày nở mặt phần nào.
 
-Ở tỉnh Hồ Nam, người ta thực sự rất coi trọng giáo dục, thi đỗ một trường đại học tốt là chuyện vô cùng vinh hiển.
+Ở đất Hồ Nam này, người ta vô cùng coi trọng chuyện học hành, thi đỗ vào một trường đại học trọng điểm là một niềm vinh dự tột bậc.
 
-Hôm đó Lão Lý đã chặn họng Tống Siêu Văn bằng một câu: "Ông có nuôi nó ăn học đâu, cũng chưa từng chăm bẵm nó ngày nào, người ta đỗ đại học thì liên quan gì đến ông?"
+Hôm đó lão Lý đã bĩu môi vặn lại Tống Siêu Văn: "Ông có nuôi nó ăn học ngày nào đâu, cũng chẳng nuôi nó được một bữa cơm, người ta thi đỗ đại học thì liên quan quái gì đến ông?"
 
-Tống Siêu Văn cự lại: "Thì nó vẫn là sinh viên đại học, thuộc diện 211 trọng điểm đấy thôi."
+Tống Siêu Văn cãi: "Dù sao thì nó cũng là sinh viên đại học, trường trọng điểm 211 đàng hoàng đấy chứ đùa."
 
-Tống Uyển Hòa tốt nghiệp cấp hai chỉ học hai năm trung cấp, sau khi ra trường thì làm việc ở hiệu thuốc, nghe nói lương lậu cũng ổn, chỉ là không có bảo hiểm hay quỹ dự phòng gì thôi.
+Con gái lớn Tống Uyển Hòa tốt nghiệp cấp hai chỉ học thêm hai năm trung cấp nghề, ra trường xin vào làm việc ở một tiệm thuốc tây, nghe đâu lương lậu cũng tàm tạm nhưng chẳng có bảo hiểm xã hội hay chế độ gì.
 
-"Lão Tống này, người ta không nhận ông là có lý do cả đấy, cứ bảo nó đỗ đại học, thế ông đã mừng phong bao bao nhiêu rồi?"
+"Lão Tống ơi, người ta không nhận ông cũng là có lý do cả đấy. Ông nói thật xem, hồi nó đỗ đại học, ông mừng cho nó cái phong bao bao nhiêu tiền?"
 
-"Đúng đấy, cái tính keo kiệt của lão Tống ông mà đòi người ta nhận à? Có phải ông nuôi lớn đâu."
+"Chuẩn luôn! Cái tính keo kiệt bủn xỉn của lão Tống thì ai mà chẳng biết, thế mà còn mơ người ta nhận mình làm bố? Có phải ông dứt ruột đẻ ra nuôi lớn đâu."
 
-Hai người vừa dọn hàng vừa trêu chọc Tống Siêu Văn.
+Hai người kia vừa dọn hàng vừa râm ran trêu chọc Tống Siêu Văn.
 
-Tống Siêu Văn há miệng định nói "năm trăm tệ" nhưng rồi lại thôi, thầm nghĩ chẳng lẽ hôm đó mình đưa ít quá thật sao?
+Tống Siêu Văn mấp máy môi, năm trăm tệ nghẹn ứ nơi cổ họng không dám thốt ra, trong bụng thầm nghĩ chẳng lẽ hôm đó mình mừng ít quá thật sao?
 
-Nhưng mà nó cũng có nhận đâu.
+Nhưng mà... thằng ranh đó cũng có thèm nhận đâu cơ chứ.
 
-"Ông chủ..."
+"Sếp..."
 
-Đơn Vĩ liếc nhìn gương chiếu hậu, không hiểu Triệu Kim An đứng đây nghe mấy người này tán dóc làm gì.
+Đan Vĩ liếc nhìn gương chiếu hậu, không hiểu nổi vì sao Triệu Kim An lại ngồi đây lắng nghe mấy người bán hàng rong nói chuyện tào lao làm gì.
 
-Đúng lúc này, ba người kia cũng phát hiện ra chiếc Audi A6 đang đỗ bên đường. Tống Siêu Văn thử gọi: "Ông chủ, các anh có ăn đồ nướng không? Chúng tôi sắp dọn hàng rồi đây!"
+Đúng lúc này, ba người đằng kia cũng phát hiện ra chiếc Audi A6 bóng loáng đang đỗ bên lề đường. Tống Siêu Văn vội cất tiếng đon đả gọi với sang: "Các sếp ơi, các sếp có ăn đồ nướng không ạ, chúng em chuẩn bị dọn hàng rồi đây!"
 
-Gã vẫn muốn kiếm thêm cuốc cuối, nếu họ mua mang đi luôn thì cũng không mất bao nhiêu thời gian.
+Ông ta vẫn muốn vớt vát thêm một cuốc khách cuối cùng, nếu khách mua mang đi thì chẳng mất bao nhiêu thời gian.
 
-Chiếc Audi A6 bên đường trông mới thế kia, lại rửa sạch sẽ, biết đâu họ lại mua nhiều.
+Chiếc Audi A6 đỗ ven đường trông mới toanh, rửa sạch bóng loáng thế kia, khéo chừng người ta sẽ mua một đơn hàng lớn cũng nên.
 
-Tống Siêu Văn tiến lại gần vài bước, nghé mắt thử nhìn vào trong xe.
+Tống Siêu Văn rảo bước tiến lại gần vài bước, rướn cổ cố nhìn vào bên trong xe.
 
-"Ông chủ, các anh muốn ăn gì không, hay là cứ gọi món đi, tôi nướng xong sẽ mang qua cho?"
+"Các sếp ơi, các sếp muốn ăn gì ạ? Hay là các sếp cứ gọi món đi, em nướng xong mang tận xe cho các sếp nhé?"
 
-"Ông chủ..."
+"Sếp ơi..."
 
-Đơn Vĩ nghiêng người nhìn Triệu Kim An ở ghế sau.
+Đan Vĩ nghiêng người quay đầu lại nhìn Triệu Kim An ở hàng ghế sau.
 
-"Đợi đã."
+"Đợi một chút."
 
-Triệu Kim An kéo toàn bộ cửa kính xe lên. Thấy sạp đồ nướng bên cạnh là sạp của hai vợ chồng, anh đang nghĩ lúc Tống Siêu Văn dọn hàng, Đoạn Thu Bình không đến giúp sao?
+Triệu Kim An bấm nút kéo kín toàn bộ cửa kính xe lên. Nhìn sang quán đồ nướng bên cạnh là hai vợ chồng cùng làm, anh thầm nghĩ không biết lúc Tống Siêu Văn dọn hàng thế này, Đoạn Thu Bình có ra phụ giúp hay không?
 
-Kiếp trước vào kỳ nghỉ đông năm thứ hai đại học, Triệu Kim An từng lén về Tư Tinh xem thử, anh lặng lẽ đứng ở đằng xa, lúc 10 rưỡi tối đã thấy Đoạn Thu Bình dắt theo Tống Gia Nguyệt đến giúp một tay.
+Kiếp trước, vào kỳ nghỉ đông năm hai đại học, Triệu Kim An từng bắt xe về Tư Hưng rồi lẳng lặng đứng từ đằng xa nhìn ngắm. Tầm mười giờ rưỡi đêm, Đoạn Thu Bình dắt theo bé Tống Gia Nguyệt ra quán phụ việc.
 
-Anh không tiến lại làm phiền, chỉ đứng nhìn một lúc.
+Khi ấy anh không bước tới làm phiền, chỉ đứng lặng từ xa quan sát một hồi lâu.
 
-Tống Gia Nguyệt một mình ngồi trên ghế, đôi tay nhỏ nhắn nắm chặt một xiên đồ nướng.
+Bé Tống Gia Nguyệt ngồi một mình trên chiếc ghế đẩu nhỏ, bàn tay bé xíu nắm chặt một xiên thịt nướng.
 
-Con bé cũng không ăn, chắc là ăn chán rồi, hoặc là mùa đông nên đồ đã nguội ngắt, bên cạnh có đặt một chiếc lò than nhỏ.
+Con bé cũng không ăn, có lẽ là ăn ngấy rồi, hoặc có lẽ trời mùa đông lạnh buốt làm thịt nướng nguội ngắt, bên cạnh có đặt một chiếc lò than nhỏ sưởi ấm.
 
-Tống Siêu Văn phụ trách nướng, Đoạn Thu Bình thì phụ trách ghi món, thu tiền và dọn bàn.
+Tống Siêu Văn phụ trách đứng nướng, còn Đoạn Thu Bình thì nhận đơn, thu tiền và lau dọn bàn ghế.
 
-Giờ Tống Gia Nguyệt vẫn còn quá nhỏ, lại muộn thế này rồi, chắc Đoạn Thu Bình đang ở nhà trông con.
+Bây giờ Tống Gia Nguyệt còn quá nhỏ, đêm hôm lại khuya khoắt thế này, chắc hẳn Đoạn Thu Bình đang ở nhà trông con.
 
-Thấy không có ai trả lời, cửa kính xe lại đóng kín mít, Tống Siêu Văn bèn quay lại tiếp tục dọn hàng.
+Thấy bên trong xe không ai lên tiếng đáp lại, cửa kính lại kéo kín mít, Tống Siêu Văn đành lủi thủi quay trở lại tiếp tục thu dọn sạp hàng.
 
-Trong xe.
+Bên trong xe.
 
-Triệu Kim An tựa vào lưng ghế, gương mặt không chút biểu cảm, anh chỉ quan tâm đến Đoạn Thu Bình.
+Triệu Kim An tựa lưng vào ghế, gương mặt không chút gợn sóng cảm xúc. Người duy nhất anh bận tâm chỉ có Đoạn Thu Bình.
 
-Lát sau, Tống Siêu Văn dọn xong sạp, chất bàn ghế lên xe đẩy một mình đẩy đi xa.
+Một lát sau, Tống Siêu Văn đã chất xong bàn ghế lên xe kéo, còng lưng một mình đẩy chiếc xe lầm lũi đi xa dần trong đêm vắng.
 
-Triệu Kim An nhìn đồng hồ, đã 3 giờ 35 phút sáng, anh nói: "Đi thôi."
+Triệu Kim An nhìn đồng hồ, rạng sáng ba giờ ba mươi lăm phút, anh khẽ bảo: "Đi thôi."

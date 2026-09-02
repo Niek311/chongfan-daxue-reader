@@ -1,217 +1,211 @@
-# Chương 142: Đây không phải gặp may mắn, đây là khi cần quyết đoán
+# Chương 142: Đây không phải là may mắn, mà là quyết đoán dứt khoát
 
-thì sẽ quyết đoán.
+> **Tiêu đề gốc**: 第142章 这不是走运，这是当断则断。
 
-Trần trạch cũng không như vậy không tim không phổi, cái này liên quan đến nhà mình của công ty.
+Trần Trạch cũng không đến mức vô tâm vô phế, chuyện này dẫu sao cũng liên quan trực tiếp đến cơ nghiệp của gia đình.
 
-Liên quan đến mình là phú nhị đại vẫn là phụ hai đời vấn đề.
+Nó quyết định việc anh ta sẽ tiếp tục là một "phú nhị đại" ăn sung mặc sướng hay trở thành "phụ nhị đại" ngập đầu trong nợ nần.
 
-Hắn tại Q Q bên trên cùng Từ Mạn Mạn nói chuyện phiếm có tự giễu, có hay không lực của hương vị.
+Những dòng tin nhắn trò chuyện với Từ Mạn Mạn trên QQ vừa mang vẻ tự giễu cợt, lại vừa đượm nỗi bất lực khôn cùng.
 
-Hắn không biết mình phải nên làm như thế nào, làm cái gì.
+Anh ta thực sự không biết mình nên làm gì, và có thể làm được gì lúc này.
 
-Nhìn xem Từ Mạn Mạn của tin tức, trần trạch do dự sẽ lại bò xuống giường, chuẩn bị đi ban công cùng mụ mụ gọi điện thoại.
+Nhìn dòng tin nhắn của Từ Mạn Mạn, Trần Trạch ngập ngừng giây lát rồi lại tụt xuống khỏi giường tầng, định bụng ra ban công gọi điện thoại cho mẹ.
 
-Đi đến ban công đại khái là cảm thấy cách âm hiệu quả không tốt, lại cầm điện thoại di động trot ra ký túc xá.
+Nhưng vừa bước ra tới ban công, có lẽ cảm thấy cửa cách âm không tốt, anh ta lại cầm điện thoại vội vã rảo bước ra khỏi phòng ký túc xá.
 
-Loại sự tình này đại khái rất nhiều người cũng không muốn để bạn cùng phòng biết.
+Những chuyện như thế này, đại đa số mọi người đều chẳng muốn để bạn cùng phòng biết được.
 
-"trạch ca là làm gì?"
+"Anh Trạch làm sao thế nhỉ?"
 
-Lưu xông phong nằm sấp trên giường một mặt hiếu kì:"cùng Từ Mạn Mạn gọi điện thoại cũng không cần cõng ta nhóm a, chẳng lẽ là chân đứng hai thuyền, sợ chúng ta cùng Từ Mạn Mạn mật báo?"
+Lưu Sấm Phong nằm bò trên giường, vẻ mặt tò mò: "Gọi điện cho Từ Mạn Mạn mà cũng phải lén lút sau lưng chúng mình à, chẳng lẽ bắt cá hai tay, sợ anh em mình đi mách lẻo với Từ Mạn Mạn chắc?"
 
-Đáy vực siêu nhận cũng là loại ý nghĩ này.
+Cốc Siêu Thừa cũng có chung suy nghĩ ấy: "Từ Mạn Mạn tốt như thế rồi, nếu là tao... tao tuyệt đối chỉ một lòng một dạ với một mình cô ấy thôi..."
 
-"Từ Mạn Mạn rất khá, là lời của ta.... Ta tuyệt đối chỉ trông coi một cái...."
+Vừa nói, Cốc Siêu Thừa vừa liếc nhìn Triệu Kim An.
 
-Nói, đáy vực siêu nhận còn mắt nhìn Triệu Kim An.
+Triệu Kim An đã có Mộc Dao, mà Đường Hiểu Tình thì cũng nằm ngay trong tầm tay.
 
-Triệu Kim An có Mộc Dao, Đường Hiểu tinh cũng dễ như trở bàn tay.
+Đúng rồi, lại còn cả Lý Lộ nữa chứ.
 
-Đúng, còn có Lý Lộ.
+"Lão Cốc, mày thì biết cái quái gì!"
 
-"lão Cốc, ngươi biết cái gì!"
+Lưu Sấm Phong cười phá lên: "Cứ như mày á... đến một cô Đường Hiểu Tình mày còn chẳng tán nổi thì giữ lòng với ai? Với lại con gái bây giờ toàn thích mấy thằng đểu thôi, người thật thà quá chẳng ai thèm ngó ngàng đâu."
 
-Lưu xông phong cười nói:"vẫn là của ta lời nói... Ngươi một cái Đường Hiểu tinh đều đuổi không kịp, phòng thủ ai? Còn có nữ nhân liền ưa thích cặn bã nam, quá thành thật của người không lấy nữ nhân ưa thích."
+"..."
 
-"......"
+Cốc Siêu Thừa lập tức phản bác: "Mày thì hơn gì tao, chẳng phải cũng chưa tán đổ Lâm Thanh Tuyết đấy thôi! Bộ Lâm Thanh Tuyết thích trai đểu chắc?!"
 
-Đáy vực siêu nhận phản bác:"ngươi còn không phải không có đuổi tới Lâm Thanh Tuyết! Lâm Thanh Tuyết có phải hay không ưa thích cặn bã nam!"
+Lưu Sấm Phong: "..."
 
-Lưu xông phong:......
+"Kim An, mày bảo tao nói có lý không?"
 
-"Kim An, ngươi nói hay là ta nói của có đạo lý hay không?"
+Triệu Kim An khẽ gật đầu, anh không muốn tham gia vào mấy đề tài phiếm chuyện này, nhưng những lời Lưu Sấm Phong nói quả thực có phần chí lý.
 
-Triệu Kim An gật đầu, không muốn tham dự loại chủ đề này, nhưng lưu xông phong nói quả thật có chút đạo lý.
+Anh chợt nhớ tới một câu nói rất thịnh hành ở kiếp sau: "Tìm một người thật thà để 'đổ vỏ'."
 
-Hắn nhớ tới đời sau một câu nói, tìm người thành thật tiếp bàn.
+Nghe qua thì như một sự chiêm nghiệm sâu sắc.
 
-Nhìn như cảm ngộ.
+Nhưng thực chất toàn là sau khi đã chơi bời chán chê bên ngoài, chịu đủ mọi thương tổn, tan nát cõi lòng rồi mới đến lượt những người thật thà gánh chịu.
 
-Vậy cũng là ở bên ngoài chơi mệt rồi, thương thấu tâm, mới đến phiên người thành thật.
+Cốc Siêu Thừa quả thực vừa ngưỡng mộ, vừa ghen tị, trong lòng chua xót vô cùng.
 
-Đáy vực siêu nhận thật sự ước ao ghen tị, trong lòng chua a.
+Mộc Dao, Từ Mạn Mạn, Đường Hiểu Tình... bất kể là ai trong số họ, Cốc Siêu Thừa đều sẵn sàng dốc trọn tấm lòng đối xử tốt trăm bề, một đời một kiếp chỉ hướng về một người.
 
-Mộc Dao, Từ Mạn Mạn, Đường Hiểu tinh, vô luận cái nào, đáy vực siêu nhận đều nguyện ý bằng mọi cách đối với nàng hảo, chỉ trông coi nàng một cái.
+Sau vài lần tiếp xúc, ban đầu Cốc Siêu Thừa thấy Mộc Dao là tuyệt vời nhất, nhưng càng về sau lại càng nhận ra Từ Mạn Mạn mới là mẫu người vô cùng thích hợp để lấy làm vợ.
 
-Tiếp xúc nhiều rồi mấy lần, đáy vực siêu nhận ban đầu cảm thấy Mộc Dao tốt nhất, đằng sau dần dần cảm thấy Từ Mạn Mạn rất thích hợp làm vợ.
+Ở phòng 303 này, Lưu Sấm Phong ghen tị với gia cảnh giàu có của Trần Trạch.
 
-3 0 3, lưu xông phong hâm mộ trần trạch nhà có tiền.
+Còn Cốc Siêu Thừa ghen tị nhất là việc Trần Trạch có được Từ Mạn Mạn.
 
-Đáy vực siêu nhận hâm mộ nhất là trần trạch có Từ Mạn Mạn.
+Phải mất một hồi lâu, chừng hai mươi phút sau, Trần Trạch mới gọi xong điện thoại rồi trở về phòng.
 
-Qua rất lâu, đại khái 2 0 phút, trần trạch mới nói chuyện điện thoại xong từ bên ngoài trở về.
+Thấy Trần Trạch lẳng lặng leo lên giường không nói một lời, Cốc Siêu Thừa muốn mở miệng hỏi thăm nhưng lại thôi.
 
-Nhìn xem trần trạch không có lên tiếng bò lên giường, đáy vực siêu nhận muốn nói lại thôi.
+Triệu Kim An cũng đưa mắt nhìn Trần Trạch một lát. Chắc chẳng có ai ngốc nghếch đến mức tự dưng chạy lại vỗ vai bảo: "Này, tao là người trọng sinh về đây, tao biết trước kết cục rồi, mau bán sạch cổ phiếu đi!"
 
-Triệu Kim An cũng nhìn trần trạch một hồi, đại khái không có người sẽ thiếu thông minh như thế, chạy tới nói"hắc, ta trùng sinh của, ta biết kết quả, nhanh lên đem cổ phiếu bán!"
+Đêm hôm ấy, Trần Trạch trằn trọc trở mình liên tục, không sao chợp mắt nổi.
 
-Một đêm này, trần trạch lật qua lật lại, lăn lộn khó ngủ.
+Triệu Kim An tựa lưng vào đầu giường, lướt ngón tay trên bàn di chuột cảm ứng của laptop, theo dõi chứng khoán Mỹ và đủ loại tin tức tài chính.
 
-Triệu Kim An dựa vào giường hoạt động chạm đến bàn, xem xét đẹp cỗ, còn có đủ loại thông tin.
+Trên mạng lúc này đủ mọi luồng quan điểm trái chiều.
 
-Trên mạng cái gì luận điệu cũng có.
+Có những nhận định đầy hoang mang, cho rằng đợt sóng tăng giá đã chính thức khép lại.
 
-Có khủng hoảng ngôn luận, nói thị trường chứng khoán tăng giá kết thúc.
+Lại có kẻ cho rằng đây chỉ là nhịp "bò quay đầu", chính là thời cơ vàng để lên tàu.
 
-Có ngưu quay đầu, chính là lên xe thời cơ tốt.
+Thậm chí còn có chuyên gia không tiếc lời tâng bốc rằng chỉ số sẽ sớm vượt mốc một vạn điểm, đợt sụt giảm hiện tại chỉ là sự điều chỉnh mang tính cơ cấu mà thôi.
 
-Thậm chí còn có chuyên gia thổi phồng hơn vạn điểm, bây giờ chỉ là kết cấu tính chất điều chỉnh.
+Lòng tham của con người xưa nay vốn vô đáy.
 
-Nhân tính là tham lam.
+Người ta chỉ muốn nhìn thấy những gì mình muốn thấy. Phân tích của các chuyên gia lại vô cùng bài bản, lớp lang với hàng loạt thuật ngữ kinh tế chuyên ngành, những luận điệu êm tai ấy rất được lòng đám đông và nhận được sự hưởng ứng nhiệt liệt của vô số người.
 
-Đại gia chỉ muốn nhìn thấy chính mình muốn thấy được của, chuyên gia phân tích có lý có cứ, đủ loại kinh tế phân tích thuật ngữ chuyên nghiệp, loại này luận điệu rất được hoan nghênh, nhận được rất nhiều người ủng hộ.
+Triệu Kim An liếc nhìn Trần Trạch đang trằn trọc trở mình không yên, anh không biết Dương Thục Mỹ đã rót vào thị trường bao nhiêu tiền, nhưng trong lòng lại có đôi phần khâm phục người phụ nữ này.
 
-Triệu Kim An mắt nhìn lăn qua lộn lại trần trạch, hắn không biết Dương thù đẹp mua bao nhiêu, nhưng có chút bội phục Dương thù đẹp.
+Nếu vừa ôm cổ phiếu lúc thị trường sụp đổ, lại vừa hứng chịu cơn bão khủng hoảng nợ dưới chuẩn ập tới mà công ty vẫn có thể sống sót trụ vững, thì quả thực bà ấy là người có bản lĩnh phi thường.
 
-Nếu như mua cổ phiếu, lại tao ngộ khủng hoảng cho vay, công ty còn có thể còn sống sót, chính xác rất có năng lực.
+Có điều, hiện tại mọi thứ mới chỉ vừa bắt đầu, bao giờ thị trường chứng khoán cũng là nơi phản ứng nhạy bén và sớm nhất.
 
-Chỉ bất quá bây giờ vừa mới bắt đầu, lúc nào cũng là thị trường chứng khoán phản ứng nhanh nhất.
+Sau đó mới dần lan tới các ngành sản xuất thực thể.
 
-Kế tiếp mới có thể đến phiên thực thể nghề chế tạo.
+Đặc biệt là ngành xuất nhập khẩu ngoại thương, các đơn đặt hàng sẽ sụt giảm nghiêm trọng, kim ngạch xuất nhập khẩu lao dốc không phanh.
 
-Đặc biệt là buôn bán bên ngoài xuất nhập cảng nghiệp, đơn đặt hàng kịch liệt giảm bớt, xuất nhập cảng số liệu sụt giảm.
+Bây giờ mới là năm 2007, phần lớn mọi người vẫn chưa kịp định thần phản ứng.
 
-Bây giờ mới 2 0 0 7 năm, rất nhiều người còn chưa bắt đầu phản ứng.
+Điều này cũng rất đỗi bình thường.
 
-Cái này rất bình thường.
+Phải tới tháng 9 năm 2008, khi ngân hàng lớn của nước Mỹ tuyên bố phá sản, cơn khủng hoảng mới thực sự leo thang tới đỉnh điểm. Sau sự sụp đổ đó, thương mại xuất nhập khẩu rơi vào tình trạng lao dốc thẳng đứng, nền kinh tế năm 2009 tiếp tục dò đáy trong ảm đạm.
 
-2 0 0 8 năm 9 nguyệt mỹ lệ quốc ngân hàng tuyên bố phá sản mới đến đỉnh phong, ngân hàng tuyên bố phá sản người chậm tiến mở miệng mậu dịch sườn đồi ngã xuống, 2 0 0 9 năm kinh tế kéo dài dò xét thực chất.
+Hình ảnh điển hình và quen thuộc nhất chính là vào cuối năm 2008, những đơn hàng Giáng sinh tấp nập của thị trường Âu Mỹ như mọi năm gần như biến mất hoàn toàn, hàng loạt đơn đặt hàng của các doanh nghiệp trong nước bị hủy bỏ hoặc trì hoãn vô thời hạn.
 
-Điển hình nhất nhất là quen thuộc chính là, 2 0 0 8 cuối năm, những năm qua rộn rịp Âu Mĩ thánh đản đơn đặt hàng cơ hồ tiêu thất, đại lượng xí nghiệp đơn đặt hàng bị thủ tiêu hoặc trì hoãn.
+Triệu Kim An thầm tính toán, liệu có nên nhân cơ hội này gom thêm một ít bất động sản hay không.
 
-Triệu Kim An đang suy nghĩ, muốn hay không thừa cơ độn điểm phòng.
+Anh hồi tưởng lại chuỗi mắt xích lan truyền của cuộc khủng hoảng nợ dưới chuẩn: Thị trường chứng khoán sụp đổ → Thị trường bất động sản đóng băng → Các ngân hàng đầu tư phá sản → Tín dụng toàn cầu bị phong tỏa → Sức tiêu dùng Âu Mỹ suy thoái → Xuất khẩu trong nước sụt giảm nghiêm trọng.
 
-Nhớ lại khủng hoảng cho vay truyền dây xích: thị trường chứng khoán sập bàn → Phòng thị sập bàn → ném đi phá sản → toàn cầu hoạt động tín dụng đóng băng → Âu Mĩ tiêu phí héo rút → trong nước mở miệng chợt hạ xuống.
+Sau hàng loạt phản ứng dây chuyền này, giá nhà đất trong nước cũng giảm đi rất nhiều.
 
-Chuỗi này phản ứng dây chuyền, trong nước phòng giới cũng xuống ngã rất nhiều.
+Bắc Kinh, Thượng Hải, Quảng Châu, Thâm Quyến?
 
-Bắc Thượng Quảng sâu?
+Triệu Kim An chỉ muốn ôm gom những căn nhà hoặc mặt bằng kinh doanh ở các vị trí đắc địa nhất.
 
-Triệu Kim An chỉ muốn độn điểm tốt mà nhất đoạn của phòng ở hoặc cửa hàng.
+Chỉ tiếc là ở kiếp trước, anh cũng chỉ nghe qua vài địa danh quen thuộc đến nhẵn mặt như Tây Đơn, Vương Phủ Tỉnh, Vọng Kinh ở Bắc Kinh, hay Bến Thượng Hải, Tân Thiên Địa, Lục Gia Chủy ở Thượng Hải mà thôi...
 
-Chỉ tiếc ở kiếp trước chỉ nghe qua mấy cái nghe nhiều nên quen của khu vực, cái gì kinh đô tây đơn, vương phủ tỉnh, xem kinh thành, ma đô bên ngoài bãi, thiên địa mới, Lục gia miệng.....
+...
 
-Ngày hôm sau.
+Sáng hôm sau.
 
-Trần trạch rất sớm đã rời giường, không ngủ giấc thẳng, không có đi phòng học lên lớp.
+Trần Trạch dậy từ rất sớm, không hề ngủ nướng, cũng chẳng buồn đến giảng đường nghe giảng.
 
-Bên trong nam, 4 0 6.
+Bên phía Đại học Trung Nam, phòng 406.
 
-Từ Mạn Mạn cũng giống vậy, bất quá nàng không có vội vã như vậy nóng nảy, không giống trần trạch làm động tĩnh rất lớn.
+Từ Mạn Mạn cũng thức dậy sớm, nhưng cô không hấp tấp vội vã hay gây ra tiếng động lớn như Trần Trạch.
 
-Từ Mạn Mạn đâu vào đấy rửa mặt xong, cầm lấy bao đi ra ngoài.
+Từ Mạn Mạn rửa mặt chải chuốc đâu vào đấy, chỉnh tề xách túi bước ra khỏi phòng.
 
-Diêu tân nhìn xem thời gian, mới 6 giờ rưỡi, mơ mơ màng màng vấn đạo:"Mạn Mạn, lên lớp muốn 8 điểm, ngươi sớm như vậy rời giường làm gì?"
+Diêu Sân liếc nhìn đồng hồ, mới có sáu giờ rưỡi sáng, ngái ngủ cất tiếng hỏi: "Mạn Mạn, tám giờ mới vào tiết mà, cậu dậy sớm thế làm gì?"
 
-"ta ra ngoài phía dưới, có lão sư chỉ đích danh, diêu tân ngươi giúp ta đáp xuống đến."
+"Mình ra ngoài có chút việc, nếu giáo viên có điểm danh thì Diêu Sân điểm danh giúp mình nhé."
 
-Từ Mạn Mạn nhẹ nhàng đóng cửa cửa túc xá, đi.
+Từ Mạn Mạn nhẹ nhàng khép cửa phòng ký túc xá lại rồi rảo bước rời đi.
 
-Mộc Dao cùng thẩm tử nói cũng tỉnh.
+Mộc Dao và Thẩm Tử Ngôn cũng đã tỉnh giấc.
 
-"Mạn Mạn đi làm gì?"
+"Mạn Mạn đi đâu thế nhỉ?"
 
-"không biết."
+"Không biết nữa." Diêu Sân ngả lưng xuống giường: "Mạn Mạn đâu có thói quen chạy bộ buổi sáng đâu."
 
-Diêu tân lại ngã xuống giường:"Mạn Mạn không có chạy bộ sáng sớm quen thuộc a."
+Ở phòng 406, chỉ có Thẩm Tử Ngôn là duy trì thói quen chạy bộ buổi sáng, còn Mộc Dao là chúa lười, hồi học cấp ba chạy vài vòng sân thể dục trong tiết thể dục là đã không thở nổi rồi.
 
-4 0 6 chỉ có thẩm tử nói có chạy bộ sáng sớm quen thuộc, Mộc Dao rất lại, cao trung khóa thể dục vài vòng đều chạy không tới.
+Lần này Trần Trạch chẳng còn tâm trí đâu mà làm màu làm mè, cũng chẳng buồn để ý xem có nữ sinh nào đi ngang qua nhìn mình hay không. Anh ta ngồi trên ghế lái rít thuốc liên tục, đôi mắt vằn lên những tia máu đỏ ngầu, nhìn là biết cả đêm qua không chợp mắt.
 
-Lần này trần trạch không có trang bức tâm tình, không muốn có đường qua nữ sinh nhìn chính mình, tại điều khiển tòa hút thuốc, con mắt vằn vện tia máu, xem xét liền không có ngủ ngon.
+"Đã ăn sáng chưa?"
 
-"ăn điểm tâm chưa?"
+Từ Mạn Mạn kéo cửa ghế phụ bước vào, nhìn Trần Trạch.
 
-Từ Mạn Mạn kéo ra cửa xe chỗ ngồi cạnh tài xế, nhìn xem trần trạch.
+Trần Trạch nổ máy xe: "Không ăn nữa, chạy thẳng xuống xưởng trước đã."
 
-Trần trạch nổ máy xe:"không ăn, đi trước trong xưởng."
+"Anh đừng có cuống lên như thế, ăn sáng trước đi."
 
-"ngươi không muốn vội vã như vậy, ăn trước bữa sáng."
+Từ Mạn Mạn ngồi ngay ngắn ở ghế phụ, thắt dây an toàn cẩn thận: "Anh có cuống cuồng lên cũng chẳng giải quyết được gì, ăn no rồi mới có sức mà tính toán."
 
-Từ Mạn Mạn ngồi trên tay lái phụ, thắt chặt dây an toàn:"ngươi gấp cũng vô ích, ăn bữa sáng mới có tinh lực."
+Trần Trạch đưa tay vò mạnh mái tóc rối bù.
 
-Trần trạch bỗng nhiên chà xát đầu.
+Từ Mạn Mạn nghiêng người nhìn anh ta, dịu giọng nói: "Đừng hoảng, bản thân mình mà tự rối lên thì còn làm được trò trống gì nữa? Hơn nữa xuống xưởng rồi, anh dự định làm gì, và làm như thế nào?"
 
-Từ Mạn Mạn nghiêng người nhìn xem hắn, ôn hòa nói:"đừng hoảng hốt, chính mình trước tiên luống cuống còn có thể làm cái gì? Còn có đi trong xưởng, ngươi dự định làm cái gì, làm như thế nào?"
+Thực ra Từ Mạn Mạn cũng hiểu, việc chạy xuống nhà xưởng lúc này phần nhiều chỉ là để tìm kiếm sự an ủi về mặt tâm lý.
 
-Kỳ thực Từ Mạn Mạn cũng biết, đi trong xưởng càng phần lớn là một loại tâm lý an ủi.
+Trần Trạch có thể làm được gì, và bản thân cô thì làm được gì cơ chứ?
 
-Trần trạch có thể làm cái gì, chính mình lại có thể làm cái gì?
+Nhưng ngồi lại giảng đường thì làm sao mà nuốt nổi từng con chữ?
 
-Nhưng ở phòng học lại có thể ngồi xuống sao?
+Đến cổng trường, Từ Mạn Mạn nghiêm giọng bảo Trần Trạch tấp xe vào lề, cô xuống xe mua đồ ăn sáng, còn chu đáo cắm sẵn ống hút vào hộp sữa đậu nành đưa cho anh ta.
 
-Ở cửa trường học, Từ Mạn Mạn nghiêm khắc hô trần trạch dừng xe, xuống xe mua bữa sáng, còn cầm ống hút giúp trần trạch cắm hảo sữa đậu nành.
+"Tối qua gọi điện thoại, bác gái nói sao?"
 
-"tối hôm qua gọi điện thoại, mẹ ngươi nói thế nào?"
+Trần Trạch hút một ngụm sữa đậu nành thật mạnh: "Lúc sau anh gọi lại gặng hỏi, mẹ mới bảo toàn bộ tiền vốn nhàn rỗi của công ty đều đổ hết vào chứng khoán rồi, ngay cả lương của công nhân cũng chưa trích lại dự phòng, không thì anh hoảng hốt đến mức này làm gì?"
 
-Trần trạch hút mạnh rồi miệng sữa đậu nành:"ta đằng sau gọi điện thoại hỏi mẹ ta, mẹ ta nói công ty để đó không dùng tài chính toàn bộ tại thị trường chứng khoán, nhân viên tiền lương cũng không có để dành, bằng không ta như vậy hoảng làm cái gì?"
+"Anh đã giục mẹ hôm nay bán hết cổ phiếu đi chưa?" Từ Mạn Mạn đứng bên cửa sổ ghế lái hỏi.
 
-"ngươi gọi rồi mẹ ngươi hôm nay đem cổ phiếu bán sao?"
+Trần Trạch mấp máy môi: "Bảo rồi, nhưng em nghĩ mẹ anh có chịu nghe lời anh không? Với lại..."
 
-Từ Mạn Mạn đứng cạnh ghế lái vấn đạo.
+"Với lại sao?"
 
-Trần trạch há to miệng:"hô, ngươi cảm thấy mẹ ta sẽ nghe ta sao? Còn có....."
+Từ Mạn Mạn quá hiểu tính cách của Trần Trạch, và cũng có phần hiểu rõ Dương Thục Mỹ.
 
-"còn có?"
+"Là dì vẫn muốn nán lại nghe ngóng thêm xem sao, bản thân anh cũng ôm ấp hy vọng, tối qua chắc chắn anh đã thức trắng đêm đọc các bài phân tích thị trường chứng khoán đúng không?"
 
-Từ Mạn Mạn hiểu rất rõ trần trạch rồi, đối với Dương thù Mỹ Dã có nhất định hiểu rõ.
+Bị đâm trúng tim đen, Trần Trạch ngẩng đầu nhìn Từ Mạn Mạn.
 
-"là a di còn nghĩ chờ đợi xem, ngươi cũng ôm lấy hi vọng, ngươi tối hôm qua chắc chắn nhìn rất lâu đối với thị trường chứng khoán của phân tích, đúng hay không?"
+"Mạn Mạn, em có đọc không? Em thấy liệu thị trường có nhanh chóng bật tăng trở lại để về bờ không?"
 
-Trần trạch bị đâm trúng tiểu tâm tư, ngẩng đầu nhìn Từ Mạn Mạn.
+"Bật tăng? Về bờ?"
 
-"Mạn Mạn, ngươi xem rồi chưa? Ngươi cảm thấy có thể hay không lập tức bắn ngược, giải bộ?"
+Từ Mạn Mạn thở dài một tiếng: "Về bờ rồi có phải lại muốn kiếm thêm chút lãi nữa không?"
 
-"bắn ngược? Giải bộ?"
+Trần Trạch: "..."
 
-Từ Mạn Mạn thở dài một tiếng:"giải chụp vào có phải hay không còn nghĩ lợi nhuận?"
+"Em đã bảo rồi, đừng bao giờ mộng tưởng chuyện kiếm tiền nhanh."
 
-Trần trạch:.......
+Từ Mạn Mạn kiên nhẫn khuyên nhủ: "Dù có lỗ thì cũng đừng ôm hận không cam lòng. Chỉ cần nhà xưởng công ty vẫn còn đó thì sau này ắt sẽ kiếm lại được. Tối qua em vừa hỏi Tử Ngôn, bố của Tử Ngôn cũng mua cổ phiếu, nhưng người ta đã bán sạch từ sớm rồi."
 
-"nói đừng nghĩ kiếm lời nhanh tiền."
+"May mắn thế cơ à?!" Trần Trạch kinh ngạc thốt lên, trong giọng nói pha lẫn sự ghen tị.
 
-Từ Mạn Mạn rất kiên nhẫn khuyên nhủ:"thiệt thòi cũng đừng không cam tâm, chỉ cần công ty tại liền có thể kiếm về, ta tối hôm qua hỏi tử nói rồi, tử nói của ba ba cũng mua, không quá sớm liền vứt ra."
+"Đây không phải là may mắn."
 
-"đi như vậy vận!?"
+Từ Mạn Mạn chỉnh lại lời anh ta: "Đây là biết khi nào cần quyết đoán dứt khoát! Đừng quên gốc rễ của mình, nhà xưởng công ty mới là cái gốc. Kiếm tiền từ thị trường chứng khoán tuy nhanh và nhẹ nhàng, nhìn tài sản tăng gấp bội thì ham thật đấy..."
 
-Trần trạch kinh ngạc nói, còn có chút hâm mộ.
+"Tử Ngôn có một câu nói rất đúng, đó gọi là làm chuyện không đâu, bỏ gốc lấy ngọn."
 
-"đây không phải gặp may mắn."
+Từ Mạn Mạn không biết Trần Trạch có thể tiếp thu được bao nhiêu phần, và liệu mẹ con anh ta có chịu nghe lọt tai hay không.
 
-Từ Mạn Mạn cải chính:"đây là khi cần quyết đoán thì sẽ quyết đoán, đừng quên căn bản, công ty mới là căn bản, thị trường chứng khoán kiếm tiền là tới của nhanh lại nhẹ nhõm, nhìn xem tài sản gấp bội...."
+Cũng chẳng có gì đáng để chê cười, đạo lý lớn lao thì ai chẳng hiểu, nhưng cứ đi hỏi những kẻ mê cờ bạc đỏ đen, hỏi những người ham mê lướt sóng cổ phiếu và giao dịch tương lai mà xem, tâm lý của họ thực chất cũng chẳng khác là bao.
 
-"tử nói có đôi lời nói rất đúng, cái này gọi là không làm việc đàng hoàng."
+Thua thì muốn gỡ, gỡ được rồi lại muốn thắng đậm hơn.
 
-Từ Mạn Mạn không biết trần trạch có thể nghe vào bao nhiêu, trần trạch cùng Dương thù đẹp có thể hay không nghe vào.
+Người bình thường chơi bằng tiền lương thì cùng lắm chỉ ảnh hưởng đến chất lượng cuộc sống một thời gian, đóng tài khoản lại coi như mất đi khoản tiền đó là xong.
 
-Cũng không cái gì tốt chế giễu của, đại đạo lý ai cũng hiểu, hỏi một chút cái kia chút ưa thích đánh cược người, hỏi một chút cái kia chút chơi cổ phiếu kỳ hạn giao hàng của người, tâm lý kỳ thực không sai biệt lắm.
+Nhưng Dương Thục Mỹ thì khác, công ty của bà ấy cần nguồn vốn để vận hành cả một cỗ máy sản xuất.
 
-Thua muốn gỡ vốn, gỡ vốn rồi lại muốn kiếm càng nhiều.
+Quy mô số tiền cũng hoàn toàn khác biệt, người bình thường chỉ vài vạn tệ, còn Dương Thục Mỹ có khi lên tới hàng triệu, thậm chí hàng chục triệu tệ.
 
-Người bình thường của tiền lương còn tốt, chính là ảnh hưởng chất lượng sinh hoạt, trương mục một quan, coi như số tiền này không có.
-
-Nhưng Dương thù đẹp không tầm thường, công ty của nàng muốn vận hành.
-
-Tiền bạc kim ngạch cũng không tầm thường, người bình thường có thể liền mấy vạn khối tiền, Dương thù đẹp có thể có mấy trăm vạn hơn ngàn vạn.
-
-Mắt thấy mấy năm cố gắng không có, nhất định sẽ có không cam tâm, muốn chờ thị trường bắn ngược trở về
+Nhìn công sức gầy dựng bao năm bỗng chốc bốc hơi, chắc chắn bà ấy sẽ mang tâm lý không cam lòng, cứ ôm hy vọng chờ đợi thị trường bật tăng trở lại...

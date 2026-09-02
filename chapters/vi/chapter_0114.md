@@ -1,233 +1,235 @@
-# Chương 114: Lên Đại Học Rồi, Nó Không Đến Quấy Rầy Con Chứ
+# Chương 114: Lên đại học rồi, nó không bám theo con nữa chứ?
 
-Đại học Trung Nam nghỉ hè muộn hơn Sư Đại ba ngày.
+> **Tiêu đề gốc**: 第114章 到了大学，他没来缠着你吧？
 
-Thẩm Tử Ngôn không dự định về nhà trong kỳ nghỉ hè này, có về cũng là đi máy bay chứ không lái xe về Sâm Thành, quãng đường quá xa xôi.
+Đại học Công nghiệp Trung Nam được nghỉ hè muộn hơn Đại học Sư phạm ba ngày.
 
-Từ Mạn Mạn là người bản địa Quận Sa, muốn đi thì đi, muốn trở lại trường thì trở lại.
+Kỳ nghỉ hè này Thẩm Tử Ngôn không có ý định về nhà, nếu có về thăm bố mẹ thì cô cũng sẽ đáp máy bay chứ không đời nào lái xe về Tô Thành, chặng đường quá đỗi xa xôi.
 
-Mộc Dao và Diêu Tân đang dọn dẹp hành lý trong ký túc xá.
+Từ Mạn Mạn vốn là người bản địa Quận Sa, muốn về nhà lúc nào thì về, muốn quay lại trường lúc nào thì quay lại.
 
-Con gái thật sự khác với con trai, mỗi lần khai giảng hay nghỉ lễ đều có rất nhiều đồ đạc.
+Mộc Dao và Diêu Sân đang cặm cụi thu dọn hành lý trong phòng ký túc xá.
 
-Không giống đám con trai, ngoại trừ ngày đầu tiên nhập học, sau đó chỉ cần một chiếc ba lô là giải quyết xong mọi vấn đề.
+Con gái đúng là khác hẳn con trai, mỗi lần tựu trường hay nghỉ hè đều có hàng tá đồ đạc lỉnh kỉnh.
 
-Trương Tuệ đã đến Quận Sa.
+Chẳng bù cho bọn con trai, ngoại trừ ngày đầu tiên nhập học năm nhất mang vác lỉnh kỉnh, còn lại chỉ cần duy nhất một chiếc ba lô là giải quyết êm xuôi mọi vấn đề.
 
-Em gái ở Quận Sa nên Trương Tuệ đến đây chơi một ngày, tiện đường đón con gái về nhà khi kỳ nghỉ bắt đầu.
+Trương Tuệ đã đích thân lên Quận Sa.
 
-Ba cô gái phòng 406 đối với Trương Tuệ và Trương Vân Thiến không mấy nhiệt tình, nhưng cũng không thiếu phần khách khí.
+Em gái ruột đang ở Quận Sa, Trương Tuệ bèn tranh thủ lên đây chơi bời mua sắm một ngày, nhân tiện đón con gái cưng về nhà nghỉ hè.
 
-Ấn tượng đầu tiên về một người là rất quan trọng.
+Ba cô gái phòng 406 đối với Trương Tuệ và Trương Vân Thiến không quá niềm nở, nhưng vẫn giữ đúng mực lễ phép, khách sáo.
 
-Ngày đầu tiên nhập học, một câu nói của Trương Tuệ và Trương Vân Thiến: "Cá Đông Giang, vịt Lâm Vũ hơi đắt, mấy chục tệ một cân đấy" đã để lại ấn tượng sâu sắc cho ba cô gái phòng 406.
+Ấn tượng đầu tiên của con người với nhau là vô cùng quan trọng.
 
-Những thứ đó đặt trên bàn, Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Tân từ đầu đến cuối đều không hề động vào.
+Hồi đầu năm nhất ngày nhập học, câu nói của Trương Tuệ và Trương Vân Thiến: "Cá Đông Giang với vịt Lâm Vũ ở quê đắt lắm đấy nhé, mấy chục tệ một cân lận đấy" đã để lại ấn tượng sâu đậm khó phai trong lòng ba cô bạn cùng phòng.
 
-Thậm chí sau khi Trương Tuệ và Trương Vân Thiến rời đi, Mộc Dao bảo bọn họ nếm thử, ba cô gái cũng tìm đủ mọi lý do để không ăn.
+Những món đặc sản đắt đỏ ấy được đặt trên bàn, nhưng Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Sân từ đầu đến cuối không hề đụng đũa lấy một miếng.
 
-Nàng công chúa Mộc Dao không hề hay biết, cũng không nghĩ ngợi nhiều.
+Thậm chí sau khi Trương Tuệ và Trương Vân Thiến rời đi, Mộc Dao có nhiệt tình mời các bạn nếm thử, ba cô gái cũng viện đủ mọi lý do khéo léo để từ chối.
 
-Sau đó, cô đem số đồ đó đi chia sẻ với Du Phỉ ở phòng 411.
+Nàng công chúa nhỏ Mộc Dao vô tư chẳng nhận ra điều đó, cũng chẳng nghĩ ngợi sâu xa gì.
 
-Đây không phải là vấn đề chỉ số thông minh, mà là do Mộc Dao từ nhỏ đến lớn ở Tư Tinh được bảo vệ quá tốt.
+Về sau cô đành mang số đặc sản ấy sang phòng 411 chia sẻ cùng Du Phi.
 
-Lần đầu tiên Triệu Kim An trùng sinh trở về gặp lại Mộc Dao, chính là lúc cô cùng đám bạn học đi chơi từ tiệm điện tử về nhà, con gái thì ôm gấu bông, con trai thì cầm Coca (chiến lợi phẩm).
+Đây không phải là vấn đề chỉ số thông minh cao hay thấp, mà là do Mộc Dao từ nhỏ đến lớn ở thị trấn Tư Tinh đã được gia đình bao bọc, chở che quá kỹ càng.
 
-Buổi tụ tập tốt nghiệp cấp ba có con trai là chuyện bình thường.
+Lần đầu tiên Triệu Kim An trùng phùng Mộc Dao sau khi trọng sinh, chính là lúc Mộc Dao cùng bạn bè tụ tập từ khu trò chơi điện tử trở về nhà: con gái thì ôm thú bông, con trai thì xách theo lon Coca-Cola (chiến lợi phẩm).
 
-Nhưng dù biết rõ Âu Cường thích mình, đang theo đuổi mình, mà bạn trai lại không ở trong thành phố, Mộc Dao cũng không hề nghĩ đến việc phải tránh hiềm nghi.
+Học sinh cấp ba tốt nghiệp tụ tập đi chơi có cả nam lẫn nữ là chuyện hết sức bình thường.
 
-Du Phỉ thì nghĩ tới.
+Nhưng biết rõ mười mươi Âu Cường thích mình, đang ra sức theo đuổi mình, trong khi bạn trai lại không ở trong nội thành, thế mà Mộc Dao chẳng hề mảy may nghĩ đến chuyện phải giữ khoảng cách để tránh hiểu lầm.
 
-Du Phỉ đã nghĩ ra lý do tại sao ngày hôm đó Triệu Kim An không giữ Mộc Dao lại, và tại sao đột nhiên trở nên không còn nhiệt tình với cô nữa.
+Du Phi thì lại nghĩ ra được điều đó.
 
-Dĩ nhiên, Du Phỉ không nghĩ đúng hoàn toàn.
+Du Phi lập tức đoán ra vì sao ngày hôm ấy Triệu Kim An không buồn mở lời giữ Mộc Dao ở lại, và thái độ của anh đối với Mộc Dao lại đột ngột trở nên lạnh nhạt, xa cách như vậy.
 
-Cô không thể nào biết được Triệu Kim An là người trùng sinh trở về.
+Tất nhiên, Du Phi cũng không thể nào đoán đúng hoàn toàn.
 
-Điều Du Phỉ nghĩ là: mình không ở trong thành phố, không thể ngày ngày canh chừng cậu, cậu muốn đi chơi với Âu Cường, chẳng lẽ tôi lại tìm cậu cãi nhau một trận sao?
+Cô làm sao biết được Triệu Kim An là người mang ký ức của kiếp trước quay trở về.
 
-Loại chuyện này, với tư cách là bạn gái của người ta, bản thân phải có ý thức về ranh giới.
+Du Phi nghĩ đơn giản rằng: người ta không sống ở nội thành, không thể ngày ngày túc trực bên cạnh canh chừng bạn, bạn muốn đi chơi với người theo đuổi mình, chẳng lẽ người ta phải chạy tới cãi nhau một trận ỏm tỏi với bạn sao?
 
-Ngay cả khi cảm nhận được Triệu Kim An không còn nhiệt tình với mình, Mộc Dao cũng không chủ động ở lại.
+Những chuyện tế nhị như thế này, một người làm bạn gái phải tự ý thức được ranh giới chừng mực của bản thân.
 
-Cô vẫn chọn đi ăn cơm với nhóm Âu Cường, sau đó lại đến quán KTV hát hò.
+Thế nhưng dù đã lờ mờ cảm nhận được Triệu Kim An không còn nhiệt tình với mình như trước, Mộc Dao vẫn không hề chủ động chọn ở lại bên anh.
 
-Thực tế, những người như Mộc Dao có rất nhiều, họ sẽ không nghĩ ngợi sâu xa.
+Cô vẫn thản nhiên lựa chọn đi ăn uống tụ tập cùng đám bạn có cả Âu Cường, rồi sau đó lại kéo nhau đi hát karaoke thâu đêm.
 
-Thậm chí nhiều chàng trai cũng cảm thấy Triệu Kim An quá hẹp hòi.
+Thực tế ngoài xã hội, những cô gái ngây thơ như Mộc Dao có rất nhiều, họ chẳng bao giờ chịu nghĩ ngợi sâu xa.
 
-Họ thấy đời này rõ ràng chưa có chuyện gì xảy ra, vậy mà Triệu Kim An lại đối xử với Mộc Dao quá lạnh nhạt.
+Thậm chí có không ít chàng trai còn cho rằng Triệu Kim An đã quá đỗi hẹp hòi, chấp nhặt.
 
-Một số người thực sự độ lượng, cảm thấy chẳng có gì to tát, bạn gái chẳng phải chỉ đi chơi điện tử, ăn cơm, hát hò với chàng trai thích mình thôi sao, cũng có phải vào khách sạn thuê phòng đâu, có hệ trọng gì?
+Họ nghĩ kiếp này đã có chuyện gì tồi tệ xảy ra đâu, Triệu Kim An đối xử với Mộc Dao như thế là quá lạnh lùng và phũ phàng.
 
-Một số người lại tự tìm vấn đề ở bản thân, tự trách tại sao mình không phải người trong thành phố?
+Trong số những chàng trai ấy, có kẻ thực sự rộng lượng đến mức ngây ngô, nghĩ rằng chuyện đó có gì to tát đâu, bạn gái chỉ đi đánh điện tử, đi ăn cơm, đi hát hò với người thích cô ấy thôi mà, đã vào khách sạn mở phòng đâu mà phải làm quá lên?
 
-Còn một số người thì phản ứng chậm chạp, chỉ đến khi bạn gái nói lời chia tay, thực sự tặng cho mình một chiếc "mũ xanh" thì mới kịp nhận ra.
+Có kẻ lại tự dằn vặt tìm lỗi ở bản thân: tại sao nhà mình lại không ở thành phố?
 
-Trương Tuệ vừa giúp con gái sắp xếp vali vừa tìm chủ đề nói chuyện.
+Lại có những kẻ đầu óc chậm chạp, chỉ đến khi bạn gái chính thức nói lời chia tay, cắm hẳn lên đầu mình một chiếc sừng to tướng thì mới bàng hoàng tỉnh ngộ.
 
-"Các cháu thi cuối kỳ thế nào? Có khó không?"
+...
 
-Từ Mạn Mạn và Diêu Tân mỉm cười lịch sự với Trương Tuệ.
+Trương Tuệ vừa giúp con gái dọn dẹp vali vừa mở lời gợi chuyện:
 
-Từ Mạn Mạn đáp một tiếng: "Cũng được ạ."
+"Kỳ thi cuối kỳ này các cháu làm bài thế nào? Đề có khó lắm không?"
 
-Trương Tuệ lại cười nói: "Học đại học chắc chắn nhẹ nhõm hơn học cấp ba nhiều nhỉ?"
+Từ Mạn Mạn và Diêu Sân quay sang mỉm cười lịch sự với Trương Tuệ.
 
-"Vâng ạ."
+Từ Mạn Mạn nhàn nhạt đáp: "Dạ, cũng bình thường ạ."
 
-Từ Mạn Mạn và Diêu Tân mỉm cười ứng hòa.
+Trương Tuệ lại cười xởi lởi: "Học đại học sướng hơn hồi học cấp ba nhiều đúng không các cháu?"
 
-Mùa hè nóng nực.
+"Dạ vâng ạ." Từ Mạn Mạn và Diêu Sân mỉm cười đáp lại cho có lệ.
 
-Thẩm Tử Ngôn tắm xong đi ra, cầm máy sấy tóc sấy qua phần đuôi tóc còn dính nước.
+Giữa trưa hè oi ả, nóng bức.
 
-Trương Vân Thiến ngó đông ngó tây, liếc mắt một cái liền nhìn trúng chiếc máy sấy tóc.
+Thẩm Tử Ngôn vừa tắm gội sạch sẽ bước ra khỏi phòng tắm, cầm chiếc máy sấy hong khô phần đuôi tóc còn vương chút nước.
 
-Bà ta hơi không tin vào mắt mình.
+Trương Vân Thiến dáo dác ngó nghiêng khắp phòng, ánh mắt bỗng dừng lại trên chiếc máy sấy tóc của Thẩm Tử Ngôn.
 
-Bèn vờ như không có chuyện gì đi tới nhìn cho kỹ.
+Bà ta có chút không tin vào mắt mình.
 
-Trương Vân Thiến rất kinh ngạc, bà ta làm kinh doanh mỹ phẩm nên cực kỳ nhạy cảm với giá cả của những thứ này.
+Bèn giả vờ như vô tình bước lại gần để nhìn cho thật kỹ.
 
-Chiếc máy sấy Thẩm Tử Ngôn đang dùng là loại Panasonic EH5365, giá thị trường hơn 1.000 tệ, quảng cáo là công nghệ ion nano, có chức năng chăm sóc kép bằng tia hồng ngoại xa và ion âm.
+Trương Vân Thiến vô cùng kinh ngạc. Bà ta vốn làm ăn trong ngành mỹ phẩm và làm đẹp nên cực kỳ nhạy cảm với giá cả của những món đồ chăm sóc cá nhân cao cấp.
 
-Phải biết rằng bây giờ mới là năm 2007, một sinh viên đại học mà dùng máy sấy tóc hơn 1.000 tệ sao!?
+Chiếc máy sấy tóc Thẩm Tử Ngôn đang cầm là dòng Panasonic EH5365, giá thị trường rơi vào tầm hơn một nghìn tệ, quảng bá công nghệ ion nano, tích hợp tính năng kép tia hồng ngoại xa và ion âm chăm sóc tóc bóng mượt.
 
-Được rồi, cũng không phải là mua không nổi, nhưng có mấy ai nỡ bỏ tiền ra mua?
+Phải biết rằng bây giờ mới là năm 2007, một cô sinh viên đại học mà đã dùng chiếc máy sấy tóc hơn một nghìn tệ rồi sao?!
 
-Thẩm Tử Ngôn dùng xong liền đặt trên bàn, lộ rõ ý định ai trong phòng cũng có thể dùng.
+Được rồi, cũng không phải là gia đình họ không mua nổi, nhưng có mấy ai nỡ chi ngần ấy tiền chỉ để sắm một chiếc máy sấy tóc?
 
-Đừng nói là Mộc Dao và Diêu Tân, ngay cả Từ Mạn Mạn cũng không nhận ra, cô không quan tâm đến những thứ này.
+Thẩm Tử Ngôn sấy xong liền tiện tay đặt ngay trên bàn, ý tứ rõ ràng là ai trong phòng muốn dùng cứ việc tự nhiên.
 
-Cũng hiếm có ai đi chú ý đến một cái máy sấy tóc.
+Đừng nói là Mộc Dao hay Diêu Sân, ngay cả Từ Mạn Mạn cũng chẳng nhận ra giá trị của nó, cô vốn không mấy bận tâm đến những thứ này.
 
-Trương Tuệ thấy Diêu Tân cũng đã thu dọn hành lý, liền khách sáo hỏi: "Diêu Tân, cháu người ở đâu? Có ra ga tàu không? Để cô đưa cháu một đoạn."
+Và cũng hiếm có ai rảnh rỗi đi soi mói từng chiếc máy sấy tóc như Trương Vân Thiến.
 
-Diêu Tân xách vali ra cửa, nói: "Cảm ơn dì, không cần đâu ạ."
+Trương Tuệ thấy Diêu Sân cũng đã thu dọn xong hành lý, bèn lên tiếng làm mối khách sáo: "Diêu Sân quê ở đâu thế cháu? Cháu có ra ga tàu hỏa không? Tiện đường các cô cho cháu đi nhờ một đoạn nhé."
 
-Thẩm Tử Ngôn đã đứng ở cửa phòng, giúp Diêu Tân xách một chiếc túi, nói: "Dì ơi, bọn cháu đi trước đây ạ."
+Diêu Sân xách vali bước ra cửa, lịch sự từ chối: "Dạ cháu cảm ơn cô ạ, cháu không dám phiền đâu ạ."
 
-"Đợi đã."
+Thẩm Tử Ngôn đã đứng sẵn ở cửa phòng, với tay xách giúp Diêu Sân một chiếc túi, nói: "Cô ơi, bọn cháu xin phép đi trước nhé ạ."
 
-Trương Tuệ và Trương Vân Thiến cũng cùng nhau ra khỏi phòng, Trương Tuệ chợt nhớ ra điều gì đó bèn hỏi Mộc Dao.
+"Ấy, đợi đã nào."
 
-"Đúng rồi, Dao Dao, còn Du Phỉ đâu?"
+Trương Tuệ và Trương Vân Thiến cũng vội vàng bước ra ngoài. Trương Tuệ chợt nhớ ra điều gì, bèn quay sang hỏi Mộc Dao:
 
-Mộc Dao cầm túi xách, đáp: "Du Phỉ đi chuyến tàu tối qua rồi ạ, cậu ấy mua vé từ sớm, tối qua đã về rồi."
+"À này Dao Dao, con bé Du Phi đâu rồi con?"
 
-"Cái con bé này, cũng không biết đợi một chút..."
+Mộc Dao cầm túi xách, đáp: "Du Phi mua vé tàu đêm qua rồi ạ, cậu ấy mua từ sớm nên tối qua đã lên tàu về quê trước rồi mẹ."
 
-Trương Tuệ lấy điện thoại ra gọi cho mẹ của Du Phỉ là Lưu Văn Tinh, vừa đi xuống lầu vừa lẩm bẩm, đầu dây bên kia chắc hẳn Lưu Văn Tinh đang cảm ơn Trương Tuệ, dù sao thì quan hệ ngoại giao cũng được bà ta làm rất tốt.
+"Cái con bé này, chẳng chịu đợi người lớn gì cả..."
 
-Thẩm Tử Ngôn và Diêu Tân đi phía trước liếc nhìn nhau, không nói gì.
+Trương Tuệ rút điện thoại ra bấm số gọi cho Lưu Văn Tinh - mẹ của Du Phi, vừa bước xuống cầu thang vừa tíu tít buôn chuyện. Đầu dây bên kia chắc hẳn Lưu Văn Tinh đang hết lời cảm ơn Trương Tuệ, nói chung là nghệ thuật đối nhân xử thế vô cùng khéo léo, tròn trịa.
 
-Từ Mạn Mạn cũng im lặng.
+Thẩm Tử Ngôn và Diêu Sân đi phía trước đưa mắt nhìn nhau, lẳng lặng không nói lời nào.
 
-Nghe giọng điệu thì rõ ràng Trương Tuệ vừa mới nhớ đến Du Phỉ, chỉ có thể nói bà ta thực sự rất biết cách đối nhân xử thế.
+Từ Mạn Mạn đi bên cạnh cũng im thin thít.
 
-Những chi tiết này, nếu ai thần kinh thô một chút sẽ không nắm bắt được.
+Nghe giọng điệu của Trương Tuệ là biết rõ bà ta vừa mới chợt nhớ ra Du Phi, chỉ có thể nói người phụ nữ này quá giỏi trong việc diễn trò lấy lòng người khác.
 
-Ba cô gái thậm chí còn có chút ác ý thầm nghĩ, không biết khi nào Trương Tuệ mới nhớ đến Triệu Kim An, Triệu Kim An cũng là người Sâm Thành mà.
+Những chi tiết nhỏ nhặt đầy tính toán ấy, người nào đầu óc vô tư, qua loa thì chẳng bao giờ nắm bắt được.
 
-Đúng rồi, còn có Triệu Chí Dũng nữa.
+Ba cô gái thậm chí còn nảy sinh chút tâm lý tò mò đầy ác ý: không biết đến khi nào Trương Tuệ mới sực nhớ ra Triệu Kim An nhỉ? Triệu Kim An cũng là người ở Sâm Châu cơ mà.
 
-Thẩm Tử Ngôn và Từ Mạn Mạn cũng đã quen biết Triệu Chí Dũng.
+À phải rồi, còn có cả Triệu Trí Dũng nữa chứ.
 
-Dĩ nhiên, Trương Tuệ không chở ai cũng được, bọn họ chỉ là thấy Trương Tuệ quá mức khéo léo nên mới nảy sinh tâm lý trêu đùa như vậy.
+Thẩm Tử Ngôn và Từ Mạn Mạn cũng đã biết mặt Triệu Trí Dũng rồi.
 
-Xuống lầu, đi ra khỏi ký túc xá nữ.
+Tất nhiên, Trương Tuệ chẳng có nghĩa vụ phải chở bất kỳ ai về quê cả, họ chỉ cảm thấy buồn cười trước cái thói làm màu, đóng kịch quá đỗi giả tạo của người phụ nữ này mà thôi.
 
-Thành phố đại học Quận Sa thực sự có bầu không khí thương mại rất đậm đặc, đường xá thông thoáng tứ phía, hiện tại vẫn chưa có cổng trường theo đúng nghĩa đen, xe cộ lái vào khu đại học không gặp bất kỳ trở ngại nào.
+Bước xuống dưới lầu, ra khỏi khu ký túc xá nữ.
+
+Khu làng đại học Quận Sa mang đậm bầu không khí thương mại sầm uất, đường sá thông thoáng tứ phía. Thời điểm này các trường đại học vẫn chưa lắp cổng rào nghiêm ngặt, xe ô tô có thể thoải mái chạy thẳng vào khuôn viên mà không gặp bất kỳ trở ngại nào.
 
 "Mạn Mạn."
 
-Trần Trạch đang dựa vào chiếc BMW hút thuốc, hắn thích chờ người ở dưới lầu ký túc xá nữ, nữ sinh qua lại sẽ nhìn thêm vài cái.
+Trần Trạch đang đứng tựa lưng vào chiếc BMW hút thuốc. Anh chàng rất thích đứng đợi người ở dưới chân ký túc xá nữ, bởi những nữ sinh qua lại thường sẽ liếc nhìn anh ta thêm vài cái đầy ngưỡng mộ.
 
-"Tử Ngôn, Diêu Tân."
+"Tử Ngôn, Diêu Sân."
 
-Trần Trạch mở cốp xe, chào hỏi thêm một tiếng.
+Trần Trạch mở cốp xe sau, cất tiếng chào hỏi mọi người.
 
-Hắn biết kỳ nghỉ hè này không cần phải lái xe đưa Thẩm Tử Ngôn về nữa.
+Anh ta biết kỳ nghỉ hè này mình không cần phải lái xe đưa Thẩm Tử Ngôn về quê nữa rồi.
 
-Chợt nhận thấy Trương Tuệ đứng bên cạnh Mộc Dao, Trần Trạch nhiệt tình chào hỏi: "Chào dì ạ."
+Bất chợt nhìn thấy Trương Tuệ đi bên cạnh Mộc Dao, Trần Trạch lập tức đon đả chào hỏi: "Cháu chào cô ạ!"
 
 "Chào cháu."
 
-Trương Tuệ và Trương Vân Thiến liếc nhìn nhau, cũng nhận ra chiếc BMW của Trần Trạch đậu bên lề đường.
+Trương Tuệ và Trương Vân Thiến đưa mắt nhìn nhau, ánh mắt lập tức dán chặt vào chiếc BMW đỗ bên lề đường của Trần Trạch.
 
-Họ nhìn sang Từ Mạn Mạn.
+Họ liếc nhìn Từ Mạn Mạn một cái.
 
-Bạn trai của cô gái này sao!?
+Bạn trai của cô bé này sao?!
 
-Thành thật mà nói, Từ Mạn Mạn không phải kiểu con gái vừa nhìn đã thấy rực rỡ, Mộc Dao thanh thuần ngọt ngào ngược lại rất được nam sinh đại học săn đón, cá tính của Thẩm Tử Ngôn cũng rất nổi bật.
+Thú thật, Từ Mạn Mạn không phải mẫu con gái vừa nhìn đã khiến người ta choáng ngợp hay nổi bật giữa đám đông. Ngược lại, nét đẹp thanh thuần, ngọt ngào như Mộc Dao lại rất được các nam sinh đại học săn đón, cuồng nhiệt theo đuổi; còn Thẩm Tử Ngôn thì sở hữu khí chất sang chảnh, cá tính vô cùng rõ nét.
 
-Trương Vân Thiến phát hiện chiếc BMW của Trần Trạch cùng dòng với xe của mình, chỉ khác là một chiếc màu trắng, một chiếc màu đen.
+Trương Vân Thiến nhận ra chiếc BMW của Trần Trạch cùng dòng xe với chiếc của mình, chỉ khác là một chiếc màu trắng, một chiếc màu đen.
 
-"Diêu Tân, để cô đưa cháu ra ga nhé." Trương Tuệ nói.
+"Diêu Sân à, để các cô chở cháu ra ga tàu nhé." Trương Tuệ lại cất lời mời mọc.
 
-"Cháu cảm ơn dì, không cần đâu ạ, cháu đi xe của Tử Ngôn."
+"Dạ cháu cảm ơn cô nhiều ạ, cháu đi xe của Tử Ngôn rồi ạ." Diêu Sân lễ phép từ chối.
 
-Diêu Tân lịch sự từ chối.
-
-Đang nói chuyện, chiếc Mercedes-Benz E230 bên cạnh kêu lên một tiếng.
+Đang dở câu chuyện thì chiếc Mercedes E230 đỗ ngay cạnh bỗng "tít" lên một tiếng mở khóa.
 
 Trương Vân Thiến: "..."
 
-Cái phòng ký túc xá này kiểu gì thế?
+Cái phòng ký túc xá này rốt cuộc là cái động gì thế không biết?!
 
-Từ Mạn Mạn không còn xách túi Chanel nữa.
+Từ Mạn Mạn hôm nay không mang chiếc túi Chanel nữa.
 
-Thẩm Tử Ngôn đến trường cũng chưa bao giờ mang theo những chiếc túi hiệu đó.
+Còn Thẩm Tử Ngôn thì từ ngày lên đại học chưa từng xách mấy chiếc túi hàng hiệu đắt tiền ra oai bao giờ.
 
-Trương Tuệ đeo túi Gucci, Trương Vân Thiến xách túi LV, chính là chiếc túi mà ngày khai giảng Thẩm Tử Ngôn liếc mắt một cái đã nhận ra không phải mẫu mới nhất.
+Trương Tuệ đeo chiếc túi Gucci, Trương Vân Thiến xách chiếc túi Louis Vuitton - chính là chiếc túi mà ngày đầu tiên nhập học Thẩm Tử Ngôn chỉ liếc mắt một cái đã nhận ra ngay không phải mẫu mới nhất.
 
-Hai chị em có vài phần giống nhau, thực ra đều rất có nét phụ nữ, Trương Vân Thiến mới ngoài 30, chỉ là khí chất của hai người khác nhau.
+Hai chị em họ có nét mặt khá giống nhau, thực ra đều là những người phụ nữ rất đỗi mặn mà, Trương Vân Thiến mới ngoài ba mươi tuổi, chỉ là phong thái toát ra hoàn toàn khác biệt mà thôi.
 
-"Đúng rồi, Dao Dao, cái đó... Triệu Kim An đâu?"
+"À này Dao Dao, cái cậu... Triệu Kim An đâu rồi con?"
 
-Trương Tuệ lúc này mới nhớ ra để hỏi Mộc Dao, giọng bà ta không lớn.
+Trương Tuệ lúc này mới nhớ ra mà hỏi con gái, giọng nói hạ thấp xuống đôi chút.
 
-Thẩm Tử Ngôn và Diêu Tân dừng bước.
+Thẩm Tử Ngôn và Diêu Sân khựng lại bước chân.
 
-Từ Mạn Mạn đang mở cửa xe cũng khựng lại.
+Từ Mạn Mạn vừa kéo cửa xe cũng bất giác dừng lại động tác.
 
-Mộc Dao không hề che giấu, những người ở đây đều đã biết chuyện, cô nói: "Kim An sẽ không về đâu ạ, anh ấy vẫn luôn làm thêm."
+Mộc Dao chẳng có gì phải giấu giếm, những người đứng ở đây ai nấy đều biết rõ ngọn ngành. Cô đáp: "Kim An không về quê đâu mẹ, cậu ấy ở lại làm thêm suốt."
 
 "..."
 
-Trương Tuệ liếc nhìn chiếc xe của Trần Trạch một cách không lộ liễu, cúi đầu nhỏ giọng hỏi: "Lên đại học rồi, nó không đến quấy rầy con chứ?"
+Trương Tuệ liếc nhìn chiếc xe sang của Trần Trạch một cái đầy ẩn ý, rồi cúi đầu hỏi nhỏ con gái bằng giọng săm soi:
+
+"Lên đại học rồi, nó không đến bám theo quấy rầy con nữa chứ?"
 
 "Mẹ!!"
 
-Mộc Dao đột nhiên hét lên một tiếng, có chút tức giận.
+Mộc Dao bỗng hét lên một tiếng, gương mặt đỏ bừng vì tức giận và xấu hổ.
 
-Từ Mạn Mạn nhìn Trương Tuệ một hồi, trong lòng lắc đầu.
+Từ Mạn Mạn nhìn Trương Tuệ một hồi, trong lòng khẽ lắc đầu ngán ngẩm.
 
-Thẩm Tử Ngôn và Diêu Tân nhìn nhau, cả hai cùng nở nụ cười khổ.
+Thẩm Tử Ngôn và Diêu Sân đưa mắt nhìn nhau, cả hai cùng nở một nụ cười cay đắng.
 
-Có một người mẹ như Trương Tuệ, Mộc Dao hoặc là bất chấp tất cả để đoạn tuyệt quan hệ mẹ con, hoặc là Triệu Kim An vì tình yêu mà phải chịu đựng giọng điệu "lạnh nhạt" và đủ kiểu làm khó từ bà mẹ vợ tương lai này.
+Có một người mẹ như Trương Tuệ, Mộc Dao nếu không dũng cảm rũ bỏ tất cả để đoạn tuyệt quan hệ mẫu tử, thì Triệu Kim An chỉ có thể vì tình yêu mù quáng mà cắn răng chịu đựng những lời mỉa mai lạnh nhạt và muôn vàn sự hạch sách, làm khó của bà mẹ vợ tương lai này.
 
-Nếu thực sự kết hôn, mà Triệu Kim An không trở nên giàu nứt đố đổ vách, e rằng sẽ phải chịu đựng Trương Tuệ cả đời.
+Nếu thực sự tiến tới hôn nhân mà Triệu Kim An không phát tài phát lộc, e rằng anh sẽ phải sống dưới sự khinh khi của Trương Tuệ suốt cả cuộc đời.
 
-Cách nói chuyện của Trương Tuệ rất có lý lẽ, không bắt bẻ được gì, nhưng lại khiến người ta cảm thấy khó chịu.
+Cách nói chuyện của Trương Tuệ nghe qua thì rất đạo lý, chẳng ai bắt bẻ được lỗi lầm gì, nhưng lại có thể khiến người nghe nghẹn ứ đến tận cổ họng, uất ức không thốt nên lời.
 
-Thậm chí trong mắt người ngoài, họ còn cảm thấy là do bạn không hiểu chuyện.
+Thậm chí trong mắt người ngoài, người ta còn nghĩ rằng do bạn không biết điều, không hiểu chuyện.
 
-Trương Tuệ tò mò hỏi: "Nó làm thêm việc gì ở trường?"
+Trương Tuệ tò mò hỏi tiếp: "Cậu ta ở trường làm thêm công việc gì thế?"
 
-Trần Trạch tiếp lời: "Dì ơi, là nước khoáng Trăn Nhiên đấy ạ, công ty của họ còn tổ chức một giải thi đấu bóng rổ ở trường nữa."
+Trần Trạch vội vàng chen ngang cướp lời: "Cô ơi, cậu ấy làm cho hãng nước khoáng Trăn Nhiên đấy ạ, công ty họ vừa tổ chức một giải bóng rổ rầm rộ ở trường cháu."
 
-"Nước khoáng?"
+"Bán nước khoáng á?"
 
-Trương Vân Thiến cười khẩy một tiếng: "Hôm đó ở khách sạn nó còn thề thốt nói là muốn làm kinh doanh, lên đại học rồi đi làm thêm chỉ là đi tiếp thị nước khoáng thôi sao?"
+Trương Vân Thiến bật cười khẩy một tiếng đầy vẻ mỉa mai: "Hôm ở khách sạn thấy cậu ta hùng hồn tuyên bố sau này sẽ làm ăn kinh doanh lớn lao lắm cơ mà, hóa ra lên đại học đi làm thêm cũng chỉ là thằng tiếp thị đi bán dạo mấy chai nước khoáng thôi à?"
 
 "Tiểu Thiến..."
 
-Trương Tuệ lườm Trương Vân Thiến một cái. Triệu Kim An là bạn trai cũ của Mộc Dao, ở đây có bao nhiêu người như vậy, em hạ thấp Triệu Kim An như thế, mặt mũi Mộc Dao để đâu, mặt mũi chúng ta để đâu?
+Trương Tuệ trừng mắt lườm em gái một cái. Dù sao Triệu Kim An cũng là bạn trai cũ của Mộc Dao, trước mặt bao nhiêu người thế này, em hạ thấp Triệu Kim An như vậy thì mặt mũi Mộc Dao để vào đâu, thể diện của gia đình mình để vào đâu?
 
-Trương Tuệ lại nhìn sang Từ Mạn Mạn, thực sự cảm thấy ánh mắt của con gái mình không ra làm sao cả.
+Trương Tuệ lại đưa mắt nhìn Từ Mạn Mạn, trong bụng thực sự chê bai mắt nhìn người của con gái mình quá kém cỏi.
 
-Nhưng bà ta cũng không thể nói như vậy trước mặt người ngoài.
+Nhưng dẫu sao cũng không nên bộc lộ sự coi thường ấy ra trước mặt người ngoài như thế.

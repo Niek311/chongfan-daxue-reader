@@ -1,269 +1,271 @@
-# Chương 146: Như Thế Này Là Rất Tốt
+# Chương 146: Thế này là tốt lắm rồi.
 
-Đột nhiên có một ngày, Trần Trạch hét lớn một tiếng: "Tụ tập thôi!"
+> **Tiêu đề gốc**: 第146章 这样就很好。
 
-Phòng 303 và 406 là hai ký túc xá kết nghĩa, Trần Trạch giống như vừa trút được gánh nặng, sống lại từ cõi chết, nói rằng hắn sẽ mời mọi người đi ăn đêm.
+Bỗng một ngày nọ, Trần Trạch bỗng dưng hét toáng lên: "Tụ tập ăn uống thôi chúng mày ơi!"
 
-"Trạch ca, ông phát tài rồi à?"
+Ký túc xá 303 và 406 vốn là phòng kết nghĩa. Nhìn điệu bộ của Trần Trạch như thể vừa trút được gánh nặng nghìn cân, cả người sống lại, hào sảng tuyên bố tối nay sẽ bao trọn bữa ăn đêm.
 
-Phòng 303 và 406 mới chỉ tụ tập đúng một lần, hơn nữa lần đó còn kết thúc trong không khí không mấy vui vẻ.
+"Anh Trạch, trúng mánh rồi à?"
 
-Lưu Sấm Phong ngập ngừng hỏi: "Kim An, hiện giờ lương của ông cao như vậy, chắc không vấn đề gì chứ?"
+Trước đây 303 và 406 mới chỉ tụ tập đúng một lần, lần đó kết thúc trong cảnh chẳng mấy vui vẻ gì.
 
-Triệu Kim An mỉm cười gật đầu: "Không vấn đề gì cả."
+Lưu Sấm Phong ngập ngừng ướm hỏi: "Kim An, dạo này lương cậu cao ngất ngưởng, đi ăn cùng có vấn đề gì không?"
 
-"Phù ——"
+Triệu Kim An mỉm cười gật đầu: "Không thành vấn đề."
 
-Cốc Siêu Thừa thở phào nhẹ nhõm, trong lòng thầm mong đợi. Những cô gái như Mộc Dao và Từ Mạn Mạn, cho dù không phải bạn gái mình thì chỉ cần được ngắm nhìn thôi cũng đủ tốt rồi.
+"Phù——"
 
-Trần Trạch cầm điện thoại lên gọi đi.
+Cốc Siêu Thừa thở phào nhẹ nhõm, trong lòng âm thầm mong đợi. Mẫu con gái xinh đẹp nổi bật như Mộc Dao hay Từ Mạn Mạn, dẫu chẳng thể thành người yêu của mình thì ngồi ngắm thôi cũng đủ bổ mắt rồi.
 
-Chỉ số chung đã tăng liên tiếp hai ngày, thị trường tràn ngập những lời hô hào lạc quan, nói rằng giai đoạn điều chỉnh đã kết thúc và sẽ tiếp tục tấn công lên phía trên.
+Trần Trạch rút điện thoại ra gọi.
 
-Từ Mạn Mạn nhận được điện thoại của Trần Trạch thì quay sang hỏi các bạn cùng phòng.
+Thị trường chứng khoán đã tăng điểm liền hai phiên, khắp các diễn đàn và hội nhóm râm ran tiếng hô mua, người ta kháo nhau rằng nhịp điều chỉnh đã kết thúc, thị trường chuẩn bị bứt phá đỉnh mới.
 
-Mộc Dao chỉ hỏi một câu: "Kim An có đi không?"
+Từ Mạn Mạn nhận được cuộc gọi của Trần Trạch liền quay sang hỏi các cô bạn cùng phòng.
+
+Mộc Dao chỉ hỏi độc một câu: "Kim An có đi không?"
 
 Từ Mạn Mạn gật đầu.
 
-Trần Trạch lái xe đến Trung Nam đón người, Thẩm Tử Ngôn lại nhắn tin hỏi Triệu Kim An thêm một lần nữa.
+Trần Trạch lái xe sang Đại học Trung Nam đón người. Thẩm Tử Ngôn lại nhắn tin gặng hỏi Triệu Kim An thêm một lần nữa.
 
-Triệu Kim An vẫn trả lời đúng năm chữ: "Một đi không trở lại."
+Triệu Kim An vẫn thản nhiên hồi đáp đúng năm chữ: "Một đi không trở lại."
 
-Thị trường nhuộm sắc đỏ hai ngày liền, Thẩm Vĩnh Đàm gọi điện hỏi thăm con gái, nhưng không phải hỏi về thị trường chứng khoán mà là hỏi về nghiệp vụ ngoại thương của công ty.
+Hai ngày thị trường sắc xanh ngập tràn, Thẩm Vĩnh Đàm cũng gọi điện hỏi thăm con gái. Ông không hỏi về cổ phiếu mà hỏi về mảng kinh doanh xuất khẩu của công ty.
 
-Nếu thị trường chứng khoán không sụp đổ, thì cái gọi là khủng hoảng tài chính chỉ là chuyện nực cười.
+Nếu thị trường chứng khoán không hề sụp đổ, thì cái gọi là khủng hoảng tài chính chẳng qua chỉ là chuyện viển vông, chuyện giật gân vô căn cứ.
 
-Ngay cả chính Thẩm Tử Ngôn cũng bắt đầu dao động.
+Bản thân Thẩm Tử Ngôn quả thực cũng dao động.
 
-Chiếc xe của Thẩm Tử Ngôn đỗ dưới lầu công ty, đặt cạnh chiếc Audi A6 của Triệu Kim An.
+Chiếc xe của Thẩm Tử Ngôn đỗ dưới chân tòa nhà công ty, nằm kề bên chiếc Audi A6 của Triệu Kim An.
 
-Trần Trạch lái xe chở bốn cô gái phòng 406 đến trước.
-
-"Kim An..."
-
-Chiếc ghế bên cạnh Mộc Dao vẫn còn trống, Thẩm Tử Ngôn không tranh giành với nàng.
-
-Triệu Kim An mỉm cười với Mộc Dao một cái.
-
-Mộc Dao không đứng dậy để ôm lấy cánh tay Triệu Kim An như trước nữa.
-
-Như thế này là rất tốt.
-
-Chia tay đã được một năm rưỡi rồi, vốn dĩ cũng chẳng phải kẻ thù, không được nữa thì vẫn là bạn học cùng lớp cấp ba.
-
-Có lẽ Mộc Dao khi lên năm hai đại học cũng đã trưởng thành hơn một chút.
-
-Mọi người đều đã mười chín, hai mươi tuổi, chia tay thời gian dài như vậy, Mộc Dao chỉ nhìn Triệu Kim An mà không đứng dậy, không giống như lần tụ tập trước, vừa kéo tay vừa kéo ghế.
-
-"Dạo này cô thế nào?"
-
-Triệu Kim An mỉm cười hỏi, giống như những cặp đôi thời đại học đã chia tay nhiều năm, tình cờ gặp lại trên đường hay trong trung tâm thương mại, hai bên lịch sự và khách sáo hỏi thăm nhau một câu: "Cô sống thế nào?"
-
-"Ừm~"
-
-Mộc Dao ngẩng đầu nhìn Triệu Kim An, khịt khịt mũi, gật đầu đáp một tiếng.
-
-Giọng nói hơi nghẹt mũi.
+Trần Trạch lái xe chở bốn cô gái phòng 406 tới trước.
 
 "Kim An..."
 
-Mộc Dao lại gọi một tiếng.
+Chiếc ghế bên cạnh Mộc Dao vẫn còn trống, Thẩm Tử Ngôn cũng chẳng tranh giành chỗ ngồi đó với cô.
 
-"Hửm?"
+Triệu Kim An mỉm cười chào Mộc Dao.
 
-"Anh có thể bỏ em ra khỏi danh sách đen được không?"
+Lần này, Mộc Dao không còn đứng phắt dậy sà tới khoác chặt lấy cánh tay Triệu Kim An như dạo trước nữa.
 
-"Ừ."
+Thế này là tốt lắm rồi.
 
-Triệu Kim An do dự một lát rồi gật đầu.
+Chia tay đã tròn một năm rưỡi, đôi bên vốn chẳng phải kẻ thù không đội trời chung, tính ra tệ nhất thì cũng là bạn học cùng lớp cấp ba.
 
-Cốc Siêu Thừa: "......"
+Có lẽ lên năm hai đại học, Mộc Dao cũng đã trưởng thành và hiểu chuyện hơn đôi phần.
 
-"Triệu Kim An thật sự tàn nhẫn quá mà, bạn học cùng lớp cấp ba, lại cùng học trong một khu đại học, Mộc Dao cũng không làm gì có lỗi với ông, không cắm sừng ông, vậy mà nói chia tay là ông kéo đen người ta tận một năm rưỡi!?"
+Ai nấy đều đã mười chín, đôi mươi cả rồi, đoạn tình cảm kia đã khép lại từ lâu. Mộc Dao chỉ lặng lẽ dõi mắt nhìn Triệu Kim An, vẫn ngồi yên tại chỗ, không còn nhào tới kéo ghế hay ôm ghì cánh tay như bữa tiệc lần trước.
 
-Cốc Siêu Thừa đột nhiên phản ứng lại, giống như vừa mới nhận thức lại về Triệu Kim An.
+"Dạo này cậu thế nào?"
 
-Người này không hề dễ gần như vẻ bề ngoài, nhìn thì thấy đối với ai cũng cười, nhưng ở trong ký túc xá lại giữ khoảng cách với hắn, với tất cả mọi người.
+Triệu Kim An nở nụ cười nhẹ nhõm cất lời hỏi thăm. Cái giọng điệu ấy tựa như những cặp tình nhân đại học sau bao năm xa cách vô tình chạm mặt nhau trên đường phố hay giữa trung tâm thương mại, đôi bên lịch thiệp, nhã nhặn trao nhau một câu chào: "Cậu sống có tốt không?"
+
+"Dạ..."
+
+Mộc Dao ngẩng đầu nhìn Triệu Kim An, khẽ sụt sịt mũi, gật đầu khe khẽ.
+
+Trong giọng nói vương chút nghẹn ngào.
+
+"Kim An..."
+
+Mộc Dao lại khẽ gọi tên anh.
+
+"Sao thế?"
+
+"Cậu... cậu có thể gỡ mình ra khỏi danh sách đen được không?"
+
+"Được chứ."
+
+Triệu Kim An thoáng ngập ngừng một thoáng, rồi khẽ gật đầu.
+
+Cốc Siêu Thừa ngồi bên cạnh câm nín toàn tập: "..."
+
+"Mẹ kiếp, thằng Triệu Kim An này ra tay tàn nhẫn thật sự! Vừa là bạn cùng lớp cấp ba, vừa học chung một làng đại học, Mộc Dao có làm gì có lỗi với mày đâu, cũng chẳng cắm sừng mày, thế mà nói chia tay là chặn số con người ta suốt một năm rưỡi trời!?"
+
+Cốc Siêu Thừa bỗng giật mình vỡ lẽ, cảm giác như hôm nay mới thực sự nhìn thấu Triệu Kim An.
+
+Con người này tuyệt đối không dễ gần như vẻ bề ngoài. Nhìn qua thì thấy ai anh cũng tươi cười nhã nhặn, nhưng ở trong ký túc xá, anh luôn giữ một khoảng cách vô hình với cậu ta, với tất cả mọi người.
 
 Ngoại trừ Vương Duy Đào.
 
 "Triệu Kim An!"
 
-"Chào cô."
+"Chào cậu."
 
-Triệu Kim An mỉm cười với Diêu Tân.
+Triệu Kim An mỉm cười với Diêu Sân.
 
-Diêu Tân ngẩn ra, nàng và Triệu Kim An đã gặp mặt rất nhiều lần trong kỳ nghỉ hè, cũng có thể coi là đồng nghiệp.
+Diêu Sân hơi ngẩn người. Kỳ nghỉ hè vừa rồi cô và Triệu Kim An đã gặp nhau biết bao lần, tính ra còn là đồng nghiệp với nhau.
 
-Triệu Kim An lại gật đầu với Từ Mạn Mạn.
+Triệu Kim An lại quay sang khẽ gật đầu chào Từ Mạn Mạn.
 
-Từ Mạn Mạn mỉm cười gật đầu đáp lại, chủ động nói một câu: "Chào cậu."
+Từ Mạn Mạn mỉm cười gật đầu đáp lễ, chủ động cất lời: "Chào cậu."
 
-Còn với Thẩm Tử Ngôn thì không cần thiết nữa.
+Với Thẩm Tử Ngôn thì chẳng cần câu nệ chào hỏi làm gì.
 
-Triệu Kim An nói với Trần Trạch: "Hôm nay để tôi mời khách đi."
+Triệu Kim An quay sang bảo Trần Trạch: "Hôm nay để tao mời nhé."
 
-Trần Trạch: "......"
+Trần Trạch tròn mắt: "..."
 
-Triệu Kim An thật sự sợ ngày mai thị trường lại nhuộm xanh sàn, nên nói: "Tôi kiếm được tiền mà vẫn chưa mời mọi người bữa nào."
+Triệu Kim An thực lòng sợ rằng sang ngày mai thị trường lại ngập trong sắc xanh lau sàn, nên mới bảo: "Dạo này kiếm được chút tiền mà chưa có dịp khao mọi người bữa nào ra trò."
 
-"Được chứ, vậy thì bọn tôi không khách sáo đâu."
+"Được đấy, thế thì bọn này không khách sáo đâu nhé."
 
-Thẩm Tử Ngôn mỉm cười phụ họa.
+Thẩm Tử Ngôn cười tươi phụ họa.
 
-Nàng là người duy nhất ở đây biết Triệu Kim An là ông chủ, nhưng lại không biết cái câu "kiếm được tiền" của hắn là chỉ việc kiếm tiền từ thị trường chứng khoán Mỹ.
+Ở đây chỉ có duy nhất cô biết Triệu Kim An là ông chủ thực sự, nhưng cô không hề hay biết câu nói "kiếm được chút tiền" của anh là đang ám chỉ khoản lợi nhuận khổng lồ từ việc bán khống cổ phiếu bên sàn Mỹ.
 
-Những người khác đều nghĩ Triệu Kim An đang nói về tiền lương.
+Những người khác thì đinh ninh Triệu Kim An đang nói về tiền lương đi làm thêm.
 
-Từ Mạn Mạn chăm chú nhìn Triệu Kim An.
+Từ Mạn Mạn lặng lẽ dõi theo từng cử chỉ của Triệu Kim An.
 
-Khi Từ Mạn Mạn chủ động nói ra câu "Chào cậu", nàng biết rằng mình và Triệu Kim An chưa bao giờ tiến lại gần nhau, nàng biết chắc chắn hắn cũng đã nghe nói rồi.
+Khoảnh khắc bản thân chủ động mở lời nói ra hai tiếng "Chào cậu", cô liền hiểu sâu sắc rằng mình và Triệu Kim An chưa bao giờ thực sự bước vào thế giới của nhau. Cô biết chắc chắn Triệu Kim An cũng đã nghe ngóng được chuyện kia.
 
-Nàng đã cùng Trần Trạch đến xưởng sản xuất của gia đình hắn.
+Chuyện cô theo Trần Trạch về thăm xưởng sản xuất của gia đình anh ta.
 
-Buổi chiều hôm đó giống như một giấc mơ.
+Buổi chiều hôm ấy ngỡ như một giấc mộng.
 
-Không phải giấc mơ của hai người, mà là giấc mơ của một mình nàng.
+Không phải giấc mộng của hai người, mà chỉ là giấc mơ đơn độc của riêng một mình cô.
 
-Có lẽ hắn căn bản không hề ghi nhớ trong lòng, đối với hắn, đó chỉ là một buổi chiều hết sức bình thường.
+Có lẽ anh căn bản chẳng hề để tâm ghi nhớ, đối với anh, đó chỉ là một buổi trưa hết sức bình thường như muôn vàn ngày khác.
 
-"Nhưng đối với mình... thế là đủ để mình nhấm nháp hồi tưởng trong một thời gian dài rồi."
+"Nhưng đối với mình... chừng đó đã đủ để mình lặng lẽ hồi tưởng suốt một thời gian rất dài rồi."
 
-Không ai nhìn thấu được nội tâm của Từ Mạn Mạn, nàng cứ lặng lẽ ngồi đó.
+Chẳng ai có thể nhìn thấu được những gợn sóng sâu kín trong lòng Từ Mạn Mạn. Cô vẫn ngồi đoan trang, tĩnh lặng ở đó.
 
-Đoan trang lại hào phóng, văn tĩnh lại ưu nhã.
+Đoan trang, hào phóng, lại dịu dàng, tao nhã.
 
-Chẳng trách sau vài lần tiếp xúc, Cốc Siêu Thừa lại cảm thấy Từ Mạn Mạn quá thích hợp để làm vợ.
+Chẳng trách sau vài lần tiếp xúc, Cốc Siêu Thừa lại luôn tấm tắc cảm thán rằng Từ Mạn Mạn chính là hình mẫu phụ nữ hoàn hảo nhất để cưới làm vợ.
 
-"Kim An, vậy tôi muốn gọi hàu."
+"Kim An, thế tớ gọi hàu nướng nhé."
 
-Lưu Sấm Phong nhìn quanh một vòng không thấy hàu, hàu bán ở Quận Sa hơi đắt, Triệu Kim An nói được chứ, hắn chủ động gọi ông chủ đến bảo lấy hai mươi con.
+Lưu Sấm Phong ngó quanh bàn không thấy món hàu đâu. Hàu nướng ở đất Quận Sa này bán khá đắt. Triệu Kim An cười bảo được chứ, liền chủ động gọi với chủ quán đem lên hai mươi con.
 
-Vừa ăn, Trần Trạch lại nhắc đến thị trường chứng khoán mấy ngày nay.
+Càng ăn, câu chuyện của Trần Trạch lại xoay quanh diễn biến thị trường chứng khoán mấy ngày gần đây.
 
-Những người khác đều không hiểu lắm.
+Những người khác trên bàn đều mù tịt về mảng này.
 
-Từ Mạn Mạn nhìn Trần Trạch mà không nói gì, nàng không biết Triệu Kim An cũng quan tâm đến chuyện này.
+Từ Mạn Mạn nhìn Trần Trạch, im lặng không nói một lời. Cô hoàn toàn không biết Triệu Kim An cũng đang âm thầm quan sát cục diện.
 
-Nghe thấy kiếm được tiền, Lưu Sấm Phong và Cốc Siêu Thừa có chút ngưỡng mộ, đáng tiếc là bọn họ không có vốn.
+Nghe đến chuyện kiếm tiền nhanh, Lưu Sấm Phong và Cốc Siêu Thừa không khỏi lộ vẻ thèm thuồng ngưỡng mộ, hiềm nỗi hai người đào đâu ra vốn liếng.
 
-Diêu Tân nói Thẩm Tử Ngôn và Từ Mạn Mạn cũng ngày nào cũng nghiên cứu trong ký túc xá, còn nói hai người có phải bị tẩu hỏa nhập ma rồi không.
+Diêu Sân bĩu môi kể rằng Thẩm Tử Ngôn và Từ Mạn Mạn ngày nào cũng cắm mặt vào máy tính nghiên cứu ở phòng ký túc xá, còn trêu hai cô nàng có phải bị ma nhập rồi không.
 
-"Ừ, tối nào cũng nghiên cứu."
+"Ừm, tối nào cũng thức mò mẫm."
 
-Mộc Dao gật đầu, đôi tay nhỏ bé không ngừng vươn về phía chậu tôm hùm đất.
+Mộc Dao gật đầu xác nhận, bàn tay nhỏ nhắn thoăn thoắt thò ra bốc tôm hùm đất trong chiếc âu lớn.
 
-Triệu Kim An biết Mộc Dao rất thích ăn tôm hùm đất, nhớ lại kiếp trước khi yêu Mộc Dao, bản thân không có tiền... Hắn bất động thanh sắc gọi ông chủ mang thêm ba cân nữa.
+Triệu Kim An vốn biết Mộc Dao mê tôm hùm đất như điếu đổ. Bất giác nhớ lại kiếp trước những ngày tháng yêu nhau, lúc ấy anh nghèo xơ xác chẳng có tiền... Anh bèn không để lộ biểu cảm gì, gọi với chủ quán bảo làm thêm ba cân tôm nữa.
 
-Quán vỉa hè đang có chương trình khuyến mãi mua ba cân tặng một cân.
+Quán nhậu vỉa hè đang có chương trình khuyến mãi mua ba cân tặng một cân.
 
-Nhiều người như vậy, ba cân là không đủ, những người khác không nhận ra chi tiết này.
+Bàn đông người thế này, ba cân tôm lúc đầu chẳng bõ dính răng, những người khác cũng không để ý thấy chi tiết nhỏ ấy.
 
-Cái miệng nhỏ nhắn của Mộc Dao đang nhét đầy đồ ăn bỗng khựng lại một chút, sau đó lại tiếp tục vươn tay về phía chậu tôm hùm đất.
+Hai má Mộc Dao phúng phính nhét đầy thịt tôm, động tác khẽ khựng lại một nhịp, rồi bàn tay nhỏ bé lại tiếp tục vươn về phía âu tôm hùm đất.
 
-Nàng không biết rằng kiếp trước mình có Triệu Kim An, có thể bớt phải bóc rất nhiều vỏ tôm.
+Cô đâu hề biết rằng ở kiếp trước, khi có Triệu Kim An bên cạnh, cô chưa từng phải tự tay bóc một con tôm nào.
 
-Không khí buổi tụ tập này khá ổn.
+Không khí bữa ăn đêm lần này nhìn chung khá thoải mái, dễ chịu.
 
 "Reng reng reng."
 
-Thấy Triệu Kim An cầm điện thoại, Lưu Sấm Phong giật nảy mình: "Kim An, lần này không phải bà nội lại bán lợn đấy chứ?"
+Thấy Triệu Kim An rút điện thoại ra, Lưu Sấm Phong giật bắn cả người, hoảng hốt: "Kim An, lần này không phải là bà nội cậu ở quê lại bán thêm đàn lợn nữa đấy chứ?"
 
-Triệu Kim An cười nói: "Không đâu, lần trước là do các ông cứ hỏi tôi có phải phú nhị đại không mà thôi..."
+Triệu Kim An bật cười: "Làm gì có chuyện đó, lần trước là do các cậu cứ gặng hỏi tớ có phải cậu ấm con nhà giàu không thôi mà..."
 
-Ngoại trừ Mộc Dao đang cúi đầu.
+Ngoại trừ Mộc Dao vẫn đang cúi gằm mặt bóc tôm.
 
-Tất cả mọi người đều cười ồ lên.
+Tất cả mọi người trên bàn đều phá lên cười sảng khoái.
 
-Ngay cả Từ Mạn Mạn cũng nhìn Triệu Kim An rồi mỉm cười đầy ý tứ.
+Ngay cả Từ Mạn Mạn cũng ngước nhìn Triệu Kim An, nở một nụ cười thấu hiểu.
 
-Chỉ có nàng và Triệu Kim An là trước giờ ít nói chuyện với nhau nhất.
+Chỉ có điều giữa cô và Triệu Kim An xưa nay vốn rất ít khi trò chuyện trực tiếp.
 
-Mọi người cũng đã quen với điều đó rồi.
+Mọi người cũng đã quá quen với điều đó rồi.
 
-Thẩm Tử Ngôn vẫn là người kiểm soát cục diện, Trần Trạch đột nhiên nói với Thẩm Tử Ngôn rằng có thể bắt đáy vào thị trường được rồi, hắn đưa ra đủ loại phân tích mà mình đọc được trên mạng.
+Thẩm Tử Ngôn vẫn là người nắm giữ vai trò cầm trịch cả bàn. Bỗng nhiên, Trần Trạch quay sang hăng hái bảo Thẩm Tử Ngôn rằng bây giờ chính là thời cơ vàng để bắt đáy nhảy vào thị trường, rồi tuôn ra một tràng phân tích kỹ thuật mà anh ta cóp nhặt được trên mạng.
 
-Thẩm Tử Ngôn chỉ mỉm cười với Trần Trạch.
+Thẩm Tử Ngôn chỉ khẽ cười nhạt với Trần Trạch.
 
-Điểm quan tâm của nàng và Trần Trạch không giống nhau, một người là nghĩ đến việc thị trường hồi phục để thoát hàng, một người là vấn đề điều chỉnh chiến lược của công ty.
+Mối bận tâm của cô và Trần Trạch hoàn toàn khác nhau. Một người chỉ nôn nóng mong giá hồi phục để cắt lỗ về bờ, còn một người đang đứng trước bài toán sinh tử về việc điều chỉnh chiến lược sống còn của cả một tập đoàn.
 
-Từ Mạn Mạn lắc đầu nhìn Trần Trạch, thực sự có chút mệt mỏi.
+Từ Mạn Mạn khẽ lắc đầu nhìn Trần Trạch, trong lòng trào dâng một cảm giác mệt mỏi rã rời.
 
-Nàng có cùng suy nghĩ với Thẩm Tử Ngôn, vạn nhất thị trường chứng khoán giảm điểm, ông có chịu trách nhiệm được không?
+Suy nghĩ của cô cũng giống hệt Thẩm Tử Ngôn: ngộ nhỡ thị trường chứng khoán tiếp tục cắm đầu lao dốc, anh gánh nổi trách nhiệm này không?
 
-Ông nghĩ đây là số tiền nhỏ như một bữa ăn chắc?
+Anh tưởng đây là chuyện cỏn con như mời bữa cơm vài đồng bạc lẻ chắc?
 
-Người ta như Thẩm Tử Ngôn mua xe một cái là Mercedes E230, mà ông lại dám đưa ra lời khuyên bừa bãi sao?
+Người ta như Thẩm Tử Ngôn mua xe là xuống tiền quất ngay con Mercedes E230 cáu cạnh, anh lấy tư cách gì mà đưa ra mấy lời khuyên bừa bãi thiếu suy nghĩ như thế?
 
-Sau khi Triệu Kim An quay lại, Thẩm Tử Ngôn cười nói: "Thực ra Triệu Kim An cũng theo dõi..."
+Lúc Triệu Kim An nghe điện thoại xong trở lại bàn, Thẩm Tử Ngôn cười bảo: "Thực ra Triệu Kim An cũng theo dõi thị trường đấy..."
 
-"Kim An, ông cũng chơi cổ phiếu à!?"
+"Kim An, cậu cũng chơi cổ phiếu á!?"
 
-Lưu Sấm Phong vẻ mặt kinh ngạc, tất cả mọi người đều nhìn chừng chừng vào Triệu Kim An.
+Lưu Sấm Phong há hốc mồm kinh ngạc. Ánh mắt của cả bàn dồn hết về phía Triệu Kim An.
 
-Từ Mạn Mạn có chút ngẩn ngơ, người này từ đầu đến cuối không hề tham gia vào chủ đề này.
+Từ Mạn Mạn hơi ngẩn người, suốt từ đầu buổi đến giờ, người đàn ông này tuyệt nhiên không hề hé răng tham gia vào chủ đề đó.
 
-"Kim An, ông nói thử xem." Trần Trạch nhất thời hứng thú.
+"Kim An, chú em thử phân tích xem nào." Trần Trạch hào hứng hẳn lên.
 
-Thấy mọi người đều nhìn mình, Triệu Kim An suy nghĩ một chút: "Con người không nên quá tham lam."
+Thấy mọi ánh mắt đều đổ dồn về mình, Triệu Kim An trầm ngâm một lát rồi từ tốn nói: "Con người ta, tốt nhất đừng quá tham lam."
 
-Đây cũng coi như là một cách bày tỏ thái độ, thấy tốt thì nên thu tay.
+Đây cũng coi như một lời bày tỏ quan điểm rõ ràng: thấy đủ thì dừng, được giá thì rút lui.
 
-Cảnh đẹp chẳng kéo dài, sau khi trải qua đợt sụt giảm nhanh chóng vào cuối tháng Mười, thị trường chứng khoán vào tháng Mười một cuối cùng cũng ổn định và tiếp tục trạng thái dao động, mức giảm không lớn và thậm chí còn có vài ngày xanh sàn.
+Ngày vui ngắn chẳng tày gang. Trải qua đợt sụt giảm chóng mặt hồi cuối tháng Mười, bước sang tháng Mười Một, thị trường chứng khoán có vẻ tạm chững lại đà rơi, bước vào những phiên giằng co rung lắc, biên độ giảm không quá lớn và thi thoảng vẫn le lói vài sắc xanh hồi phục.
 
-Đột nhiên vào ngày 22 tháng Mười một này, chỉ số chung sụt giảm sâu, mức giảm trong phiên có lúc vượt quá 5.5%.
+Thế nhưng đùng một cái, vào đúng ngày 22 tháng 11, toàn bộ thị trường lao dốc không phanh, có thời điểm trong phiên chỉ số sụt giảm kinh hoàng hơn 5,5%.
 
-Rơi xuống dưới mốc 5.000 điểm quan trọng.
+Chính thức đâm thủng ngưỡng tâm lý 5.000 điểm.
 
-Nhớ lại cuối tháng Mười, ngày có mức giảm lớn nhất cũng rơi vào thứ Năm.
+Nhớ lại hồi cuối tháng Mười, ngày thị trường rơi thảm khốc nhất cũng rơi đúng vào ngày thứ Năm.
 
-Có lẽ cái tên "Thứ Năm đen tối" của thị trường chứng khoán A bắt đầu từ đó.
+Có lẽ thuật ngữ "Thứ Năm đen tối" của thị trường chứng khoán A-share bắt nguồn từ chính những ngày tháng nghiệt ngã này.
 
-Mốc 5.000 điểm vốn là ngưỡng tâm lý và kỹ thuật quan trọng, việc thất thủ đồng nghĩa với xu hướng giảm điểm càng được xác nhận và gia tốc.
+Mốc 5.000 điểm vốn là ngưỡng hỗ trợ kỹ thuật và tâm lý sống còn, việc để mất mốc này đồng nghĩa với việc xu hướng giảm giá dài hạn đã chính thức được xác lập và đang trên đà gia tốc lao dốc.
 
-Sự sụt giảm mạnh đi kèm với khối lượng giao dịch tăng rõ rệt, tâm lý hoảng loạn lan rộng.
+Cú sụp đổ đi kèm với thanh khoản tăng vọt bất thường, tâm lý hoảng loạn tột độ bao trùm khắp ngõ ngách thị trường.
 
-Trung Nam, phòng 406.
+Đại học Trung Nam, phòng ký túc xá 406.
 
-Thẩm Tử Ngôn đang đợi, nàng ngồi tựa vào giường ôm laptop đợi thị trường chứng khoán Mỹ mở cửa.
+Thẩm Tử Ngôn ngồi dựa lưng vào thành giường, ôm chặt chiếc laptop đợi giờ mở cửa của sàn chứng khoán Mỹ.
 
-Tim đập "thình thịch, thình thịch" liên hồi!
+Tim cô đập thình thịch từng hồi liên hồi!
 
-Nàng cầu nguyện đừng xảy ra chuyện đó, nhưng lại gần như chắc chắn rằng Triệu Kim An đã đúng.
+Cô vừa thầm cầu nguyện bi kịch đừng xảy ra, nhưng sâu thẳm trong lòng, cô gần như đã chắc chắn một trăm phần trăm rằng dự đoán của Triệu Kim An là hoàn toàn chuẩn xác.
 
-Thời gian trôi qua, 21:30 mở cửa, Thẩm Tử Ngôn vẫn đang theo dõi.
+Thời gian nhích dần, đúng 21 giờ 30 phút giờ mở cửa, Thẩm Tử Ngôn vẫn căng mắt dán chặt vào màn hình.
 
-Đợi đến 22:20.
+Đến 22 giờ 20 phút.
 
-Thẩm Tử Ngôn đột nhiên xoay người xuống giường.
+Thẩm Tử Ngôn bỗng bật dậy, trèo phắt xuống giường.
 
-Mộc Dao và Diêu Tân giật bắn mình: "Tử Ngôn, cậu sao vậy!?"
+Mộc Dao và Diêu Sân giật nảy mình: "Tử Ngôn, cậu làm sao thế!?"
 
-Thẩm Tử Ngôn đi đến cạnh giường của Từ Mạn Mạn, vỗ vỗ vào thành giường, vẻ mặt nghiêm nghị: "Chứng khoán Mỹ tiếp sau ngày hôm qua lại sụt giảm mạnh rồi!"
+Thẩm Tử Ngôn sải bước tới cạnh giường Từ Mạn Mạn, vỗ mạnh vào mép giường, nét mặt nghiêm nghị tột độ: "Chứng khoán Mỹ nối tiếp đà hôm qua, lại sụp đổ thảm hại rồi!"
 
-Câu nói này đã quá rõ ràng.
+Ý tứ trong câu nói này đã quá rõ ràng.
 
-Thẩm Tử Ngôn biết Từ Mạn Mạn cũng đang đợi, đợi thị trường Mỹ mở cửa.
+Thẩm Tử Ngôn biết Từ Mạn Mạn cũng đang thức trắng đêm để chờ đợi giờ mở cửa sàn chứng khoán Mỹ.
 
-Mộc Dao và Diêu Tân nghe không hiểu lắm, nhưng Từ Mạn Mạn thời gian qua đã bổ sung rất nhiều kiến thức liên quan, thị trường cổ phiếu A (giảm) là đi theo chứng khoán Mỹ.
+Mộc Dao và Diêu Sân nghe mà chẳng hiểu đầu đuôi ra sao, nhưng Từ Mạn Mạn suốt thời gian qua đã tự nhồi nhét cả đống kiến thức tài chính vào đầu, cô hiểu rất rõ: chứng khoán Trung Quốc lao dốc là biến động cùng nhịp với chứng khoán Mỹ.
 
-QQ của Từ Mạn Mạn nhảy thông báo liên tục, tất cả đều là tin nhắn từ Thiếu gia Trạch.
+Khung chat QQ của Từ Mạn Mạn nhấp nháy liên hồi, toàn bộ đều là tin nhắn gửi đến từ "Trạch Thiếu".
 
-Nhìn tin nhắn của Trần Trạch, Từ Mạn Mạn dường như mất sạch tinh thần, nàng đã khuyên không biết bao nhiêu lần rồi.
+Nhìn những dòng tin nhắn dồn dập của Trần Trạch, Từ Mạn Mạn dường như bị rút cạn toàn bộ sinh lực. Cô đã khuyên can anh ta không biết bao nhiêu lần rồi.
 
-Chẳng ai nghe cả.
+Nhưng chẳng một ai chịu lắng nghe.
 
-Đặt máy tính xuống, Từ Mạn Mạn từ từ nằm ngửa ra, nhìn chằm chằm lên trần nhà.
+Gập máy tính lại, Từ Mạn Mạn từ từ nằm thẳng lưng xuống giường, thẫn thờ nhìn chăm chú lên trần nhà.
 
-Mặc kệ chiếc máy tính bên cạnh vẫn phát ra những tiếng "tít tít tít".
+Mặc kệ chiếc máy tính bên cạnh vẫn phát ra những tiếng "bíp bíp bíp" dồn dập không ngớt.
 
 "Reng reng reng."
 
-Thẩm Tử Ngôn liếc nhìn điện thoại, bắt máy rồi đi ra ngoài ban công, đóng cửa lại.
+Thẩm Tử Ngôn liếc nhìn màn hình điện thoại, bấm nút nhận cuộc gọi rồi bước vội ra ban công, khép chặt cánh cửa lại.
 
-"Ba, giờ đã có thể xác nhận được chưa?"
+"Ba, giờ thì ba đã xác nhận được rồi chứ?"
 
 "Ba nghe rồi."
 
-Đầu dây bên kia, Thẩm Vĩnh Đàm có chút bùi ngùi: "Thay ba cảm ơn Triệu Kim An một tiếng, đúng rồi, còn cả mẹ con nữa."
+Đầu dây bên kia, giọng nói của Thẩm Vĩnh Đàm mang theo sự bùi ngùi, thảng thốt khôn nguôi: "Thay ba gửi lời cảm ơn sâu sắc đến cậu Triệu Kim An... À phải rồi, cả mẹ con nữa..."

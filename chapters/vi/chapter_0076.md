@@ -1,205 +1,211 @@
-# Chương 76: Không Là Ai Cả
+# Chương 76: Chẳng là ai cả
 
-Lịch học của năm nhất khá dày, buổi sáng thường bắt đầu từ 8 giờ, có thể sắp xếp từ 2 đến 4 tiết, cũng chính là "tiết tám giờ sáng" mà sinh viên thường trêu chọc nhau, phải dậy sớm để tranh chỗ ngồi.
+> **Tiêu đề gốc**: 第76章 没谁。
 
-Nhiều trường đại học chia một buổi học thành hai tiết nhỏ, mỗi tiết 45-50 phút, nghỉ giữa giờ 5-10 phút, chính là kiểu "hai tiết liền nhau" trong miệng các bạn sinh viên.
+Chương trình học của sinh viên năm nhất khá dày đặc, buổi sáng thường bắt đầu từ tám giờ, kéo dài từ hai đến bốn tiết. Đây cũng là khung giờ mà sinh viên hay bông đùa gọi là “tiết tám giờ sáng”, phải lục đục dậy từ tờ mờ sớm để đến giảng đường chiếm chỗ ngồi đẹp.
 
-"Triệu Kim An đâu rồi?"
+Nhiều trường đại học chia một buổi học thành hai tiết lớn, mỗi tiết lớn lại gồm hai tiết nhỏ kéo dài bốn mươi lăm đến năm mươi phút, nghỉ giữa giờ năm mười phút, tức là hình thức “học liền hai ca” quen thuộc trong miệng các cô cậu sinh viên.
 
-Từ chiều hôm qua đã không thấy bóng dáng Triệu Kim An đâu, buổi tối cũng không về ký túc xá, đây đã là lần thứ hai liên tiếp hắn bỏ tiết.
+"Kim An đâu rồi?"
 
-"Vương Duy Đào, ông có biết Kim An đi đâu không?"
+Từ chiều hôm qua đã không thấy bóng dáng Triệu Kim An đâu, tối cũng không về ký túc xá, đây đã là lần thứ hai cậu ta liên tục trốn học nhiều ngày liền.
 
-Vương Duy Đào và Triệu Kim An chơi khá thân, nên Lưu Sấm Phong mới hỏi hắn.
+"Vương Duy Đào, cậu có biết Kim An đi đâu không?"
 
-"Không biết."
+Thấy Vương Duy Đào thân thiết với Triệu Kim An nhất, Lưu Sấm Phong liền quay sang hỏi.
 
-Vương Duy Đào cũng lắc đầu: "Nó chỉ bảo tôi nếu thầy cô điểm danh thì thưa giúp nó một tiếng thôi."
+"Chịu thôi."
 
-Lưu Sấm Phong gãi đầu: "Thằng Kim An này thần thần bí bí thật, ngày nào cũng về ký túc xá rất muộn. Trạch ca, Kim An trốn học còn nhiều hơn cả ông đấy."
+Vương Duy Đào cũng lắc đầu bất lực: "Nó chỉ dặn tao hễ thấy thầy cô điểm danh thì nhớ hô 'có' giúp một tiếng."
 
-Trần Trạch cũng thấy lạ, gã trốn học là vì buổi sáng ngủ không dậy nổi, còn Triệu Kim An vốn là kiểu sinh viên trông rất ngoan ngoãn, không ngờ một khi đã trốn là mất tích mấy ngày liền.
+Lưu Sấm Phong gãi gãi đầu: "Thằng Kim An dạo này cứ thần thần bí bí, tối nào cũng về ký túc xá muộn hoắc. Trạch ca, em thấy nó trốn học còn ác liệt hơn cả anh đấy."
 
-Cốc Siêu Thừa lên tiếng: "Không phải Từ Mạn Mạn sắp tổ chức sinh nhật sao? Kim An có đến không nhỉ?"
+Trần Trạch cũng lấy làm lạ. Cậu ta cúp tiết chẳng qua là vì buổi sáng lười không dậy nổi, còn Triệu Kim An xưa nay trông rõ là một sinh viên mẫu mực, ngoan ngoãn, ai ngờ một khi đã trốn học là bốc hơi hẳn mấy ngày trời.
 
-Lần này không phải là chia tiền kiểu AA.
+Cốc Siêu Thừa chợt nhớ ra: "Hôm nay không phải sinh nhật Từ Mạn Mạn sao? Liệu Kim An có đến không nhỉ?"
 
-Trần Trạch đã đánh tiếng trước, phòng 406 và 303 là hai phòng kết nghĩa, Từ Mạn Mạn đề nghị tổ chức chung, nhưng cũng không tìm nhà hàng nào quá cao cấp.
+Bữa tiệc tối nay không phải kiểu góp tiền chia đều.
 
-Cuối tháng mười hai, Quận Sa rất lạnh, cái lạnh kiểu buốt giá ẩm ướt.
+Trần Trạch đã đánh tiếng từ trước, phòng 406 và phòng 303 vốn là hai ký túc xá kết nghĩa, Từ Mạn Mạn ngỏ ý rủ mọi người cùng tụ tập chung cho vui, nhưng cũng không chọn nhà hàng quá sang trọng, đắt đỏ.
 
-Trên đường cao tốc từ Quận Sa đi Phật Sơn, Lạc Cẩn Chi ngồi ở hàng ghế sau liếc nhìn Triệu Bác Lan ở ghế phụ, rồi nhích lại gần nói: "Kim An, cậu không định động đến Hồ Thần đấy chứ?"
+Cuối tháng mười hai, thời tiết Quận Sa lạnh căm căm, cái lạnh ẩm ướt buốt thấu tận xương tủy đặc trưng của miền Nam.
 
-Triệu Kim An đáp: "Năng lực của Hồ Thần cũng bình thường thôi."
+Trên tuyến đường cao tốc từ Quận Sa xuôi về Phật Sơn, ở hàng ghế sau, Lạc Cẩn Chi liếc nhìn Triệu Bác Lan đang ngồi ở ghế phụ lái phía trước, rồi nhích người lại gần Triệu Kim An, khẽ hỏi: "Kim An, em thực sự không định đụng tới Hồ Thần đấy chứ?"
 
-Lạc Cẩn Chi: "..."
+Triệu Kim An thản nhiên đáp: "Năng lực của Hồ Thần rất bình thường."
 
-Nàng không ngờ Triệu Kim An trông thư sinh nho nhã, mà vừa vào công ty đã cải tổ toàn bộ sản phẩm, lại bắt đầu điều chỉnh nhân sự, nắm gọn quyền kiểm soát tài chính vào tay trước tiên.
+Lạc Cẩn Chi nghẹn lời: "..."
 
-Triệu Kim An liếc nhìn Lạc Cẩn Chi bên cạnh: "Có năng lực thì đã không đến mức không mở rộng được thị trường ở Quận Sa, thương hiệu Đông Giang Ấn Tượng của chị mấy năm nay còn chẳng phủ sóng nổi ở Sâm Thành."
+Chị không thể ngờ một chàng trai trông vẻ ngoài nho nhã, thư sinh như Triệu Kim An, hễ bước chân vào công ty là lập tức cải tổ toàn bộ dòng sản phẩm, sau đó nhanh chóng bắt tay vào tái cơ cấu nhân sự, việc đầu tiên làm là nắm chặt quyền hành tài chính trong tay.
 
-Lạc Cẩn Chi: "..."
+Triệu Kim An đưa mắt nhìn Lạc Cẩn Chi bên cạnh: "Nếu ông ta thực sự có tài thì đã không để mất trắng thị trường Quận Sa, nhãn hiệu Đông Giang Ấn Tượng của chị suốt mấy năm trời cũng chẳng thể mở rộng nổi ở đất Sâm Châu."
 
-"Cậu đang mỉa mai tôi đấy à?"
+Lạc Cẩn Chi lại cạn lời: "..."
 
-Quả thực, Hồ Thần chỉ là người thực thi, quyết sách của công ty là do Lạc Cẩn Chi đưa ra.
+"Em đang nói bóng nói gió mắng chị bất tài đấy à?"
 
-Lạc Cẩn Chi mặc một chiếc áo khoác dạ, khẽ chạm vào người Triệu Kim An: "Hồ Thần làm việc cũng được, lại là người cũ của công ty nữa."
+Quả thực, Hồ Thần chỉ là người thực thi công việc, còn các quyết định mang tính chiến lược của công ty đều do Lạc Cẩn Chi định đoạt.
 
-Đơn Vĩ phản ứng hơi chậm, liếc nhìn qua gương chiếu hậu.
+Lạc Cẩn Chi mặc một chiếc áo khoác dạ dáng dài sang trọng, khẽ huých nhẹ tay Triệu Kim An: "Hồ Thần làm việc cũng được việc mà, dẫu sao cũng là công thần kỳ cựu của công ty."
 
-Ông chủ muốn sa thải quản lý Hồ, còn Lạc tổng đang cầu tình giúp sao?
+Tài xế Đan Vĩ phản xạ hơi chậm nửa nhịp, liếc mắt nhìn vào gương chiếu hậu bên trong xe.
 
-Đơn Vĩ và Hồ Thần cũng coi như quen biết, ông biết Hồ Thần nguyên bản là nhân vật số hai của công ty, tệ lắm cũng là số ba, dưới còn có quản lý nhà máy nước, không ngờ giờ lại phải nhờ Lạc tổng xin giúp.
+Chẳng lẽ ông chủ muốn sa thải Giám đốc Hồ, còn Lạc tổng thì đang ra mặt cầu xin giúp?
 
-Ở ghế phụ, Triệu Bác Lan không nói lời nào, im lặng lắng nghe cuộc trò chuyện phía sau.
+Đan Vĩ cũng chẳng lạ gì Hồ Thần, biết ông ta vốn là nhân vật quyền lực số hai của công ty, nếu tính cả xưởng trưởng nhà máy nước thì tệ nhất cũng là nhân vật số ba, vậy mà giờ đây lại cần Lạc tổng phải mở lời xin tha.
 
-Triệu Kim An nói: "Chị muốn nói chuyện tình cảm hay muốn làm công ty lớn mạnh?"
+Ngồi ở ghế phụ lái, Triệu Bác Lan im lặng không hé răng nửa lời, chỉ dỏng tai lắng nghe cuộc trò chuyện ở hàng ghế sau.
 
-Lạc Cẩn Chi rướn người lên, nói nhỏ bên tai Triệu Kim An: "Công ty hiện giờ đang thiếu người, cho tôi chút thể diện, đừng động đến anh ta vội, chuyện đó để sau hãy nói."
+Triệu Kim An hỏi ngược lại: "Chị muốn làm kinh doanh theo kiểu tình cảm hay muốn phát triển công ty lớn mạnh?"
 
-Đơn Vĩ: "..."
+Lạc Cẩn Chi hơi rướn người tới, ghé sát vào tai Triệu Kim An thì thầm: "Hiện giờ công ty đang thiếu nhân lực, em nể mặt chị một chút, tạm thời đừng động vào ông ấy vội, để sau này hẵng tính."
+
+Đan Vĩ: "..."
 
 Triệu Bác Lan: "..."
 
-Quả nhiên, chẳng có ông chủ nào nói chuyện tình cảm, họ chỉ nói chuyện giá trị.
+Quả nhiên trên đời làm gì có ông chủ nào làm ăn dựa vào tình cảm, trong mắt họ chỉ có giá trị lợi ích mà thôi.
 
-Triệu Kim An dụi dụi tai, người phụ nữ này không biết làm thế sẽ ngứa sao?
+Triệu Kim An đưa tay xoa xoa vành tai. Người phụ nữ này chẳng lẽ không biết ghé sát vào tai người khác nói chuyện như thế sẽ khiến người ta ngứa ngáy, rạo rực hay sao?
 
-Môi Lạc Cẩn Chi gần như đã chạm vào tai Triệu Kim An, sau khi ngồi xuống cũng không nhích ra xa mà cứ nép sát vào hắn.
+Đôi môi mềm mại của Lạc Cẩn Chi lúc nãy gần như đã chạm hẳn vào vành tai Triệu Kim An. Nói xong, chị ngồi xuống nhưng cũng chẳng buồn nhích ra xa, cứ thế dán sát vào người cậu.
 
-Triệu Bác Lan liếc nhìn gương chiếu hậu trái phải, thầm nghĩ sau này mình và Triệu Chí Dũng có khi nào không gọi Lạc tổng nữa mà phải gọi là thím không nhỉ?
+Triệu Bác Lan hết liếc gương chiếu hậu bên trái lại nhìn sang bên phải, trong lòng thầm nghĩ: Không biết sau này mình với thằng Triệu Trí Dũng có phải đổi cách xưng hô, gọi Lạc tổng một tiếng "thím" hay không nữa?
 
-"Kim An, cậu đang viết gì thế? Là cậu, người yêu nhiệt độ 105°C?"
+"Kim An, em đang viết cái gì đấy? 'Cô gái mang nhiệt huyết 105°C'?"
 
-"Nhạc đấy."
+"Một bài hát."
 
-Triệu Kim An ôm laptop, chợt nhớ đến một bài hát quảng cáo của Watson: "Nhạc quảng cáo cho Trăn Nhiên vào mùa xuân tới."
+Triệu Kim An ôm chiếc máy tính xách tay trong lòng, chợt nhớ đến một ca khúc quảng cáo đình đám của Watsons ở kiếp trước: "Đây là ca khúc quảng cáo cho nhãn hàng Trăn Nhiên vào dịp đầu xuân năm sau."
 
-"Cậu còn biết viết nhạc nữa cơ à!?"
+"Em còn biết cả sáng tác nhạc nữa cơ á!?"
 
-Lạc Cẩn Chi càng lúc càng nép sát, khiến Triệu Kim An có chút rạo rực. Trở về nửa năm nay hắn vẫn chưa gần gũi nữ sắc, mà chuyện này một khi đã nếm trải thì rất khó quên.
+Lạc Cẩn Chi càng lúc càng nép sát lại gần. Triệu Kim An bị hương thơm và hơi ấm cơ thể của chị làm cho tâm can có chút xao động. Trọng sinh trở về suốt nửa năm nay cậu chưa từng chạm vào phụ nữ, mà đàn ông một khi đã nếm trải mùi vị xác thịt thì rất dễ sinh lòng nhớ nhung.
 
-Những người chưa từng làm bao giờ có lẽ sẽ không nghĩ tới.
+Người chưa từng trải qua có lẽ còn chưa nảy sinh ham muốn mãnh liệt.
 
-Nhưng sau khi xem ảnh quyến rũ của Lâm Thanh Tuyết, lại ôm cả Tô Miền, Triệu Kim An tuy không muốn yêu đương nhưng bắt đầu thấy nhớ hơi đàn bà rồi.
+Nhưng vừa nhìn thấy những tấm hình quyến rũ chết người của Lâm Thanh Tuyết, lại vừa ôm Tô Miến trong lòng cách đây không lâu, Triệu Kim An tuy chẳng có ý định yêu đương nhăng nhít, nhưng cơ thể của một chàng trai trẻ mười tám tuổi thì thực sự đang nhớ hơi đàn bà.
 
-Đến Phật Sơn, Lạc Cẩn Chi đã liên hệ trước với vài công xưởng để tham khảo giá cả, Triệu Kim An cũng bảo Triệu Bác Lan đi hỏi trước mấy nơi, kết quả đều không mấy khả quan.
+Đến Phật Sơn, Lạc Cẩn Chi đã liên hệ trước với vài nhà xưởng để dò hỏi giá cả, Triệu Kim An cũng bảo Triệu Bác Lan chủ động liên hệ thêm mấy nơi, nhưng kết quả thu về đều không mấy khả quan.
 
-Nghe đến việc chỉ thanh toán 30% tiền đặt cọc, các chủ xưởng tủ đông lạnh không ai chịu nhận đơn.
+Vừa nghe đến điều khoản chỉ thanh toán trước ba mươi phần trăm tiền đặt cọc, các ông chủ xưởng sản xuất tủ đông mát đều đồng loạt lắc đầu từ chối nhận đơn.
 
-Người bạo gan nhất cũng nói ít nhất phải trả trước 60% tiền hàng.
+Người bạo gan nhất trong số đó cũng khăng khăng yêu cầu phải thanh toán tối thiểu sáu mươi phần trăm tiền hàng.
 
-Điều này cũng chứng tỏ cái giá mà Triệu Bác Lan đàm phán có mức lợi nhuận ít nhất là trên 40%.
+Thực tế điều này cũng chứng minh rằng mức giá mà Triệu Bác Lan đàm phán vẫn mang lại biên lợi nhuận trên bốn mươi phần trăm cho các xưởng.
 
-Lại đàm phán hỏng một chỗ nữa, từ trong công xưởng đi ra, Đơn Vĩ mở cửa xe, Lạc Cẩn Chi cười nói: "Kim An, 30% đúng là ít quá, họ sợ không thu được số tiền còn lại."
+Lại thêm một cuộc đàm phán đổ bể. Bước ra khỏi xưởng sản xuất, Đan Vĩ nhanh nhẹn kéo mở cửa xe, Lạc Cẩn Chi mỉm cười nói: "Kim An à, ba mươi phần trăm quả thực là quá ít, người ta sợ sau này không thu hồi được số tiền còn lại."
 
-"Tôi cũng muốn trả nhiều hơn, nhưng tiền của công ty có đủ không?"
+"Em cũng muốn thanh toán nhiều hơn cho họ chứ, nhưng tiền của công ty hiện giờ có đủ không?"
 
-Triệu Kim An châm một điếu thuốc: "Còn phải nghiên cứu, quảng bá, sang năm còn phải lên tivi chạy quảng cáo nữa."
+Triệu Kim An châm một điếu thuốc: "Nghiên cứu phát triển sản phẩm, quảng bá thị trường, sang năm lại còn phải lên sóng truyền hình chạy quảng cáo nữa."
 
-Lạc Cẩn Chi tính toán thời gian, sang năm cũng chỉ còn vài ngày nữa thôi, nàng nói: "Hôm nay là Giáng sinh, đêm Bình an của giới trẻ các cậu đúng không?"
+Lạc Cẩn Chi nhẩm tính thời gian, sang năm mới thực ra cũng chỉ còn cách vài ngày ngắn ngủi nữa thôi. Chị bỗng chuyển chủ đề: "Hôm nay là đêm Giáng sinh của giới trẻ các em nhỉ?"
 
-Quận Sa.
+***
 
-Trần Trạch đặt một nhà hàng rất đặc sắc, đặt bánh kem, còn mua thêm một bó hoa hồng, sau đó lái xe đến Trung Nam đón bốn cô gái phòng 406.
+Tại Quận Sa.
 
-Nhìn chung, người bạn trai như Trần Trạch rất đạt tiêu chuẩn.
+Trần Trạch đã đặt sẵn bàn tại một nhà hàng mang phong cách rất độc đáo, đặt bánh sinh nhật tươm tất, lại mua thêm một bó hoa hồng rực rỡ, sau đó tự mình lái xe sang trường Trung Nam đón bốn cô gái phòng 406.
 
-Đến phòng bao trong nhà hàng, Diêu Tân trêu chọc: "Trần Trạch, không phải 99 đóa hồng nhé."
+Nhìn chung, Trần Trạch là một người bạn trai cực kỳ chu đáo và đạt chuẩn.
 
-Trần Trạch cười cười: "Hì hì, 12 đóa."
+Vừa bước vào phòng bao của nhà hàng, Diêu Sân đã lên tiếng trêu chọc: "Trần Trạch, không phải chín mươi chín đóa hồng cơ à?"
 
-"12 đóa? Không phải là 9 đóa hay 11 đóa sao? Đại diện cho thiên trường địa cửu và nhất tâm nhất ý."
+Trần Trạch cười xòa: "Haha, mười hai đóa thôi."
 
-Trần Trạch nói: "Bài 'Đẹp nhất' của Vũ Tuyền ấy, lời bài hát là 12 đóa hồng."
+"Mười hai đóa ư? Bình thường người ta hay tặng chín đóa hoặc mười một đóa chứ, tượng trưng cho thiên trường địa cửu với một lòng một dạ mà."
 
-"Đù, Trạch ca, vẫn là ông hiểu biết."
+Trần Trạch đáp: "Trong bài hát 'Điều Đẹp Nhất' của Vũ Tuyền, lời bài hát chính là mười hai đóa hồng."
 
-Lưu Sấm Phong tỏ vẻ đã học hỏi được, 9 đóa hồng thì ít quá không đẹp, lần sau mình cũng sẽ tặng Lâm Thanh Tuyết 12 đóa.
+"Đù má, Trạch ca, đúng là anh hiểu chuyện thật đấy."
 
-Thẩm Tử Ngôn huých vai Từ Mạn Mạn: "Trần Trạch lãng mạn thật đấy, trong lòng cậu ấy cậu là người đẹp nhất."
+Lưu Sấm Phong tấm tắc khen ngợi, cảm thấy mình lại học thêm được một ngón nghề lãng mạn. Chín bông hồng thì ít quá trông không đẹp mắt, lần sau nhất định mình cũng sẽ tặng Lâm Thanh Tuyết mười hai bông hoa hồng.
 
-Mộc Dao và Diêu Tân cũng vây quanh Từ Mạn Mạn, Từ Mạn Mạn ôm bó hoa hồng hít hà, nói một tiếng "Cảm ơn" với Trần Trạch, rồi đặt bó hoa và bánh kem sang một bên.
+Thẩm Tử Ngôn khẽ huých nhẹ tay Từ Mạn Mạn: "Trần Trạch lãng mạn ghê nha, trong lòng cậu ấy, cậu chính là điều đẹp nhất đấy."
 
-Trần Trạch lại lấy ra một chiếc túi Chanel, bảo là quà sinh nhật mẹ tặng cho cô.
+Mộc Dao và Diêu Sân cũng xúm lại quanh Từ Mạn Mạn. Từ Mạn Mạn ôm bó hoa hồng đưa lên mũi ngửi nhẹ, khẽ nói một tiếng "Cảm ơn" với Trần Trạch, rồi đặt bó hoa cùng chiếc bánh kem sang một chiếc bàn bên cạnh.
 
-Đây mới là điều khiến các cô gái ngưỡng mộ, đặc biệt là Mộc Dao.
+Trần Trạch lại lấy ra một chiếc túi xách Chanel sang trọng, nói rằng đây là món quà sinh nhật mà mẹ cậu đặc biệt gửi tặng cô.
 
-Không phải ngưỡng mộ chiếc túi Chanel, mà là ngưỡng mộ mẹ của Trần Trạch lại yêu quý Từ Mạn Mạn đến thế.
+Đây mới thực sự là điều khiến các cô gái phải trầm trồ ghen tị, đặc biệt là Mộc Dao.
 
-Được rồi, cũng ngưỡng mộ cả túi Chanel nữa, mẹ Trần Trạch vừa giàu lại vừa quý Từ Mạn Mạn.
+Không hẳn là ghen tị vì chiếc túi hiệu Chanel đắt tiền, mà là ngưỡng mộ khi mẹ của Trần Trạch lại yêu quý và xem trọng Từ Mạn Mạn đến thế.
 
-Một tình yêu đại học như vậy, thành thật mà nói, rất khó để không khiến người ta ghen tị.
+Thôi được rồi, cũng có chút ghen tị với chiếc túi Chanel thật, mẹ của Trần Trạch vừa giàu có lại vừa thương yêu Từ Mạn Mạn hết mực.
+
+Một tình yêu thời đại học đẹp đẽ và viên mãn như thế, thành thật mà nói, rất khó để người ngoài không khỏi ngưỡng mộ, ước ao.
 
 "Triệu Kim An không đến sao?"
 
-Trần Trạch nói: "Tôi đã báo với nó từ hai ngày trước rồi, vừa nãy gọi điện, nó bảo không có ở Quận Sa."
+Trần Trạch đáp: "Tôi đã báo trước cho cậu ấy hai ngày rồi. Lúc nãy vừa gọi điện lại, cậu ấy bảo đang không có ở Quận Sa."
 
-Nghe câu trả lời này, Mộc Dao thấy rất hụt hẫng, cô hỏi Trần Trạch: "Các ông có biết Kim An đi đâu không?"
+Nghe câu trả lời này, Mộc Dao lộ rõ vẻ thất vọng. Cô nhìn sang Trần Trạch hỏi: "Mọi người có biết Kim An đi đâu không?"
 
-Cốc Siêu Thừa cướp lời: "Không biết, chắc lại về quê rồi, lần trước nó cũng về quê mà."
+Cốc Siêu Thừa nhanh nhảu giành trả lời: "Chẳng ai biết cả, chắc lại về quê rồi, lần trước cậu ấy cũng về nhà suốt mấy ngày mà."
 
-Nghe Trần Trạch nói đã báo cho Triệu Kim An từ hai ngày trước, Từ Mạn Mạn không hiểu sao trong lòng cũng thấy chút hụt hẫng. Nếu là báo trong ngày thì còn đỡ, đằng này báo trước mà Triệu Kim An có lẽ cũng không định sắp xếp thời gian.
+Nghe Trần Trạch nói đã báo trước cho Triệu Kim An hai ngày, Từ Mạn Mạn bỗng cảm thấy trong lòng dấy lên một nỗi hụt hẫng khó tả. Nếu như Trần Trạch chỉ mới báo vào đúng ngày hôm nay thì còn đỡ, đằng này báo trước tận hai ngày... có lẽ Triệu Kim An căn bản không hề bận tâm đến việc thu xếp thời gian để đến dự.
 
-Từ Mạn Mạn giơ ly nước lên cười nói: "Hôm nay cũng là đêm Bình an, cảm ơn mọi người đã bớt chút thời gian đến đón sinh nhật cùng mình."
+Từ Mạn Mạn nâng ly nước lên, nở nụ cười rạng rỡ nói: "Hôm nay lại đúng vào đêm Bình An, cảm ơn mọi người đã bớt chút thời gian đến chung vui sinh nhật cùng mình nhé."
 
-Thẩm Tử Ngôn nâng ly: "Tụi này cũng đâu có bạn trai, đi theo cậu để được ăn một bữa ngon chứ."
+Thẩm Tử Ngôn cũng nâng ly cười đáp: "Bọn này làm gì có bạn trai, đi theo cậu vừa được ăn ngon lại vừa được vui chơi thỏa thích."
 
-"Đúng đúng đúng!"
+"Chuẩn luôn, chuẩn luôn!"
 
-Mọi người cùng nâng ly, chúc Mạn Mạn mãi mãi tuổi 18!
+Mọi người cùng nhau cạn ly, đồng thanh chúc: "Chúc Mạn Mạn mãi mãi tuổi mười tám!"
 
-Trong bữa tiệc.
+Suốt bữa tiệc.
 
-Cốc Siêu Thừa không ngừng liếc nhìn Mộc Dao, hắn biết Mộc Dao là bạn gái cũ của bạn cùng phòng, cũng biết câu "vợ bạn không được đụng vào", nhưng vẫn không kìm lòng được mà lén nhìn cô.
+Cốc Siêu Thừa cứ chốc chốc lại lén liếc nhìn Mộc Dao. Cậu ta thừa biết Mộc Dao là bạn gái cũ của bạn cùng phòng, cũng hiểu đạo lý "vợ bạn không được ngó nghiêng", nhưng đôi mắt vẫn không kìm được mà cứ hướng về phía cô.
 
-Mộc Dao xị mặt xuống, không thấy Triệu Kim An khiến cô có chút không vui.
+Mộc Dao cụp mí mắt, khuôn mặt nhỏ nhắn ủ rũ, không gặp được Triệu Kim An khiến cô chẳng còn tâm trạng nào.
 
-Cốc Siêu Thừa thực sự thấy ghen tị với Triệu Kim An rồi.
+Cốc Siêu Thừa thực sự bắt đầu cảm thấy ghen tị với Triệu Kim An.
 
-Thẩm Tử Ngôn kéo tay Mộc Dao, nhỏ giọng nói: "Cậu vui vẻ lên chút đi, hôm nay là sinh nhật Mạn Mạn đấy."
+Thẩm Tử Ngôn khẽ kéo áo Mộc Dao, ghé tai nhắc nhỏ: "Cậu vui vẻ lên một chút đi, hôm nay là sinh nhật của Mạn Mạn mà."
 
-Thẩm Tử Ngôn rất biết nhìn bao quát, dù Triệu Kim An không đến có chút thất vọng, nhưng có Lưu Sấm Phong ở đây nên không khí không bị trầm xuống, lại thêm Thẩm Tử Ngôn khéo léo dẫn dắt câu chuyện, phòng bao trở nên rất náo nhiệt.
+Thẩm Tử Ngôn là người rất biết nhìn đại cục. Dẫu việc Triệu Kim An vắng mặt có khiến không khí hơi chùng xuống đôi chút, nhưng có Lưu Sấm Phong pha trò nên bữa tiệc không hề bị tẻ nhạt, lại thêm Thẩm Tử Ngôn khéo léo dẫn dắt câu chuyện nên căn phòng bao lúc nào cũng rộn rã tiếng cười.
 
-Diêu Tân đột nhiên nói: "Mạn Mạn, cậu và Trần Trạch tốt nghiệp đại học xong là sẽ kết hôn luôn đúng không?"
+Diêu Sân bất chợt bâng quơ hỏi: "Mạn Mạn, cậu với Trần Trạch tốt nghiệp đại học xong là sẽ cưới luôn đúng không?"
 
-Tay gắp thức ăn của Từ Mạn Mạn khựng lại một chút, cô mỉm cười không nói gì.
+Bàn tay đang gắp thức ăn của Từ Mạn Mạn khẽ khựng lại trong thoáng chốc, cô chỉ mỉm cười dịu dàng chứ không đáp lời.
 
-Lưu Sấm Phong và Cốc Siêu Thừa còn hùa vào trêu, bảo Trạch ca chắc chắn là người kết hôn sớm nhất trong phòng mình.
+Lưu Sấm Phong và Cốc Siêu Thừa cũng ùa vào hò reo, bảo rằng Trạch ca chắc chắn sẽ là người đầu tiên trong phòng ký túc xá bước lên xe hoa.
 
-Kiếp trước đúng là như vậy, tối hôm đó ba năm sau khi tốt nghiệp đại học Vương Duy Đào đến Quận Sa công tác, Vương Duy Đào vẫn còn là kiếp độc thân, Triệu Kim An mới quen Trần Thanh Trĩ không lâu, còn Trần Trạch đã kết hôn với Từ Mạn Mạn được hai năm rưỡi rồi.
+Kiếp trước quả đúng là như vậy. Ba năm sau khi tốt nghiệp đại học, vào cái đêm Vương Duy Đào tới Quận Sa công tác, khi đó Vương Duy Đào vẫn là một gã độc thân, Triệu Kim An cũng chỉ vừa mới quen biết Trần Thanh Trĩ chưa được bao lâu, thì Trần Trạch và Từ Mạn Mạn đã kết hôn được hai năm rưỡi rồi.
 
-Trần Trạch là người kết hôn sớm nhất trong đám con trai lớp Kế toán 1.
+Trần Trạch là chàng trai lập gia đình sớm nhất trong số các nam sinh của lớp Kế toán 1.
 
-Điều lạ là, cho đến tận trước khi trùng sinh, Triệu Kim An cũng chưa từng thấy Trần Trạch đăng ảnh khoe con trên vòng bạn bè.
+Nhưng điều kỳ lạ là, mãi cho đến tận trước lúc trọng sinh, Triệu Kim An chưa từng thấy Trần Trạch đăng bất kỳ tấm ảnh khoe con cái nào lên trang cá nhân.
 
-Ít nhất là đêm ở quán bar đó, Từ Mạn Mạn vẫn chưa làm mẹ, có lẽ người làm kinh doanh không thích khoe con trên mạng xã hội, Triệu Kim An không có WeChat của Từ Mạn Mạn nên cũng không chủ động hỏi.
+Ít nhất là vào cái đêm gặp nhau ở quán bar năm ấy, Từ Mạn Mạn vẫn chưa làm mẹ. Có lẽ những người làm kinh doanh không có thói quen chia sẻ chuyện con cái lên mạng xã hội, mà Triệu Kim An cũng không có tài khoản WeChat của Từ Mạn Mạn nên chưa từng chủ động hỏi han.
 
-Từ Mạn Mạn cũng không chủ động kết bạn với Triệu Kim An.
+Và Từ Mạn Mạn cũng chưa từng chủ động kết bạn với Triệu Kim An.
 
-Ăn xong, Trần Trạch lại sắp xếp đi hát KTV, hát một bài "Đẹp nhất" tặng Từ Mạn Mạn.
+Ăn uống xong xuôi, Trần Trạch lại sắp xếp cho cả nhóm đi hát karaoke. Cậu ta chọn bài "Điều Đẹp Nhất" để hát tặng Từ Mạn Mạn.
 
-Mọi người đều phối hợp vỗ tay, Trần Trạch cầm mic hát không hay lắm nhưng hiếm khi thấy gã thâm tình như vậy. Từ Mạn Mạn cũng vừa nhìn Trần Trạch vừa vỗ tay, thầm nghĩ trong tư tưởng mình đã có lỗi với Trần Trạch rồi, như thế thật không công bằng với anh.
+Tất cả mọi người đều rất nhiệt tình vỗ tay cổ vũ. Giọng hát của Trần Trạch tuy không quá xuất sắc nhưng lại chan chứa tình cảm chân thành hiếm thấy. Từ Mạn Mạn ngước nhìn Trần Trạch rồi cũng hòa theo nhịp vỗ tay, trong lòng tự nhủ rằng trong suy nghĩ của mình bấy lâu nay đã có lỗi với Trần Trạch, đối xử với cậu ta như vậy thật không công bằng.
 
-Nghĩ đến đây, Từ Mạn Mạn nở nụ cười với Trần Trạch, vỗ tay thật nhiệt tình theo nhịp điệu.
+Nghĩ đến đây, Từ Mạn Mạn nhìn Trần Trạch mỉm cười rạng rỡ, đôi bàn tay vỗ theo từng nhịp phách một cách chân thành hơn bao giờ hết.
 
-Mọi người chơi đến gần 12 giờ đêm mới quay về trường, ký túc xá hiếm khi nhân từ một lần, bà quản lý biết đêm Bình an đám sinh viên này sẽ về muộn nên vẫn mở cửa.
+Cả nhóm vui chơi đến tận gần mười hai giờ đêm mới lục tục kéo nhau trở về trường. Ban quản lý ký túc xá hiếm hoi lắm mới có một lần dễ tính, các cô quản lý biết rõ vào đêm Giáng sinh sinh viên sẽ về muộn hơn ngày thường một chút.
 
-Trên đường về phòng, Diêu Tân không ngớt lời khen ngợi Trần Trạch, Thẩm Tử Ngôn cũng bảo Trần Trạch rất tốt.
+Trên đường đi bộ về phòng, Diêu Sân không ngớt lời khen ngợi Trần Trạch, Thẩm Tử Ngôn cũng gật gù công nhận Trần Trạch là một chàng trai rất tốt.
 
-Bốn cô gái phòng 406 tam quan đều khá ổn, không hề soi mói mà đều nói tốt cho Trần Trạch.
+Cả bốn cô gái phòng 406 đều là những người hiểu chuyện, nhân sinh quan chuẩn mực, không hề bới lông tìm vết mà đều hết lời vun vén cho Trần Trạch.
 
-Từ Mạn Mạn cũng mỉm cười gật đầu.
+Từ Mạn Mạn cũng mỉm cười gật đầu đồng tình.
 
-Bỗng nhiên, điện thoại "tinh" một tiếng.
+Đột nhiên, chiếc điện thoại trong túi xách vang lên một tiếng "ting" khe khẽ.
 
-Triệu Kim An: Sinh nhật vui vẻ.
+Màn hình sáng lên dòng tin nhắn từ Triệu Kim An:
 
-Thời gian: 23 giờ 58 phút.
+[Sinh nhật vui vẻ.]
 
-Câu "Sinh nhật vui vẻ" này gửi đi khi chưa quá 12 giờ, Từ Mạn Mạn xem tin nhắn xong liền cất điện thoại đi, Diêu Tân bên cạnh tò mò hỏi: "Mạn Mạn, ai thế?"
+Thời gian hiển thị: 23 giờ 58 phút.
 
-"Không là ai cả."
+Lời chúc "Sinh nhật vui vẻ" ấy đã kịp gửi đến trước khi kim đồng hồ điểm qua ngày mới. Từ Mạn Mạn nhìn lướt qua dòng tin nhắn rồi nhanh chóng cất điện thoại vào túi áo. Diêu Sân đi bên cạnh tò mò hỏi: "Mạn Mạn, ai nhắn tin thế?"
 
-Từ Mạn Mạn vẫn mỉm cười.
+"Chẳng là ai cả."
+
+Từ Mạn Mạn vẫn giữ nụ cười nhẹ trên môi.

@@ -1,173 +1,207 @@
-# Chương 21: Cậu Xin Lỗi Triệu Kim An Cho Tôi
+# Chương 21: Cậu xin lỗi Triệu Kim An đi!
 
-Tại sao giấy phép khai thác nước này lại quan trọng đến thế?
+> **Tiêu đề gốc**: 第21章 你给赵今安道歉！
 
-Bởi vì hồ Đông Giang là hồ nhân tạo lớn nhất tỉnh Tương Nam, với tổng dung tích kho chứa khoảng 8.12 tỷ mét khối.
+Tại sao giấy phép khai thác nguồn nước này lại quan trọng đến vậy?
 
-Hơn nữa, chất lượng nước ở đây cực kỳ tốt, đạt tiêu chuẩn nước uống cấp một quốc gia, là nguồn cung cấp nước uống trọng điểm của cả nước.
+Bởi lẽ hồ Đông Giang là hồ chứa nhân tạo lớn nhất tỉnh Tương Nam, với tổng dung tích lên tới khoảng 8,12 tỷ mét khối.
 
-Sau khi xuống lầu, từ khu danh thắng đi ra một chiếc xe tải nhỏ chở đầy nước khoáng đóng bình. Triệu Kim An thầm nghĩ, điểm lợi nhuận chính của công ty Lạc tổng đại khái chính là nước khoáng đóng bình này chăng?
+Chẳng những thế, chất lượng nước ở đây vô cùng tuyệt hảo, đạt chuẩn nước sinh hoạt cấp một quốc gia, là một trong những nguồn cấp nước trọng điểm của cả nước.
 
-Bán nước đúng là hái ra tiền thật.
+Bước xuống dưới lầu, Triệu Kim An thấy một chiếc xe tải nhỏ từ trong khu thắng cảnh chạy ra, trên thùng xe chất đầy những bình nước khoáng loại lớn. Cậu thầm nghĩ, nguồn thu chủ yếu nuôi sống công ty của sếp Lạc lúc này có lẽ chính là mảng nước khoáng đóng bình này chăng?
 
-Mấy xưởng thủ công lòng dạ đen tối chỉ cần lắp một cái máy lọc nước, hứng nước ngay tại vòi là có thể đem đi bán lấy tiền. Thùng nước thì thu hồi, tái sử dụng liên tục.
+Kinh doanh nước uống quả thực là một ngành siêu lợi nhuận.
 
-Điện thoại trong túi quần lại rung lên, Triệu Kim An lấy ra xem, là Mộc Dao. Có mấy cuộc gọi nhỡ và tin nhắn chưa đọc.
+Mấy xưởng nhỏ thiếu lương tâm ngoài kia chỉ cần lắp cái máy lọc thô sơ, đấu thẳng vào vòi nước máy rồi đóng bình là đã có thể đem bán lấy tiền.
 
-Mộc Dao: "Kim An, anh đang ở đâu?"
+Vỏ bình lại còn được thu hồi để tái sử dụng tuần hoàn, gần như không tốn thêm chi phí.
 
-Mộc Dao: "Kim An, anh nghe điện thoại đi, em không đồng ý chia tay!"
+Chiếc điện thoại trong túi quần lại rung lên bần bật. Triệu Kim An móc ra xem, màn hình hiển thị tên Mộc Dao.
 
-Triệu Kim An nhấn nút kết thúc, sau đó xóa số và cho vào danh sách đen.
+Có mấy cuộc gọi nhỡ và một loạt tin nhắn chưa đọc.
 
-Đã nói rõ ràng trước mặt người nhà cô ấy rồi, thì đừng nên dây dưa không dứt nữa.
+Mộc Dao: [Kim An, cậu đang ở đâu đấy?]
 
-Kiếp trước tại sao năm nhất đại học Mộc Dao lại bám lấy Triệu Kim An như vậy?
+Mộc Dao: [Kim An, cậu nghe máy đi, tớ không đồng ý chia tay đâu!]
 
-Thứ nhất, những cô gái nhỏ đang trong thời kỳ yêu đương nồng cháy đại khái đều thế cả.
+Triệu Kim An dứt khoát bấm nút kết thúc, rồi thẳng tay xóa số, chặn liên lạc.
 
-Thứ hai, chính là tâm lý nghịch ngợm của tuổi trẻ.
+Đã nói rõ ràng, dứt khoát ngay trước mặt cả gia đình cô ấy rồi, thì hà cớ gì phải tiếp tục dùng dằng, dây dưa không dứt.
 
-Giống như những cặp đôi nhỏ thời cấp ba, bị thầy cô hay cha mẹ phát hiện, họ càng chia uyên rẽ thúy thì đôi trẻ lại càng thề non hẹn biển, tình sâu nghĩa nặng. Có khi ở trong rừng cây nhỏ, những lời thề độc gì cũng đã nói hết rồi.
+Kiếp trước, tại sao hồi năm nhất đại học Mộc Dao lại bám dính lấy Triệu Kim An đến thế?
 
-Ngược lại, khi sợi dây kia vừa lỏng ra, tình cảm cũng theo đó mà nhạt nhòa.
+Thứ nhất, con gái khi mới bước vào giai đoạn nồng nàn say đắm của tình yêu hầu như ai cũng vậy.
 
-Triệu Chí Dũng cũng gọi điện tới, Triệu Kim An tiện tay vẫy một chiếc xe khách đang chạy về phía mình để quay lại Triệu Gia Thôn.
+Thứ hai, đó chính là tâm lý phản nghịch của tuổi trẻ.
 
-"Xe buýt sao!?"
+Hệt như những đôi chim non thời cấp ba, hễ bị thầy cô hay phụ huynh phát hiện rồi ra sức ngăn cấm, chia loan rẽ phượng, thì họ lại càng thề non hẹn biển, son sắt một lòng. Có khi trong những góc khuất lùm cây sau trường, bao lời thề hẹn đến đầu bạc răng long đều đã trao nhau trọn vẹn.
 
-Ở hành lang tầng ba, Lạc Cẩn Chi thực sự muốn lao xuống chất vấn Triệu Kim An.
+Thế nhưng chỉ cần sợi dây cấm đoán ấy buông chùng ra, tình cảm tự khắc lại nhạt dần.
 
-"Cậu có thể lấy ra được 3 triệu không vậy!?"
+Đúng lúc này, Triệu Trí Dũng cũng gọi tới. Triệu Kim An tiện tay vẫy một chuyến xe khách liên huyện đang chạy về hướng làng họ Triệu.
 
-3 triệu của năm 2006 đấy, mà Triệu Kim An vừa rồi ở trong văn phòng nói ra nghe thật nhẹ nhàng.
+"Xe buýt á!?"
 
-2 triệu không bán, anh ta liền tăng thêm 1 triệu ngay lập tức.
+Đứng bên hành lang tầng ba, Lạc Cẩn Chi suýt chút nữa đã muốn lao thẳng xuống dưới để chất vấn Triệu Kim An.
 
-Kết quả là ngay cả một phương tiện đi lại cũng không có, thứ bước lên lại là xe buýt.
+"Cậu thật sự có nổi ba triệu tệ không đấy!?"
 
-"Vừa rồi lẽ ra nên kiểm tra tài sản."
+Ba triệu tệ của năm 2006 đấy chứ có phải chuyện đùa đâu, vậy mà vừa rồi trong văn phòng, Triệu Kim An lại nói ra nhẹ tựa lông hồng.
 
-Lạc Cẩn Chi bỗng nhiên bật cười, nảy sinh ý định muốn trêu chọc Triệu Kim An, nàng muốn xem bộ dạng bối rối của một Triệu Kim An thành thật sẽ trông như thế nào.
+Hai triệu người ta không bán, cậu ta liền mở miệng tăng vọt một phát thêm một triệu.
 
-"Cậu ta mới đến đòi mua công ty của tôi, lẽ nào không biết tôi sẽ ở trên này quan sát cậu ta sao?"
+Ấy thế mà đến một chiếc xe riêng để đi lại cũng chẳng có, lủi thủi bước lên một chuyến xe buýt bình dân.
 
-"Dù không có xe riêng thì cũng nên bắt taxi chứ."
+"Vừa rồi đáng lẽ mình phải kiểm tra chứng minh tài chính của cậu ta mới phải."
 
-Người đẹp vì lụa lúa tốt vì phân, nếu không thì sao người khác tin tưởng cậu được?
+Lạc Cẩn Chi bỗng bật cười, trong lòng dấy lên ý nghĩ muốn trêu chọc Triệu Kim An. Cô rất muốn xem bộ dạng thành thật của chàng trai này khi rơi vào thế lúng túng, ngượng ngùng sẽ trông như thế nào.
 
-Người này thật kỳ lạ.
+"Cậu ta vừa mới bảo muốn mua lại công ty của mình, chẳng lẽ lại không biết mình sẽ đứng trên này quan sát cậu ta hay sao?"
+
+"Dẫu cho không có xe riêng, thì ít ra cũng phải bắt chiếc taxi chứ."
+
+Người đẹp vì lụa, lúa tốt vì phân, không chải chuốt bề ngoài thì làm sao khiến người khác tin tưởng mình được?
+
+Cái cậu thanh niên này, quả thực kỳ lạ thật.
 
 ...
 
-Trở về Triệu Gia Thôn, Triệu Kim An dọc theo bờ sông tìm thấy Triệu Chí Dũng. Triệu Chí Dũng đang đeo "thiết bị năng lượng mới" trên lưng, bên hông đeo giỏ cá, xem ra thu hoạch không ít.
+Trở về làng họ Triệu, Triệu Kim An men theo bờ sông tìm Triệu Trí Dũng. Trí Dũng đang đeo trên lưng bộ "đồ nghề kích điện", bên hông lủng lẳng giỏ cá, trông chừng thu hoạch hôm nay không hề ít.
 
-"Kim An, mày lại chạy đi đâu thế?"
+"Kim An, mày lại chạy biến đi đâu thế hả?"
 
-Một ngày kiếm được mấy chục đến cả trăm tệ, Triệu Chí Dũng đầy hăng hái, chỉ là phát hiện Triệu Kim An có chút kiểu "ba ngày đánh cá hai ngày phơi lưới".
+Mỗi ngày kiếm được vài chục đến cả trăm tệ khiến Triệu Trí Dũng tràn trề khí thế, chỉ có điều cậu phát hiện dạo này Triệu Kim An cứ như kiểu bữa đực bữa cái, lúc làm lúc nghỉ.
 
-Công việc kiếm tiền như vậy mà còn lười biếng, sau này đi Quận Sa học đại học không đủ tiền tiêu thì làm sao?
+Công việc hái ra tiền thế này mà còn lười biếng, mai mốt lên Quận Sa học đại học, tiền không đủ tiêu thì tính sao?
 
-Nghe Triệu Chí Dũng không hỏi chuyện của mình và Mộc Dao, Triệu Kim An liền biết Du Phỉ không hề nói gì cả.
+Nghe Triệu Trí Dũng không hề đả động gì đến chuyện giữa mình và Mộc Dao, Triệu Kim An liền hiểu Du Phi đã giữ kín như bưng, không hé môi nửa lời.
 
-Hắn đỡ lấy giỏ cá từ người Triệu Chí Dũng, nhìn dòng sông trong vắt dưới chân. Thực ra nếu xây một con đập ở đây, chất lượng nước cũng hoàn toàn đạt chuẩn, có điều công ty sẽ không thể làm lớn được.
+Cậu đón lấy giỏ cá từ trên người Triệu Trí Dũng, đưa mắt ngắm nhìn dòng nước sông trong vắt chảy dưới chân. Thực ra nếu xây một con đập chắn nước ở khúc sông này thì chất lượng nước cũng hoàn toàn đạt chuẩn, chỉ có điều quy mô công ty sẽ khó mà phát triển lớn mạnh được.
 
-Hơn nữa cứ hễ đến ngày mưa, nước sông sẽ trở nên rất đục.
+Hơn nữa, cứ hễ trời đổ mưa lớn là nước sông lại trở nên đục ngầu phù sa.
 
-Giấy phép khai thác nước.
+Giấy phép khai thác nguồn nước...
 
-Triệu Kim An không phải người có tính nóng nảy, cũng không phải kiểu người không đạt được mục đích thì không thôi.
+Triệu Kim An vốn không phải người có tính khí nôn nóng, càng không phải kiểu người không đạt được mục đích thì quyết không chịu buông tha.
 
-Nếu Lạc Cẩn Chi không bán công ty, hắn cũng sẽ không đi tranh thủ hay thuyết phục thêm nữa. Thậm chí không mở công ty nước khoáng cũng chẳng sao.
+Nếu Lạc Cẩn Chi nhất quyết không bán công ty, cậu cũng chẳng buồn tốn công đi thuyết phục hay chèo kéo thêm lần nào nữa.
 
-Có lẽ chính vì tính cách như vậy nên Mộc Dao mới nói Triệu Kim An quá trầm lặng, không có dã tâm. Thực chất là không có cá tính, chuyện gì cũng không biết tranh thủ.
+Thậm chí, không mở công ty nước khoáng cũng chẳng sao.
 
-Giống như kỳ thi đại học, một trăm ngày nước rút cuối cùng, các bạn trong lớp đều dốc hết sức lực, thức khuya dậy sớm học hành, chỉ có Triệu Kim An là vẫn giữ tâm thế bình thản như cũ.
+Có lẽ chính vì tính cách này mà kiếp trước Mộc Dao từng chê Triệu Kim An quá đỗi trầm lặng, không có chút dã tâm nào.
 
-Không có mục tiêu trường đại học cụ thể nào. Nếu thi đỗ được một trường thuộc Dự án 985 hay 211 thì đi học. Nếu thực sự phát huy thất thường, thì coi như tiết kiệm tiền vậy.
+Nói cho cùng, chính là kiểu người không có cá tính sắc bén.
 
-Đêm đến.
+Chẳng bao giờ biết tranh giành, đấu đá vì cái gì.
 
-Đúng ra phải nói là rạng sáng, trời đã bắt đầu tờ mờ sáng. Có rất nhiều người gọi điện cho Triệu Kim An, nhóm QQ của lớp 209 đã ồn ào đến mức lật trời rồi.
+Giống hệt như kỳ thi đại học vừa qua, trong một trăm ngày nước rút cuối cùng, bạn bè trong lớp ai nấy đều dốc toàn bộ sức lực, thức khuya dậy sớm dùi mài kinh sử như treo tóc lên xà nhà, đâm kim vào đùi để tỉnh ngủ, duy chỉ có Triệu Kim An vẫn giữ nguyên một tâm thế bình thản như không.
 
-Chung kết World Cup, Pháp gặp Ý, thời gian thi đấu chính thức kết thúc với tỷ số 1:1.
+Chẳng đặt ra cho mình một trường đại học mục tiêu cụ thể nào.
 
-"Mẹ kiếp, Triệu Chí Dũng, ý mày là Triệu Kim An đặt cửa 1:1 à?"
+Nếu may mắn đỗ vào một trường thuộc diện Dự án 985 hay 211, thì đi học.
 
-"Triệu Kim An đâu rồi?"
+Còn nếu thi cử chẳng may sẩy chân, thì coi như tiết kiệm được một khoản tiền học phí cho gia đình.
 
-Cả đám tán gẫu trong nhóm nửa ngày trời, đột nhiên phát hiện Triệu Kim An từ đầu đến cuối chẳng hề ló mặt ra.
+Đêm xuống.
 
-Có người @ hắn: "Triệu Kim An, mau ra đây đi, nói cho bọn tao biết mày đặt bao nhiêu tiền?"
+Đúng hơn là vào khoảng rạng sáng, khi trời đã bắt đầu lờ mờ hửng sáng.
 
-Lại có người @ Triệu Chí Dũng: "Triệu Chí Dũng, Triệu Kim An đâu, mày không ở cùng nó à?"
+Rất nhiều người gọi vào số máy của Triệu Kim An, trong khi nhóm chat QQ của lớp 209 thì đang náo loạn như vỡ tổ.
 
-Triệu Chí Dũng: "Không, điện thoại nó tắt máy rồi."
+Trận chung kết World Cup giữa Pháp và Ý đã khép lại sau 90 phút thi đấu chính thức với tỷ số hòa 1:1.
 
-Triệu Chí Dũng đã thức trắng cả đêm, đặt 228 tệ vào đó thì làm sao mà ngủ cho nổi. Hắn cũng đã căng thẳng suốt một đêm. Cuối cùng mới phát hiện ra mình mới chính là thằng ngu, đã bỏ lỡ cả một kho báu.
+[Đệt mợ, Triệu Trí Dũng, ý mày là Triệu Kim An đã bắt đúng tỷ số 1:1 á?]
 
-"Triệu Kim An mà cũng ngủ được sao?"
+[Triệu Kim An đâu rồi?]
 
-Câu hỏi này không chỉ Triệu Chí Dũng nghĩ tới, mà Mộc Dao và Du Phỉ cũng nghĩ tới. Hai nàng đều gọi điện cho Triệu Kim An, chỉ có điều phía Mộc Dao luôn báo không liên lạc được.
+Mọi người rôm rả bàn tán cả buổi trời trong nhóm, rồi bỗng nhiên nhận ra từ đầu đến giờ Triệu Kim An chẳng hề ngoi lên lấy một lần.
 
-"Triệu Chí Dũng, mày không xem bóng đá cùng Triệu Kim An thật à?" Có người không tin.
+Có người liền @ cậu: [Triệu Kim An, mau ra đây xem nào, mau khai thật cho anh em biết, rốt cuộc mày đánh bao nhiêu tiền thế?]
 
-Bọn này không đặt tiền mà còn phấn khích thế kia, nó sao có thể ngủ được chứ? Từ hồi tốt nghiệp cấp ba đến giờ đã ai kiếm ra tiền đâu, huống chi đây còn là khoản lộc trời cho thế này!
+Lại có người @ Triệu Trí Dũng: [Triệu Trí Dũng, Triệu Kim An đâu rồi, mày không ở cùng nó à?]
 
-Triệu Chí Dũng: "Không, nó bảo muộn quá rồi phải đi ngủ."
+Triệu Trí Dũng: [Không, nó tắt máy đi ngủ rồi.]
 
-Mọi người: "..."
+Triệu Trí Dũng thì đã thức trắng cả một đêm. Bỏ ra hẳn 228 tệ đặt cược thì làm sao mà chợp mắt cho nổi.
 
-Nhóm chat đột nhiên im bặt trong chốc lát, cái màn làm màu này đỉnh thật đấy.
+Cả đêm cậu cứ bồn chồn, thót tim theo từng đường bóng.
 
-Lúc này lớp trưởng Âu Cường lên tiếng: "Chắc cũng chỉ mua có hai trăm tệ thôi, tỷ lệ cược 1:1 mới có 4.4, trúng thì cũng chỉ được 880 tệ."
+Để rồi cuối cùng mới cay đắng nhận ra mình mới chính là thằng ngốc nhất trần đời, vừa bỏ lỡ mất một cơ hội đổi đời ngàn năm có một.
 
-"Lớp trưởng, cậu mua gì thế?"
+"Triệu Kim An mà cũng ngủ cho được à?"
 
-Âu Cường: "Không trúng, tôi mua Pháp thắng."
+Câu hỏi này đâu chỉ một mình Triệu Trí Dũng thắc mắc, mà cả Mộc Dao lẫn Du Phi đều cùng chung mối bận tâm. Cả hai cô nàng đều đã gọi điện cho Triệu Kim An, chỉ có điều đầu dây của Mộc Dao luôn báo không thể kết nối.
 
-"Lớp trưởng, cậu mua bao nhiêu tiền?"
+[Triệu Trí Dũng, mày không xem bóng đá cùng Triệu Kim An thật đấy à?]
 
-Âu Cường: "Năm nghìn."
+Có đứa trong nhóm không tin.
 
-"Đỉnh thật đấy, bằng cả năm học phí của bọn mình rồi."
+Mấy đứa tụi mình chẳng bỏ đồng nào cá độ mà còn phấn khích đến run cả người, thử hỏi cậu ta làm sao ngủ cho yên được?
 
-"Lớp trưởng, cậu không sao chứ? Thua nhiều tiền như vậy bố mẹ không mắng cậu à?"
+Tốt nghiệp cấp ba xong đã ai kiếm ra tiền đâu, huống chi đây lại là một món hời từ trên trời rơi xuống!
 
-Âu Cường: "Không sao, tiền đã đưa cho tôi thì là của tôi rồi."
+Triệu Trí Dũng: [Không xem thật mà, nó bảo muộn quá rồi nên phải đi ngủ.]
 
-Thực tế hắn chỉ mua có hai nghìn, thua tiền nhưng vẫn muốn nói vống lên, ấy thế mà chẳng ai nghi ngờ hắn cả. Chẳng bù cho Triệu Chí Dũng chỉ mua 300 tệ mà vẫn có người chất vấn, đòi hắn phải trưng ảnh chụp ra.
+Mọi người: [...]
 
-Nhìn tin nhắn trong nhóm, Triệu Chí Dũng thấy khó chịu. Đang trò chuyện vui vẻ, hào quang làm màu lại bị Âu Cường cướp mất rồi.
+Khung chat bỗng nhiên im bặt trong giây lát. Pha ra vẻ này quả thực quá đỉnh cao, không chê vào đâu được!
 
-Âu Cường: "Có kẻ chẳng qua là chó ngáp phải ruồi thôi. Nếu không phải có người cố ý chọc giận Zidane, làm ảnh hưởng đến phong độ của Zidane, thì Pháp chắc chắn đã thắng Ý trong vòng 90 phút rồi."
+Đúng lúc này, lớp trưởng Âu Cường mới lên tiếng: [Đánh có hơn hai trăm tệ thôi mà, tỷ lệ cược 1:1 cũng chỉ có 4.4, trúng thì giỏi lắm cũng chỉ được 880 tệ chứ mấy.]
 
-Lần này Triệu Chí Dũng không chịu để yên nữa: "Cái gì mà chó ngáp phải ruồi? Miệng mày tốt nhất nên sạch sẽ một chút!"
+[Lớp trưởng, thế cậu bắt cửa nào?]
 
-Du Phỉ cũng nhảy ra: "Âu Cường, cậu mắng ai đấy, tớ cũng theo Triệu Kim An mua một trăm tệ đấy!"
+Âu Cường: [Không trúng, tớ bắt cửa Pháp thắng.]
 
-Âu Cường không thèm chấp Triệu Chí Dũng, chỉ riêng @ Du Phỉ: "Du Phỉ, tớ không nói cậu."
+[Lớp trưởng đánh bao nhiêu tiền thế?]
 
-"Nói ai cũng không được! Uổng công trước đây cậu còn làm lớp trưởng!"
+Âu Cường: [Năm nghìn.]
 
-Mộc Dao đột nhiên @ Âu Cường.
+[Vãi thật, bằng cả năm tiền học phí của tụi mình rồi đấy.]
 
-Đây là lần đầu tiên cô công khai bảo vệ Triệu Kim An trong nhóm lớp. Một đám bạn học bắt đầu "hóng hớt" xem kịch hay.
+[Lớp trưởng không sao chứ? Thua nhiều tiền thế bố mẹ không mắng cho à?]
 
-Mộc Dao và Du Phỉ vừa lên tiếng, không còn ai đứng về phía Âu Cường nữa. Ở lớp 209 năm cuối cấp ba, chuyện Âu Cường thích Mộc Dao không phải là bí mật gì. Sau kỳ thi đại học hắn còn thường xuyên rủ rê tụ tập, nhưng Mộc Dao lại đồng ý làm bạn gái của Triệu Kim An.
+Âu Cường: [Không sao, tiền bố mẹ đã đưa cho tớ thì là của tớ rồi.]
 
-Vốn dĩ tưởng rằng sự việc sẽ kết thúc ở đó, không ngờ Mộc Dao lại tiếp tục @ Âu Cường: "Cậu xin lỗi Triệu Kim An cho tôi!"
+Thực chất hắn ta chỉ đánh có hai nghìn tệ, nhưng dù thua tiền vẫn phải phồng mũi nói vống lên để giữ thể diện. Ngặt một nỗi là chẳng có ai mảy may nghi ngờ lời hắn, chẳng bù cho Triệu Trí Dũng mới đánh có ba trăm tệ đã bị người ta bắt bẻ, đòi chụp ảnh vé cược chứng minh.
 
-Chậc chậc chậc... Mộc Dao hôm nay bị làm sao vậy?
+Đọc những dòng tin nhắn nhảy liên tục trong nhóm, Triệu Trí Dũng cảm thấy ngứa mắt vô cùng. Đang trò chuyện rôm rả ngon lành thì cái trò thể hiện lại bị Âu Cường cướp mất sân khấu.
 
-Âu Cường cũng ngơ ngác không hiểu gì.
+Âu Cường lại nhắn tiếp: [Có người gặp may chó ngáp phải ruồi thôi. Nếu không phải có kẻ cố tình khiêu khích Zidane, làm ảnh hưởng đến phong độ của anh ấy thì đội tuyển Pháp chắc chắn đã hạ đo ván nước Ý ngay trong 90 phút rồi.]
 
-"Mộc Dao hôm nay uống nhầm thuốc súng à? Sao lại ra mặt giúp Triệu Kim An dữ vậy."
+Lần này thì Triệu Trí Dũng không nhịn nổi nữa: [Mày bảo ai chó ngáp phải ruồi hả? Cái mồm mày tốt nhất nên ăn nói cho sạch sẽ vào một chút!]
 
-Cũng không trách được họ có suy nghĩ như thế, theo lý thì bạn gái bảo vệ bạn trai là chuyện bình thường, nhưng thời gian qua Mộc Dao chưa bao giờ bảo vệ Triệu Kim An trong nhóm lớp cả.
+Du Phi cũng lập tức nhảy vào phụ họa: [Âu Cường, cậu đang chửi ai đấy hả? Tôi cũng theo Triệu Kim An bắt một trăm tệ đấy nhé!]
 
-Hôm nay thật quá phản thường!
+Âu Cường phớt lờ Triệu Trí Dũng, chỉ @ riêng Du Phi: [Du Phi, tớ đâu có nói cậu.]
 
-Đặc biệt là Âu Cường. Thời gian này khi các nàng tụ tập bạn bè, Âu Cường thỉnh thoảng lại "đá đểu" Triệu Kim An vài câu, Mộc Dao đa số đều coi như không nghe thấy, chỉ là sắc mặt có chút không vui.
+[Nói ai cũng không được! Uổng công cậu từng làm lớp trưởng ba năm trời!]
 
-Âu Cường cứ ngỡ là mưu kế của mình đã có tác dụng.
+Mộc Dao bất ngờ @ Âu Cường.
+
+Đây là lần đầu tiên cô công khai đứng ra bênh vực Triệu Kim An trước mặt bàn dân thiên hạ trong nhóm lớp.
+
+Một đám bạn học lập tức ngồi hóng chuyện, dỏng tai lên xem trò vui.
+
+Mộc Dao và Du Phi vừa lên tiếng một cái, cả nhóm chẳng còn ai dám đứng về phe của Âu Cường nữa.
+
+Ở lớp 209 năm ấy, chuyện Âu Cường thầm thương trộm nhớ Mộc Dao vốn chẳng phải bí mật gì to tát, sau kỳ thi đại học hắn còn thường xuyên rủ rê tụ tập, nhưng rốt cuộc Mộc Dao lại nhận lời làm bạn gái của Triệu Kim An.
+
+Cứ ngỡ mọi chuyện đến đó là êm xuôi, nào ngờ Mộc Dao lại tiếp tục bồi thêm một tin nhắn @ thẳng Âu Cường:
+
+[Cậu xin lỗi Triệu Kim An ngay đi!]
+
+Chà chà... Hôm nay Mộc Dao làm sao thế nhỉ?
+
+Đến cả Âu Cường cũng ngơ ngác, không hiểu đầu cua tai nheo ra sao.
+
+"Hôm nay Mộc Dao ăn phải thuốc súng hay sao mà lại ra mặt bênh vực Triệu Kim An ghê thế?"
+
+Cũng chẳng trách được bọn họ lại nghĩ như vậy. Theo lẽ thường thì bạn gái đứng ra bảo vệ bạn trai là chuyện hết sức hiển nhiên, thế nhưng suốt thời gian qua Mộc Dao chưa từng một lần đứng ra bênh Triệu Kim An trong nhóm chat.
+
+Hành động hôm nay quả thực quá đỗi khác thường!
+
+Đặc biệt là đối với Âu Cường.
+
+Trong những buổi họp lớp tụ tập gần đây, Âu Cường thỉnh thoảng lại cố tình bóng gió, hạ thấp Triệu Kim An vài câu, Mộc Dao phần lớn đều vờ như không nghe thấy, chỉ thoáng cau mày lộ vẻ không vui.
+
+Âu Cường cứ ngỡ những mưu mẹo, toan tính của mình bấy lâu nay đã bắt đầu phát huy tác dụng...

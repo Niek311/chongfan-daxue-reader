@@ -1,199 +1,193 @@
-# Chương 12: Lấy Chồng Xa
+# Chương 12: Những người ở lại
 
-Chẳng mấy chốc Triệu Chí Dũng đã xách một miếng thịt (nửa miếng) quay lại, lúc đi ngang qua Vương Kim Như còn cười hì hì gọi một tiếng "thím", Vương Kim Như lườm hắn một cái.
+> **Tiêu đề gốc**: 第12章 留守。
 
-"Chỉ biết dỗ dành chị dâu nhỏ của các anh thôi."
+Chẳng mấy chốc, Triệu Trí Dũng lại xách nửa tảng thịt heo quay trở lại. Đi ngang qua Vương Kim Như, cậu ta vẫn cười hớn hở chào một tiếng "thím", khiến bà tức mình liếc xéo một cái.
 
-"Kim An này, phụ nữ đẹp là không đáng tin đâu."
+"Chỉ khéo dỗ dành chị dâu nhỏ của các người thôi."
 
-Triệu Kim An chớp chớp mắt: "Thím, thím cũng xem Ỷ Thiên Đồ Long Ký ạ?"
+"Kim An này, đàn bà đẹp là không đáng tin đâu."
+
+Triệu Kim An chớp chớp mắt: "Thím à, thím cũng xem Ỷ Thiên Đồ Long Ký cơ đấy?"
 
 "Cái gì cơ?"
 
-"Không có gì đâu thím, thím cũng rất đẹp mà."
+"Không có gì đâu ạ. Thím ơi, thím cũng đẹp lắm."
 
-"Hả!? Thật sao? Thím đẹp chỗ nào?"
+"Hả!? Thật không? Tao đẹp ở chỗ nào chứ?"
 
-Vương Kim Như luống cuống vuốt tóc, lại cúi đầu nhìn trái nhìn phải, được đứa cháu trai đẹp trai như thế khen xinh đẹp, nàng có chút hoảng hốt.
+Vương Kim Như luống cuống vuốt lại mái tóc, rồi cúi đầu ngó nghiêng ngắm nghía khắp người. Được đứa cháu trai cao ráo tuấn tú khen ngợi xinh đẹp, trong lòng bà bỗng thấy lúng túng, bối rối không ít.
 
-Chẳng lẽ trong mắt cháu trai, mình thật sự rất đẹp sao?
+Chẳng lẽ trong mắt đứa cháu này, mình thật sự rất ưa nhìn sao?
 
-Thực tế Vương Kim Như mới ngoài ba mươi, phụ nữ đều thích nghe lời "ngọt ngào", có lẽ Triệu Quốc Hoa cũng ít khi nói lời đường mật, hai người một năm cũng chẳng gặp nhau được mấy lần.
+Thực tế Vương Kim Như cũng chỉ mới ngoài ba mươi tuổi. Đàn bà con gái ai mà chẳng thích nghe những lời đường mật khen ngợi. Có lẽ Triệu Quốc Hoa quanh năm chẳng bao giờ nói được câu ngọt ngào nào, hai vợ chồng xa nhau cả năm trời cũng chỉ gặp mặt được đôi ba lần.
 
-"Kim An khéo mồm khéo miệng từ bao giờ thế?"
+"Kim An nhà ta từ khi nào lại trở nên dẻo mồm dẻo miệng thế này hả?"
 
-Phản ứng lại, Vương Kim Như vờ giận đánh Triệu Kim An một cái, nhưng có thể thấy nàng đang rất vui.
+Định thần lại, Vương Kim Như vờ hờn dỗi vỗ nhẹ vào Triệu Kim An một cái, nhưng ai nhìn vào cũng thấy rõ niềm vui sướng rạng ngời trên gương mặt bà.
 
-"Kim An, quần áo thay ra cứ vứt trên máy giặt nhé, thím giặt cho."
+"Kim An, lát nữa quần áo thay ra cứ vứt lên nắp máy giặt nhé, để thím giặt cho."
 
-Triệu Kim An:...
+Triệu Kim An: "..."
 
-Hắn thật sự chỉ là thuận miệng nói vậy thôi.
+Hắn thật sự chỉ là buột miệng nói vu vơ một câu mà thôi.
 
-Nhìn dáng vẻ vui vẻ của Vương Kim Như, Triệu Kim An nghĩ đến một từ: Lấy chồng xa.
+Nhìn dáng vẻ hân hoan rạng rỡ của Vương Kim Như, trong đầu Triệu Kim An bỗng hiện lên một cụm từ: những người ở lại quê nhà.
 
-Trẻ em ở lại, người già ở lại, và cả những người phụ nữ ở lại quê hương.
+Trẻ con ở lại, người già ở lại, và cả những người đàn bà ở lại mòn mỏi ngóng trông.
 
-Kiếp trước sau khi tốt nghiệp Triệu Kim An ở lại Quận Sa, Triệu Duyệt Thiên cũng đến Quận Sa học đại học, Triệu Quốc Hoa lại đi làm thuê ở Dương Châu, Vương Kim Như không đến Quận Sa thì đi đâu được?
+Kiếp trước, sau khi Triệu Kim An tốt nghiệp đã chọn ở lại Quận Sa lập nghiệp, Triệu Duyệt Thiên sau này cũng thi đỗ đại học tại Quận Sa. Triệu Quốc Hoa quanh năm bươn chải làm thuê ở Dương Thành, Vương Kim Như không lên Quận Sa thì còn biết đi đâu?
 
-Dĩ nhiên số lần nàng đến nhà Triệu Kim An sẽ nhiều hơn, thế nên mới có chuyện cãi nhau với mẹ vợ của Triệu Kim An.
+Đương nhiên số lần bà ghé thăm nhà Triệu Kim An sẽ nhiều hơn, để rồi nảy sinh những xích mích, cãi vã nảy lửa với mẹ vợ của hắn.
 
-Trong bếp, có thể nghe thấy giọng nói khách sáo của bà nội, bà không thích nợ ân tình của ai, ngay cả khi con rể tết nhất xách chút đồ đến cửa bà cũng sẽ khách sáo vài câu.
+Trong gian bếp, loáng thoáng vọng ra giọng nói từ tốn, khách khí của bà nội. Bà vốn là người không thích nợ ân tình của ai, dẫu cho con rể ngày lễ tết xách chút quà cáp đến biếu, bà cũng sẽ nói dăm ba câu từ chối lịch sự.
 
-Bà nói: "Đến ăn cơm thì cứ đến, còn mua thịt thà gì nữa? Anh tự xách về nhà đi."
+Bà nói: "Đến ăn cơm thì cứ tự nhiên mà ăn, cháu còn mua thịt thà làm gì cho tốn kém? Tự mang về nhà mà ăn."
 
-Cho đến khi Triệu Chí Dũng thốt ra câu: "Bà nội, tiền này là cháu với Kim An cùng nhau kiếm đấy" thì bà mới thôi.
+Mãi đến khi Triệu Trí Dũng giải thích: "Bà nội ơi, tiền này là do cháu với Kim An cùng nhau kiếm được đấy ạ", bà mới chịu nguôi ngoai.
 
-Đi theo Triệu Chí Dũng ra ngoài, Triệu Duyệt Thiên một tay cầm hamburger một tay giơ cánh gà nói: "Bà nội, anh trai mua McDonald's đấy, ngon lắm ạ."
+Đi theo sau Triệu Trí Dũng bước ra ngoài, Triệu Duyệt Thiên một tay cầm chiếc bánh hamburger, một tay giơ cao chiếc cánh gà rán khoe ríu rít: "Bà nội ơi, anh mua McDonald's về cho cả nhà này, ngon lắm ạ."
 
-"Các cháu ăn đi ——"
+"Các cháu cứ ăn đi..."
 
-Bà nội không biết McDonald's là cái gì, nhưng trong nhà có đồ gì tốt bà đều để dành cho cháu trai cháu gái, bản thân không nỡ ăn.
+Bà nội chẳng biết cái thứ gọi là McDonald's kia là món gì. Trong nhà hễ có chút đồ ăn ngon, bà đều gom góp để dành hết cho cháu trai cháu gái, bản thân chưa bao giờ nỡ đụng đũa.
 
-"Bà ơi, bà nếm thử đi."
+"Bà nội, bà nếm thử một miếng đi ạ."
 
-Triệu Kim An cầm cánh gà đút cho bà.
+Triệu Kim An cầm chiếc cánh gà đưa lên tận miệng bà.
 
-Bà nội nhìn đứa cháu trai cao lớn một hồi, cắn một miếng: "Ngọt quá."
+Bà nội ngước mắt nhìn đứa cháu trai cao lớn chững chạc hồi lâu, rồi cắn một miếng nhỏ: "Ngọt quá."
 
-"Vậy... cho thêm chút tương cà nhé?"
+"Vậy... chấm thêm chút tương cà nhé bà?"
 
 "Anh ơi, để em!"
 
-Triệu Duyệt Thiên ngoan ngoãn kiễng chân bóp thật nhiều tương cà lên cánh gà.
+Triệu Duyệt Thiên ngoan ngoãn kiễng gót chân, bóp thật nhiều tương cà phủ lên chiếc cánh gà.
 
-Bà nội nhíu mày cắn một miếng: "Chua quá, bà không ăn nữa đâu."
+Bà nội khẽ chau mày, cắn thử một miếng nữa: "Chua loét à, thôi bà không ăn đâu."
 
 "Ha ha ha..."
 
-Ánh hoàng hôn buông xuống, trước sân vang lên tiếng cười rộn rã, ngay cả Vương Kim Như cũng bật cười.
+Ánh hoàng hôn buông lơi nơi chân trời, khoảnh sân trước rộn rã tiếng cười đùa ấm áp, ngay cả Vương Kim Như đứng bên cũng không kìm được nụ cười.
 
-Triệu Duyệt Thiên tung tăng nhảy nhót nói: "Bà nội cũng ăn McDonald's rồi, bà thấy ngon không ạ?"
+Triệu Duyệt Thiên nhảy chân sáo vui sướng: "Bà nội cũng được ăn McDonald's rồi nhé! Bà thấy có ngon không ạ?"
 
-Gương mặt đầy nếp nhăn của bà nội cười rạng rỡ: "Ngon, răng bà không tốt nữa rồi, để cho Thiên Thiên ăn nhé."
+Bà nội với gương mặt hằn sâu những nếp nhăn nở nụ cười hiền hậu: "Ngon lắm, răng bà yếu rồi không nhai nổi nữa, để phần cho bé Thiên Thiên ăn nhé."
 
-Đây chính là sự ấm áp thuộc về những người "ở lại" như họ.
+Đó là những khoảnh khắc ấm áp, bình yên hiếm hoi thuộc về những con người "ở lại nơi làng quê".
 
-Nhìn đứa cháu trai cao ráo đẹp trai, sạch sẽ lại nghe lời, Vương Kim Như có chút không nỡ, cháu lên đại học thì phải một học kỳ mới về một chuyến.
+Nhìn đứa cháu trai vừa cao lớn, tuấn tú, lại sạch sẽ, hiểu chuyện, trong lòng Vương Kim Như bỗng dâng lên chút cảm giác luyến lưu không nỡ xa. Đứa cháu này một khi đã bước chân vào giảng đường đại học, có khi cả học kỳ mới về thăm nhà được một lần.
 
-Đúng vậy, Triệu Kim An mười tám tuổi cao 1m81, nước da trắng trẻo, không phải kiểu đẹp trai ngỗ ngược mà trông rất điềm tĩnh.
+Đúng vậy, chàng trai mười tám tuổi Triệu Kim An sở hữu chiều cao một mét tám mươi mốt, làn da trắng trẻo, không mang nét ngông nghênh ngỗ ngược mà toát lên vẻ trầm tĩnh, thư sinh nho nhã.
 
-Hắn dường như chưa từng có "thời kỳ phản nghịch", ở nhà rất nghe lời, ở trường cũng rất nghe lời.
+Hắn dường như chưa từng trải qua cái gọi là "giai đoạn nổi loạn tuổi dậy thì", ở nhà luôn là đứa cháu ngoan, đến trường cũng là người học trò mẫu mực, nghe lời thầy cô.
 
-Trong đêm.
+...
 
-Triệu Kim An nằm trên giường suy tư mãi.
+Đêm muộn.
 
-Năm 2006 thật sự là một năm lửng lơ, chịu ảnh hưởng của những bài diễn thuyết truyền cảm hứng đời sau, ai cũng biết câu nói kia —— đứng ở đầu gió thì lợn cũng có thể bay.
+Triệu Kim An nằm trằn trọc trên giường, dòng suy nghĩ miên man cuộn trào.
 
-Đầu gió nào?
+Năm 2006 thực sự là một mốc thời gian đầy lửng lơ và khó xử. Chịu ảnh hưởng từ những cuốn sách làm giàu, những câu danh ngôn truyền động lực ở kiếp sau, ai ai cũng nằm lòng câu nói kinh điển kia: "Đứng đúng đầu ngọn gió, đến lợn cũng có thể bay lên trời."
 
-Internet.
+Thế nhưng ngọn gió ấy là gì?
 
-Điều lửng lơ là, hai "đầu gió" lớn nhất của Internet là nhắn tin tức thời và nền tảng thương mại điện tử đều đã hình thành cục diện.
+Là Internet.
 
-Nhắn tin tức thời thì không cần nói nữa, không ai có thể thách thức Chim Cánh Cụt.
+Điều trớ trêu là, hai "đầu ngọn gió" lớn nhất của Internet lúc này — ứng dụng nhắn tin trực tuyến và nền tảng thương mại điện tử — cục diện thị trường gần như đã an bài xong xuôi.
 
-Theo "Báo cáo phân tích tài chính Chim Cánh Cụt" do iResearch công bố, số lượng tài khoản nhắn tin tức thời của Chim Cánh Cụt năm 2006 cao tới 580 triệu, thuộc tính mạng xã hội của nó định sẵn là rất khó bị thay thế.
+Về mảng nhắn tin tức thời thì khỏi phải bàn cãi, chẳng một ai đủ sức thách thức gã khổng lồ Chim Cánh Cụt (Tencent QQ).
 
-Trừ khi cấp cao của Chim Cánh Cụt đầu óc nhất thời mê muội đưa ra hạ sách thu phí.
+Theo "Báo cáo phân tích tài chính Tencent" do iResearch công bố, vào năm 2006, lượng tài khoản tin nhắn tức thời của Tencent đã đạt con số khổng lồ 580 triệu. Thuộc tính mạng xã hội gắn kết chặt chẽ của nó khiến nó gần như bất khả xâm phạm. Trừ phi ban lãnh đạo cấp cao của Tencent bỗng dưng phát sốt đến mức đi nước cờ tối tăm là thu phí người dùng.
 
-Taobao cũng trong năm này "đánh bại" EachNet, giành ưu thế tuyệt đối về thị phần, xác lập vị thế dẫn đầu.
+Mảng thương mại điện tử Taobao cũng chính trong năm nay đã hoàn toàn "đánh bại" EachNet (eBay Trung Quốc), chiếm ưu thế áp đảo về thị phần và xác lập vững chắc vị thế độc tôn dẫn đầu.
 
-Còn một đường đua cực kỳ lợi hại nữa là video ngắn, nhưng vẫn còn quá sớm.
+Còn một mảng kinh doanh vô cùng béo bở khác là video ngắn, nhưng thời điểm hiện tại thì lại còn quá sớm. Những nền tảng thuở sơ khai như YY, Đấu Ngư, Hổ Nha chỉ là những bước chuyển tiếp quá độ, chỉ có Douyin (TikTok) sau này mới thực sự là kẻ thống trị vượt trên tất cả.
 
-Thời kỳ đầu như YY, Douyu, Huya đều chỉ là sự tồn tại mang tính "quá độ", chỉ có Douyin mới là sự tồn tại vượt xa chúng.
+Triệu Kim An trở mình, mở chiếc điện thoại cục gạch, truy cập Baidu để tìm kiếm lại những "ký ức".
 
-Triệu Kim An trằn trọc mở điện thoại lên, vào Baidu, tìm kiếm một chút "ký ức".
+Vào năm 2006, điện thoại di động đã có thể lướt web tìm kiếm qua Baidu thông qua giao thức WAP thông thường, tốc độ mạng chậm chạp đến mức phát bực.
 
-Năm 2006 có thể dùng điện thoại vào Baidu, là kiểu truy cập WAP thông thường, tốc độ mạng cực chậm.
+Hắn chợt nhận ra vị tỷ phú giàu nhất Trung Quốc năm 2005 là Hoàng Quang Dụ, ông trùm chuỗi bán lẻ điện máy GOME.
 
-Đột nhiên phát hiện người giàu nhất năm 2005 là Hoàng Quang Ngộ, làm về siêu thị điện máy.
+Trong ký ức của hắn, đến năm 2008 người giàu nhất vẫn là nhân vật này.
 
-Trong ấn tượng của hắn, người giàu nhất năm 2008 cũng là ông ta.
+Sau đó là thời kỳ so kè thay phiên nhau giữa bất động sản (Bích Quế Viên, Vạn Đạt) và nước khoáng (Wahaha). Vạn Đạt dường như còn giữ vững ngôi vị giàu nhất suốt mấy năm liền.
 
-Sau đó là bất động sản (Bích Quế Viên, Vạn Đạt) và nước khoáng (Wahaha) thay phiên nhau.
+Tiếp theo đó mới thực sự là thiên hạ của các ông trùm công nghệ Internet.
 
-Vạn Đạt dường như còn giữ ngôi vị người giàu nhất trong mấy năm liền.
+Mãi đến năm 2021, ngôi vị người giàu nhất mới thuộc về Chủ tịch Chung Thiểm Thiểm của tập đoàn Nông Phu Sơn Tuyền, và ông giữ vững vị trí ấy suốt ba năm liên tiếp.
 
-Rồi sau đó mới là thiên hạ của Internet.
+Bất động sản kiếm ra bộn tiền thì ai ai cũng rõ, chỉ cần đến năm 2009 thị trường sẽ đón một đợt sốt đất điên cuồng, giá nhà tăng vọt theo cấp số nhân. Nhưng không ai ngờ nổi rằng những chai nước khoáng bán lẻ chỉ vỏn vẹn hai tệ một chai cũng có thể hái ra tiền khủng khiếp đến thế.
 
-Cho đến tận năm 2021, ngôi vị người giàu nhất mới bị Chung tổng của Nông Phu Sơn Tuyền chiếm giữ trong ba năm liên tiếp.
+Vừa điểm lại sơ lược những "đại xu thế" của thời đại, Triệu Kim An bỗng phát hiện điện thoại của mình đã bị khóa chiều gọi vì hết tiền.
 
-Bất động sản kiếm tiền thì ai cũng biết, năm 2009 sẽ đón một đợt sốt đất, giá nhà tăng vọt, nhưng không ngờ chai nước khoáng hai tệ một chai cũng kiếm tiền đến thế.
+Hắn quên mất rằng cước phí dung lượng mạng thời này đắt đỏ đến mức nào.
 
-Sơ lược lại "xu hướng lớn" một chút, Triệu Kim An đột nhiên phát hiện điện thoại bị khóa chiều gọi đi.
+Thực ra nghĩ thì nghĩ vậy thôi, không vốn liếng, không tài nguyên, không mối quan hệ, một người đàn ông ba mươi sáu tuổi như Triệu Kim An hiểu rất rõ rằng Trí tuệ nhân tạo (AI) chính là đại xu thế tương lai, là ngọn gió lớn nhất của thời đại mới, nhưng liệu có mấy ai thực sự kiếm được tiền từ nó?
 
-Hắn quên mất phí lưu lượng hiện tại quá đắt.
+Sau khi video ngắn bùng nổ, ai nấy đều biết AI là ngọn gió vĩ đại hơn, nhưng kẻ làm thân trâu ngựa thì rốt cuộc vẫn phải cắm đầu làm thân trâu ngựa mà thôi.
 
-Thực ra nghĩ thì cũng chỉ là nghĩ thôi, không vốn liếng, không tài nguyên, không mối quan hệ, Triệu Kim An ba mươi sáu tuổi biết AI là xu hướng lớn, là đầu gió lớn nhất, nhưng có mấy ai thực sự kiếm được tiền?
+Trong hộp thư đến của điện thoại vẫn còn nằm im lìm bốn tin nhắn chưa đọc:
 
-Có video ngắn rồi, ai cũng biết AI là đầu gió lớn hơn, nhưng kẻ phải làm trâu làm ngựa thì vẫn cứ tiếp tục làm trâu làm ngựa thôi.
+Mộc Dao: *Kim An, ngày mai cậu có lên thành phố không?*
 
-Trong hòm thư điện thoại còn nằm bốn tin nhắn chưa đọc:
+Mộc Dao: *Kim An, tớ xin lỗi, hôm qua là tớ sai rồi, cậu đừng giận nữa có được không?*
 
-Mộc Dao: Kim An, mai cậu có lên thành phố không?
+Mộc Dao: *Triệu Kim An, tớ giận cậu rồi đấy!*
 
-Mộc Dao: Kim An, xin lỗi nhé, hôm qua là tớ sai rồi, cậu đừng giận nữa được không?
+Du Phi: *Triệu Kim An, cậu đã về chưa thế?*
 
-Mộc Dao: Triệu Kim An, tớ giận rồi đấy!
+Lời hờn dỗi "Tớ giận cậu rồi đấy" của các cô gái nhỏ thực chất chính là "Cậu mau đến dỗ dành người ta đi mà". Mộc Dao của tuổi mười tám à... Được rồi, đây chính là tâm lý của một cô bé mới lớn, một thiếu nữ đang đắm chìm trong tình yêu đầu đời.
 
-Du Phỉ: Triệu Kim An, cậu về chưa?
+Triệu Kim An không trả lời tin nhắn, mà điện thoại hết tiền thì muốn nhắn cũng chẳng được.
 
-Câu "tớ giận rồi" của con gái chính là "cậu mau đến dỗ tớ đi", Mộc Dao mười tám tuổi à, được rồi, đây chính là con gái, một cô gái bình thường khi đang yêu.
+Có lẽ vì cả ngày dài bươn chải quá mệt mỏi, hắn chìm dần vào giấc ngủ mơ màng lúc nào không hay.
 
-Triệu Kim An không trả lời tin nhắn, điện thoại hết tiền cũng chẳng trả lời được.
+...
 
-Có lẽ do bận rộn cả ngày quá mệt mỏi, hắn mơ màng rồi ngủ thiếp đi.
+Sáng sớm hôm sau, mặt trời vừa ló rạng sau rặng cây, giữa cơn ngái ngủ mơ màng hắn đã nghe thấy ngoài cửa sổ có tiếng người trò chuyện to nhỏ:
 
-Sáng sớm hôm sau, mặt trời vừa mới ló rạng, trong lúc còn mơ màng hắn nghe thấy ngoài cửa sổ có tiếng người đang nói chuyện.
+"Cảm ơn bác nhiều nhé, bác Cả à, nhưng thôi chuyện của thằng Kim An cứ bỏ qua đi ạ."
 
-"Cảm ơn bác nhé bác cả, nhưng Kim An thôi chắc không đi đâu."
+Đó là giọng của bà nội.
 
-Đây là giọng của bà nội.
+"Một trăm hai mươi tệ một ngày đấy thím, chỉ làm có nửa ngày hơn thôi, cũng không vất vả lắm đâu, chỉ đứng bên lề đường bốc gỗ lên xe tải. Bao nhiêu người tranh nhau làm mà tôi phải cố tình dành riêng một suất cho thằng Kim An đấy!"
 
-"120 tệ một ngày, làm có hơn nửa ngày thôi, cũng không vất vả lắm, chỉ ở bên lề đường bốc xếp lên xe, bao nhiêu người tranh nhau làm đấy, tôi đặc biệt đến tính suất cho Kim An một chân!"
+"Thằng Kim An với thằng Trí Dũng đang đi bắt cá mang bán, cũng kiếm được đồng ra đồng vào rồi." Bà nội từ tốn đáp.
 
-"Kim An với Chí Dũng đang bán cá, cũng kiếm được chút tiền."
+"Bán cá một ngày kiếm được mấy chục tệ, lại còn phải chia đôi cho hai đứa, hôm nào mưa gió là coi như móm. Cái việc bốc gỗ này làm liền một mạch hơn một tháng là đủ tiền học phí đại học cho thằng Kim An rồi còn gì."
 
-Bà nội nói.
+Người lên tiếng cũng mang ý tốt, đó là bác tổ trưởng trong làng.
 
-"Bán cá một ngày mới được mấy chục tệ, lại còn phải hai đứa chia nhau, ngày mưa còn chẳng có mà làm, việc này có thể làm hơn một tháng, đủ tiền học phí cho Kim An luôn."
+Một trăm hai mươi tệ một ngày, vào năm 2006 quả thực là mức thù lao rất cao đối với lao động chân tay.
 
-Người nói chuyện cũng có ý tốt, là tổ trưởng trong thôn.
+"Bác Cả ơi, thằng Kim An nhà em sẽ không đi đâu!"
 
-120 tệ một ngày, vào năm 2006 đúng là mức lương rất cao rồi.
+Lần này là giọng của Vương Kim Như vang lên, tính bà đanh đá, giọng nói lúc nào cũng the thé và dõng dạc.
 
-"Bác cả ơi, Kim An sẽ không đi đâu!"
+"Cây gỗ to tướng như thế mà bác nỡ bắt thằng Kim An theo mấy người đi bốc vác lên xe tải sao?!"
 
-Đây là giọng của Vương Kim Như, nàng đanh đá, nói năng cũng oang oang.
+"Thằng Kim An nhà em là sinh viên đại học danh giá, cái thân hình thư sinh mỏng manh ấy làm sao kham nổi cái khổ cực nhọc nhằn đó được!"
 
-"Khúc gỗ to như thế, bác định bắt Kim An đi theo các bác bốc vác lên xe sao!?"
+Dựa núi ăn núi, dựa sông ăn sông, những người còn bám trụ lại làng họ Triệu chỉ trông chờ vào những công việc làm thuê làm mướn thời vụ để kiếm thêm thu nhập. Cây cối đẵn trên đồi xuống, cưa thành từng khúc rồi bốc xếp lên thùng xe tải. Bốc gỗ là một công việc đòi hỏi sức lực ghê gớm. Thùng xe chở gỗ càng cao thì càng tốn nhiều sức, thường phải cần đến mấy người đàn ông vạm vỡ cùng nhau hợp lực khiêng vác.
 
-"Kim An nhà chúng ta là sinh viên đại học, cái thân hình kia của nó cũng không chịu nổi cái khổ này đâu!"
+Nếu là bốc tre thì đỡ hơn nhiều, chỉ cần hai người là có thể lo liệu êm xuôi, một người đứng dưới đất chuyền lên, một người đứng trên thùng xe đón lấy.
 
-Sống ở núi dựa vào núi, sống ở sông dựa vào sông, những người ở lại Triệu Gia Thôn dựa vào việc làm thuê kiếm chút tiền, gỗ trên núi chặt xuống, cưa ra, bốc lên xe, bốc vác là việc tốn sức.
+Triệu Kim An tuy mỗi lần về quê đều phải phụ giúp việc đồng áng như gặt lúa, phơi thóc, đôi khi còn gánh nước tưới rau cho bà nội, nhưng bà nội và Vương Kim Như chưa từng bao giờ để hắn phải đi "bán sức" làm những công việc lao lực nặng nhọc bốc vác như thế.
 
-Xe chở gỗ càng cao thì càng cần sức, thường xuyên cần mấy người hợp lực mới được.
+Một lát sau, bên ngoài đường vang lên tiếng nổ bành bạch của chiếc máy kéo, người đã rời đi.
 
-Nếu là tre trúc thì đỡ hơn nhiều, hai người là có thể lo liệu xong.
-
-Một người dưới xe, một người trên xe.
-
-Triệu Kim An tuy về nhà phải làm việc đồng áng, như gặt lúa phơi thóc loại này, đôi khi còn phải giúp bà gánh nước tưới rau, nhưng bà nội và Vương Kim Như chưa bao giờ để hắn đi "bán" sức lao động khổ sai như thế.
-
-Lát sau nghe thấy tiếng máy cày vang lên bên đường, người đã đi rồi.
-
-Triệu Kim An ngủ dậy bước ra khỏi phòng ngủ, đứng ở cửa vươn vai một cái.
+Triệu Kim An rời giường bước ra khỏi phòng ngủ, đứng ở hiên cửa vươn vai thật dài.
 
 "Anh ơi~"
 
-Triệu Duyệt Thiên ngồi trên chiếc ghế đẩu nhỏ ở cửa, tay vẫn cầm túi tương cà McDonald's hôm qua ăn một cách ngon lành, dính trên đầu ngón tay một chút cũng không nỡ bỏ mà liếm sạch.
+Bé Triệu Duyệt Thiên đang ngồi ngay ngắn trên chiếc ghế đẩu nhỏ trước cửa, tay vẫn cầm gói tương cà McDonald's hôm qua chấm mút ngon lành, chút tương dính trên đầu ngón tay cũng không nỡ bỏ mà mút sạch sành sanh.
 
-Triệu Kim An ngồi xổm xuống, giúp Triệu Duyệt Thiên lau cái miệng nhỏ: "Đừng ăn nữa, nếu em thích, anh lại mua cho em."
+Triệu Kim An ngồi xổm xuống, lấy khăn lau nhẹ khóe miệng cho con bé: "Đừng ăn nữa em, nếu em thích thì hôm nào anh lại mua cho nhé."
 
 "Anh ơi, em muốn chơi cầu trượt cơ."
 
-Triệu Duyệt Thiên mặt đầy mong đợi, nàng nhớ trong tiệm McDonald's có một cái cầu trượt.
+Đôi mắt Triệu Duyệt Thiên tràn đầy vẻ mong chờ, con bé vẫn nhớ như in bên trong quán McDonald's có một chiếc cầu trượt rực rỡ sắc màu.
 
-Triệu Kim An mặt đầy vẻ cưng chiều, gật đầu: "Được."
+Triệu Kim An nhìn cô em gái nhỏ với ánh mắt tràn ngập yêu thương, khẽ gật đầu: "Được chứ."

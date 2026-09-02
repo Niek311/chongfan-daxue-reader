@@ -1,197 +1,199 @@
-# Chương 67: Thích Tôi Là Vinh Dự Của Tôi, Tôi Không Hề Coi Thường
+# Chương 67: Thích tôi là vinh hạnh của tôi, tôi chưa từng coi thường cô ấy
 
-Cô Ấy
+> **Tiêu đề gốc**: 第67章 喜欢我是我的荣幸，我没有瞧不上她。
 
-Bước ra khỏi nhà ăn, Triệu Kim An đi thẳng đến văn phòng chứ không gọi điện cho Đơn Vĩ.
+Rời khỏi nhà ăn, Triệu Kim An đi thẳng tới văn phòng mà không gọi điện cho Đan Vĩ.
 
-Thay đổi một gia đình rất dễ dàng, đó là tiền!
+Muốn thay đổi vận mệnh của một gia đình thực ra rất đơn giản: Tiền!
 
-Sau khi quay lại Quận Sa, ngay trong ngày hôm đó Triệu Kim An đã gọi điện cho Vương Kim Như, bảo thím nhân lúc trời chuyển lạnh thì dẫn Triệu Duyệt Thiên lên phố mua vài bộ quần áo đẹp, đừng có giữ khư khư tiền để lo cho hắn cưới vợ.
+Ngay ngày đầu tiên quay lại Quận Sa, Triệu Kim An đã gọi điện về cho mẹ Vương Kim Như, dặn mẹ trời trở lạnh rồi thì dắt bé Triệu Duyệt Thiên lên phố sắm sửa vài bộ quần áo tươm tất, tiền cứ tiêu thoải mái, không cần chắt bóp để dành cưới vợ cho con làm gì.
 
-Ngày hôm sau Vương Kim Như đã dẫn Triệu Duyệt Thiên đi rồi, còn có cả Doãn Hiểu Lan nữa. Họ còn nói đã mua cho bà nội một đôi giày vải Bắc Kinh "rất đắt", nhưng chẳng ai dám khai thật giá tiền với bà.
+Sang ngày hôm sau, Vương Kim Như liền dẫn theo Triệu Duyệt Thiên cùng Doãn Hiểu Lan lên thị trấn sắm đồ. Mẹ còn hí hửng khoe đã mua tặng bà nội một đôi giày vải Bắc Kinh "đắt tiền", giá đắt đến mức không dám nói thật cho bà biết.
 
-Hiện giờ cũng vậy!
+Hiện tại ở đây cũng tương tự như thế!
 
-Hễ có thời gian rảnh, Đơn Vĩ lại ở nhà nấu cơm cho cô con gái đang học lớp mười hai. Kinh tế dư dả hơn một chút, trên bàn ăn đã có đủ bốn món một canh, có cả thịt lẫn rau.
+Đan Vĩ hễ có thời gian rảnh rỗi là lại ở nhà tự tay nấu nướng cho cô con gái đang học lớp mười một, kinh tế gia đình cũng dư dả hơn đôi chút. Bữa cơm trên bàn giờ đây đủ đầy bốn món một canh, có thịt có rau đàng hoàng.
 
-Chẳng giống như đêm đầu tiên Triệu Kim An đến nhà ông, trên bàn chỉ có hai đĩa thức ăn thừa "đen thui thui".
+Không còn giống như cái đêm đầu tiên Triệu Kim An ghé thăm, trên bàn ăn khi ấy chỉ trơ trọi hai đĩa thức ăn thừa thâm sì nguội ngắt.
 
-Đơn Vĩ bảo Hồ Thần buổi tối cũng ăn cơm ở đây.
+Đan Vĩ kể tối nay Hồ Thần cũng ăn cơm ở đây.
 
-Tầng hai chính là văn phòng, Đơn Vĩ và Hồ Thần giờ đã xem như đồng nghiệp.
+Tầng hai chính là văn phòng làm việc, Đan Vĩ và Hồ Thần giờ đã xem như đồng nghiệp của nhau.
 
-Hồ Thần chuyển đến rất nhiều nước ngọt và nước trái cây, công ty hiện có bảy loại sản phẩm nước trái cây khác nhau.
+Hồ Thần chở đến cả đống nước giải khát và nước ép trái cây, công ty hiện có tới bảy loại sản phẩm nước ép hoa quả khác nhau.
 
-Đơn Vĩ nói bây giờ ông và Đơn Na Tề uống nước ngọt đến phát ngấy.
+Đan Vĩ cười bảo giờ hai bố con anh uống nước ngọt trừ bữa cũng chẳng hết.
 
-Trên văn phòng tầng hai, các thùng nước được xếp thành chồng thành lớp. Triệu Kim An cầm một chai nước ép kiwi lên hỏi: "Vị thế nào?"
+Trên văn phòng tầng hai, các thùng nước giải khát xếp chồng lên nhau thành từng dãy. Triệu Kim An tiện tay cầm một chai nước ép kiwi lên, quay sang hỏi: "Hương vị thế nào anh?"
 
-Đơn Vĩ gãi đầu, bảo là ngon.
+Đan Vĩ gãi đầu gãi tai, thật thà đáp: "Ngon lắm chú."
 
-Sản phẩm của công ty mình, Đơn Vĩ sao có thể nói không ngon được?
+Dù sao cũng là sản phẩm của công ty mình làm ra, Đan Vĩ sao có thể mở miệng chê dở được chứ?
 
-Triệu Kim An mỉm cười, lại nhìn sang Đơn Na Tề ở bên cạnh.
+Triệu Kim An khẽ cười, rồi dời ánh mắt sang cô bé Đan Na Tề đang đứng bên cạnh.
 
 "Anh Kim An..."
 
-Đơn Na Tề cao 1m62, để tóc học sinh. Triệu Kim An nhận định cô bé này rất thông minh, qua vài lần tiếp xúc, hắn thấy cô bé giống như "quân sư" của bố mình vậy, Đơn Vĩ rất nghe lời con gái.
+Đan Na Tề cao tầm 1m62, để mái tóc ngắn học sinh gọn gàng. Triệu Kim An nhận thấy cô bé này rất lanh lợi và thông minh, qua vài lần tiếp xúc có cảm giác em chẳng khác nào quân sư quạt mo cho bố mình, Đan Vĩ chuyện gì cũng răm rắp nghe theo lời con gái.
 
-"Em học lớp mười hai rồi, buổi tối không có tiết sao?"
+"Em học lớp mười một rồi, tối nay không phải đi học à?"
 
-"Hôm nay là thứ Sáu, là tiết tự học ạ."
+"Hôm nay thứ Sáu mà anh, bọn em chỉ có tiết tự học thôi."
 
-Triệu Kim An gật đầu: "Vậy em nói thử xem."
+Triệu Kim An gật đầu: "Vậy em nhận xét thử xem nào."
 
-Đơn Na Tề biết Triệu Kim An hỏi không phải là chuyện "ngon hay không ngon". Cô bé suy nghĩ một chút rồi đáp: "Anh Kim An, chai này to quá, bao bì lại xanh loét... Không phải màu xanh không tốt, mà là xanh nhìn không thanh thoát, không đẹp mắt."
+Đan Na Tề hiểu ngay Triệu Kim An không phải hỏi bâng quơ câu "ngon hay dở", cô bé ngẫm nghĩ một thoáng rồi nói: "Anh Kim An, chai này dung tích to quá, với cả vỏ bao bì màu xanh này trông... Không phải màu xanh không đẹp, mà là cái sắc xanh này nhìn không được thanh thoát, tươi mới, trông cứ quê quê thế nào ấy."
 
-"Chú Hồ nói bán 6.5 tệ một chai, nói chung là em sẽ không mua đâu."
+"Anh Hồ bảo giá bán lẻ sáu tệ rưỡi một chai, nói thật là em thì em sẽ không mua đâu."
 
-"Cái chai lỡ cỡ thế này, một người uống không hết, cầm trên tay không tiện, mà mấy người uống thì lại thiếu, thà bỏ ra 7 tệ mua chai lớn Coca hay Sprite còn hơn."
+"Chai nước này lỡ cỡ, dở dở ương ương. Một người uống thì quá nhiều, cầm trên tay đi lại rất vướng víu; mà mấy người chia nhau thì lại không đủ uống, thà bỏ bảy tệ ra mua luôn chai Coca hay Sprite cỡ lớn còn kinh tế hơn."
 
 "Na Tề..."
 
-Đơn Vĩ nháy mắt ra hiệu với con gái, sao con có thể chê bai sản phẩm công ty mình như thế.
+Đan Vĩ vội vàng nháy mắt ra hiệu với con gái: Sao con lại dám chê bai thẳng thừng sản phẩm của công ty người ta như thế!
 
-Triệu Kim An lại nói: "Na Tề nói đúng đấy, đối tượng khách hàng của dòng nước ép này định vị không rõ ràng. Ngay cả ở nông thôn khi làm đám cưới người ta cũng không thích màu này, kích cỡ thì lỡ cỡ, giá lại chẳng thấp..."
+Thế nhưng Triệu Kim An lại tán đồng: "Na Tề nói rất chuẩn. Tệp khách hàng mục tiêu của dòng nước ép này định vị hoàn toàn không rõ ràng. Ngay cả ở nông thôn khi làm cỗ bàn, người ta cũng chẳng chuộng cái màu xanh lợt lạt này, dung tích lại lỡ cỡ, giá bán thì không hề rẻ..."
 
-Đôi khi Triệu Kim An cũng không hiểu nổi Lạc Cẩn Chi, người phụ nữ này cứ thích đi đường tắt, làm ra mấy thứ kỳ quặc.
+Đôi lúc Triệu Kim An cũng chẳng hiểu nổi người phụ nữ Lạc Cẩn Chi kia nghĩ gì, lúc nào cũng thích đi đường tắt, làm ra những thứ kỳ quặc dị hợm.
 
-Không phải bảo nước ép kiwi không ổn, nhưng sản phẩm này phải biết đóng gói, đi theo lộ trình cao cấp, làm cái chai tinh tế một chút, dung tích nhỏ thôi, chủ đạo là làm đẹp da.
+Không phải bảo nước ép kiwi không có đất sống, mà là loại sản phẩm này bắt buộc phải làm bao bì thật sang trọng, đi theo phân khúc cao cấp! Chai lọ phải thiết kế tinh xảo, dung tích nhỏ gọn thanh lịch, đánh mạnh vào thông điệp làm đẹp, dưỡng da, giữ dáng.
 
-Tốt nhất là tách biệt hẳn với các loại nước ngọt thông thường, giá cả cũng không được thấp.
+Tốt nhất là phải tách biệt hoàn toàn khỏi các dòng nước ngọt thông thường, và giá bán tuyệt đối không được rẻ.
 
-Một chai nhỏ bán 6 tệ, như vậy mới tôn được cái "tầm" của phụ nữ.
+Một chai nhỏ xíu bán hẳn sáu tệ, như thế mới nâng tầm đẳng cấp của chị em phụ nữ lên được chứ.
 
-Người ta cầm chai nước cam 3 tệ, mình cầm chai kiwi này lên...
+Người khác cầm chai nước cam ép ba tệ, còn tôi cầm chai nước ép kiwi thượng hạng...
 
-Nghĩ đến đây, Triệu Kim An mở máy tính trao đổi với Lạc Cẩn Chi. Trước tiên phải lấy mẫu nước ép kiwi này ra cải tiến, tủ lạnh lớn như vậy thì sản phẩm cũng phải phong phú lên.
+Nghĩ tới đây, Triệu Kim An lập tức mở máy tính lên trao đổi trực tiếp với Lạc Cẩn Chi. Trước mắt sẽ lấy dòng nước ép kiwi này ra làm cuộc cải tổ đầu tiên, tủ mát to như vậy thì danh mục sản phẩm bày bên trong cũng phải đa dạng, phong phú.
 
-Lạc Cẩn Chi không có ý kiến gì khác, chỉ lo giá định cao quá.
+Lạc Cẩn Chi không có ý kiến gì khác, chỉ nơm nớp lo ngại mức giá định ra quá cao.
 
-Cô không biết rằng sau này nước khoáng đóng chai thủy tinh bán vài chục tệ một chai vẫn có khách hàng đấy thôi.
+Chị làm sao biết được sau này thị trường nước khoáng phát triển đến mức nào, có những chai nước khoáng đóng chai thủy tinh giá vài chục tệ đến cả trăm tệ vẫn có người tranh nhau mua.
 
-Đây là sự hạn chế về tầm nhìn.
+Đó chính là sự hạn hẹp về tầm nhìn thời đại.
 
-Hơn nữa, có những thứ giá thấp quá lại không làm nổi bật được đẳng cấp của nó.
+Huống hồ có những món đồ nếu định giá quá thấp thì ngược lại sẽ tự đánh mất đi vẻ sang chảnh và giá trị hình ảnh của chính nó.
 
-Thấy Triệu Kim An bắt đầu làm việc, Đơn Vĩ liếc nhìn thùng rác thấy sạch sẽ, liền kéo Đơn Na Tề đi ra ngoài.
+Thấy Triệu Kim An bắt đầu tập trung cao độ vào công việc, Đan Vĩ liếc nhìn thùng rác thấy sạch sẽ không có rác, liền kéo con gái đi xuống lầu để trả lại không gian yên tĩnh cho cậu.
 
-Mãi đến tận 11 giờ đêm, nghe thấy tiếng đóng cửa trên lầu, Đơn Na Tề đang ôn bài ngẩng đầu lên, biết Triệu Kim An đã tan làm để về ký túc xá trường.
+Mãi cho tới tận mười một giờ đêm, nghe thấy tiếng cọt kẹt khép cửa trên tầng hai, Đan Na Tề đang ngồi ôn bài mới ngẩng đầu lên. Cô bé biết Triệu Kim An đã tan làm và chuẩn bị trở về ký túc xá trường.
 
-Hôm đó Đơn Na Tề nói lên đại học muốn học quản trị kinh doanh, thực ra cô bé còn cân nhắc một chuyên ngành nữa: Thư ký.
+Hôm trước Đan Na Tề bảo lên đại học muốn học Quản trị kinh doanh, nhưng thật ra trong lòng cô bé còn cân nhắc thêm một ngành nữa: Thư ký văn phòng.
 
-Đơn Vĩ đã ra xe chờ sẵn.
+Đan Vĩ lúc này đã đứng chờ sẵn bên cạnh chiếc xe dưới sân.
 
-Họ chưa từng nghĩ đến việc một người làm tài xế, một người làm thư ký.
+Hai bố con chưa từng nghĩ tới viễn cảnh: một người làm tài xế, một người làm thư ký.
 
-Nếu thật sự như vậy, hai nghề này... họ sẽ là những người "gần gũi" nhất với Triệu Kim An trong công việc.
+Nếu sau này thực sự như vậy, thì hai công việc này... có thể nói là những người gần gũi, gắn bó nhất trong sự nghiệp của Triệu Kim An.
 
-Triệu Kim An ngồi ở hàng ghế sau. Gần đến trường, không cần nhắc nhở, Đơn Vĩ đã kéo hết cửa kính xe lên. Chiếc Audi A6 chạy vào trong trường, đỗ ở một nơi vắng người, ánh sáng lờ mờ.
+Triệu Kim An ngồi ở hàng ghế sau. Khi xe chạy gần tới cổng trường, chẳng cần ai nhắc nhở, Đan Vĩ đã chủ động kéo kín toàn bộ cửa kính xe lại. Chiếc Audi A6 từ từ lăn bánh vào khuôn viên trường, rồi lặng lẽ dừng lại ở một góc khuất vắng người, ánh đèn đường mờ tối.
 
-Trở về ký túc xá, Lưu Sấm Phong đang ngồi trước máy tính, Trần Trạch lại đứng bên cạnh.
+Trở về phòng 303, Lưu Sấm Phong đang ngồi dán mắt vào màn hình máy tính, còn Trần Trạch thì đứng khoanh tay bên cạnh.
 
-Ba người đang tập trung cao độ nhìn chằm chằm vào màn hình.
+Cả ba người bọn họ đều đang chăm chú nhìn chằm chằm vào màn hình.
 
-"Chậc chậc chậc, đúng là đứa sau thảm hơn đứa trước."
+"Chậc chậc chậc, đúng là một người khổ hơn một người, thi nhau thảm họa."
 
-Trần Trạch tặc lưỡi.
+Trần Trạch tặc lưỡi cảm thán.
 
-Các sinh viên rất quan tâm đến chuyện học bổng trợ cấp, sau khi rời lớp học vào ngày hôm sau, họ đã điền đầy đủ thông tin chi tiết và gửi lại cho ba cán sự lớp.
+Sinh viên trong lớp cực kỳ sốt sắng với khoản tiền trợ cấp khó khăn này. Vừa bước ra khỏi lớp hôm trước, sang ngày hôm sau ai nấy đã nhanh chóng điền đầy đủ thông tin chi tiết vào biểu mẫu rồi nộp lại cho ba cán sự lớp.
 
-Một nữ sinh tên là Lý Ngải Lan điền là cha mẹ ly hôn, mẹ không có thu nhập, còn dán thêm một tấm ảnh thẻ. Cốc Siêu Thừa cầm tài liệu, không khỏi nhíu mày.
+Một nữ sinh tên là Lý Ngải Lan ghi hoàn cảnh bố mẹ ly hôn, mẹ không có thu nhập cố định, bên góc còn dán một tấm ảnh thẻ. Cốc Siêu Thừa cầm tờ khai lên xem, bất giác nhíu mày:
 
-"Không nhận ra đấy, Lý Ngải Lan này nhìn chẳng giống hộ nghèo chút nào."
+"Nhìn thế này chẳng ai nhận ra được, cái bạn Lý Ngải Lan này trông đâu có giống diện hộ nghèo chút nào đâu."
 
-"Ở trên lớp thấy ăn mặc cũng sành điệu lắm, chẳng kém Lâm Thanh Tuyết là bao, không ngờ ảnh thẻ lại ra nông nỗi này. Tôi còn xem qua không gian QQ của cô ta, hôm nay một ly trà sữa, mai một ly trà sữa..."
+"Ở trên lớp thấy ăn mặc chưng diện sành điệu ra phết, so với Lâm Thanh Tuyết cũng chẳng kém cạnh là bao. Không ngờ ảnh thẻ mộc mạc lại trông thế này. Tao còn vào trang QQ cá nhân của bạn ấy xem rồi, nay khoe cốc trà sữa, mai lại khoe ly nước ép..."
 
-Lưu Sấm Phong nghe xong không vui, ngẩng đầu nói: "Lão Cốc, ông lấy Lý Ngải Lan đi so với Tiểu Tuyết của tôi à? Cô ta làm sao đẹp bằng Tiểu Tuyết nhà tôi được?"
+Lưu Sấm Phong nghe thấy thế liền tỏ vẻ không vui, ngẩng đầu lên cự nự: "Lão Cốc, mày đem Lý Ngải Lan ra so sánh với Tiểu Tuyết của tao đấy à? Cô ta lấy đâu ra cửa mà đẹp bằng Tiểu Tuyết nhà tao?"
 
 "Kém chỗ nào chứ?"
 
-Cốc Siêu Thừa cãi lại một câu.
+Cốc Siêu Thừa cãi lại.
 
-Ảnh thẻ là ảnh mặt mộc, Lý Ngải Lan ở trên lớp chắc chắn là xinh hơn nhiều, nhìn cứ như hai người khác nhau.
+Ảnh thẻ là ảnh mặt mộc nguyên bản, chứ Lý Ngải Lan ngoài đời trên lớp chắc chắn ưa nhìn hơn nhiều, nhìn cứ như hai con người khác nhau vậy.
 
-Nếu bảo ảnh thẻ chỉ được 6.5 điểm, thì trang điểm ăn diện vào phải được 8.5 điểm.
+Nếu chấm điểm ảnh thẻ chỉ được 6,5 điểm, thì sau khi trang điểm, ăn mặc chỉn chu vào phải vọt lên 8,5 điểm.
 
-Trần Trạch liếc mắt nhìn rồi nhận xét: "Của Lâm Thanh Tuyết thì to hơn."
+Trần Trạch liếc mắt đánh giá một câu: "Của Lâm Thanh Tuyết to hơn nhiều."
 
-Triệu Kim An từng thấy Lâm Thanh Tuyết mặc váy ngủ, Trần Trạch chắc cũng đã từng thấy.
+Triệu Kim An từng nhìn thấy dáng vẻ Lâm Thanh Tuyết mặc váy ngủ, có lẽ Trần Trạch cũng từng vô tình bắt gặp rồi.
 
-Lưu Sấm Phong không hiểu ý đồ sâu xa, dù sao Lâm Thanh Tuyết "to" là chuyện ai cũng thấy rõ, nhưng hắn vẫn nhắc nhở Trần Trạch: "Trạch ca, anh đừng có khinh bạc Lâm Thanh Tuyết như vậy, tôi và Lâm Thanh Tuyết chỉ còn thiếu một chút xíu nữa thôi."
+Lưu Sấm Phong ngây ngô không hiểu hết hàm ý sâu xa, dẫu sao cái sự "đẫy đà" của Lâm Thanh Tuyết cũng là điều ai nhìn bằng mắt thường cũng thấy rõ mười mươi. Có điều cậu ta vẫn lên tiếng nhắc nhở Trần Trạch: "Trạch ca, anh đừng có buông lời cợt nhả suồng sã với Lâm Thanh Tuyết như thế. Em với cô ấy sắp thành một đôi tới nơi rồi đấy."
 
-"Hì hì, được."
+"Haha, được rồi, biết rồi."
 
-Trần Trạch gật đầu phụ họa, lại cầm một tờ đơn khác lên: "Đường Hiểu Tình này còn thảm hơn, cha mất rồi, mẹ lại bệnh tật phải uống thuốc, đúng là... ầy."
+Trần Trạch cười xòa gật đầu, rồi cầm một tờ phiếu khai khác lên: "Cái bạn Đường Hiểu Tình này còn thảm hơn nhiều. Bố mất sớm, mẹ lại đau ốm quanh năm phải uống thuốc triền miên, đúng là... ai da."
 
-Cốc Siêu Thừa nói: "Đường Hiểu Tình đúng là tội nghiệp thật, chắc thông tin này là thật đấy."
+Cốc Siêu Thừa thở dài: "Đường Hiểu Tình đúng là tội nghiệp thật, hoàn cảnh của bạn ấy chắc chắn là thật một trăm phần trăm."
 
-"Sao tôi lại không nhận ra nhỉ? Đường Hiểu Tình lúc nào cười cũng... cũng rất tươi tắn rạng rỡ mà."
+"Sao tao chẳng nhận ra nhỉ? Bình thường thấy Đường Hiểu Tình cười lên trông rất... rất tươi tắn rạng rỡ cơ mà."
 
-"Chẳng lẽ bắt người ta ngày nào cũng phải mặt ủ mày chau?"
+"Chứ chẳng lẽ mày bắt người ta lúc nào cũng phải trưng cái bộ mặt ủ dột than khóc ra cho thiên hạ xem à?"
 
-Cốc Siêu Thừa phản bác: "Đường Hiểu Tình không trang điểm, quần áo của cô ấy cũng rất, rất giản dị."
+Cốc Siêu Thừa phản bác: "Đường Hiểu Tình chẳng bao giờ trang điểm son phấn, quần áo bạn ấy mặc cũng rất... rất giản dị."
 
-"Giống như mặc từ nhiều năm trước rồi ấy." Cốc Siêu Thừa nói một cách tế nhị.
+"Cứ như là đồ cũ mặc đi mặc lại suốt bao nhiêu năm rồi ấy," Cốc Siêu Thừa nói thêm một cách tế nhị.
 
-Trần Trạch suy nghĩ một chút: "Kim An, Kim An cũng đâu có giản dị, cho nên Lão Cốc, điều kiện ông nói không thành lập đâu. Chẳng lẽ Lý Ngải Lan cứ phải mặc đồ cũ rách mới là nghèo sao?"
+Trần Trạch ngẫm nghĩ một lát: "Kim An, Kim An cũng đâu có ăn mặc giản dị túng thiếu đâu, nên lý lẽ của lão Cốc không thuyết phục. Chẳng lẽ Lý Ngải Lan nhà nghèo thì cứ bắt buộc phải mặc quần áo rách rưới vá chằng vá đụp à?"
 
-Cốc Siêu Thừa: "..."
+Cốc Siêu Thừa cạn lời: "......"
 
-Cậu ta quả thật chưa từng nghĩ đến vấn đề này.
+Quả thật cậu ta chưa từng nghĩ tới góc độ này.
 
-Trần Trạch nói: "Quần áo của Kim An tuy không phải thương hiệu lớn gì, nhưng nhìn không hề rẻ tiền chút nào."
+Trần Trạch nói tiếp: "Đồ của Kim An tuy không phải hàng hiệu đắt tiền gì, nhưng nhìn chất vải và đường may tuyệt đối không hề rẻ tiền chút nào."
 
-"Ông không xem tài liệu à? Đường Hiểu Tình nói mẹ cô ấy có sổ hộ nghèo đấy!"
+"Chúng mày không biết đọc hồ sơ à? Đường Hiểu Tình ghi rõ mẹ bạn ấy có sổ hộ nghèo nhận trợ cấp xã hội đấy!"
 
-Lưu Sấm Phong cầm tài liệu lên xem: "Thật ra nhìn ảnh thẻ Đường Hiểu Tình xinh hơn Lý Ngải Lan nhiều, chỉ là hơi thấp một chút. Hôm qua lúc ra khỏi lớp, cô ấy đứng còn chưa tới ngực tôi, nhỏ thó như một mẩu ấy, ha ha."
+Lưu Sấm Phong cầm tờ khai lên ngắm nghía: "Nói thật thì nhìn ảnh thẻ Đường Hiểu Tình xinh xắn, ưa nhìn hơn Lý Ngải Lan nhiều, mỗi tội hơi nấm lùn một tí. Hôm qua đứng ngoài cửa lớp thấy bạn ấy chỉ đứng đến tầm ngực tao, bé xíu xiu một mẩu, haha."
 
-"Suỵt, lúc quân sự Đường Hiểu Tình chủ động với Kim An lắm, chắc là thích Kim An rồi."
+"Suỵt, đợt huấn luyện quân sự Đường Hiểu Tình chủ động quan tâm Kim An lắm đấy, chắc là thích Kim An rồi."
 
-Ký túc xá có một cán sự lớp, Trần Trạch và Cốc Siêu Thừa cứ thế cầm tài liệu bình phẩm, Lưu Sấm Phong chịu trách nhiệm nhập liệu vào máy tính, ba người xì xầm bàn tán.
+Trong phòng có một đứa làm cán sự lớp, Trần Trạch và Cốc Siêu Thừa cứ thế chụm đầu vào bình phẩm săm soi từng bộ hồ sơ, còn Lưu Sấm Phong thì phụ trách gõ thông tin nhập vào máy tính, ba đứa thì thầm to nhỏ với nhau.
 
-"Hì, tôi lại thấy Đường Hiểu Tình với Kim An khá là hợp nhau đấy, hay là cứ gán ghép cho hai người họ thành một đôi đi!"
+"Hì hì, tao thấy Đường Hiểu Tình với Kim An xứng đôi vừa lứa đấy chứ, hay là ghép đôi hai đứa nó luôn đi!"
 
-Lưu Sấm Phong vừa gõ bàn phím vừa nửa đùa nửa thật nói.
+Lưu Sấm Phong vừa gõ phím cành cạch vừa nửa đùa nửa thật buông một câu.
 
-"Xì."
+"Xì!"
 
-Cốc Siêu Thừa xì một tiếng, chua chát bảo: "Kim An không coi trọng Đường Hiểu Tình đâu, ông xem bạn gái cậu ta quen là hạng người nào, là kiểu như Mộc Dao ấy..."
+Cốc Siêu Thừa xì mũi một tiếng, chua ngoa nói: "Kim An đời nào thèm để mắt tới Đường Hiểu Tình. Mày nhìn xem bạn gái người ta trước đây là ai, là đẳng cấp cỡ như Mộc Dao kia kìa..."
 
-Đúng lúc này, Triệu Kim An vừa vặn bước vào.
+Đúng lúc này, Triệu Kim An vừa vặn đẩy cửa bước vào.
 
-Ba người giật nảy mình, lập tức ngậm miệng.
+Cả ba người giật bắn mình thót tim, lập tức ngậm chặt miệng lại.
 
-Trần Trạch cười gượng hỏi: "Kim An, ông đi đâu về thế?"
+Trần Trạch cười gượng gạo chữa thẹn: "Kim An, mày vừa đi đâu về đấy?"
 
-Triệu Kim An nhìn ba người bạn cùng phòng, nói: "Đường Hiểu Tình rất tốt, cha mất, mẹ bệnh không phải là lỗi của cô ấy."
+Triệu Kim An đưa mắt nhìn ba người bạn cùng phòng, cất giọng trầm tĩnh: "Đường Hiểu Tình rất tốt. Bố mất sớm, mẹ ốm đau bệnh tật hoàn toàn không phải là lỗi của cô ấy."
 
-Không xong rồi!
+Khoan đã!
 
-Hắn vừa nãy đứng ngoài nghe lén sao?
+Chẳng lẽ nãy giờ cậu ấy đứng nép ngoài cửa nghe trộm?
 
-Nghe thấy hết rồi!?
+Đã nghe thấy hết sạch sành sanh rồi sao!?
 
-Ba người vẻ mặt cười gượng gạo, không biết giấu mặt vào đâu.
+Cả ba đứa mặt mày sượng trân, ngượng ngùng đến mức chỉ muốn độn thổ cho xong.
 
-Triệu Kim An không thấy ngại, hắn còn ném mấy chai nước trái cây cho bọn Lưu Sấm Phong, nói với Cốc Siêu Thừa: "Nếu Đường Hiểu Tình thích tôi, đó là vinh dự của tôi, tôi không hề coi thường cô ấy."
+Nhưng Triệu Kim An thì chẳng hề tỏ ra lúng túng hay giận dỗi gì. Cậu tiện tay ném mấy chai nước ép hoa quả sang cho Lưu Sấm Phong và mấy đứa, rồi quay sang nhìn thẳng vào Cốc Siêu Thừa:
 
-Cốc Siêu Thừa: "..."
+"Nếu Đường Hiểu Tình thực sự thích tôi, đó là vinh hạnh của tôi. Tôi chưa bao giờ có suy nghĩ coi thường cô ấy cả."
 
-"Không phải đâu Kim An, tụi tôi không có nói xấu sau lưng ông, chỉ là..."
+Cốc Siêu Thừa: "......."
 
-Triệu Kim An lại xách nước trái cây đi ra ngoài, vỗ vỗ vào cửa nói: "Mấy loại nước trái cây này chắc tụi ông hiếm khi thấy, nếm thử đi, xem vị thế nào?"
+"Không... không phải đâu Kim An, bọn tao không có ý nói xấu sau lưng mày đâu, chỉ là..."
 
-"Kim An, tụi tôi chỉ là tán dóc thôi mà!"
+Triệu Kim An lại xách túi nước ngọt chuẩn bị bước ra ngoài, đưa tay vỗ vỗ lên cánh cửa: "Mấy loại nước ép này ngoài thị trường hiếm thấy lắm, chúng mày nếm thử xem mùi vị ra sao."
 
-Lưu Sấm Phong vẫn ráng hét vọng ra. Nhìn đống nước trái cây đủ loại trong tay, hắn lẩm bẩm: "Tụi ông bảo sao Kim An hào phóng thế nhỉ, đống nước này không tốn tiền mua chắc?"
+"Kim An, bọn tao chỉ tán dóc buôn chuyện tào lao thôi mà!"
 
-Cốc Siêu Thừa há hốc mồm: "Kim An... không giận đấy chứ?"
+Lưu Sấm Phong vội vàng gọi với theo, nhìn đống chai nước ép hoa quả đủ màu sắc rực rỡ trong lòng mình: "Tụi mày bảo xem sao Kim An hào phóng thế nhỉ, ngần này nước ngọt mua cũng tốn bộn tiền chứ ít ỏi gì đâu?"
 
-"Chính tại ông đấy, gán ghép cái gì mà gán ghép!?"
+Cốc Siêu Thừa mấp máy môi: "Kim An... không giận thật đấy chứ?"
 
-Trần Trạch cũng thấy câu nói của Lưu Sấm Phong quá đáng thật, cái gì mà sinh viên nghèo thì nên gán ghép thành một đôi chứ?
+"Tại mày hết đấy, tự dưng mở mồm ra bảo ghép đôi ghép họ làm gì!?"
 
-Chuyện này nói sao đây?
+Trần Trạch cũng cảm thấy câu đùa vừa rồi của Lưu Sấm Phong quá trớn và thiếu tế nhị. Sao hả, cứ là sinh viên nghèo có hoàn cảnh khó khăn thì mặc định phải tự động ghép đôi với nhau cho vừa tầm à?
 
-Đã đưa những tài liệu này cho bạn học, thì khó tránh khỏi việc bị đem ra bàn tán.
+Những chuyện thế này biết nói làm sao đây?
+
+Khi bạn đem toàn bộ thông tin gia cảnh nhạy cảm của mình giao nộp cho bạn bè cùng lớp nắm giữ, thì việc trở thành đề tài bàn tán xì xào sau lưng là điều không tài nào tránh khỏi.

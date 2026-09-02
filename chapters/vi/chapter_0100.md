@@ -1,223 +1,227 @@
-# Chương 100: Phu Nhân Thị Trưởng
+# Chương 100: Phu nhân Thị trưởng?
 
-Buổi sáng sớm tháng Tư vẫn còn vương chút se lạnh.
+> **Tiêu đề gốc**: 第100章 市长夫人？
 
-Thời tiết ở Quận Sa, nếu như trở trời thì thậm chí vẫn phải lôi áo phông ra mặc.
+Buổi sớm mai tháng Tư, tiết trời Quận Sa vẫn còn vương lại đôi chút se lạnh.
 
-Triệu Kim An chạy ra ngoài, Tô Miền lại đang ngồi một mình ở cổng trường.
+Khí hậu nơi đây vốn dĩ thất thường, hễ cứ trở trời trở gió là người ta lại phải lôi áo khoác lông vũ ra mặc như giữa mùa đông.
 
-"Sao nàng lại tới đây?"
+Triệu Kim An ba chân bốn cẳng chạy vội ra cổng trường, quả nhiên nhìn thấy Tô Miến đang một thân một mình lặng lẽ ngồi trên chiếc xe lăn quen thuộc.
 
-Tô Miền nói: "Ngươi nhớ ta rồi."
+"Sao em lại lặn lội đến đây thế này?"
 
-Triệu Kim An hít sâu một hơi, ngồi xổm xuống nắm lấy bàn tay hơi lạnh của Tô Miền, im lặng hồi lâu mới nói: "Đừng có chạy lung tung."
+Tô Miến ngước mắt lên nhìn anh: "Bởi vì anh đang nhớ em."
 
-Tô Miền nhìn đỉnh đầu Triệu Kim An, bảo: "Kim An, đây là lần đầu tiên ngươi chủ động gửi tin nhắn cho ta, ta phải tới chứ."
+Triệu Kim An hít một hơi thật sâu, chầm chậm ngồi xổm xuống trước mặt cô, vươn tay nắm lấy đôi bàn tay đang có phần lạnh ngắt của Tô Miến. Anh im lặng một hồi lâu, rồi mới khẽ cất giọng dặn dò: "Sau này đừng có chạy lung tung như thế nữa."
 
-Triệu Kim An không nói gì, lúc này hắn mới phát hiện ra Ngô Hiểu đang đứng cách đó không xa.
+Tô Miến nhìn đỉnh đầu của Triệu Kim An, nhẹ nhàng nói: "Kim An, đây là lần đầu tiên anh chủ động gửi tin nhắn cho em, em nhất định phải đến."
 
-Ngô Hiểu đúng là số khổ, nửa đêm nhận một cuộc điện thoại đã phải chạy tới sân bay đón người, giờ thì đang đứng bên lề đường hóng gió lạnh.
+Triệu Kim An không nói thêm lời nào nữa. Ánh mắt anh lúc này mới chợt nhìn thấy bóng dáng Ngô Hiểu đang đứng nép ở một góc cách đó không xa.
 
-"Ăn sáng chưa?"
+Ngô Hiểu quả thực chịu tội thay khổ chủ, nửa đêm nửa hôm vừa nhận được một cuộc điện thoại là phải lập tức phi xe hớt hải ra tận sân bay đón người, đến giờ này vẫn đang phải đứng co ro bên lề đường chịu từng cơn gió lạnh buốt thổi qua.
 
-Triệu Kim An đứng dậy, đẩy Tô Miền đi tìm một tiệm bún bò Tân Thị.
+"Em đã ăn sáng gì chưa?"
 
-Ngô Hiểu cũng đi theo sau.
+Triệu Kim An đứng dậy, đẩy chiếc xe lăn của Tô Miến rảo bước tìm đến một quán bún bò Tân Thị gần đó.
 
-"Ông chủ, cho ba bát bún bò, một bát không bỏ ớt."
+Ngô Hiểu cũng lẳng lặng đi theo sau.
 
-Triệu Kim An trả tiền, lại gọi thêm ba quả trứng kho trà.
+"Ông chủ, cho ba bát bún bò, một bát tuyệt đối không cho ớt nhé."
 
-Ngô Hiểu tự mình ngồi một bàn, còn chọn cái bàn xa xa một chút, nàng nào dám làm phiền Tô Miền và Triệu Kim An "hẹn hò", nàng biết Tô Miền chỉ thể hiện bộ dạng này trước mặt Triệu Kim An mà thôi.
+Triệu Kim An rút tiền thanh toán rồi gọi thêm ba quả trứng luộc nước trà.
 
-Ông chủ có chút kỳ lạ, đi cùng nhau mà sao lại ngồi riêng ra thế kia?
+Ngô Hiểu ý tứ chọn ngồi riêng một chiếc bàn ở tít góc xa. Cô tuyệt đối không dám cả gan xen vào làm phiền "buổi hẹn hò" ngọt ngào của đôi trẻ. Cô thừa hiểu tính khí Tô tiểu thư, chỉ khi đứng trước mặt Triệu Kim An thì cô nàng mới chịu bộc lộ cái dáng vẻ ngoan ngoãn, dịu dàng như thế này mà thôi.
 
-Triệu Kim An ngồi xổm bên cạnh xe lăn, bóc trứng kho trà cho Tô Miền.
+Ông chủ quán đưa mắt nhìn ba người với vẻ mặt đầy hiếu kỳ, đi chung một nhóm mà lại chia bàn ngồi cách xa nhau đến thế ư?
 
-Tô Miền nói: "Kim An, ta không thể giống như mấy cô gái nhỏ kia, muốn tới tìm ngươi là có thể tới ngay... Ta không đi lại được."
+Triệu Kim An ngồi xổm bên cạnh chiếc xe lăn, cần mẫn bóc vỏ quả trứng luộc nước trà rồi đưa cho Tô Miến.
 
-Tô Miền nhận lấy quả trứng nhưng không ăn.
+Tô Miến ngậm ngùi nói: "Kim An này, em không thể giống như mấy cô gái khác, hễ cứ muốn gặp anh là có thể tự do chạy tới tìm... Đôi chân em không đi lại được."
 
-Triệu Kim An cầm lấy đút cho nàng, nói: "Không đi lại được cũng tốt."
+Tô Miến nhận lấy quả trứng nhưng không buồn ăn.
 
-Ngô Hiểu: "..."
+Triệu Kim An bèn cầm lại quả trứng đưa lên tận miệng đút cho cô, thản nhiên bảo: "Không đi lại được cũng có cái tốt."
 
-"Không đi lại được mà tốt à? Ngươi có biết nói chuyện không thế!?"
+Ngô Hiểu ngồi phía sau: "..."
 
-Ngô Hiểu quay lưng lại, tay nắm chặt đôi đũa không dám nhúc nhích, chỉ chờ Tô Miền nổi giận.
+Không đi lại được mà cũng gọi là tốt ư? Cậu có biết ăn nói không đấy hả chàng trai!?
 
-Ngờ đâu phía sau chẳng có động tĩnh gì.
+Ngô Hiểu ngồi quay lưng lại, hai tay nắm chặt đôi đũa không dám nhúc nhích lấy nửa phân, nín thở chờ đợi một cơn lôi đình thịnh nộ từ phía vị tiểu thư nhà họ Tô.
 
-Tô Miền chỉ đánh Triệu Kim An một cái.
+Nào ngờ phía sau tuyệt nhiên không hề có chút động tĩnh giận dữ nào.
 
-Triệu Kim An cười nói: "Không đi lại được thì nàng mới không chạy lung tung được."
+Tô Miến chỉ giơ tay khẽ đánh nhẹ vào người Triệu Kim An một cái.
 
-Tô Miền nhìn Triệu Kim An hồi lâu, rốt cuộc cũng hiểu được ý nghĩa câu nói này.
+Triệu Kim An mỉm cười dịu dàng: "Không đi lại được, thì em mới không thể chạy lung tung đi đâu mất."
 
-Triệu Kim An đứng dậy, phát hiện cả hai bát bún đều có ớt.
+Tô Miến chăm chú nhìn Triệu Kim An hồi lâu, rốt cuộc cũng hiểu thấu được hàm ý sâu xa và sự cưng chiều giấu kín trong câu nói ấy.
 
-Tô Miền cũng phát hiện ra điều đó.
+Triệu Kim An đứng dậy bước tới bàn bưng đồ ăn, bỗng phát hiện cả hai bát bún trước mặt đều đỏ rực màu ớt cay.
 
-Người Hồ Nam đã quen tay bỏ ớt, ông chủ đại khái là đã quên mất rồi.
+Tô Miến cũng nhìn thấy.
 
-Triệu Kim An bèn bảo ông chủ nấu lại một bát khác, ông chủ cuống quýt xin lỗi, Triệu Kim An nói không sao, bụng hắn đang đói, hai bát này hắn có thể xử lý hết.
+Người dân Tương Nam vốn có thói quen ăn cay thành nếp, ông chủ quán trong lúc bận rộn làm đồ có lẽ đãng trí quên mất lời dặn.
 
-Tô Miền nhìn Triệu Kim An rút tiền ra lần nữa, đột nhiên nói: "Kim An, ngươi có thể hung dữ một chút được không? Ngươi hung dữ một lần cho ta xem nào."
+Triệu Kim An bèn cất giọng nhờ chủ quán nấu lại một bát khác không cay. Ông chủ quán rối rít mở miệng xin lỗi, Triệu Kim An xua tay bảo không sao cả, bụng anh đang đói cồn cào nên hai bát bún cay này anh đều có thể giải quyết gọn gàng được hết.
 
-Ông chủ: "..."
+Tô Miến ngồi ngắm nhìn Triệu Kim An một lần nữa móc ví rút tiền trả thêm, bất chợt cất tiếng: "Kim An, anh có thể hung dữ một chút được không? Anh thử hung dữ một lần cho em xem nào."
 
-Tiểu thư à, nàng làm bạn gái người ta như thế mà coi được sao?
+Chủ quán: "..."
+
+Cô gái nhỏ này làm bạn gái người ta kiểu gì thế không biết?
 
 "Rầm!"
 
-Triệu Kim An vỗ mạnh xuống bàn.
+Triệu Kim An bất ngờ vỗ mạnh một cái thật kêu xuống mặt bàn.
 
-"Cái đó... bát bún này coi như tôi tặng hai người, không cần phải hung dữ đâu, thật sự không cần phải hung dữ đâu mà."
+"Ấy ấy... Bát bún này coi như tôi biếu không hai cô cậu, đừng nóng giận, việc gì phải hung dữ thế cơ chứ."
 
-Ông chủ liên tục cười bồi.
+Ông chủ quán vội vàng nở nụ cười bồi tội, cuống cuồng nói đỡ.
 
-Dưới sự chú ý của ba người, ngay cả Ngô Hiểu cũng tò mò quay đầu lại, Triệu Kim An nói: "Ông chủ, cho tôi thêm 50 tệ thịt bò nữa, để riêng ra một bát!"
+Dưới ánh mắt kinh ngạc của ba người có mặt trong quán, ngay cả Ngô Hiểu cũng không kìm được tò mò mà quay ngoắt đầu lại nhìn, Triệu Kim An liền cất giọng dõng dạc: "Ông chủ, múc thêm cho tôi năm mươi tệ tiền thịt bò kho đậm vị, bỏ riêng vào một cái bát to nhé!"
 
 Ngô Hiểu: "..."
 
-Thế thôi á!?
+Chỉ có thế thôi á!?
 
-Nàng nhìn sang Tô Miền, thấy nàng đang cười, nụ cười có chút nuông chiều.
+Cô đưa mắt nhìn sang Tô Miến, chỉ thấy vị tiểu thư kiêu kỳ ấy đang nhoẻn miệng cười, nụ cười đong đầy vẻ cưng chiều và hạnh phúc khôn cùng.
 
-Ngô Hiểu trong lòng lắc đầu ngán ngẩm.
+Ngô Hiểu chỉ biết âm thầm lắc đầu cảm thán trong lòng: "Haizzz, hèn chi Tô tiểu thư lại say đắm cậu ta đến mức này... Nếu như mình mà có cả núi tiền..."
 
-"Ầy, hèn chi Tô tiểu thư lại đối xử với hắn như vậy, nếu tôi mà có nhiều tiền..."
+Triệu Kim An quay sang bảo: "Đại tiểu thư à, món thịt bò kho này vốn dĩ đã được ướp chút ớt cay từ trước rồi, để anh lấy một bát nước sôi tráng qua một lượt cho em nhé."
 
-Triệu Kim An nói: "Đại tiểu thư, thịt bò vốn dĩ đã có ớt rồi, để tôi lấy bát rửa qua cho nàng."
+Chủ quán thầm gật đầu khen ngợi sự chu đáo, bèn lấy muôi múc thêm thật nhiều thịt bò vào bát cho anh.
 
-Ông chủ thầm gật đầu, dùng muôi múc thêm không ít thịt bò vào bát.
+Tô Miến thoáng chút bất ngờ: "Anh vừa gọi em là đại tiểu thư đấy à?"
 
-Tô Miền có chút bất ngờ: "Ngươi gọi ta là đại tiểu thư?"
+Triệu Kim An đáp: "Đúng vậy chứ sao."
 
-Triệu Kim An đáp: "Đúng vậy."
+Tô Miến ngoan ngoãn gật đầu: "Vậy em chính là đại tiểu thư của riêng một mình anh thôi nhé. Giờ thì đút cho em ăn đi nào."
 
-Tô Miền gật đầu: "Vậy ta là đại tiểu thư của ngươi, ngươi đút cho ta đi."
+Mặt bàn quán bún hơi cao so với tầm với của chiếc xe lăn. Có lẽ bàn ghế ở nhà họ Tô đều được thiết kế đo đạc theo kích thước đặc biệt dành riêng cho cô, chứ còn chiếc "bàn bát tiên" truyền thống ở quê thôn Triệu Gia thì thậm chí còn cao hơn thế này nhiều.
 
-Cái bàn hơi cao, có lẽ bàn ghế ở nhà Tô Miền đều là đồ đóng riêng, còn loại "bàn bát tiên" ở Triệu Kim An Gia thôn thì lại càng cao hơn.
+...
 
-Tỉnh Hồ Nam, khu J, biệt thự cán bộ cao cấp số 32.
+Khu Quân sự tỉnh Tương Nam, Biệt thự cán bộ cao cấp số 32.
 
-Tô Cảnh Hành và Phùng Nhược Đan cả đêm gần như không ngủ, 11 giờ rưỡi đêm qua nhận được điện thoại của cha từ Kinh Đô, nói Tô Miền đột nhiên muốn tới Quận Sa, Tô Minh Tùng và Quách Uyển Thanh đều đã đi ngủ cả rồi.
+Tô Cảnh Hành và Phùng Nhược Đan gần như thức trắng cả đêm không tài nào chợp mắt nổi. Mười một giờ rưỡi đêm qua, họ bất ngờ nhận được cuộc điện thoại hỏa tốc từ người cha quyền uy ở tận Bắc Kinh gọi tới, báo tin Tô Miến bỗng dưng nằng nặc đòi bay gấp vào Quận Sa. Lúc ấy cả ông Tô Minh Tùng lẫn bà Quách Uyển Thanh đều đã chuẩn bị lên giường đi ngủ.
 
-Quách Uyển Thanh bảo đợi đến sáng mai, nhưng Tô Miền nhất quyết không chịu.
+Bà Quách Uyển Thanh ra sức khuyên nhủ con gái đợi đến sáng mai rồi hãy bay, nhưng Tô Miến nhất quyết không chịu nghe theo.
 
-Chẳng còn cách nào, Phùng Nhược Đan đành phải đi đón người ở sân bay.
+Chẳng còn cách nào khác, Phùng Nhược Đan đành phải đích thân lái xe vượt đêm ra sân bay đón người.
 
-Kết quả là Tô Miền vừa xuống máy bay đã trực tiếp đến thẳng Sư Đại, không thèm ghé qua nhà anh trai chị dâu trước.
+Nào ngờ vừa bước chân xuống máy bay, Tô Miến liền yêu cầu tài xế chạy thẳng một mạch tới trường Đại học Sư phạm, tuyệt nhiên không chịu ghé qua nhà anh trai và chị dâu trước.
 
-Thực tế, Tô Miền không đi lại được, nếu Tô Minh Tùng và Quách Uyển Thanh không sắp xếp người thì dù Tô Miền có muốn đi một mình cũng không đi nổi.
+Nghĩ lại cũng phải, đôi chân Tô Miến không thể tự đi lại được, nếu ông Tô Minh Tùng và bà Quách Uyển Thanh không đứng ra sắp xếp người đưa đón chu đáo thì dẫu có muốn đi, một mình cô cũng chẳng tài nào tự bay đến đây được.
 
 Hai ngày sau.
 
-Tô Miền nói muốn quay về Kinh Đô, lần này Triệu Kim An đã đi sân bay tiễn nàng.
+Tô Miến thông báo đã đến lúc phải quay trở về Bắc Kinh, lần này Triệu Kim An đích thân đi xe cùng tiễn cô ra tận sân bay.
 
-Tại phòng chờ VIP của sân bay, Triệu Kim An đã gặp được Phùng Nhược Đan.
+Tại phòng chờ khách VIP của sân bay Hoàng Hoa, Triệu Kim An lần đầu tiên chính thức chạm mặt Phùng Nhược Đan.
 
-Phùng Nhược Đan dáng người không cao, tầm khoảng 1m56, nhan sắc thuộc hàng khá, có lẽ đối với những gia đình như Tô Cảnh Hành, ngoại hình không phải là tiêu chuẩn chọn bạn đời của họ.
+Phùng Nhược Đan có vóc dáng khá nhỏ nhắn, chỉ cao khoảng một mét năm mươi sáu, nhan sắc thuộc hàng khá. Có lẽ đối với những gia đình danh gia vọng tộc quyền quý như nhà Tô Cảnh Hành, tướng mạo bên ngoài chưa bao giờ là tiêu chuẩn hàng đầu để họ lựa chọn bạn đời.
 
-Nhưng Phùng Nhược Đan có dáng người rất chuẩn, lại rất khí chất và đậm chất phụ nữ.
+Thế nhưng Phùng Nhược Đan lại sở hữu một thân hình vô cùng quyến rũ, toát lên phong thái đài các, sang trọng và tràn đầy nét quyến rũ của một người phụ nữ thành đạt.
 
-Nhìn chàng trai đang ngồi xổm dưới đất, Phùng Nhược Đan bưng một ly cà phê tới, thử gọi: "Triệu Kim An?"
+Nhìn người thanh niên đang ngồi xổm dưới sàn chỉnh lại gấu váy cho em chồng, Phùng Nhược Đan bưng một tách cà phê nóng bước tới gần, cất giọng ướm thử: "Triệu Kim An phải không?"
 
-Triệu Kim An ngẩng đầu, mỉm cười với Phùng Nhược Đan: "Chào chị."
+Triệu Kim An ngẩng đầu lên, nở một nụ cười nhã nhặn: "Chào chị."
 
-"Chào... chào tôi sao?"
+"Chào... chào tôi á?"
 
-Phùng Nhược Đan sững sờ mất vài giây: "Cậu có biết tôi là ai không?"
+Phùng Nhược Đan thoáng ngơ ngác mất vài giây: "Cậu có biết tôi là ai không đấy?"
 
-Triệu Kim An lại ngẩng đầu nhìn một lần nữa: "Phu nhân Thị trưởng?"
+Triệu Kim An lại ngước mắt lên nhìn cô một lần nữa: "Phu nhân Thị trưởng chăng?"
 
 Phùng Nhược Đan: "..."
 
-Nàng có chút nghẹn lời.
+Thực sự có chút cạn lời không biết phải đối đáp ra sao.
 
-Cậu đã biết tôi là ai rồi sao?
+Hóa ra cậu vẫn biết rõ rành rành tôi là ai cơ đấy?
 
-Nhìn lại Tô Miền, nàng đang mỉm cười, Triệu Kim An chỉ ngẩng đầu có hai lần, cứ như thể cái danh "Phu nhân Thị trưởng" này của nàng hoàn toàn không tồn tại vậy.
+Quay sang nhìn Tô Miến, thấy cô em chồng đang mỉm cười đầy thích thú. Triệu Kim An từ đầu đến cuối chỉ ngẩng đầu nhìn cô đúng hai lần ngắn ngủi, thái độ thong thả tự nhiên cứ như thể sự tồn tại của vị "Phu nhân Thị trưởng" này hoàn toàn vô hình vậy.
 
-Thấy Phùng Nhược Đan có vẻ ngơ ngác, Tô Miền cười nói: "Chị dâu, chị muốn Kim An gọi chị là gì?"
-
-"..."
-
-Phùng Nhược Đan lườm Tô Miền một cái, nàng dường như đã hiểu ra điều gì đó.
-
-Hai người này đúng là "cùng hội cùng thuyền" mà.
-
-"Triệu Kim An, uống cà phê không?"
-
-Đây là lần đầu tiên Phùng Nhược Đan quan sát Triệu Kim An ở cự ly gần, lần trước chỉ là nhìn từ xa trên xe, sau đó còn gọi điện thoại cho chị dâu của Tô Cảnh Hành cả buổi trời, chị dâu của Tô Cảnh Hành còn bảo, em mau qua đó chụp một tấm ảnh đi.
-
-Ngô Hiểu nghe vậy liền lập tức đi lấy cà phê.
-
-Đây mới là sự tôn trọng (đãi ngộ) mà người khác nên dành cho Phu nhân Thị trưởng.
-
-Triệu Kim An cảm ơn Phùng Nhược Đan, rồi lại hỏi Tô Miền, bảo nàng uống rồi nếu có muốn đi vệ sinh thì cũng không sao cả.
-
-"Hừ~"
-
-Phùng Nhược Đan nhìn Tô Miền đang cười đầy ẩn ý, khẽ hừ một tiếng với nàng, rồi từ trong túi xách lấy ra mấy tấm thẻ mua sắm, nói: "Triệu Kim An, cậu cầm lấy mấy tấm thẻ này đi."
-
-Thấy Triệu Kim An không nhận, Phùng Nhược Đan lại nói: "Tô Miền đến nhà cậu, bà nội cậu còn cho Tô Miền bao lì xì mà."
-
-"Vả lại mấy tấm thẻ mua sắm này tôi có nhiều lắm, không dùng hết thì cũng lãng phí."
-
-Đây là sự thật.
-
-Không chỉ Tô Cảnh Hành, khi Tô Miền đến chỗ anh cả của Tô Cảnh Hành là Tô Cảnh Ngôn, chị dâu của Tô Cảnh Hành cũng lấy ra rất nhiều loại thẻ, hỏi Tô Miền muốn đi đâu, cứ như thể mấy tấm thẻ này không dùng thì sẽ phí lắm vậy.
-
-Nhìn Triệu Kim An nắm lấy bàn tay nhỏ của Tô Miền, lại giúp nàng sửa lại gấu váy, Phùng Nhược Đan đã từng gặp qua quá nhiều người nịnh bợ mình, hạng người khéo léo nào mà nàng chưa từng thấy qua?
-
-Nàng quan sát một lúc, rồi cầm điện thoại đi ra xa một chút.
-
-"Alo, chị dâu, Triệu Kim An đang ở ngay bên cạnh em đây, ừm, trông rất bảnh bao, thật sự rất đẹp trai, em vừa mới cho cậu ta mấy tấm thẻ coi như quà gặp mặt."
-
-"Quà gặp mặt? Cô chỉ cho mỗi quà gặp mặt thôi à?"
-
-Đầu dây bên kia truyền đến giọng nói có chút kinh ngạc.
-
-Phùng Nhược Đan che điện thoại cười khẽ, liếc nhìn Triệu Kim An một cái: "Chuyện đó đâu có liên quan đến chúng ta, là chuyện của cha mẹ, chúng ta chỉ là chị dâu của Tô Miền thôi."
-
-"... Chị tới đây thì sẽ biết."
-
-"Loại chuyện này, hai ông anh trai của Tô Miền nói cũng chẳng có tác dụng gì, họ làm gì có quyền quyết định."
-
-"Hai người già kia cũng chẳng quản nổi Tô Miền, xem họ cưng chiều con bé đến mức nào kìa..."
-
-"Chị xem hai anh trai của con bé kìa, trước mặt cha thì một tiếng cũng không dám ho, nghe điện thoại mà còn khom lưng uốn gối, cứ như thể cha có thể nhìn thấy họ không bằng."
-
-Phùng Nhược Đan gọi là "hai người già", chị dâu của Tô Cảnh Hành cũng không chỉnh lại, còn ở đầu dây bên kia cười phá lên.
-
-"Thôi được rồi, Tô Miền như vậy, cha mẹ cưng chiều con bé cũng là lẽ thường tình."
-
-Phùng Nhược Đan lại nói: "Hai anh trai cũng thế thôi, thương em gái không chịu nổi, chị không biết đâu, Cảnh Hành đêm đó cả đêm không ngủ, anh ấy không tiện đi lại là đá em đi đón người ngay."
-
-"Nửa đêm 3 giờ đã bắt đầu đá rồi! Em là vợ anh ấy mà còn chưa được hưởng cái đãi ngộ đó đâu."
-
-Chị dâu của Tô Cảnh Hành lại càng cười vui vẻ hơn.
-
-Trên đường từ sân bay Hoàng Hoa trở về trường, Triệu Kim An nhận được một tin nhắn.
-
-Từ Mạn Mạn: Triệu Kim An, tôi đã đăng ký làm tình nguyện viên cho giải Trăn Nhiên Cup của các cậu rồi.
-
-Tại một lớp học ở tầng một, Từ Mạn Mạn đã gặp được Đường Hiểu Tình, Trần Trạch từng nói Đường Hiểu Tình cũng là sinh viên nghèo.
-
-Trong lớp học rất đông người, người ra người vào vô cùng bận rộn.
-
-Đường Hiểu Tình biết Từ Mạn Mạn, biết nàng là bạn gái của Trần Trạch, cô nói với Từ Mạn Mạn: "Từ Mạn Mạn bạn học, tình nguyện viên của chúng mình tạm thời vẫn chưa định mức lương bao nhiêu một ngày đâu."
-
-Từ Mạn Mạn nói: "Tôi biết rồi, tôi có thể không lấy tiền."
+Thấy Phùng Nhược Đan có phần lúng túng, Tô Miến mỉm cười trêu: "Chị dâu à, thế chị muốn Kim An phải gọi chị bằng danh xưng gì nào?"
 
 "..."
 
-Đường Hiểu Tình nhìn nhìn Từ Mạn Mạn, một lần nữa nghiêm túc nhắc nhở: "Phải treo băng rôn, bày biện vật tư, phải phơi nắng, bố trí hiện trường, bê nước... có rất nhiều việc, có thể sẽ hơi vất vả đấy."
+Phùng Nhược Đan khẽ lườm Tô Miến một cái thật sắc sảo. Lúc này cô mới bắt đầu hiểu ra đôi phần.
 
-"Từ Mạn Mạn, Trần Trạch có biết cô đến đây làm tình nguyện viên không?"
+Hai đứa này quả đúng là "tâm đầu ý hợp", chung một cái tính khí bướng bỉnh, kỳ lạ như nhau.
 
-Vương Duy Đào cũng biết Từ Mạn Mạn, hắn chỉ chỉ vào chiếc túi Chanel mà Từ Mạn Mạn đang đeo.
+"Triệu Kim An, cậu có uống cà phê không?"
 
-Từ Mạn Mạn phản ứng lại, giấu chiếc túi ra sau lưng, nói: "Ngày mai tôi sẽ không mang nó theo nữa."
+Đây là lần đầu tiên Phùng Nhược Đan được quan sát Triệu Kim An ở một khoảng cách gần đến thế. Lần trước cô chỉ ngồi trên xe ô tô nhìn thoáng qua từ đằng xa, sau đó gọi điện thoại buôn chuyện rôm rả suốt nửa ngày trời với chị dâu cả ở Bắc Kinh. Chị dâu cả khi ấy còn hối thúc: "Em mau chạy lại gần chụp cho chị một tấm ảnh xem mặt mũi cậu ta ra sao đi chứ!"
+
+Ngô Hiểu nghe thấy lời dặn liền nhanh nhẹn rảo bước đi lấy thêm một tách cà phê mang tới.
+
+Đây mới thực sự là sự cung kính và đãi ngộ chuẩn mực mà người ngoài nên dành cho một vị Phu nhân Thị trưởng.
+
+Triệu Kim An lên tiếng gửi lời cảm ơn Phùng Nhược Đan, sau đó quay sang ân cần hỏi Tô Miến xem cô có muốn uống chút gì không, lại dặn thêm rằng nếu uống xong mà muốn đi vệ sinh thì cứ bảo anh đưa đi, không có gì phải ngại.
+
+"Hừm~"
+
+Phùng Nhược Đan đưa mắt nhìn vẻ mặt rạng ngời hạnh phúc của Tô Miến, khẽ hừ nhẹ một tiếng trong cổ họng. Cô mở chiếc túi xách hàng hiệu của mình ra, rút ra một xấp thẻ mua sắm cao cấp đưa tới trước mặt anh: "Triệu Kim An, mấy chiếc thẻ mua sắm này cậu cầm lấy mà dùng."
+
+Thấy Triệu Kim An ngập ngừng không muốn nhận, Phùng Nhược Đan liền nói thêm: "Đợt trước Tô Miến về quê nhà cậu chơi, bà nội cậu chẳng phải cũng hào phóng tặng tiền lì xì cho con bé đó sao?"
+
+"Hơn nữa mấy loại thẻ mua sắm này trong nhà tôi có cả xấp dày cộm, không mang ra tiêu xài bớt đi thì cũng để đấy hết hạn lãng phí lắm."
+
+Lời cô nói hoàn toàn là sự thật trần trụi.
+
+Không chỉ riêng Tô Cảnh Hành, mà mỗi lần Tô Miến ghé qua nhà người anh cả Tô Cảnh Ngôn, chị dâu cả cũng lôi ra cả xấp thẻ dịch vụ và thẻ mua sắm đủ loại, rối rít hỏi xem Tô Miến thích đi đâu chơi để tặng, cứ như thể đống thẻ ấy không dùng hết thì sẽ là một sự lãng phí ghê gớm vậy.
+
+Nhìn cảnh Triệu Kim An dịu dàng nắm lấy bàn tay nhỏ nhắn của Tô Miến, rồi lại cẩn thận chỉnh trang từng nếp váy cho cô, Phùng Nhược Đan đã từng tiếp xúc với biết bao kẻ xu nịnh, luồn cúi tìm cách lấy lòng mình, hạng người lọc lõi mồm mép nào trên chốn quan trường mà cô chưa từng thấy qua?
+
+Cô lặng lẽ đứng quan sát thêm một lát, sau đó cầm điện thoại rảo bước ra một góc ban công cách xa chỗ hai người.
+
+"Alo, chị dâu cả à? Triệu Kim An đang đứng ngay cạnh em đây này. Vâng, đẹp trai lắm chị ạ, thực sự là ngũ quan tuấn tú vô cùng. Em vừa tặng cậu ấy một xấp thẻ mua sắm coi như quà ra mắt rồi."
+
+"Quà ra mắt ư? Em vừa gặp mặt đã tặng quà ra mắt cho người ta rồi sao?" Đầu dây bên kia truyền đến giọng nói đầy vẻ kinh ngạc của chị dâu cả.
+
+Phùng Nhược Đan đưa tay che ống nghe khẽ bật cười khúc khích, ánh mắt kín đáo liếc nhìn Triệu Kim An: "Chuyện chung thân đại sự đó vốn dĩ chẳng liên quan gì đến bổn phận của mấy chị em mình, đó là chuyện của bố mẹ quyết định cơ mà, tụi mình rốt cuộc cũng chỉ là phận chị dâu của Tô Miến thôi."
+
+"... Khi nào chị vào đây tận mắt nhìn thấy thì sẽ hiểu ngay."
+
+"Mấy chuyện tình cảm kiểu này, hai ông anh trai của con bé có mở miệng can thiệp cũng chẳng có chút trọng lượng nào đâu, họ làm gì có tiếng nói trong nhà."
+
+"Ngay cả hai ông bà già quyền uy thế mà cũng chẳng tài nào quản nổi Tô Miến, chị nhìn xem hai cụ chiều chuộng con bé đến mức trời không sợ đất không sợ kia kìa..."
+
+"Còn nhìn lại hai ông anh trai của nó xem, đứng trước mặt bố thì đến thở mạnh cũng không dám, mỗi lần nghe điện thoại của ông cụ là lại khúm núm cúi đầu gập lưng lia lịa, cứ như thể bố đang đứng sờ sờ ngay trước mặt nhìn thấy họ vậy."
+
+Phùng Nhược Đan thản nhiên dùng từ "hai ông bà già" để gọi bố mẹ chồng, chị dâu cả ở đầu dây bên kia cũng chẳng buồn chỉnh đốn, trái lại còn cười phá lên nắc nẻ.
+
+"Thôi được rồi, Tô Miến chịu thiệt thòi về sức khỏe như thế, bố mẹ thương xót chiều chuộng con bé âu cũng là lẽ thường tình."
+
+Phùng Nhược Đan tiếp lời: "Hai ông anh trai cũng y chang như vậy, thương xót em gái đến mức mù quáng. Chị không biết đâu, đêm hôm trước lão Cảnh Hành cả đêm không chợp mắt nổi lấy một phút. Bản thân anh ấy thân phận Thị trưởng không tiện xuất đầu lộ diện nửa đêm nên cứ liên tục đạp em dậy bắt em phải thân chinh đi đón người."
+
+"Mới nửa đêm ba giờ sáng đã bắt đầu đạp chăn giục giã! Em làm vợ anh ấy ngần ấy năm trời mà còn chưa từng được hưởng cái sự quan tâm sốt sắng đến mức ấy bao giờ đâu nhé."
+
+Chị dâu cả bên kia nghe vậy lại càng cười vui vẻ, sảng khoái hơn.
+
+...
+
+Trên đường từ sân bay Hoàng Hoa trở về trường Đại học Sư phạm, chiếc điện thoại trong túi Triệu Kim An khẽ rung lên báo có tin nhắn mới.
+
+Hứa Mạn Mạn: [Triệu Kim An, mình vừa nộp đơn đăng ký làm tình nguyện viên cho giải đấu Cúp Trăn Nhiên của công ty cậu rồi nhé.]
+
+Tại căn phòng học ở tầng một của trường.
+
+Hứa Mạn Mạn bước vào và nhìn thấy Đường Hiểu Tình đang tất bật phân loại giấy tờ. Trần Trạch trước đây từng kể rằng Đường Hiểu Tình cũng là một sinh viên thuộc diện hộ nghèo có hoàn cảnh gia đình rất khó khăn.
+
+Căn phòng học lúc này chật kín người, dòng người ra vào tấp nập, ai nấy đều bận rộn tối mắt tối mũi.
+
+Đường Hiểu Tình nhận ra Hứa Mạn Mạn, cô biết rõ cô gái xinh đẹp này chính là bạn gái của Trần Trạch. Đường Hiểu Tình liền lễ phép lên tiếng: "Chào bạn Hứa Mạn Mạn, công việc tình nguyện viên bên mình tạm thời ban tổ chức vẫn chưa có mức chi trả thù lao cụ thể theo ngày đâu nhé."
+
+Hứa Mạn Mạn mỉm cười đáp: "Mình biết điều đó mà, mình tham gia hoàn toàn không cần nhận tiền thù lao đâu."
+
+"..."
+
+Đường Hiểu Tình đưa mắt ngắm nhìn bộ trang phục sành điệu của Hứa Mạn Mạn, sau đó lại nghiêm túc nhắc nhở thêm một lần nữa: "Công việc này sẽ phải đi treo băng rôn khắp nơi, phải bốc vác sắp xếp các ấn phẩm truyền thông, phải dầm mưa dãi nắng ngoài trời để dựng sân bãi, rồi còn phải khuân vác từng thùng nước khoáng nặng trịch nữa... Có rất nhiều việc nặng nhọc phát sinh, có lẽ sẽ vất vả lắm đấy."
+
+"Này Hứa Mạn Mạn, thằng Trần Trạch có biết chuyện mày chạy sang đây xin làm tình nguyện viên lao động chân tay thế này không?"
+
+Vương Duy Đào đứng cạnh đó cũng nhận ra Hứa Mạn Mạn, cậu ta vừa nói vừa đưa ngón tay chỉ vào chiếc túi xách hàng hiệu Chanel sang chảnh mà cô đang đeo bên hông.
+
+Hứa Mạn Mạn lúc này mới sực tỉnh nhận ra sự khập khiễng, vội vàng giấu chiếc túi xách ra sau lưng, gương mặt thoáng chút bối rối: "Ngày mai đi làm mình sẽ không mang theo chiếc túi này nữa đâu..."

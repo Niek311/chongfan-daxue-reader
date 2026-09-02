@@ -1,229 +1,231 @@
-# Chương 45: Kim An, Cậu Nắm Lan Can Sắt Làm Gì
+# Chương 45: Kim An, cậu nắm hàng rào sắt làm gì thế?
 
-Lớp Kế toán 1 có 28 nữ, 18 nam.
+> **Tiêu đề gốc**: 第45章 今安，你抓铁栏做什么？
 
-Giảng viên hướng dẫn là Lưu Huy.
+Lớp Kế toán 1 có tổng cộng hai mươi tám nữ sinh và mười tám nam sinh.
 
-Vừa tốt nghiệp đại học năm tư và được giữ lại trường, ngày nào hắn cũng lượn quanh sân tập một vòng. Đây là công việc đầu tiên trong sự nghiệp nên Lưu Huy không dám để xảy ra sai sót nào.
+Cố vấn học tập kiêm phụ trách lớp là Lưu Huy.
 
-Hắn nhận ra Trần Trạch chính là thành phần cá biệt trong lớp.
+Anh ta vừa tốt nghiệp đại học năm thứ tư xong liền được nhà trường giữ lại làm việc. Đây là công việc đầu tiên trong sự nghiệp của mình, thế nên Lưu Huy làm việc vô cùng cẩn trọng, không dám để xảy ra bất cứ sơ suất nào.
 
-Xem qua tất cả hồ sơ học bối, có một điểm khiến hắn thấy lạ, Triệu Kim An chẳng phải là sinh viên nghèo sao, tại sao lại hút thuốc?
+Anh ta sớm đã nhìn ra Trần Trạch chính là thành phần "gai góc" khó bảo nhất trong lớp.
 
-"Giải tán, giải tán đi, mấy đứa các cậu lại trốn ra đó hút thuốc rồi!"
+Xem qua toàn bộ hồ sơ lý lịch sinh viên, chỉ có một điều khiến Lưu Huy cảm thấy kỳ lạ: Triệu Kim An rõ ràng thuộc diện sinh viên nghèo có hoàn cảnh khó khăn, vậy mà tại sao cậu ta lại biết hút thuốc lá?
 
-Giữa giờ nghỉ huấn luyện quân sự, Trần Trạch lôi bao Phù Dung xanh ra, xung quanh đã tụ tập vài nam sinh hút thuốc.
+"Giải tán, giải tán mau! Mấy cậu kia lại lén lút trốn ra góc đó hút thuốc rồi!"
+
+Giờ giải lao giữa buổi huấn luyện quân sự, Trần Trạch rút bao thuốc Phù Dung Xanh ra mời, xung quanh lập tức tụ tập một nhóm nam sinh nghiện thuốc.
 
 "Kim An, làm một điếu không?"
 
-Triệu Kim An đang bắt đầu kiểm soát lượng thuốc lá của mình, hai ngày một bao.
+Triệu Kim An dạo này đang chủ động kiểm soát lượng hút thuốc của mình, trung bình hai ngày mới hút hết một bao.
 
-"Hì hì, Trạch ca, cho tôi một điếu với." Lưu Sấm Phong nói.
+Lưu Sấm Phong cười hì hì: "Anh Trạch ơi, cho em xin một điếu với."
 
-"Cậu lại không mua thuốc à?"
+"Cậu lại chưa mua thuốc đấy à?"
 
-Trần Trạch ngoài miệng chê bai nhưng vẫn đưa thuốc qua.
+Trần Trạch ngoài miệng cằn nhằn chê bai, nhưng điếu thuốc trên tay vẫn đưa qua.
 
-Mấy nam sinh hút thuốc đều bật cười.
+Mấy nam sinh hút thuốc xung quanh đều bật cười thích thú.
 
-Cốc Siêu Thừa không hút thuốc cũng thích góp vui, cậu ta bảo: "Lão Lưu, dù sao cậu cũng là lớp phó rồi, lại còn là phòng trưởng phòng 303 của chúng ta nữa, mua lấy bao thuốc tốt tốt mà hút."
+Cốc Siêu Thừa tuy không biết hút thuốc nhưng cũng rất khoái xúm lại góp vui, cậu ta chọc quê: "Lão Lưu à, dẫu sao cậu bây giờ cũng là lớp phó rồi, lại còn là xá trưởng phòng 303 của chúng mình nữa, tự giác mua lấy một bao thuốc xịn đi chứ."
 
-Trời nắng như đổ lửa.
+Nắng trưa chói chang gay gắt.
 
-Dưới bóng cây nơi góc sân tập, mấy nam sinh lớp Kế toán 1 đang phả khói mù mịt.
+Dưới bóng râm mát rượi của tán cây nơi góc sân thể dục, mấy cậu nam sinh lớp Kế toán 1 vừa phì phèo nhả khói vừa rôm rả tán gẫu.
 
-Đôi khi tình cờ, mấy "con nghiện" bên lớp Kế toán 2 cũng ghé qua góp vui, Trần Trạch cũng chẳng keo kiệt, chỉ cần trên người có thuốc là mời cả vòng.
+Đôi khi tình cờ, mấy "tay khói" của lớp Kế toán 2 cũng mò sang góp vui. Trần Trạch vốn tính xởi lởi chẳng hề hẹp hòi, hễ trong người có thuốc là rút ra mời nguyên một vòng không sót một ai.
 
-Bọn họ cứ một câu Trạch ca, hai câu Trạch ca, Trần Trạch nghiễm nhiên trở thành đại ca của cả khoa Kế toán.
+Đám con trai cứ một câu "anh Trạch", hai câu "anh Trạch", chẳng mấy chốc Trần Trạch đã nghiễm nhiên trở thành "anh Trạch" quyền lực của cả khoa Kế toán.
 
-"Sướng thật!"
+"Đã đời thật đấy!"
 
-Ánh nắng rực rỡ, Lưu Sấm Phong rít một hơi với vẻ mặt đầy hưởng thụ.
+Ánh nắng chan hòa rực rỡ, Lưu Sấm Phong rít một hơi thật sâu rồi lim dim mắt tận hưởng đầy thỏa mãn.
 
-Đây chính là thanh xuân nhỉ.
+Có lẽ đây chính là thanh xuân.
 
-Đang tuổi thanh xuân.
+Thanh xuân tràn đầy nhựa sống.
 
-Triệu Kim An tựa lưng vào lan can sắt, nhìn ra sân tập dưới cái nắng chói chang. Các khoa và lớp khác đang huấn luyện, tiếng hô khẩu hiệu, tiếng hò hét vang lên không ngớt, cảm giác này thực sự rất tốt.
+Triệu Kim An đứng tựa lưng vào hàng rào sắt, phóng tầm mắt ngắm nhìn toàn cảnh sân thể dục rực rỡ dưới ánh mặt trời. Các khoa và các lớp khác vẫn đang miệt mài luyện tập, tiếng hô khẩu hiệu dõng dạc cùng những tiếng thét vang rền không ngớt. Cảm giác này thực sự vô cùng tuyệt vời.
 
-"Kim An, cậu nắm lan can sắt làm gì? Không nóng tay à?"
+"Kim An, sao cậu cứ nắm chặt cái hàng rào sắt thế? Nắng gắt thế này không thấy bỏng tay à?"
 
-Cốc Siêu Thừa phát hiện mỗi lần Triệu Kim An ra đây hút thuốc, một tay hắn sẽ nắm chặt lấy lan can sắt. Thật kỳ lạ, thời tiết nóng bức thế này, không thấy bỏng tay sao?
+Cốc Siêu Thừa để ý thấy mỗi lần ra đây hút thuốc, một bàn tay của Triệu Kim An lại vô thức nắm chặt lấy thanh rào sắt. Cậu ta thấy lạ lùng vô cùng, thời tiết nắng nóng như thiêu như đốt thế này, bộ không biết rát tay hay sao?
 
-"Không có gì."
+"Không có gì đâu."
 
-Triệu Kim An buông tay ra, nhưng chỉ một lát sau lại vô thức chạm lên đó.
+Triệu Kim An buông tay ra, nhưng chỉ được một lát sau, bàn tay anh lại bất giác chạm lên thanh sắt ấy.
 
-Hắn vĩnh viễn không quên được mùa hè năm ấy, mùa hè mà Tống Uyển Hòa đến tìm hắn. Nàng nói: "Mẹ cậu sắp gả cho bố tôi rồi, sau này đều phải dọn đến nhà tôi ở."
+Anh vĩnh viễn không bao giờ có thể quên được mùa hè năm ấy — mùa hè mà Tống Uyển Hòa tìm đến trường gặp anh. Cô bé ấy đứng ngoài hàng rào sắt và nói: "Mẹ em sắp cưới bố chị rồi, sau này bà ấy sẽ dọn về sống ở nhà chị suốt đời."
 
-Cậu bé Triệu Kim An 11 tuổi khi đó đã nắm chặt lấy lan can sắt, rất nóng, rất đau, nhưng không hề mở miệng.
+Cậu bé Triệu Kim An mười một tuổi năm đó đã dùng hết sức bình sinh siết chặt lấy thanh rào sắt han gỉ, bỏng rát và đau buốt đến thấu tim gan, nhưng tuyệt nhiên không hé răng thốt ra nửa lời.
 
-Lúc ấy chắc hẳn Tống Uyển Hòa cũng chẳng mong Tống Siêu Văn đi bước nữa.
+Vào thời điểm đó, có lẽ bản thân Tống Uyển Hòa cũng chẳng hề mong muốn bố mình đi bước nữa.
 
-Còn chuyện sau này... là do Đoạn Thu Bình đã làm cảm động được Tống Uyển Hòa, nàng mới chịu gọi Đoạn Thu Bình là dì.
+Còn về sau này... chính là nhờ sự chân thành và bao dung của Đoàn Thu Bình đã làm lay động Tống Uyển Hòa, để rồi cô bé mới chịu mở miệng gọi Đoàn Thu Bình một tiếng "dì".
 
-"Lên đại học rồi mà còn lắm chuyện."
+"Lên đại học rồi mà vẫn quản lắm chuyện bao đồng thế không biết."
 
-Nghe thấy tiếng Lưu Huy gọi, Trần Trạch lẩm bẩm một câu, rồi lại ngậm thuốc lá cười híp mắt đi mời thuốc Lưu Huy, thằng nhóc này đổi mặt nhanh như chớp.
+Nghe tiếng Lưu Huy quát tháo từ xa, Trần Trạch lầm bầm chửi đổng một câu, sau đó liền ngậm điếu thuốc nở nụ cười tươi roi rói chạy lại mời thuốc Lưu Huy. Cái thằng nhóc này trở mặt còn nhanh hơn lật bánh tráng.
 
-Chẳng bao lâu sau, Lưu Huy đã nói cười vui vẻ với Trần Trạch.
+Chẳng mấy chốc sau, Lưu Huy đã đứng cười nói rôm rả vô cùng thân thiết với Trần Trạch.
 
-"Mẹ kiếp, giảng viên cũng thích người giàu!"
+"Mẹ kiếp, đến cả thầy phụ trách cũng mê người có tiền!"
 
-Lưu Sấm Phong hậm hực lầm bầm một câu.
+Lưu Sấm Phong hậm hực lẩm bẩm trong miệng.
 
-Vốn dĩ cậu ta là lớp trưởng, tỉ lệ phiếu bầu quá bán, kết quả là Lưu Huy lại "chỉ định" một cậu bạn tên Vương Học Ân. Số phiếu của Vương Học Ân chỉ kém 4 phiếu của phòng 303 mà thôi.
+Ban đầu gã mới là người nắm chắc vị trí lớp trưởng trong tay khi nhận được hơn nửa số phiếu bầu của cả lớp, nào ngờ Lưu Huy lại "chỉ định" một cậu bạn tên là Vương Học Ân. Số phiếu của Vương Học Ân suýt chút nữa là thua trắng nếu không nhờ vào bốn lá phiếu của phòng 303.
 
-Vương Học Ân đã giúp Lưu Huy chút việc vào ngày nhập học, Lưu Huy bảo lên đài tranh cử, không ngờ Lưu Sấm Phong lại thực sự bước lên.
+Hôm nhập học, Vương Học Ân có giúp đỡ Lưu Huy vài việc lặt vặt. Lúc Lưu Huy bảo ai có hứng thú thì xung phong lên bục giảng tự ứng cử, chẳng ai ngờ Lưu Sấm Phong lại dám xông xáo bước lên thật.
 
-Chỉ là vấn đề thời điểm thôi.
+Tất cả chỉ là chênh lệch về mặt thời điểm mà thôi.
 
-Mới lên đại học mọi người còn khá rụt rè, Lưu Huy nói ai có hứng thú thì lên đài tranh cử, kết quả đám sinh viên bên dưới chỉ nói cười đùn đẩy nhau chứ không ai dám thực sự bước lên.
+Mới bước chân vào ngưỡng cửa đại học, ai nấy đều còn khá e dè, bẽn lẽn. Lúc Lưu Huy hỏi ai muốn ứng cử, đám sinh viên bên dưới chỉ biết nhìn nhau cười đùa xô đẩy, chứ chẳng ma nào dám cả gan bước lên bục giảng.
 
-"Trạch ca, cậu lên đi."
+"Anh Trạch, anh lên đi."
 
-Lưu Sấm Phong liếc nhìn Lâm Thanh Tuyết, muốn tự mình lên nhưng lại xúi giục Trần Trạch.
+Lưu Sấm Phong liếc mắt nhìn Lâm Thanh Tuyết, trong lòng ngứa ngáy muốn lên nhưng miệng lại quay sang xúi giục Trần Trạch.
 
-Trần Trạch tựa vào ghế nhún vai, nói tôi không có hứng thú, rồi quay sang bảo Lưu Sấm Phong: "Phòng trưởng, cậu lên đi. Nếu cậu làm lớp trưởng thì phòng chúng ta chẳng phải là có người của mình sao?"
+Trần Trạch ngồi ngả ngớn dựa lưng vào ghế, nhún vai bảo mình chẳng có hứng thú gì với mấy trò này, đoạn quay sang bảo Lưu Sấm Phong: "Xá trưởng, cậu lên đi! Nếu cậu mà làm lớp trưởng thì phòng ký túc xá chúng mình chẳng phải có người che chở rồi hay sao?"
 
-"Đúng đấy, phòng trưởng, mau lên đi!" Cốc Siêu Thừa cũng hùa theo xúi giục.
+"Đúng đấy, xá trưởng, lên nhanh lên!" Cốc Siêu Thừa cũng nhiệt tình hùa theo.
 
-Hai người bọn họ cứ một câu "phòng trưởng", hai câu "phòng trưởng", khiến đây trở thành khoảnh khắc huy hoàng nhất của phòng trưởng 303.
+Hai người họ một câu "xá trưởng", hai câu "xá trưởng", đây quả thực là khoảnh khắc huy hoàng đỉnh cao nhất của chức danh trưởng phòng 303.
 
-Bọn họ đều nghĩ nếu Lưu Sấm Phong làm lớp trưởng, sau này có chuyện gì cũng có người che chắn, ví dụ như có vài môn học lớp trưởng sẽ phụ trách điểm danh.
+Cả hai đều tính toán rằng nếu Lưu Sấm Phong làm lớp trưởng thì sau này có chuyện gì cần trốn tiết hay làm bậy cũng có người đứng ra bao che, chẳng hạn như có những môn học chính lớp trưởng là người chịu trách nhiệm điểm danh, đọc tên hộ.
 
-Còn chức phòng trưởng, Trần Trạch không muốn làm, Triệu Kim An cũng không muốn, tự nhiên rơi xuống đầu Lưu Sấm Phong.
+Còn về chức danh xá trưởng, Trần Trạch không thèm làm, Triệu Kim An không buồn đoái hoài, đương nhiên món hời đó nghiễm nhiên rơi trúng đầu Lưu Sấm Phong.
 
-"Vậy tôi lên thật nhé?"
+"Thế tôi lên thật đấy nhé?"
 
-Lưu Sấm Phong giả vờ giữ kẽ một hồi, vừa lúc đứng dậy thì Lưu Huy đã điểm tên Vương Học Ân.
+Lưu Sấm Phong làm bộ làm tịch giữ kẽ một lát, vừa mới đứng dậy thì Lưu Huy đã cất tiếng gọi đích danh Vương Học Ân.
 
-Sinh viên đại học chứ có phải học sinh tiểu học đâu, đã biết nhìn sắc mặt người khác rồi.
+Sinh viên đại học chứ đâu phải học sinh tiểu học, ai nấy đều rất biết cách nhìn mặt đoán ý.
 
-Nói trắng ra là không muốn làm chim đầu đàn, sợ bị Lưu Huy ghi hận.
+Nói trắng ra là không ai muốn làm con chim đầu đàn chường mặt ra chịu đạn, sợ bị Lưu Huy ghim vào danh sách đen.
 
-Cái vị trí giảng viên hướng dẫn đại học này phải nói sao nhỉ?
+Chức danh cố vấn học tập ở đại học biết nói thế nào cho đúng nhỉ?
 
-Nếu hắn cố ý nhắm vào cậu thì cậu sẽ phải chịu khổ đấy, nhưng phần lớn giảng viên đều tốt, rất nhiều người là sinh viên trường cũ tốt nghiệp năm tư được giữ lại, gọi là đàn anh đàn chị cũng được.
+Nếu anh ta cố tình nhắm vào bạn để gây khó dễ thì quả thực bạn sẽ phải chịu không ít khổ sở; nhưng phần lớn các cố vấn học tập đều rất tốt bụng. Đa số họ đều là sinh viên năm thứ tư của trường vừa tốt nghiệp được giữ lại, gọi là đàn anh đàn chị khóa trên cũng chẳng sai.
 
-Thường thì họ không có tâm địa xấu, càng không cố ý nhắm vào ai làm gì, chẳng bõ.
+Thông thường họ chẳng có dã tâm xấu xa gì, càng không rảnh rỗi đi trù dập ai làm gì cho mang tiếng.
 
-Họ chỉ muốn hoàn thành tốt công việc trong phận sự của mình, 4 năm không có ai đến làm phiền mới là tốt nhất.
+Họ chỉ mong sao hoàn thành tròn vai công việc trong phạm vi trách nhiệm của mình, suốt bốn năm trời không có ai gây chuyện phiền toái tìm đến mình là mừng lắm rồi.
 
-Lưu Sấm Phong cao 1m85, đứng trên bục giảng trông cũng rất ra dáng, lại thêm tính cách không biết ngại, cậu ta nói mình sức dài vai rộng, sau này mọi người có việc gì cần giúp cứ tìm cậu ta, bảo đảm gọi là có mặt ngay!
+Lưu Sấm Phong với chiều cao 1m85, vừa bước lên bục giảng đứng trông cũng bảnh bao ra dáng lắm. Bản tính gã lại dày mặt chẳng biết ngại ngùng là gì, gã dõng dạc tuyên bố mình có sức khỏe dồi dào, sau này các bạn trong lớp có bất cứ việc gì nặng nhọc cần giúp đỡ cứ việc ới một tiếng, gã đảm bảo sẽ có mặt ngay lập tức!
 
-Lời tuyên bố tranh cử chân chất mà chân thành này đã nhận được những tràng pháo tay nhiệt liệt và sự công nhận của mọi người.
+Lời tuyên thệ ứng cử mộc mạc và chân thành ấy đã nhận được những tràng pháo tay giòn giã cùng sự tán thưởng nhiệt liệt của cả lớp.
 
-Trần Trạch còn kéo phiếu cho Lưu Sấm Phong, gửi tin nhắn cho cô bạn cấp ba Lý Lộ, cộng thêm 4 phiếu phòng 303 là đã có 8 phiếu, các bạn khác thấy vậy mới lục đục giơ tay, quá một nửa.
+Trần Trạch còn nhiệt tình kéo phiếu giúp Lưu Sấm Phong, nhắn tin cho cô bạn học cùng cấp ba là Lý Lộ, cộng thêm bốn phiếu của phòng 303 nữa là đã có tám phiếu chắc nịch. Các bạn khác thấy vậy mới lục tục giơ tay hưởng ứng theo, tổng số phiếu vượt quá một nửa.
 
-Lưu Huy chỉ có thể để Lưu Sấm Phong làm lớp phó kiêm ủy viên thể dục.
+Lưu Huy rơi vào thế khó xử, đành phải xếp Lưu Sấm Phong làm lớp phó kiêm ủy viên thể dục.
 
-Thực tế, tranh cử gay gắt nhất là vị trí Bí thư chi đoàn.
+Thực ra, cuộc cạnh tranh khốc liệt nhất trong lớp lại là vị trí Bí thư Chi đoàn.
 
-Ở đại học, lớp trưởng chỉ là hình thức tồn tại, thuộc về khái niệm "lớp hành chính".
+Trên thực tế khi bước lên đại học, lớp trưởng chỉ là một hình thức tồn tại mang tính chất quản lý "lớp hành chính".
 
-Còn Chi đoàn lại là bộ phận bắt buộc phải có!
+Còn Chi đoàn mới là tổ chức bắt buộc phải có!
 
-Lớp trưởng thiên về điều phối công việc hằng ngày, Bí thư chi đoàn phụ trách công tác đoàn và xây dựng tư tưởng, kết nối với Đoàn trường và tổ chức Đảng.
+Lớp trưởng chỉ phụ trách điều phối các công việc vụn vặt hàng ngày, trong khi Bí thư Chi đoàn phụ trách công tác Đoàn và xây dựng tư tưởng, là cầu nối trực tiếp với Đoàn trường và tổ chức Đảng của nhà trường.
 
-Lâm Thanh Tuyết là hoa khôi của lớp Kế toán 1, do Lưu Sấm Phong và Cốc Siêu Thừa phong tặng, bọn họ nhất trí cho rằng Lâm Thanh Tuyết là nữ sinh xinh đẹp nhất lớp.
+Lâm Thanh Tuyết chính là hoa khôi của lớp Kế toán 1 — danh hiệu này là do Lưu Sấm Phong và Cốc Siêu Thừa tự phong cho, hai người họ đồng lòng khẳng định Lâm Thanh Tuyết là cô gái xinh đẹp nhất lớp.
 
-Ngày đầu tiên họp lớp, Lưu Sấm Phong đã nhắm trúng Lâm Thanh Tuyết.
+Ngay từ buổi sinh hoạt lớp đầu tiên, Lưu Sấm Phong đã chấm trúng Lâm Thanh Tuyết.
 
-Lâm Thanh Tuyết dáng người không cao, tầm 1m62, nhưng khi cười lên rất xinh, có hai lúm đồng tiền nhỏ.
+Lâm Thanh Tuyết dáng người nhỏ nhắn, chỉ cao tầm khoảng 1m62, nhưng mỗi khi cười lại lộ ra hai lúm đồng tiền duyên dáng chết người.
 
-Đặc biệt là chiếc áo phông trắng trước ngực phập phồng lượn sóng.
+Đặc biệt là khuôn ngực đẫy đà ẩn sau chiếc áo phông trắng phập phồng gợn sóng đầy quyến rũ.
 
-Theo lời Triệu Kim An thì là cô bé này phát triển rất tốt, dinh dưỡng đầy đủ, sau này con cái sẽ không lo thiếu lương thực.
+Theo cách nói đầy hình tượng của Triệu Kim An, thì cô bé này phát triển rất tốt, dinh dưỡng vô cùng đầy đủ, sau này con cái chắc chắn không lo bị thiếu sữa.
 
-Cuối cùng, Lâm Thanh Tuyết giành được vị trí Bí thư chi đoàn lớp Kế toán 1 với ưu thế suýt soát.
+Cuối cùng, Lâm Thanh Tuyết đã giành chiến thắng sít sao để ngồi vào chiếc ghế Bí thư Chi đoàn lớp Kế toán 1.
 
-Nguyên nhân là do cái gã "liếm cẩu" Lưu Sấm Phong này, 4 phiếu của phòng 303 không hề bắt cá hai tay, chỉ bầu cho một mình Lâm Thanh Tuyết.
+Nguyên nhân là do gã "liếm cẩu" Lưu Sấm Phong này, bốn lá phiếu của phòng 303 tuyệt đối một lòng một dạ không hề hai mang, dồn toàn bộ cho Lâm Thanh Tuyết.
 
-Mà phòng của Lâm Thanh Tuyết và Lý Lộ có 4 phiếu, không chỉ bầu cho Lưu Sấm Phong, mà lúc Vương Học Ân lên đài tranh cử lớp trưởng bọn họ cũng giơ tay.
+Trong khi đó, bốn lá phiếu của phòng Lâm Thanh Tuyết và Lý Lộ chẳng những bỏ phiếu cho Lưu Sấm Phong, mà đến khi Vương Học Ân bước lên ứng cử chức lớp trưởng, các cô nàng cũng thản nhiên giơ tay bầu luôn.
 
-Nhìn thấy bàn tay nhỏ nhắn nõn nà của Lâm Thanh Tuyết giơ lên, trái tim Lưu Sấm Phong vỡ vụn từng mảnh.
+Nhìn bàn tay búp măng trắng nõn nà của Lâm Thanh Tuyết giơ lên bầu cho người khác, trái tim Lưu Sấm Phong vỡ vụn thành trăm mảnh.
 
-Người phụ nữ này thay lòng đổi dạ...
+Người phụ nữ này bắt cá hai tay...
 
-Không đúng, là thực sự biết cách đối nhân xử thế mà.
+À không, phải nói là quá đỗi khéo léo trong cách đối nhân xử thế mới đúng.
 
-"Kim An, cậu quay đi chỗ khác chút đi, con gái đều đang nhìn cậu kìa."
+"Kim An, cậu quay người sang góc kia chút đi, đám con gái lớp bên cạnh cứ nhìn chằm chằm vào cậu mãi kìa."
 
-Triệu Kim An tựa vào lan can, một tay kẹp điếu thuốc, nữ sinh lớp bên cạnh cứ liên tục liếc nhìn qua, huấn luyện quân sự mà mấy lần làm sai động tác, Cốc Siêu Thừa thấy mà tức.
+Triệu Kim An đứng tựa vào hàng rào sắt, một tay kẹp điếu thuốc lá phì phèo. Đám nữ sinh lớp bên cạnh vừa tập quân sự vừa liếc trộm sang nhìn anh không chớp mắt, đến mức mấy lần làm sai động tác khiến Cốc Siêu Thừa nhìn mà tức nổ đom đom mắt.
 
-Cái tên mặt trắng nhỏ này...
+Cái thằng mặt trắng này...
 
-Mình được nghỉ ngơi, nhìn người khác huấn luyện quân sự dưới nắng thật là sướng.
+Cảm giác mình được ngồi nghỉ mát dưới bóng cây, nhìn người khác phải phơi nắng tập quân sự quả thực sướng rơn cả người.
 
-Một nam sinh trong đó nói: "Kim An, cậu hay là đội mũ vào đi, để cho anh em chúng tôi còn húp tí cháo với."
+Một nam sinh trong nhóm lên tiếng: "Kim An à, tốt nhất là cậu đội cái mũ lính vào đi, chừa lại chút 'nước canh' cho anh em húp với chứ."
 
-"Đúng đúng đúng! Nghe khẩu lệnh, đằng sau quay!!"
+"Đúng đúng đúng! Nghe khẩu lệnh: Đằng sau... quay!!"
 
-"Nhanh lên, đừng để bọn tôi phải động tay động chân nhé!"
+"Nhanh lên nào, đừng để bọn này phải dùng đến biện pháp mạnh đấy nhé!"
 
-Mấy nam sinh hút thuốc hùa theo trêu chọc, làm bộ xắn tay áo lên. Nhan sắc của Triệu Kim An, ngay cả nam sinh lớp Kế toán 1 cũng phải công nhận.
+Mấy cậu nam sinh hút thuốc nhao nhao hò hét trêu chọc, làm bộ xắn tay áo dọa nạt. Về vẻ đẹp trai và khí chất của Triệu Kim An, ngay cả đám con trai lớp Kế toán 1 cũng phải ngậm ngùi công nhận.
 
-Quan trọng nhất chính là cái khí chất nhàn nhạt trên người gã này.
+Quan trọng nhất là cái phong thái trầm tĩnh, phong trần phảng phất nét từng trải toát ra từ sâu bên trong con người anh.
 
-Cũng chẳng trách Mộc Dao lại muốn Triệu Kim An đưa nàng đến trường nhập học.
+Chẳng trách sao Mộc Dao lại tha thiết muốn Triệu Kim An đích thân đưa mình đi nhập học đến thế.
 
-Có một nam sinh tên là Vương Duy Đào, hắn ngậm điếu Phù Dung xanh của Trần Trạch, cười nói: "Kim An, hay là cậu để tóc dài ra chút đi, tôi muốn đổi ký túc xá, tôi muốn cậu nhặt xà phòng."
+Có một nam sinh tên là Vương Duy Đào, miệng ngậm điếu thuốc Phù Dung Xanh của Trần Trạch, cười hì hì trêu: "Kim An này, hay là cậu nuôi tóc dài thêm chút đi, tôi muốn chuyển sang phòng cậu ở để cùng cậu nhặt xà phòng quá."
 
-"Đù! Vương Duy Đào, cậu có cần phải vã đến thế không?"
+"Mẹ kiếp! Vương Duy Đào, mày có cần phải vã đến mức đấy không hả con lợn?"
 
-Vương Duy Đào mặt đầy mụn trứng cá, chỉ vào Triệu Kim An: "Các cậu xem, các cậu xem kìa, cậu ta lại cười!"
+Vương Duy Đào mặt đầy mụn trứng cá, chỉ tay vào Triệu Kim An hét toáng lên: "Mọi người nhìn xem, nhìn xem kìa, cậu ấy lại cười nữa rồi!"
 
-"Cút!"
+"Biến đi!"
 
-Triệu Kim An cười mắng một câu, hơi nghiêng người đi.
+Triệu Kim An vừa cười vừa mắng một câu, khẽ nghiêng người né sang một bên.
 
-Vương Duy Đào lập tức thay đổi sắc mặt, học giọng nữ sinh vừa vỗ tay vừa nói: "Oa, Kim An có vẻ đàn ông quá đi."
+Vương Duy Đào lập tức đổi ngay nét mặt, bắt chước điệu bộ yểu điệu của con gái, vỗ tay bôm bốp khen ngợi: "Oa, Kim An trông nam tính và quyến rũ ghê cơ!"
 
-"Oẹ——"
+"Ọe——"
 
-"Đù, Vương Duy Đào, ông đây bị cậu làm cho buồn nôn rồi đấy, cậu không phải là cong thật đấy chứ?"
+"Mẹ kiếp Vương Duy Đào, ông đây bị mày làm cho buồn nôn chết đi được, mày không phải là gay thật đấy chứ?"
 
-"Hơn nữa, cậu nhìn cái mặt đầy mụn trứng cá của cậu đi, Kim An cong còn được, chứ cậu mà cong thì ra cái thể thống gì?"
+"Với lại nhìn cái bản mặt chi chít mụn trứng cá của mày xem, Kim An mà có 'cong' thì còn chấp nhận được, chứ cái ngữ như mày mà đòi 'cong' thì ai mà nuốt cho trôi?"
 
-Triệu Kim An: . . . . . .
+Triệu Kim An: "..."
 
-Cái gì mà tôi cong còn được? Chẳng lẽ các cậu đều đang đợi tôi nhặt xà phòng à?
+Cái gì mà tôi "cong" thì chấp nhận được chứ? Bộ mấy người các cậu đều đang xếp hàng chờ tôi nhặt xà phòng thật đấy à?
 
-Mấy nam sinh bắt đầu vây lấy Vương Duy Đào, kéo áo cởi quần, ép cậu ta ngày mai phải mua bao thuốc xịn, khởi điểm phải là Phù Dung vàng. Vương Duy Đào chỉ còn nước xin tha: "Mua mua mua, đù, đừng có kéo quần tôi!"
+Mấy cậu nam sinh lập tức xông vào đè nghiến Vương Duy Đào ra trừng trị, đứa giật áo đứa tháo thắt lưng quần, ép cậu ta ngày mai phải mua một bao thuốc lá xịn đền tội, tiêu chuẩn tối thiểu phải từ Hoàng Phù Dung trở lên. Vương Duy Đào bị đè bẹp dí đành phải giơ tay xin tha: "Mua mua mua, tôi mua là được chứ gì! Mẹ kiếp, đừng có tụt quần ông ra!"
 
-Đây chính là tuổi 18!
+Đó chính là nét tinh nghịch, bồng bột rất đỗi tuổi mười tám!
 
-Phù Dung vàng giá 23 tệ một bao, gia cảnh Vương Duy Đào chắc cũng khá, thuộc tầng lớp lao động bình thường.
+Thuốc lá Hoàng Phù Dung có giá hai mươi ba tệ một bao. Gia cảnh của Vương Duy Đào chắc hẳn cũng khá giả, thuộc tầng lớp gia đình công chức bình thường.
 
-Người Hàng Châu, kiếp trước sau khi tốt nghiệp đại học đến Quận Sa công tác đã tìm Triệu Kim An mấy lần, còn quen biết cả Trần Thanh Trĩ. Triệu Kim An từng đưa cậu ta và Triệu Chí Dũng đi ăn đêm vài lần.
+Cậu ta là người gốc Hàng Châu. Kiếp trước sau khi tốt nghiệp đại học, mỗi lần có dịp đi công tác qua Quận Sa, cậu ta đều ghé tìm gặp Triệu Kim An mấy lần, sau này còn quen biết cả Trần Thanh Trĩ. Triệu Kim An từng dẫn cậu ta cùng Triệu Trí Dũng đi ăn đêm nhậu nhẹt nhiều phen.
 
-Nói cũng lạ, Vương Duy Đào đến Quận Sa công tác không tìm gã nhà giàu như Trần Trạch, mà lần nào cũng mang rất nhiều đặc sản cho Triệu Kim An.
+Nói ra cũng thật kỳ lạ, Vương Duy Đào mỗi lần đến Quận Sa công tác chẳng bao giờ tìm đến cậu ấm phú nhị đại Trần Trạch, mà lần nào cũng xách theo một đống đặc sản Hàng Châu mang tặng Triệu Kim An.
 
-Nào là trà Long Tỉnh Tây Hồ (giả), bột sắn dây Tây Hồ, bánh hoa quế, bánh Định Thắng, nói là hiệu lâu đời phải xếp hàng rất lâu mới mua được, Trần Thanh Trĩ rất thích ăn bột sắn dây.
+Nào là trà Long Tỉnh Tây Hồ (hàng nhái), bột củ sen Tây Hồ, bánh hoa quế, bánh Định Thắng... bảo là phải xếp hàng rất lâu ở các tiệm gia truyền lâu đời mới mua được. Trần Thanh Trĩ khi ấy cực kỳ mê món bột củ sen.
 
-Triệu Kim An chỉ buột miệng nhắc qua với Vương Duy Đào một câu, ngay ngày hôm đó Vương Duy Đào đã gửi chuyển phát nhanh tới, bảo là bột sắn dây của chị dâu tôi bao hết, hết thì cứ bảo một tiếng.
+Triệu Kim An chỉ vô tình buột miệng nhắc qua một câu, ngay ngày hôm đó Vương Duy Đào đã gửi chuyển phát nhanh bảo món bột củ sen của chị dâu cứ để em bao trọn gói, hết lúc nào chỉ cần ới một tiếng.
 
-Thực ra có thể mua trên mạng, nhưng Vương Duy Đào bảo cái đó không chính tông.
+Thực ra thời đó có thể đặt mua qua mạng được rồi, nhưng Vương Duy Đào cứ nằng nặc bảo đồ mua trên mạng không chuẩn vị truyền thống.
 
-Buổi chiều, giữa giờ nghỉ, mấy nam sinh lớp Kế toán 1 lại ra đây hút thuốc.
+...
 
-"Nhanh nhanh nhanh, ai có thuốc không!"
+Buổi chiều, vào giờ nghỉ giải lao giữa buổi huấn luyện, mấy nam sinh lớp Kế toán 1 lại lục tục kéo nhau ra góc quen thuộc này hút thuốc.
 
-Triệu Kim An tựa vào lan can nói: "Hút của tôi đi."
+"Nhanh nhanh lên nào, ai có thuốc lá không?!"
 
-Hắn lấy ra một bao Phù Dung vàng, một tay lại vô thức chạm lên lan can sắt.
+Triệu Kim An đứng tựa lưng vào hàng rào sắt, thản nhiên nói: "Hút của tôi đi này."
 
-Lưu Sấm Phong cầm lấy, bảo: "Hê, Kim An cũng đổi thuốc rồi, không phải Bạch Sa cũ nữa."
+Anh rút từ trong túi ra một bao Hoàng Phù Dung, một bàn tay lại bất giác chạm nhẹ lên thanh rào sắt.
 
-"Lớp phó, chỉ còn mỗi cậu là chưa mua thôi đấy."
+Lưu Sấm Phong đón lấy bao thuốc, ngạc nhiên thốt lên: "Uầy, Kim An hôm nay cũng đổi sang hút thuốc xịn rồi này, không còn là Bạch Sa Cũ bốn tệ nữa nhé!"
 
-Xoay một vòng, Vương Duy Đào cũng lấy một điếu rồi nhét bao thuốc vào tay Triệu Kim An, tiện thể đâm chọc Lưu Sấm Phong một câu.
+"Lớp phó à, trong cái đám này chỉ còn mỗi mình cậu là chưa chịu bỏ tiền mua bao thuốc nào đâu đấy."
 
-Sinh viên đại học là thế, cứ xoay vòng thôi.
+Chuyền tay nhau một vòng, Vương Duy Đào rút một điếu rồi nhét lại bao thuốc vào tay Triệu Kim An, tiện mồm châm chọc Lưu Sấm Phong một câu cay cú.
 
-Nhưng ngoại trừ Trần Trạch, mọi người đều mua loại thuốc lá vài tệ, dù sao một tháng sinh hoạt phí cũng chỉ có 300 đến 500 tệ. Trần Trạch cũng lấy một điếu, hắn đã nghe Lưu Sấm Phong kể trong phòng vào ngày khai giảng rồi.
+Đời sinh viên vốn dĩ là như vậy, xoay tua mời nhau qua lại.
 
-Triệu Kim An hút loại Bạch Sa cũ giá 4 tệ, mấy điếu cuối cùng cũng mang đi luôn, Trần Trạch có chút bất ngờ, không phải là Bạch Sa tinh chế giá 8 tệ sao?
+Tuy nhiên ngoại trừ Trần Trạch ra, đám nam sinh bình thường chỉ dám mua loại thuốc lá vài ba tệ một bao mà thôi, dẫu sao tiền sinh hoạt phí mỗi tháng của họ cũng chỉ vỏn vẹn ba đến năm trăm tệ. Trần Trạch cũng với tay rút lấy một điếu. Cậu ta nhớ lại hôm nhập học vừa về đến phòng đã nghe Lưu Sấm Phong bêu rếu chuyện Triệu Kim An hút loại thuốc Bạch Sa Cũ bốn tệ, đến mấy điếu cuối cùng cũng cất biến mang đi. Lúc này Trần Trạch không khỏi có chút bất ngờ, chẳng phải người ta thường hút loại Bạch Sa Tinh giá tám tệ hay sao?
 
-Thú thật, Triệu Kim An nhìn thế nào cũng không thấy giống người có gia cảnh nghèo khó.
+Thực lòng mà nói, nhìn thần thái và phong cách của Triệu Kim An, làm thế nào trông cũng chẳng giống một kẻ có gia cảnh nghèo hèn, yếu thế chút nào...

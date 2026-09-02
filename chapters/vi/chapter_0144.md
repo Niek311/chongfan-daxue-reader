@@ -1,239 +1,239 @@
-# Chương 144: Họ Đang Ôn Thi Cao Học Sao
+# Chương 144: Hai người họ đang ôn thi cao học à?
 
-"Triệu Kim An, cậu không lấy tiền công ty đi chơi cổ phiếu đấy chứ?"
+> **Tiêu đề gốc**: 第144章 她们是在考研吗？
 
-Thẩm Tử Ngôn chợt nhớ ra.
+"Triệu Kim An, anh không dùng tiền của công ty để chơi cổ phiếu đấy chứ?"
 
-"Cậu chơi à?"
+Thẩm Tử Ngôn chợt sực nhớ ra điều này, liền quay sang hỏi.
 
-"Tớ làm gì có tiền, ba tớ chơi."
+"Em cũng chơi à?"
 
-"Có lãi không?"
+"Em lấy đâu ra tiền, là bố em chơi đấy chứ."
 
-"Rút nhanh nên lãi được một ít, nếu giờ còn chưa bán thì chắc chắn bị kẹt vốn rồi."
+"Thế có kiếm được đồng nào không?"
 
-Hai người đứng ở hành lang tầng hai, Thẩm Tử Ngôn quay sang nhìn Triệu Kim An: "Cậu có theo dõi không?"
+"Bố em nhanh chân tháo chạy sớm nên cũng kiếm được một khoản kha khá, chứ nếu đến giờ mà vẫn chưa bán thì chắc chắn bị nghẽn vốn kẹp chết tươi rồi."
 
-Triệu Kim An gật đầu: "Có theo dõi."
+Hai người đứng tựa vào lan can hành lang tầng hai, Thẩm Tử Ngôn xoay người nhìn thẳng vào mắt Triệu Kim An: "Anh có theo dõi mảng này không?"
 
-"Cậu thấy xu hướng sau này thế nào?"
+Triệu Kim An khẽ gật đầu: "Có theo dõi."
+
+"Thế anh nhận định xu hướng tiếp theo sẽ diễn biến ra sao?"
 
 "Một đi không trở lại."
 
-Thẩm Tử Ngôn nhìn hắn: "Khẳng định thế sao?"
+Thẩm Tử Ngôn chăm chú nhìn Triệu Kim An: "Anh chắc chắn đến thế cơ à?"
 
-"Nhà cậu chắc là rất giàu, ba cậu chơi lớn lắm đúng không?"
+"Gia đình em hẳn là có điều kiện lắm nhỉ, bố em đầu tư lớn lắm sao?"
 
-Thẩm Tử Ngôn vừa gật vừa lắc đầu: "Cũng không hẳn là rất giàu, chẳng tính là đại gia gì đâu."
+Thẩm Tử Ngôn vừa gật đầu lại vừa lắc đầu: "Cũng không tính là quá giàu có, chưa đến mức gọi là đại gia gì đâu."
 
-Triệu Kim An nhớ lại lúc nãy Thẩm Tử Ngôn nói "công ty còn có thể mở rộng nhanh hơn một chút", liền cười cười: "Trong lòng cậu, có phải chưa lên bảng Forbes thì chưa được tính là đại gia?"
+Triệu Kim An nhớ lại câu nói ban nãy của cô nàng rằng "công ty hoàn toàn có thể bành trướng nhanh hơn nữa", bèn bật cười: "Trong mắt em, chắc phải lọt vào bảng xếp hạng Forbes thì mới được coi là người giàu nhỉ?"
 
-"Cũng không đến mức đó."
+"Làm gì đến mức đó."
 
-Thẩm Tử Ngôn chuyển chủ đề: "Mạn Mạn đến xưởng nhà Trần Trạch rồi, có lẽ công ty nhà cậu ấy đang gặp chút vấn đề."
+Thẩm Tử Ngôn chủ động đánh trống lảng chuyển đề tài: "Mạn Mạn vừa chạy qua nhà xưởng của gia đình Trần Trạch rồi, có vẻ như công ty nhà Trần Trạch đang gặp chút trục trặc."
 
-"Không phải cô ấy đi từ hồi nghỉ hè sao?"
+"Chẳng phải từ đợt nghỉ hè cậu ấy đã sang đó phụ giúp rồi sao?"
 
-"Lúc vào học thì chưa từng đi, ngoại trừ cuối tuần thì chúng tớ không rõ lắm."
+"Kể từ ngày khai giảng đến giờ cậu ấy chưa từng sang đó lần nào cả, trừ những ngày cuối tuần bọn em không rõ ra."
 
-Thẩm Tử Ngôn nói thật lòng: "Nên... đó chỉ là phỏng đoán của tớ."
+Thẩm Tử Ngôn thành thật chia sẻ: "Bởi vậy... đây thuần túy là suy đoán cá nhân của em thôi."
 
-Triệu Kim An cũng không rõ Từ Mạn Mạn đi khi nào, không đi khi nào, hắn chưa bao giờ nghe ngóng mấy tin này, chỉ nghe Lưu Sấm Phong nói ở ký túc xá rằng nghỉ hè Trần Trạch và Từ Mạn Mạn cùng nhau quản lý nhà xưởng.
+Triệu Kim An vốn không nắm rõ khi nào Từ Mạn Mạn sang xưởng, khi nào không. Cậu xưa nay chẳng bao giờ tọc mạch dò la mấy chuyện riêng tư này, chỉ từng nghe Lưu Sấm Phong kể bô bô trong phòng ký túc xá rằng đợt hè Trần Trạch cùng Từ Mạn Mạn cùng nhau quản lý nhà xưởng.
 
-Tự nhiên hắn sẽ liên tưởng đến việc bình thường hai người chắc chắn phải tham gia quản lý.
+Nghe vậy thì ai cũng sẽ tự nhiên liên tưởng rằng ngày thường hai người họ ắt hẳn cũng phải tham gia vào việc điều hành.
 
-Chưa nói đến chuyện chủ đạo, nhưng ít nhất cũng phải theo sát học hỏi, coi như thực tập để bồi dưỡng sớm.
+Dù chưa thể nắm quyền chỉ đạo chính, nhưng chí ít cũng phải theo sát học việc, coi như một đợt thực tập cọ xát để bồi dưỡng năng lực từ sớm.
 
-Đặt mình vào hoàn cảnh người khác, nếu mình là Dương Thù Mỹ, mục đích của bà ấy đại khái cũng là như vậy.
+Đặt mình vào vị trí của người làm cha làm mẹ, nếu cậu là Dương Thục Mỹ thì mục đích sâu xa chắc chắn cũng sẽ như vậy.
 
-"Nghe Mạn Mạn nói qua một câu, nhà Trần Trạch làm kinh doanh ngoại thương."
+"Từng nghe Mạn Mạn buột miệng nhắc qua, gia đình Trần Trạch làm mảng thương mại xuất khẩu."
 
-"Nhà cậu thì sao? Cũng làm ngoại thương à?"
+"Thế còn nhà em? Cũng làm mảng ngoại thương à?"
 
-"Có một chút nghiệp vụ, nhưng tỷ trọng không lớn lắm."
+"Cũng có một phần nghiệp vụ, nhưng tỷ trọng không quá lớn."
 
-Thẩm Tử Ngôn nói: "Ngoại thương quá phụ thuộc vào thị trường Âu Mỹ, tỷ trọng gia công thương mại giá trị gia tăng thấp quá cao, chẳng có bao nhiêu lợi nhuận, chẳng qua ở khu vực đồng bằng sông Trường Giang và Châu Giang có rất nhiều xưởng như vậy... dựa vào nhân công rẻ mạt, kiếm chút tiền mồ hôi công sức mà thôi."
+Thẩm Tử Ngôn phân tích: "Mảng ngoại thương phụ thuộc quá nặng nề vào sức mua của thị trường Âu Mỹ, mà tỷ trọng các mặt hàng gia công có hàm lượng giá trị gia tăng thấp lại chiếm đa số nên biên lợi nhuận mỏng như cánh ve... Chẳng qua các nhà xưởng ở khu vực đồng bằng sông Trường Giang và Châu Giang mọc lên như nấm là nhờ tận dụng được nguồn nhân công giá rẻ, kiếm chút tiền mồ hôi nước mắt vất vả mà thôi."
 
-"Tỷ trọng không lớn, tức là vẫn chiếm một tỷ lệ nhất định."
+"Tỷ trọng không quá lớn, nghĩa là vẫn chiếm một phần cơ cấu nhất định."
 
-Triệu Kim An nhìn Thẩm Tử Ngôn, ngẫm nghĩ một hồi rồi vẻ mặt nghiêm trọng: "Thu hẹp lại đi, cậu học quản trị kinh doanh, sẽ tiếp xúc với tài chính, nếu thị trường chứng khoán một đi không trở lại, sau đó sẽ dẫn tới điều gì?"
+Triệu Kim An nhìn xoáy sâu vào Thẩm Tử Ngôn, trầm ngâm suy tính giây lát rồi cất giọng vô cùng trịnh trọng: "Thu hẹp lại đi. Em là sinh viên khoa quản trị kinh doanh, ắt hẳn sẽ được tiếp xúc nhiều với tài chính vi mô lẫn vĩ mô. Nếu thị trường chứng khoán lao dốc một đi không trở lại, hậu quả tiếp theo sẽ kích hoạt chuỗi phản ứng dây chuyền gì?"
 
-"Cậu đừng chỉ chú ý đến cổ phiếu hạng A, hãy quan tâm nhiều hơn đến chứng khoán Mỹ."
+"Em đừng chỉ chăm chăm nhìn vào mỗi thị trường cổ phiếu trong nước, hãy chịu khó quan sát thêm thị trường chứng khoán Mỹ nữa."
 
-"Cổ phiếu hạng A có lẽ chưa nhìn ra được gì, nhưng chứng khoán Mỹ chính là biểu đồ dự báo kinh tế toàn cầu."
+"Chứng khoán trong nước có thể chưa bộc lộ rõ rệt, nhưng chứng khoán Mỹ chính là chiếc phong vũ biểu đo lường sức khỏe của toàn bộ nền kinh tế toàn cầu."
 
-"Ý cậu là..."
+"Ý của anh là..."
 
-Thẩm Tử Ngôn cũng nhìn Triệu Kim An, đây là lần đầu tiên cô thấy hắn nghiêm trọng đến vậy.
+Thẩm Tử Ngôn cũng nhìn chằm chằm vào Triệu Kim An, đây là lần đầu tiên cô thấy chàng trai này lộ ra vẻ mặt nghiêm túc, cẩn trọng đến nhường này.
 
-"Ai mà biết được."
+"Chuyện tương lai thì không ai dám vỗ ngực khẳng định tuyệt đối."
 
-Triệu Kim An nhắc nhở: "Nghiệp vụ công ty có thể thu hẹp thì nên thu hẹp lại, điều quan trọng nhất là: phải đòi thanh toán tiền hàng trước!"
+Triệu Kim An lên tiếng cảnh báo: "Các mảng nghiệp vụ của công ty gia đình em, nếu có thể thu hẹp thì hãy mau chóng thu hẹp lại. Và điều quan trọng nhất: Bắt buộc phải thanh toán tiền trước mới giao hàng!"
 
-Thẩm Tử Ngôn thẫn thờ lẩm bẩm: "Còn cả việc mở rộng dây chuyền sản xuất một cách mù quáng nữa."
+Thẩm Tử Ngôn khẽ giật mình ngộ ra: "Còn phải dừng ngay việc mở rộng dây chuyền sản xuất một cách mù quáng nữa."
 
 "..."
 
-Triệu Kim An không tiện nói thêm, nói nữa thì chẳng khác nào khẳng định chắc chắn sẽ có khủng hoảng tài chính.
+Triệu Kim An không tiện nói sâu thêm nữa. Nếu nói trắng phớ ra thì chẳng khác nào cậu khẳng định như đinh đóng cột rằng một cuộc khủng hoảng tài chính toàn cầu chắc chắn sẽ nổ ra.
 
-Vả lại, đầu óc của Thẩm Tử Ngôn nhảy số cũng nhanh quá đi.
+Hơn nữa, đầu óc con bé Thẩm Tử Ngôn này nhảy số nhanh đến mức đáng kinh ngạc.
 
-Triệu Kim An chỉ gật đầu với Thẩm Tử Ngôn.
+Triệu Kim An chỉ khẽ gật đầu với cô một cái.
 
-Thẩm Tử Ngôn suy nghĩ một lát rồi cầm điện thoại đi gọi.
+Thẩm Tử Ngôn đứng ngẫm nghĩ một hồi lâu, sau đó rút điện thoại rảo bước ra ngoài hành lang gọi điện.
 
-Làm ngoại thương có quá nhiều đơn hàng chỉ trả tiền đặt cọc.
+Làm ngành thương mại xuất khẩu xưa nay có quá nhiều đơn hàng chỉ thanh toán trước một khoản tiền đặt cọc tượng trưng.
 
-Đa số các công ty Âu Mỹ có uy tín khá tốt.
+Đa phần các công ty Âu Mỹ trước giờ đều giữ chữ tín khá tốt.
 
-Nhưng cũng có những bên chỉ trả một lượng nhỏ tiền cọc, đến lúc sản xuất xong, kỳ hạn thanh toán tới thì biết đi đâu mà đòi nốt số tiền còn lại?
+Nhiều đối tác chỉ trả trước một phần cọc nhỏ, đến khi hàng hóa sản xuất xong xuôi, công nợ tới hạn thì biết chạy sang đâu để đòi nốt số tiền còn lại?
 
-Nhìn Thẩm Tử Ngôn cầm điện thoại đi đi lại lại dưới lầu, lời lẽ có vẻ sắc bén, chắc là đang tranh luận với cha mình. Đây là vấn đề chiến lược của công ty, không phải chuyện nhỏ.
+Nhìn bóng lưng Thẩm Tử Ngôn cầm điện thoại đi đi lại lại dưới sân, lời lẽ đanh thép sắc bén, xem chừng cô nàng đang tranh luận nảy lửa với bố mình. Đây là quyết định mang tính chiến lược sống còn của cả một doanh nghiệp chứ đâu phải chuyện con trẻ đùa chơi.
 
-Vạn nhất chỉ là thị trường chứng khoán sụt giảm bình thường, công ty sẽ bỏ lỡ thời cơ phát triển.
+Nếu lỡ như đây chỉ là một đợt sụt giảm kỹ thuật thông thường của thị trường chứng khoán, công ty sẽ bỏ lỡ mất thời cơ vàng để mở rộng phát triển.
 
-Thậm chí công ty còn có thể mất đi rất nhiều khách hàng cũ và mới.
+Thậm chí công ty còn có nguy cơ đánh mất hàng loạt khách hàng truyền thống lẫn khách hàng tiềm năng.
 
-Cậu bắt người ta phải trả tiền trước, người ta chắc chắn sẽ đổi đối tác hợp tác khác.
+Bởi vì nếu anh khăng khăng bắt người ta phải chuyển đủ tiền trước, đối tác chắc chắn sẽ quay lưng chuyển sang bắt tay với những đối thủ cạnh tranh khác.
 
-Cho nên không phải cứ Triệu Kim An nói gì là người ta sẽ nghe nấy.
+Thế nên không phải cứ Triệu Kim An nói gì là người khác sẽ răm rắp nghe theo răm rắp.
 
-Huống chi Triệu Kim An chỉ là một sinh viên năm hai của đại học Sư phạm.
+Huống hồ Triệu Kim An trên danh nghĩa lúc này cũng chỉ là một cậu sinh viên năm hai của trường Đại học Sư phạm mà thôi.
 
-Kể từ đó.
+Kể từ ngày hôm đó.
 
-Tại ký túc xá 406 trường Trung Nam.
+Tại phòng ký túc xá 406 Đại học Trung Nam.
 
-Ban đêm thường xuyên có hai chiếc máy tính xách tay sáng rực màn hình.
+Cứ về đêm là lại có hai chiếc máy tính xách tay sáng rực màn hình đến tận khuya.
 
-Tiếng tán gẫu cũng ít đi nhiều so với trước kia.
+Không khí trong phòng bớt đi hẳn những tiếng ríu rít cười đùa, buôn chuyện phiếm như trước kia.
 
-"Dao Dao!"
+"Dao Dao ơi!"
 
-Du Phỉ sang ký túc xá 406 chơi, thấy Từ Mạn Mạn và Thẩm Tử Ngôn đang ôm máy tính trên giường như thể đang học bài, liền thè lưỡi: "Ngại quá nha."
+Du Phi ghé sang phòng 406 chơi, vừa bước vào cửa đã thấy Từ Mạn Mạn và Thẩm Tử Ngôn đang ngồi xếp bằng trên giường, chăm chú gõ bàn phím máy tính trông như thể đang dùi mài kinh sử, cô liền thè lưỡi ái ngại: "Ngại quá, mình làm phiền mọi người rồi."
 
-Mộc Dao xuống giường đi theo ra ngoài, đóng cửa lại.
+Mộc Dao vội trèo xuống giường đi ra ngoài, nhẹ nhàng khép cửa lại.
 
-"Du Phỉ, có chuyện gì thế?"
+"Du Phi, có chuyện gì thế?"
 
-"Tớ đói bụng rồi, ra ngoài ăn gì không?"
+"Bụng mình đang cồn cào đói meo rồi đây, đi kiếm gì ăn khuya với mình không?"
 
-"Được, để tớ đi lấy tiền, tớ đang muốn ăn tôm hùm đất, còn cả trà sữa nữa."
+"Được chứ, để mình vào lấy tiền đã. Tự dưng mình cũng thèm ăn tôm hùm đất xào cay với uống trà sữa quá."
 
-"Ăn tôm hùm đất thì hơi muộn rồi đấy."
+"Giờ này đi ăn tôm hùm đất thì hơi muộn rồi đấy."
 
-"Du Phỉ, cậu đi ăn cùng tớ một chút đi mà? Tôm hùm đất tớ bao."
+"Du Phi, đi cùng mình một lát đi mà? Chầu tôm hùm đất này để mình bao."
 
-"Vậy được rồi."
+"Thế thì được thôi."
 
-"Du Phỉ là tốt nhất."
+"Du Phi là tuyệt nhất trần đời!"
 
-Nhìn Mộc Dao vào phòng lấy tiền, Du Phỉ há miệng, trong lòng bỗng thấy hơi xót xa. Một cô gái thanh xuân hoạt bát như Mộc Dao, lên đại học mà đi ăn khuya cũng phải nhờ cô đi cùng.
+Nhìn Mộc Dao hớn hở quay vào phòng lấy ví tiền, Du Phi ngập ngừng muốn nói lại thôi, trong lòng bỗng dâng lên một cảm giác xót xa khó tả. Một cô gái trẻ trung, hoạt bát và xinh đẹp rạng ngời như Mộc Dao, thế mà lên đại học muốn đi ăn bữa khuya cũng phải nài nỉ rủ rê cô đi cùng.
 
-Có biết bao nhiêu nam sinh muốn hẹn Mộc Dao, chỉ cần cô nói muốn ăn khuya, bọn họ chắc chắn sẽ tranh nhau mời khách.
+Biết bao nhiêu chàng trai ngoài kia thèm muốn được hẹn hò với Mộc Dao, chỉ cần cô mở lời muốn ăn khuya là bọn họ sẽ tranh nhau rút ví giành trả tiền.
 
-Du Phỉ chưa bao giờ nghĩ Mộc Dao là hạng con gái xấu xa, chuyện tình cảm này chẳng thể nói ai đúng ai sai.
+Du Phi chưa bao giờ nghĩ Mộc Dao là một cô gái xấu tính, chuyện tình cảm trên đời này vốn dĩ chẳng thể rạch ròi phân định ai đúng ai sai.
 
-"Du Phỉ đi thôi, tớ biết chỗ nào vị ngon lắm."
+"Du Phi, đi thôi nào, mình biết có một quán đằng kia làm ngon đỉnh chóp luôn."
 
-Mộc Dao ra ngoài khoác tay Du Phỉ đi xuống cầu thang.
+Mộc Dao tươi cười bước ra, thân thiết khoác chặt lấy tay Du Phi cùng bước xuống cầu thang.
 
-Hai người học cùng lớp từ cấp ba lên đại học nên rất thân thiết.
+Hai cô gái học cùng một lớp từ thời cấp ba lên tận giảng đường đại học nên tình cảm gắn bó vô cùng khăng khít.
 
-"Đúng rồi, Thẩm Tử Ngôn và Từ Mạn Mạn ở phòng cậu mới năm hai đã chuẩn bị ôn thi cao học rồi à?"
+"À này, Thẩm Tử Ngôn với Từ Mạn Mạn phòng cậu mới năm hai mà đã rục rịch ôn thi cao học rồi đấy à?"
 
-"Không có, hình như họ đang xem thị trường chứng khoán gì đó, tớ cũng không rõ lắm."
+"Không phải đâu, hai cậu ấy dạo này hình như đang mải mê nghiên cứu thị trường chứng khoán gì đó, mình cũng không rõ lắm."
 
-"Họ học đại học mà đã có tiền chơi cổ phiếu rồi sao?"
+"Sinh viên đại học mà đã có tiền chơi cổ phiếu rồi cơ à?"
 
-"Chắc là không đâu, họ chẳng mấy khi bàn bạc, tớ với Diêu Tân cũng không rõ lắm."
+"Chắc không phải đâu, hai cậu ấy chẳng mấy khi bàn luận chuyện đó trong phòng nên mình với Diêu Tân cũng mù tịt."
 
-Thật ra đây mới đúng là sinh viên đại học.
+Thực ra, đây mới chính là dáng vẻ chân thực nhất của lứa tuổi sinh viên.
 
-Thị trường chứng khoán hay khủng hoảng tài chính gì đó, vốn dĩ chẳng gây ảnh hưởng gì tới sinh hoạt phí của những sinh viên bình thường.
+Những thứ đao to búa lớn như thị trường chứng khoán hay khủng hoảng tài chính toàn cầu vốn dĩ chẳng thể làm ảnh hưởng mảy may đến khoản tiền sinh hoạt phí ít ỏi mỗi tháng của những cô cậu sinh viên bình thường.
 
-Từ Mạn Mạn hằng ngày đều rất quan tâm đến thị trường chứng khoán trong nước, còn chứng khoán Mỹ thì chỉ liếc qua vài cái.
+Hàng ngày Từ Mạn Mạn đều đặc biệt theo sát mọi biến động của thị trường chứng khoán trong nước, thị trường chứng khoán Mỹ cô chỉ thỉnh thoảng liếc mắt xem qua vài chỉ số.
 
-Cô xem nhiều hơn về những phân tích và dự báo của các nhà kinh tế học (chuyên gia) đối với thị trường.
+Phần lớn thời gian cô dành để nghiền ngẫm những bài phân tích, dự báo của các nhà kinh tế học và chuyên gia tài chính hàng đầu.
 
-Thẩm Tử Ngôn có lời cảnh báo của Triệu Kim An nên quan tâm nhiều hơn đến chứng khoán Mỹ, cũng như tìm hiểu mối liên hệ giữa thị trường chứng khoán và khủng hoảng tài chính, cùng những tác động của khủng hoảng tài chính đối với ngành ngoại thương.
+Còn Thẩm Tử Ngôn sau khi nhận được lời cảnh báo từ Triệu Kim An thì lại dồn toàn bộ sự chú ý vào thị trường chứng khoán Mỹ, đồng thời tìm đọc hàng loạt tài liệu nghiên cứu về mối tương quan giữa sự sụp đổ của thị trường tài chính với các cuộc khủng hoảng kinh tế, cũng như mức độ tàn phá của nó đối với các doanh nghiệp thương mại xuất khẩu.
 
-"Nhu cầu bên ngoài sụt giảm nghiêm trọng, nguồn vốn tài trợ thương mại cạn kiệt, chuỗi cung ứng đứt gãy..."
+"Cầu ngoại sụt giảm nghiêm trọng, nguồn tài trợ thương mại bị đóng băng, chuỗi cung ứng toàn cầu đứt gãy hoàn toàn..."
 
-"Nếu thật sự như vậy... sẽ có bao nhiêu nhà xưởng ở khu vực đồng bằng sông Trường Giang và Châu Giang phải đóng cửa phá sản?"
+"Nếu kịch bản đen tối này thực sự xảy ra... thì các nhà xưởng ở đồng bằng sông Trường Giang và Châu Giang sẽ có bao nhiêu nơi phải đóng cửa phá sản đây?"
 
-Dù có tin tưởng Triệu Kim An đi chăng nữa, chuyện này cũng không phải trò đùa.
+Dù lòng rất tin tưởng Triệu Kim An, nhưng đây tuyệt đối không phải chuyện mang ra đùa cợt được.
 
-Thẩm Vĩnh Đàm cũng sẽ không nghe theo con gái hoàn toàn, cuối cùng Thẩm Tử Ngôn chỉ nghiêm giọng dặn dò cha không được mua đáy, không được đánh cược vào các đợt hồi phục, lại gọi thêm mấy cuộc điện thoại dặn dò mẹ.
+Thẩm Vĩnh Đàm đương nhiên cũng không thể răm rắp nghe theo mọi lời phán xét của cô con gái rượu. Cuối cùng, Thẩm Tử Ngôn chỉ còn biết nghiêm khắc dặn dò bố tuyệt đối không được tham lam nhảy vào bắt đáy hay đánh cược vào nhịp phục hồi kỹ thuật, sau đó cô còn gọi liền mấy cuộc điện thoại để căn dặn mẹ phải kiểm soát chặt chẽ nguồn vốn lưu động.
 
-Thẩm Vĩnh Đàm vẻ mặt buồn bực, phàn nàn với Lục Mai Tiêu: "Tử Ngôn sao lại tin tưởng cái cậu Triệu Kim An kia đến thế?"
+Thẩm Vĩnh Đàm mặt mày ủ rũ, quay sang than thở với Lục Mai Tiêu: "Con bé Tử Ngôn sao lại mê muội tin tưởng cái cậu Triệu Kim An gì đó đến mức mù quáng như vậy chứ?"
 
-Lục Mai Tiêu gắt gỏng: "Công ty của chúng ta sớm muộn gì cũng phải giao cho Tử Ngôn, ông cứ tin con bé một lần đi. Tử Ngôn có bao giờ coi trọng chuyện gì như thế đâu? Nó gọi cho tôi không dưới năm cuộc điện thoại rồi đấy!"
+Lục Mai Tiêu lườm chồng một cái: "Sản nghiệp của gia đình mình sớm muộn gì chẳng phải bàn giao lại cho con bé quản lý, ông cứ thử tin tưởng con một lần xem sao. Con bé từ bé đến lớn có bao giờ hành xử khẩn trương, hệ trọng như thế này đâu? Nó gọi điện nã tôi không dưới năm cuộc rồi đấy!"
 
-"Thời gian tới có đơn hàng lớn thì chú ý một chút."
+"Những đơn hàng lớn phát sinh trong thời gian tới, chúng ta cứ tạm thời thận trọng thắt chặt lại một chút."
 
-Lục Mai Tiêu lại đổi tông giọng: "Cứ coi như lần này Tử Ngôn phán đoán sai đi, thì đây cũng là một kinh nghiệm rất quý báu, giúp ích rất nhiều cho sự trưởng thành của con bé."
+Lục Mai Tiêu đổi giọng ôn tồn: "Cho dù lần này phán đoán của Tử Ngôn có sai lệch đi chăng nữa, thì đây cũng là một bài học thực chiến vô cùng quý giá, giúp ích rất nhiều cho sự trưởng thành của con."
 
-"Chỉ khi bản thân tự đưa ra quyết định và trải qua nó thì mới thực sự trưởng thành được."
+"Phải tự mình đưa ra quyết định chiến lược rồi trực tiếp trải nghiệm qua sóng gió thì con người ta mới thực sự trưởng thành và bản lĩnh được."
 
-Thẩm Vĩnh Đàm gật đầu.
+Thẩm Vĩnh Đàm trầm ngâm gật đầu.
 
-Cách giáo dục của họ đối với Thẩm Tử Ngôn từ trước đến nay vốn rất cởi mở.
+Cách giáo dục con cái của hai vợ chồng ông xưa nay vốn luôn rất cởi mở và tôn trọng suy nghĩ của con.
 
 "Ting ting ting."
 
-Lúc này máy tính vang lên, Lục Mai Tiêu quay màn hình máy tính lại: "Ông xem, con gái rượu của ông gửi hết những hậu quả này sang đây rồi."
+Đúng lúc này, chiếc máy tính trên bàn làm việc vang lên tiếng chuông thông báo, Lục Mai Tiêu xoay màn hình lại: "Ông xem này, cô con gái bảo bối của ông đã tổng hợp và gửi toàn bộ các kịch bản hậu quả rủi ro qua đây rồi này."
 
-"Không phải con gái rượu của bà chắc?"
+"Chẳng lẽ không phải là con gái bảo bối của bà chắc?"
 
-Thẩm Vĩnh Đàm bật cười một tiếng: "Gửi gì mà đáng sợ thế này... cứ như sợ chúng ta không biết không bằng."
+Thẩm Vĩnh Đàm bật cười một tiếng: "Gửi toàn những số liệu dọa người kinh hồn bạt vía... cứ như sợ bố mẹ nó không nhìn thấy không bằng."
 
-Cuối tuần.
+Dịp cuối tuần.
 
-Từ Mạn Mạn về nhà, thay giày xong, xếp ngay ngắn rồi mệt mỏi ngồi bệt xuống sofa.
+Từ Mạn Mạn trở về nhà. Sau khi cởi giày xếp ngay ngắn vào kệ, cô mang vẻ mặt mệt mỏi rã rời ngồi phịch xuống ghế sofa.
 
-"Mạn Mạn, Trần Trạch không lên cùng à?"
+"Mạn Mạn, Trần Trạch không lên nhà cùng con à?" Lương Tuệ Trân từ trong bếp bước ra hỏi.
 
-Lương Tuệ Trân hỏi.
+Từ Mạn Mạn ngước mắt nhìn mẹ: "Dạ không, anh ấy lái xe về thẳng nhà rồi ạ."
 
-Từ Mạn Mạn ngẩng đầu nhìn mẹ: "Không ạ, cậu ấy lái xe về nhà rồi."
+"Mẹ nghe nói tuần này Trần Trạch chịu khó theo con qua nhà xưởng suốt à? Xem ra thằng bé cũng đã hiểu chuyện và chín chắn hơn nhiều rồi đấy."
 
-"Nghe nói tuần này Trần Trạch đến xưởng rồi? Xem ra đã trưởng thành hơn nhiều."
+"Mẹ, ai kể cho mẹ nghe thế?"
 
-"Mẹ nghe ai nói thế?"
-
-"Dương Thù Mỹ chứ còn ai vào đây nữa?"
+"Thì mẹ nó chứ còn ai vào đây nữa, cái cô Dương Thục Mỹ ấy."
 
 "..."
 
-Từ Mạn Mạn há miệng, rồi lại bất lực ngậm lại.
+Từ Mạn Mạn khẽ mấp máy môi, rồi lại bất lực ngậm chặt miệng lại.
 
-Cô và Trần Trạch học khác trường, chương trình học khác nhau, tuần này Từ Mạn Mạn đã cố gắng thu xếp thời gian theo Trần Trạch đến xưởng, ban ngày chạy đi chạy lại giữa trường và xưởng, buổi tối lại theo dõi thị trường chứng khoán.
+Cô và Trần Trạch học ở hai ngôi trường khác nhau, lịch trình học tập hoàn toàn lệch pha. Tuần vừa rồi Từ Mạn Mạn đã phải cố gắng thu xếp, chắt chiu từng khoảng thời gian rảnh rỗi để cùng Trần Trạch chạy sang nhà xưởng. Ban ngày vừa phải chạy sô giữa giảng đường và nhà xưởng, ban đêm về phòng lại phải căng mắt theo dõi diễn biến thị trường chứng khoán.
 
-Thật ra vất vả một chút cũng không sao, cũng chẳng mệt lắm.
+Thực ra vất vả cực nhọc một chút cũng chẳng sao, thể xác cũng chưa đến mức kiệt quệ.
 
-Cái chính là Trần Trạch ở xưởng chỉ mở máy tính lên chằm chằm nhìn bảng điện tử.
+Điều khiến cô cảm thấy mệt mỏi rã rời nhất là khi sang tới xưởng, Trần Trạch chỉ biết cắm mặt mở máy tính ngồi dán mắt vào bảng điện tử theo dõi chỉ số thị trường chung.
 
-Từ Mạn Mạn nhìn là biết hết, cảm thấy tâm lực tiều tụy.
+Nhìn thấy cảnh tượng đó, Từ Mạn Mạn hiểu hết tất cả, cõi lòng dâng lên một nỗi chán chường, tâm lực hao mòn.
 
-Bản thân mình dù có lo lắng đến mấy thì có ích gì chứ?
+Bản thân cô dù có tận tâm lo toan, nhọc lòng gánh vác đến đâu thì có ích gì cơ chứ?
 
-Dương Thù Mỹ chắc chắn vẫn chưa bán tháo số cổ phiếu trong tay.
+Dương Thục Mỹ chắc chắn vẫn chưa hề chịu bán tháo số cổ phiếu đang bị chôn vốn trong tay.
 
-"Điện thoại của dì Dương nói dì ấy đang ở Dương Châu, ở đây vất vả cho con rồi, nói con ngày nào cũng theo sát đơn hàng rồi tiền hàng thanh toán..."
+"Bác Dương của con vừa gọi điện bảo đang kẹt công việc dưới Quảng Châu, việc bên xưởng đành phải phiền con để tâm giúp đỡ nhiều hơn. Bác ấy khen con ngày nào cũng chịu khó theo sát từng đơn hàng và việc thu hồi công nợ..."
 
-Từ Tắc Đống vừa cúp một cuộc điện thoại từ ban công đi vào.
+Từ Tắc Đống vừa cúp điện thoại từ ngoài ban công bước vào phòng khách.
 
-Thấy cha, Từ Mạn Mạn lập tức thẳng lưng, ngồi ngay ngắn lại.
+Trông thấy bóng dáng nghiêm nghị của cha, Từ Mạn Mạn theo phản xạ tự nhiên lập tức ngồi thẳng lưng, chỉnh lại tư thế ngồi vô cùng đoan trang mực thước.
 
-Vốn dĩ cô cũng không nằm bò ra sofa, nhưng đây giống như một phản xạ có điều kiện vậy.
+Vốn dĩ cô không hề nằm dài lười biếng trên sofa, nhưng động tác ngồi ngay ngắn này hệt như một phản xạ có điều kiện đã ăn sâu vào tiềm thức từ nhỏ.
 
-"Dì Dương của con nói sáng mai Trần Trạch sẽ lái xe qua đón con..."
+"Bác Dương của con bảo sáng mai Trần Trạch sẽ lái xe qua đây đón con sớm..."
 
-"Ba, sáng mai con muốn ngủ nướng một bữa."
+"Bố ơi, sáng mai con muốn xin phép được ngủ nướng một buổi ạ."
 
-Từ Tắc Đống ngẩn người, nhìn con gái, như thể chưa kịp phản ứng lại.
+Từ Tắc Đống thoáng sững sờ, đưa mắt nhìn cô con gái rượu, dường như chưa kịp tiêu hóa lời đề nghị bất ngờ này.
 
-Từ Mạn Mạn như đang trưng cầu ý kiến: "Có được không ba?"
+Từ Mạn Mạn cất giọng khẽ khàng, như thể đang dè dặt thỉnh cầu sự chấp thuận: "Có được không bố?"
 
-Từ Tắc Đống lưỡng lự gật đầu.
+Từ Tắc Đống ngập ngừng một thoáng, rồi khẽ gật đầu.

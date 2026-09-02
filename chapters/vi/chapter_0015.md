@@ -1,163 +1,193 @@
-# Chương 15: Chỉ Là Bạn Học
+# Chương 15: Chỉ là bạn học mà thôi
 
-"Oa, Kim An, mình nảy được chín cái này!"
+> **Tiêu đề gốc**: 第15章 就是同学。
 
-Một phiến đá mỏng lướt trên mặt sông bay ra xa, Mộc Dao vui sướng nhảy cẫng lên, tính cách của một cô gái nhỏ lộ rõ không còn sót lại chút gì.
+"Oa, Kim An nhìn này, viên đá của tớ lướt được những chín lần liền!"
 
-Triệu Kim An đứng bên cạnh mỉm cười quan sát.
+Một mảnh đá dẹt mỏng lướt bay là là trên mặt nước, tạo thành những vòng sóng lăn tăn nối tiếp nhau hướng về phía xa. Mộc Dao mừng rỡ nhảy cẫng lên, nét ngây thơ hồn nhiên của một cô gái nhỏ hiển hiện trọn vẹn trên từng đường nét gương mặt.
 
-"Kim An, mình lợi hại không?"
+Triệu Kim An đứng bên cạnh, khẽ mỉm cười lặng lẽ dõi theo.
 
-"Lợi hại."
+"Kim An, tớ có giỏi không nào?"
 
-"Để mình tìm phiến đá nào mỏng hơn chút nữa, lần này nhất định phải được mười cái!"
+"Rất giỏi."
 
-"Kim An, cậu tìm giúp mình đi."
+"Để tớ đi tìm thêm một viên đá mỏng hơn nữa, lần này nhất định phải lướt được mười lần!"
 
-Mộc Dao xách tà váy đẫm nước, vừa tìm đá ven bờ vừa cười nói không ngớt, mái tóc dài cũng dính đầy những vệt nước bắn.
+"Kim An, cậu tìm giúp tớ đi."
 
-Rời khỏi khu đô thị, Mộc Dao cảm thấy rất vui vẻ. Nàng xác nhận bản thân thích Triệu Kim An, đây chính là tâm thái của một cô gái nhỏ đang chìm đắm trong tình yêu.
+Mộc Dao túm lấy vạt váy còn vương nước sông, lúi húi tìm kiếm những mảnh đá ưng ý ven bờ. Mái tóc dài mềm mại cũng ướt đẫm vài lọn nước, nhưng tiếng cười ròn rã của cô thì chưa từng ngơi nghỉ.
 
-"Bõm!"
+Rời xa phố thị ồn ào khói bụi, Mộc Dao cảm thấy tâm hồn mình nhẹ nhõm và vui sướng vô ngần. Cô càng lúc càng tin chắc rằng mình đã yêu say đắm chàng trai Triệu Kim An này — thứ tình cảm nồng nhiệt, tinh khôi của một thiếu nữ đang đắm chìm trong men say tình đầu.
 
-Tại một khúc quanh có vùng nước sâu, Triệu Chí Dũng đột ngột lao mình lặn xuống nước.
+"Tùm!"
 
-Hành động này khiến Mộc Dao và Du Phỉ giật mình kinh hãi, rồi sau đó lại là một tràng cười vang.
+Tại một khúc sông sâu uốn lượn, Triệu Trí Dũng bất ngờ tung mình lặn một hơi sâu xuống đáy nước.
 
-Cái thằng trời đánh này còn biểu diễn công phu nín thở suốt một phút rưỡi.
+Cú nhảy đột ngột khiến Mộc Dao và Du Phi giật mình thảng thốt, rồi lại tiếp tục bật ra những tràng cười giòn tan.
 
-Khiến hai cô gái nhỏ không khỏi trầm trồ: "Lợi hại thật đấy."
+Thằng nhãi này còn trổ tài biểu diễn tuyệt chiêu nín thở dưới nước suốt một phút rưỡi đồng hồ. Màn biểu diễn ngoạn mục khiến hai cô gái thành phố không tiếc lời tán thưởng: "Giỏi quá đi mất!"
 
-Nín thở dưới nước một phút rưỡi quả thực rất đáng nể, đây vốn là thế mạnh của Triệu Chí Dũng. Nam sinh cấp ba luôn thích thể hiện bản thân trước mặt những cô gái xinh đẹp.
+Ở dưới nước nín thở được một phút rưỡi quả thực là một kỳ tích đáng nể, và đó chính là sở trường thượng thừa của Triệu Trí Dũng. Đám học sinh cấp ba mới lớn ai mà chẳng thích được thể hiện bản lĩnh của mình trước mặt những cô bạn gái xinh đẹp.
 
-Mộc Dao, Du Phỉ và cả Triệu Chí Dũng đều chơi đùa rất vui vẻ, họ chính là những thanh niên mười tám tuổi thực thụ.
+Mộc Dao, Du Phi và Triệu Trí Dũng đều chơi đùa vô cùng sảng khoái và hết mình. Họ thực sự là những người trẻ đang sống trọn vẹn từng khoảnh khắc của tuổi mười tám.
 
-Triệu Kim An móc từ túi quần ra một điếu thuốc Bạch Sa.
+Triệu Kim An thò tay vào túi quần, rút ra một điếu thuốc Bạch Sa quen thuộc.
 
-Hắn vừa định châm lửa.
+Hắn vừa toan châm lửa.
 
-Mộc Dao đã quay người lại, vén mái tóc dài ướt nước, vẻ mặt vừa cười vừa nghiêm nghị: "Kim An, không được học mấy đứa con trai khác hút thuốc!"
+Mộc Dao bất chợt quay người lại, nhẹ nhàng vén lọn tóc ướt mai rủ bên tai, trên gương mặt vừa mang nụ cười tươi tắn lại vừa pha chút nghiêm nghị làm bộ:
 
-Triệu Kim An nghe lời cất điếu thuốc đi.
+"Kim An, không được học đòi mấy đứa con trai hư hỏng khác hút thuốc đâu đấy!"
 
-Mộc Dao lộ vẻ đắc ý, lại có chút kiêu ngạo thầm kín. Đây là bạn trai của nàng, vừa đẹp trai lại vừa nghe lời, ngoan thật đấy.
+Triệu Kim An ngoan ngoãn nghe lời, lặng lẽ cất bao thuốc vào lại túi quần.
 
-Phải, Triệu Kim An rất nghe lời, chính xác là Triệu Kim An của tuổi mười tám ở kiếp trước rất nghe lời.
+Gương mặt Mộc Dao thoáng hiện nét đắc ý cùng chút kiêu hãnh ngấm ngầm.
 
-Thời kỳ này vẫn chưa có từ "nuôi từ bé", nhưng trong lòng Mộc Dao đại khái cũng có ý đó. Nuôi lớn một anh bạn trai đẹp trai như thế này, cảm giác thật tuyệt vời làm sao.
+Đây chính là bạn trai của cô, vừa khôi ngô tuấn tú, lại biết lắng nghe và vô cùng ngoan ngoãn, dịu dàng.
 
-Hoàng hôn buông xuống, sau khi đã chơi đủ, nhìn đồng hồ cũng đã gần sáu giờ tối.
+Phải rồi, Triệu Kim An rất nghe lời, hay nói đúng hơn, Triệu Kim An của tuổi mười tám ở kiếp trước luôn là một chàng trai ngoan ngoãn, chuẩn mực.
 
-Bốn người quay về làng.
+Thời điểm này trên mạng vẫn chưa xuất hiện khái niệm "dưỡng thành" (nuôi dưỡng và uốn nắn một nửa của mình), nhưng trong tiềm thức của Mộc Dao, có lẽ ít nhiều cũng mang tâm lý ấy: tự tay bồi dưỡng và uốn nắn một người bạn trai hoàn mỹ và tuấn tú nhường này, cảm giác ấy thực sự tuyệt vời biết bao.
 
-Mộc Dao và Du Phỉ chơi đùa thỏa thích, Triệu Chí Dũng một mình chạy xe mô tô dẫn đầu, tốc độ rất chậm. Hắn thỉnh thoảng còn ngoái đầu lại trò chuyện vài câu, nụ cười tùy ý mà rạng rỡ.
+...
 
-"Mộc Dao, hai cậu ăn cơm xong rồi hãy về, bà nội Kim An nấu ăn ngon lắm đấy."
+Ánh hoàng hôn dần buông xuống nhuộm đỏ cả một góc trời. Sau khi đã vui chơi thỏa thích, nhìn lại đồng hồ thì trời cũng đã gần sáu giờ tối.
 
-"A!?"
+Cả bốn người cùng nhau rảo bước quay về làng.
 
-Mộc Dao thốt lên một tiếng, mới yêu nhau mà đã đến nhà gặp trưởng bối rồi sao?
+Mộc Dao và Du Phi đã thấm mệt nhưng tinh thần vẫn vô cùng phấn chấn. Triệu Trí Dũng một mình cưỡi chiếc xe máy nổ máy chạy chầm chậm dẫn đầu phía trước. Chốc chốc cậu ta lại ngoái đầu lại trò chuyện rôm rả, nụ cười trên môi rạng rỡ và phóng khoáng.
 
-"Được thôi, được thôi."
+"Mộc Dao, hai cậu ăn cơm tối xong rồi hãy về nhé. Bà nội của Kim An nấu ăn ngon tuyệt đỉnh luôn đấy!"
 
-Du Phỉ không suy nghĩ nhiều như vậy. Sau kỳ thi đại học, việc rủ nhau đến nhà bạn học chơi là chuyện hết sức bình thường. Mọi người đều đi tay không, vào cửa chào một tiếng "chú, dì" là xong.
+"Hả!?"
 
-"Ăn xong mình sẽ chạy mô tô đưa hai cậu về!"
+Mộc Dao thảng thốt kêu lên một tiếng. Mới bắt đầu hẹn hò mà đã vội vàng về ra mắt gia đình nhà bạn trai ăn cơm rồi sao?
 
-Nói xong, Triệu Chí Dũng vặn tay ga.
+"Được đấy, tuyệt quá!"
 
-Tiếng động cơ "ầm ầm" để lại một làn khói trắng, hẳn là hắn đã chạy về báo tin trước.
+Du Phi thì chẳng hề nghĩ ngợi sâu xa đến thế. Sau kỳ thi đại học, việc bạn bè cùng lớp rủ nhau về nhà nhau chơi bời ăn uống là chuyện hết sức bình thường, ai nấy đều tay không đến chơi, bước vào cửa chỉ cần lễ phép cất tiếng chào "chú, dì" là xong.
 
-Đến khi nhóm ba người Triệu Kim An đi bộ về tới, lúc lên dốc, Mộc Dao có chút ngập ngừng: "Đây là nhà Kim An sao?"
+"Ăn xong tao sẽ cưỡi xe máy chở hai cậu về tận thành phố!"
 
-Một căn nhà gạch đỏ hai tầng, không ốp gạch men, cửa sổ vẫn là loại khung gỗ chia ô. Căn nhà này chắc hẳn đã xây được nhiều năm, vì hiện giờ nhà ở nông thôn thường dùng cửa sổ lùa như trên thành phố.
+Nói dứt lời, Triệu Trí Dũng vặn ga rồ máy thật mạnh.
 
-"Anh trai~"
+Tiếng nổ "bành bành bành" giòn giã để lại một làn khói mờ ảo phía sau, chắc hẳn là cậu ta muốn phóng xe về trước để báo tin cho gia đình chuẩn bị cơm nước.
 
-Nhận được tin, Triệu Duyệt Thiên đã đứng chờ sẵn ở đầu dốc từ sớm. Con bé không dẻo miệng gọi "chị", chỉ cắn ngón tay cười rồi hơi khép nép. Có lẽ do môi trường lớn lên nên tính cách con bé hơi nhút nhát.
+Đợi đến khi ba người Triệu Kim An đi bộ về tới nơi, lúc bước chân lên con dốc dài dẫn vào cổng, bước chân Mộc Dao bỗng có chút ngập ngừng, do dự.
 
-"Triệu Duyệt Thiên, em gái mình, con gái của chú." Triệu Kim An giới thiệu.
+"Đây là nhà của Kim An sao?"
 
-"Em gái cậu xinh xắn quá."
+Ngôi nhà hai tầng xây bằng gạch đỏ mộc mạc chưa hề được ốp lát gạch men bóng bẩy, những khung cửa sổ vẫn còn là loại cửa gỗ sáu ô truyền thống từ ngày xưa. Căn nhà này hẳn đã được xây dựng từ khá nhiều năm trước, bởi nhà cửa ở nông thôn bây giờ hầu hết đều đã lắp đặt hệ thống cửa kính kéo trượt hiện đại chẳng khác gì trên phố.
 
-Xinh thì xinh thật, nhưng do thường xuyên chạy nhảy đùa nghịch với đám bạn trong làng nên chiếc váy nhỏ trên người đã hơi lấm bẩn.
+"Anh ơi~"
 
-Du Phỉ dắt tay Mộc Dao bước nhanh tới trêu đùa Triệu Duyệt Thiên: "Lần sau chị đến sẽ mang đồ ăn ngon cho em nhé, kẹo mút chịu không?"
+Nhận được tin báo, bé Triệu Duyệt Thiên đã sớm ra đứng đợi sẵn ở đầu con dốc từ bao giờ. Con bé không hề dẻo miệng cất tiếng gọi "chị" ngay, mà chỉ ngậm ngón tay nhỏ nhắn, nhoẻn miệng cười e thẹn đầy vẻ lúng túng. Có lẽ do môi trường sống quanh năm chỉ quanh quẩn nơi thôn xóm hẻo lánh nên tính cách của cô bé có phần rụt rè, nhút nhát trước người lạ.
 
-"Ở đây có tiệm tạp hóa không? Chị dẫn em đi mua kem."
+"Đây là Triệu Duyệt Thiên, em gái tớ, con gái của chú thím." Triệu Kim An dịu dàng giới thiệu.
 
-Mộc Dao cũng ngồi thụp xuống xoa mặt Triệu Duyệt Thiên.
+"Em gái cậu xinh xắn đáng yêu quá đi mất!"
 
-Bà nội đang bận rộn trong bếp, bà ló đầu ra nhìn một cái rồi lại quay vào ngay. Đây là lần đầu tiên Triệu Kim An dẫn bạn học nữ về nhà chơi.
+Xinh xắn thì có xinh xắn thật, nhưng do vừa mải mê đuổi bắt nô đùa cùng đám trẻ con hàng xóm trong làng nên chiếc váy nhỏ trên người lại lấm lem chút bùn đất.
 
-Triệu Kim An bước vào bếp, nhìn về phía Triệu Chí Dũng đang giúp rửa rau.
+Du Phi kéo tay Mộc Dao sải bước lại gần, cúi xuống trêu đùa cô bé:
 
-Triệu Chí Dũng lắc đầu, ra hiệu rằng mình chưa nói toạc quan hệ giữa hắn và Mộc Dao.
+"Lần sau chị về chơi sẽ mua thật nhiều đồ ăn ngon cho em nhé, kẹo mút chịu không nào?"
 
-Triệu Kim An sợ bà nội bị áp lực tâm lý. Cháu trai lần đầu dẫn bạn gái về nhà, theo phong tục trong làng là phải chuẩn bị một chiếc bao lì xì lớn. Bà nội sẽ không để bản thân thiếu lễ tiết mà làm mất mặt cháu trai. Những gia đình như thế này, bà nội càng sẽ cố gắng làm tốt phần việc của mình, đó cũng là tất cả những gì bà có thể làm cho đứa cháu này rồi.
+"Ở làng mình có tiệm tạp hóa nào không em? Để chị dẫn em đi mua kem que nhé."
 
-Đúng vậy, cũng chỉ có bấy nhiêu thôi.
+Mộc Dao cũng ngồi xổm xuống, âu yếm đưa tay xoa nhẹ lên đôi má phúng phính của Triệu Duyệt Thiên.
 
-"Bà nội, thím đâu rồi ạ?"
+Trong gian bếp, bà nội đang tất bật cặm cụi nấu nướng. Bà bước ra ngó nhìn một thoáng rồi lại quay vào trong bếp. Đây là lần đầu tiên trong đời Triệu Kim An dẫn bạn học nữ về nhà chơi.
 
-"Lên ủy ban làng rồi."
+Triệu Kim An bước theo vào trong bếp, đưa mắt nhìn sang Triệu Trí Dũng đang ngồi lặt rau bên cạnh giếng nước.
 
-Bà nội nhìn cháu trai một lúc, định hỏi gì đó nhưng rồi lại tiếp tục xào nấu. Triệu Kim An luôn có một thắc mắc, liệu những người ở độ tuổi của bà nội có phải chuyện gì cũng nhìn thấu hết rồi không, chẳng qua họ không muốn nói ra mà thôi.
+Triệu Trí Dũng khẽ lắc đầu ra hiệu, ý bảo mình không hề hé răng nửa lời về mối quan hệ tình cảm đặc biệt giữa hắn và Mộc Dao.
 
-Nếu không, tại sao lại có câu "gừng càng già càng cay"?
+Triệu Kim An chỉ sợ bà nội phải chịu áp lực tâm lý. Cháu trai lần đầu dắt bạn gái về nhà ra mắt, theo phong tục tập quán truyền thống ở làng quê, người lớn trong nhà bắt buộc phải chuẩn bị một phong bao lì xì thật tươm tất, dày dặn để trao tay.
 
-Căn bếp nóng hầm hập như lồng hấp, hương thức ăn lan tỏa khắp nơi. Chẳng mấy chốc, vài món ăn đã được bày lên chạn bếp.
+Bà nội tuyệt đối sẽ không bao giờ để gia đình mình thất lễ làm mất mặt hay cản bước tiến của đứa cháu trai yêu quý. Với những gia đình có hoàn cảnh khó khăn như thế này, bà nội càng luôn cố gắng chu toàn mọi lễ nghĩa trong khả năng của mình, bởi những gì bà có thể làm cho đứa cháu mồ côi tội nghiệp cũng chỉ có ngần ấy mà thôi.
 
-Cá xào ớt, thịt xào ớt, trứng hấp, còn có một bát trứng bách thảo trộn ớt băm, toàn là ớt. Ngoài ra còn có một bát cá hấp bột ớt!
+Đúng vậy, cũng chỉ có thể làm được bấy nhiêu đó.
 
-Món ăn này rất ít nơi biết đến, nhưng người ở Triệu Gia Thôn lại thường xuyên ăn như vậy. Đó là loại ớt đỏ nhà tự trồng, đem giã thành bột, thêm chút nước và dầu rồi hấp lên. Không chỉ cá mà thịt cũng có thể làm theo cách này.
+"Bà nội ơi, thím con đâu rồi ạ?"
 
-"Đói bụng rồi phải không? Xào thêm đĩa mướp với đậu que nữa là có thể ăn cơm rồi."
+"Thím mày sang bên ủy ban thôn họp rồi."
 
-Bà nội làm việc rất nhanh nhẹn, bà cố gắng hết sức để chiêu đãi bạn học của cháu trai, không muốn để hắn bị "mất mặt" trước các cô gái.
+Bà nội ngước mắt nhìn đứa cháu trai một lúc lâu, dường như muốn mở lời hỏi han điều gì đó, nhưng rồi lại lặng lẽ quay sang tiếp tục đảo chảo thức ăn.
 
-Chính điểm này khiến Triệu Kim An thực sự không hiểu nổi tại sao Trần Thanh Trĩ lại không thích về đây. Nếu bảo ngày thường bận công việc thì thôi đi, đằng này mấy năm liền đón Tết cô ta cũng không chịu về lấy một lần. Bà nội thực sự không phải hạng người khắc nghiệt, bà đối đãi với Trần Thanh Trĩ cực kỳ tốt, cứ nhận được điện thoại báo về là đã làm thịt gà thịt vịt chuẩn bị cơm nước từ hôm trước.
+Trong lòng Triệu Kim An từ lâu đã luôn có một dấu hỏi lớn: liệu những người già ở độ tuổi như bà nội có phải chuyện gì trên đời cũng nhìn thấu tâm can đến từng chân tơ kẽ tóc hay không, chỉ là họ không muốn nói ra thành lời mà thôi?
 
-Nghĩ đến đây, Triệu Kim An hít sâu một hơi: "Bà nội, không cần xào nhiều thức ăn thế đâu... chỉ là bạn học thôi mà."
+Nếu không thì cớ sao người xưa lại đúc kết nên câu thành ngữ "gừng càng già càng cay, người già hóa tinh"?
 
-"Bạn học thôi sao?" Bà nội liếc nhìn miếng thịt hun khói và vịt khô treo trên bếp.
+Gian bếp đỏ lửa nóng hầm hập như một lồng hấp khổng lồ, nhưng mùi thơm ngào ngạt của các món ăn đồng quê thì bay tỏa khắp gian nhà.
 
-Triệu Kim An vội vàng xua tay: "Thật sự không cần đâu ạ, xào nhiều quá ăn không hết đâu."
+Chẳng mấy chốc, trên mặt kệ bếp đã bày la liệt từng đĩa thức ăn nóng hổi:
 
-"Đều là những cô bé ngoan."
+Đĩa cá suối xào ớt cay nồng, thịt lợn xào ớt chuông xanh, bát trứng hấp mềm mịn như lụa, rồi cả một tô ớt nướng dằm trứng bắc thảo — rặt toàn những món đậm vị ớt cay nồng nàn đặc trưng của xứ Hồ Nam.
 
-"... Bà nội, trong lòng bà có cô bé nào là không ngoan không?"
+Bên cạnh đó còn có một tô lớn món cá hấp bột ớt đỏ tươi rực rỡ!
 
-Triệu Kim An nhớ lại câu nói "Chị dâu cháu là một người đàn bà tốt" của bà vài ngày trước, cảm thấy hơi lùng bùng lỗ tai.
+Món ăn dân dã này rất ít nơi biết tới, nhưng người dân làng họ Triệu lại vô cùng ưa chuộng và ăn thường xuyên. Đó là những quả ớt đỏ nhà tự trồng đem phơi khô rồi giã thành bột mịn, rưới thêm chút nước và dầu hạt cải thơm lừng rồi đem hấp cách thủy cùng cá suối. Không chỉ cá suối, mà đem hấp với thịt lợn ba chỉ cũng ngon tuyệt hảo.
 
-Một lúc sau, Mộc Dao và Du Phỉ dẫn Triệu Duyệt Thiên quay về, trên tay mỗi người cầm một chiếc kem ốc quế Trung Sơn. Sau một hồi làm quen, Triệu Duyệt Thiên cũng đã tíu tít gọi chị này chị nọ.
+"Mấy đứa đói bụng rồi phải không? Để bà xào thêm đĩa mướp hương với đậu đũa nữa là dọn cơm ăn được rồi đấy."
 
-"Bà nội ơi~ Chị mua kem cho cháu này!"
+Đôi bàn tay bà nội thoăn thoắt đảo chảo. Bà dốc hết lòng hết sức chuẩn bị một mâm cơm tươm tất nhất có thể để chiêu đãi các bạn học của cháu trai, không muốn đứa cháu mình phải chịu chút "mất mặt" nào trước những cô bạn gái thành phố.
 
-"Cháu chào bà ạ, tụi cháu là bạn cùng lớp với Kim An." Mộc Dao và Du Phỉ lễ phép chào hỏi.
+Nghĩ đến chi tiết này, trong lòng Triệu Kim An thực sự không thể nào hiểu nổi tại sao ở kiếp trước, người vợ Trần Thanh Trĩ lại ghét cay ghét đắng việc về quê đến thế. Nếu bảo ngày thường bận rộn công việc bận bịu thì không nói làm gì, đằng này suốt nhiều năm liền ngay cả dịp Tết Nguyên Đán cô ta cũng dứt khoát không chịu đặt chân về làng lấy một lần.
 
-Bà nội mỉm cười gật đầu đáp lại: "Được, các cháu đều là những đứa trẻ ngoan."
+Bà nội đâu phải là người cay nghiệt hay khó tính gì cho cam, ngược lại bà đối xử với Trần Thanh Trĩ tốt đến mức không có chỗ nào chê trách được. Hễ nhận được điện thoại báo tin là từ ngày hôm trước bà đã lụi cụi đi mổ gà, làm vịt, chuẩn bị đủ thứ món ngon vật lạ để đón cháu dâu.
 
-Bà lại nhìn kỹ Mộc Dao đang mặc chiếc váy trắng thêm một chút. Với tính cách của cháu trai mình, khả năng cô bé này là cao nhất.
+Nghĩ đến đó, Triệu Kim An hít một hơi thật sâu, cất giọng trầm buồn: "Bà nội không cần phải nấu nhiều món thế đâu ạ... Chúng con chỉ là bạn học bình thường thôi mà."
 
-"Ăn cơm thôi, ăn cơm thôi!"
+"Chỉ là bạn học thôi sao?"
 
-Ở nhà Triệu Kim An, Triệu Chí Dũng chẳng phải khách khứa gì, cũng không ai xem hắn là khách.
+Bà nội đưa mắt nhìn lên những tảng thịt hun khói và lạp vịt treo lủng lẳng trên gác bếp hun khói.
 
-Thức ăn được dọn ra bàn, loại bàn vuông cao với ghế đẩu dài cho hai người ngồi. Bàn ghế đều được sơn đỏ, nhưng lớp sơn đã bong tróc loang lổ.
+Triệu Kim An vội vàng xua tay lia lịa: "Thực sự không cần làm thêm nữa đâu bà, nấu nhiều quá ăn không hết lãng phí lắm ạ."
 
-Gian chính rất rộng, tường quét một lớp vôi trắng, chẳng thấy thiết bị điện tử nào nhưng vệ sinh rất sạch sẽ.
+"Đều là những đứa con gái ngoan cả."
 
-Mộc Dao và Du Phỉ vừa gắp thức ăn vừa kín đáo quan sát xung quanh. Thấy Triệu Chí Dũng bưng bát ra cửa, hai nàng cũng gắp ít thức ăn vào bát rồi ra sân trước ngồi ăn.
+"... Bà nội à, trong mắt bà thì có cô gái nào là không ngoan không cơ chứ?"
 
-Bà nội vẫn chưa xuất hiện. Mỗi khi nhà có khách, bà luôn đợi đến cuối cùng mới ăn một chút. Ai khuyên cũng chẳng được, phụ nữ thế hệ của bà dường như đều như vậy.
+Triệu Kim An chợt nhớ lại câu nói của bà nội mấy hôm trước: *"Chị dâu họ của mày là một người đàn bà tốt bụng"*, trong lòng bỗng thấy dở khóc dở cười.
 
-Phụ nữ không lên bàn tiệc!
+Một lát sau, Mộc Dao và Du Phi dắt tay bé Triệu Duyệt Thiên quay trở về, trên tay mỗi người đều cầm một cây kem ốc quế Trung Sơn mát lạnh.
 
-"Ừm, Kim An, bà nội cậu nấu ăn ngon thật đấy!" Du Phỉ vừa ăn vừa gật đầu lia lịa, chẳng còn chút hình tượng thục nữ nào.
+Sau một lúc làm quen vui vẻ, Triệu Duyệt Thiên đã tíu tít gọi hai người một tiếng "chị" ngọt xớt.
+
+"Bà nội ơi~ Hai chị mua kem ốc quế cho cháu này!"
+
+"Chúng cháu chào bà ạ! Chúng cháu là bạn học cùng lớp cấp ba với Kim An."
+
+Mộc Dao và Du Phi vô cùng lễ phép vòng tay cúi đầu chào bà cụ.
+
+Bà nội nở nụ cười đôn hậu gật đầu đáp lễ: "Tốt lắm, các cháu đều là những đứa trẻ ngoan ngoãn."
+
+Ánh mắt bà cụ khẽ nán lại thêm vài giây trên bóng hình cô gái mặc chiếc váy đầm trắng Mộc Dao. Với tính cách trầm lặng của đứa cháu trai mình, khả năng cao cô gái nhỏ nhắn này chính là người thương trong lòng nó.
+
+"Ăn cơm thôi, dọn cơm thôi nào!"
+
+Trong ngôi nhà của Triệu Kim An, Triệu Trí Dũng chưa bao giờ là khách, và cũng chẳng ai trong nhà xem cậu ta là người ngoài.
+
+Các món ăn được bưng lên đặt ngay ngắn trên chiếc bàn gỗ vuông cao bốn cạnh, xung quanh là những chiếc ghế băng dài bằng gỗ dành cho hai người ngồi. Bàn ghế đều được quét một lớp sơn đỏ từ nhiều năm trước, nay đã bong tróc từng mảng lớn lộ ra màu gỗ mộc mạc.
+
+Gian nhà chính rất rộng rãi và thoáng đãng, các bức tường được quét một lớp vôi trắng tinh tươm, trong nhà hầu như chẳng có thiết bị điện tử nào đáng giá, nhưng mọi ngóc ngách đều được dọn dẹp sạch sẽ, ngăn nắp vô cùng.
+
+Mộc Dao và Du Phi vừa gắp thức ăn vừa tò mò đưa mắt ngắm nghía khắp gian nhà. Thấy Triệu Trí Dũng bưng bát cơm bước ra ngoài thềm, hai cô gái cũng nhanh nhẹn gắp đầy thức ăn vào bát rồi bưng ra khoảng sân trước rộng rãi ngồi hóng mát ăn cơm.
+
+Bà nội vẫn không hề xuất hiện ở mâm cơm. Mỗi khi trong nhà có khách khứa ghé thăm, bà luôn giữ thói quen chờ đến khi khách ăn xong xuôi hết cả mới lẳng lặng vào bếp ăn lại phần cơm thừa của mình.
+
+Ai khuyên can thế nào cũng chẳng lay chuyển được, những người phụ nữ thuộc thế hệ của bà dường như ai ai cũng giữ nếp sống cam chịu và nhẫn nhịn như thế:
+
+Phụ nữ không bao giờ ngồi chung mâm với khách!
+
+"Ực... Kim An ơi, thức ăn bà nội nấu ngon tuyệt cú mèo luôn ấy!"
+
+Du Phi vừa ăn vừa gật đầu lia lịa khen nức nở, chẳng màng đến chút hình tượng thục nữ dịu dàng nào nữa.
 
 "Ừ."
 
-Người vùng Tương Nam đều không sợ cay, Mộc Dao cũng bưng bát ăn rất ngon lành. Có lẽ chiều nay chơi đùa thấm mệt nên cảm giác thèm ăn rất tốt.
+Người vùng Nam Hồ Nam vốn chẳng bao giờ sợ ăn cay, Mộc Dao cũng bưng bát và từng miếng lớn ngon lành. Có lẽ do cả buổi chiều mãi mê lội sông nghịch nước thấm mệt nên khẩu vị của hai cô tiểu thư lúc này tốt hơn ngày thường gấp bội phần.
 
-Đang ăn, nàng chợt hỏi một câu: "Kim An, bà nội đâu rồi?"
+Đang ăn ngon lành, Mộc Dao bỗng ngẩng đầu ngơ ngác hỏi một câu: "Kim An này, thế bà nội đâu rồi hả cậu?"

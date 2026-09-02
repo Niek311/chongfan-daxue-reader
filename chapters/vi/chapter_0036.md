@@ -1,179 +1,181 @@
-# Chương 36: Không Phải Trốn Tránh
+# Chương 36: Đâu phải trốn tránh
 
-“Kim An, tao muốn ăn mì tôm quá.”
+> **Tiêu đề gốc**: 第36章 不是躲。
 
-Triệu Chí Dũng tính tình hào sảng, sức ăn cũng lớn, vừa ngửi thấy mùi mì tôm là bụng dạ đã cồn cào.
+"Kim An, tao thèm ăn mì tôm quá."
 
-Thấy có người bán mì tôm, lại còn cung cấp cả nước sôi, hắn liền lật đật chạy qua đó.
+Triệu Trí Dũng tính tình bộc trực, ăn khỏe như trâu, vừa ngửi thấy mùi mì tôm bốc lên ngào ngạt trong phòng chờ là bụng dạ đã réo ùng ục.
 
-“Phù ——”
+Trông thấy đằng xa có người bán mì tôm kèm phích nước sôi, nó liền co giò chạy tót qua.
 
-Triệu Kim An hít sâu một hơi để điều chỉnh lại tâm trạng, lấy điện thoại ra báo cáo “lịch trình” cho Vương Kim Như. Sau đó hắn gật đầu bảo đã biết, sẽ không chạy lung tung, chỉ ở trong phòng chờ đợi lên tàu.
+"Phù..."
 
-Hắn cũng trò chuyện với bà nội vài câu.
+Triệu Kim An hít một hơi thật sâu để ổn định lại tâm trạng, rồi rút điện thoại ra gọi điện báo cáo "hành trình" cho thím Vương Kim Như. Cậu gật đầu vâng dạ liên tục, bảo thím yên tâm, cháu không chạy lung tung đâu, cứ ngồi ngoan ngoãn ở phòng chờ đợi đến giờ lên tàu thôi.
 
-Triệu Kim An không nhắc chuyện Đoạn Thu Bình đã đến ga tàu, lại càng không nói việc đã gặp Tống Siêu Văn và Tống Gia Nguyệt.
+Sau đó cậu lại trò chuyện với bà nội thêm vài câu.
 
-Lát sau, Triệu Chí Dũng bưng hai tô mì tôm cẩn thận đi tới: “Kim An, của mày này, cầm hộ tao cái, nóng chết đi được.”
+Triệu Kim An giấu nhẹm chuyện Đoàn Thu Bình đã đến ga tàu, càng không nhắc tới việc chạm mặt hai cha con Tống Siêu Văn và Tống Gia Nguyệt.
 
-“Mày ăn đi, tao không đói.”
+Lát sau, Triệu Trí Dũng hai tay bưng hai tô mì tôm, vừa đi vừa rụt rè khép nép bước lại: "Kim An, của mày này, cầm hộ tao mau lên, bỏng chết đi được!"
 
-Trời vừa hửng sáng bà nội đã dậy nấu bữa sáng, không phải cháo loãng mà bà xào tận bốn món mặn, còn nhìn chằm chằm ép Triệu Kim An ăn hết một bát lớn vì sợ cháu trai đi tàu sẽ bị đói bụng.
+"Mày ăn đi, tao không đói."
 
-“Kim An, mày không ăn thật à?”
+Trời vừa tờ mờ sáng bà nội đã dậy nấu bữa sáng cho cậu. Không phải nấu cháo hoa qua loa đâu, bà xào hẳn bốn đĩa thức ăn, ngồi trông chừng ép Triệu Kim An và cả Trí Dũng ăn cho đẫy bụng, chỉ sợ thằng cháu ngồi xe đường dài bị đói lả.
 
-Triệu Chí Dũng ngồi xổm dưới đất ăn lấy ăn để.
+"Kim An, mày không ăn thật đấy à?"
 
-Tô mì còn lại đặt trên vali, khói nóng bốc lên nghi ngút.
+Triệu Trí Dũng ngồi xổm bệt xuống đất, vừa xì xụp vừa húp mì như rồng cuốn.
 
-“Chỉ là hơi đắt, mì tôm ở đây bán tận năm tệ một tô.”
+Tô mì còn lại được đặt trên chiếc rương gỗ, khói trắng bốc lên nghi ngút.
 
-“Bố mẹ mày còn đưa thêm sinh hoạt phí không?”
+"Mỗi tội hơi đắt, mì tôm ở đây chém những năm tệ một tô."
 
-“Không, tao không lấy.”
+"Bố mẹ mày có cho thêm tiền sinh hoạt không?"
 
-Triệu Chí Dũng bưng tô mì đứng dậy, nhìn quanh quất rồi nói nhỏ: “Tao tiết kiệm được ba ngàn năm trăm tệ, học kỳ này thế là đủ rồi.”
+"Không, tao chẳng thèm lấy."
 
-Tiền kiếm được ở kiếp này là chia đôi.
+Triệu Trí Dũng bưng tô mì đứng dậy, dáo dác nhìn quanh quất rồi hạ thấp giọng thì thầm: "Tao để dành được ba nghìn rưỡi rồi, đủ tiêu xài tẹt ga cho cả học kỳ này."
 
-Nghĩa là trừ đi các khoản chi tiêu, trong ba tháng hai người kiếm được tám ngàn, Triệu Chí Dũng chắc là đã tiêu mất mấy trăm tệ.
+Mùa hè kiếp này, tiền hai đứa kiếm được đều chia đôi sòng phẳng.
 
-Triệu Kim An trả lại cho bà nội hai ngàn, trả Doãn Hiểu Lan ba trăm, trong túi chỉ còn lại hơn một ngàn tệ tiền mặt.
+Nghĩa là sau khi trừ hết chi phí ăn tiêu, ba tháng ròng rã hai thằng kiếm được tám nghìn tệ. Triệu Trí Dũng chắc cũng chỉ tiêu xài lặt vặt mất vài trăm.
 
-Trong đó một ngàn tệ là hôm ấy Đoạn Thu Bình dứt khoát nhét cho hắn ở trong phòng ngủ.
+Triệu Kim An sau khi trả cho bà nội hai nghìn, gửi trả chị dâu Doãn Hiểu Lan ba trăm, thì trong túi chỉ còn vỏn vẹn hơn một nghìn tiền mặt.
 
-Chuyện này Triệu Kim An đã kể cho bà nội, hắn thấy cần thiết phải nói với bà một tiếng. Hắn không biết Tống Siêu Văn có biết chuyện đó hay không, nếu biết rồi thì tại sao ông ta còn riêng biệt đưa thêm một cái bao lì xì nữa?
+Trong số đó, một nghìn là do Đoàn Thu Bình hôm nọ cố tình dúi vào tay cậu trong phòng ngủ.
 
-“Kim An, Mộc Dao kìa!”
+Chuyện này Triệu Kim An đã thưa lại với bà nội. Chuyện gì cần minh bạch thì phải nói cho bà một tiếng. Cậu không rõ Tống Siêu Văn có biết chuyện vợ mình cho tiền hay không, nếu biết thì cớ sao ông ta lại lén đưa thêm một phong bao lì xì riêng làm gì?
 
-Triệu Kim An nhìn theo hướng ngón tay chỉ, thấy Mộc Nhân Cường, Trương Tuệ và Lưu Văn Tinh đều ở đó, bọn họ đi vào chắc cũng không còn chỗ ngồi.
+"Kim An, Mộc Dao kìa!"
 
-Du Phỉ đang cúi đầu nghịch điện thoại.
+Triệu Kim An nhìn theo hướng ngón tay Triệu Trí Dũng chỉ. Cả nhà Mộc Nhân Cường, Trương Tuệ và Lưu Văn Tinh đều có mặt đầy đủ. Đám người họ vừa bước vào phòng chờ, chắc cũng chẳng còn ghế trống nào để ngồi.
 
-Mộc Dao thì dáo dác nhìn quanh.
+Du Phỉ đang cúi đầu chăm chú bấm điện thoại.
 
-Dưới đất là bốn chiếc vali hành lý đúng nghĩa, không phải loại hòm gỗ như của Triệu Chí Dũng — cái hòm mà người ta chỉ sợ ngồi mạnh một cái là hỏng. Ba người lớn đang nói cười vui vẻ với nhau.
+Còn Mộc Dao thì đang dáo dác nhìn đông ngó tây, ánh mắt không ngừng tìm kiếm.
 
-“Đừng qua đó!”
+Dưới chân họ đặt bốn chiếc vali kéo xịn sò sang trọng, chứ chẳng phải loại rương gỗ cồng kềnh như của Triệu Trí Dũng — cái rương gỗ mà ai ngồi đè mông lên mạnh một chút là sợ sụm gãy. Ba người lớn vừa đứng vừa cười nói rôm rả.
 
-Triệu Kim An gọi giật Triệu Chí Dũng khi hắn đang định bước tới. Triệu Chí Dũng ngơ ngác:
+"Đừng qua đó!"
 
-“Sao thế? Mộc Dao mà.”
+Triệu Kim An vội vàng cất tiếng gọi giật ngược Triệu Trí Dũng khi thấy nó chuẩn bị cất bước.
 
-“Bọn tao chia tay rồi.”
+Triệu Trí Dũng quay lại, mặt đầy vẻ ngơ ngác: "Sao thế? Mộc Dao kìa mà!"
 
-Triệu Kim An nói ra sự thật, gương mặt bình thản.
+"Bọn tao chia tay rồi."
 
-Triệu Chí Dũng sửng sốt.
+Triệu Kim An thản nhiên nói ra sự thật, nét mặt phẳng lặng như mặt hồ không một gợn sóng.
 
-“Đừng hỏi tại sao, được hai tháng rồi.”
+Triệu Trí Dũng đứng chết trân, kinh ngạc đến mức mồm há hốc.
 
-Triệu Kim An không cách nào giải thích rõ ràng, dù sao thì có rất nhiều chuyện vẫn chưa thực sự xảy ra.
+"Đừng hỏi tại sao, chia tay được hai tháng rồi."
 
-“Tại sao chứ?”
+Triệu Kim An không tài nào giải thích cặn kẽ cho nó hiểu được, bởi lẽ có quá nhiều chuyện của kiếp trước vẫn chưa hề diễn ra ở dòng thời gian này.
 
-Triệu Chí Dũng lại chuyển sang vẻ mặt khó hiểu, biểu cảm phong phú vô cùng.
+"Tại sao cơ chứ?"
 
-Cũng phải thôi, Mộc Dao vừa xinh đẹp, học giỏi, điều kiện gia đình lại tốt, tóm lại là cái gì cũng tốt. Trong lòng Triệu Chí Dũng, Mộc Dao của kiếp này rất hoàn mỹ.
+Nét mặt Triệu Trí Dũng chuyển từ kinh ngạc sang hoang mang tột độ, biểu cảm phong phú vô cùng.
 
-“Hèn gì tiệc mừng đỗ đại học của Mộc Dao mày không đi, vậy mà thỉnh thoảng mày còn lười biếng chạy lên thành phố...”
+Phải rồi, trong mắt Triệu Trí Dũng, Mộc Dao xinh đẹp, học giỏi, gia cảnh lại giàu có bề thế, tóm lại là hoàn hảo không tì vết. Mộc Dao của kiếp này trong lòng nó chẳng khác nào một nữ thần không có điểm trừ.
 
-Mấy bận Triệu Kim An chạy đến trường lái xe, Triệu Chí Dũng cứ ngỡ hắn đi hẹn hò với Mộc Dao.
+"Hèn chi tiệc mừng đỗ đại học của Mộc Dao mày không chịu đi, thế mà dạo này cứ dăm bữa nửa tháng mày lại trốn việc chạy lên thành phố..."
 
-Lúc này, điện thoại trong túi quần rung lên một cái.
+Triệu Kim An mấy lần chạy lên thành phố học lái xe, Triệu Trí Dũng cứ ngỡ là bạn mình tranh thủ trốn đi hẹn hò với người yêu.
 
-Du Phỉ: “Kim An, các cậu đến chưa?”
+Đúng lúc này, chiếc điện thoại trong túi quần Kim An rung lên một nhịp.
 
-Du Phỉ: “Các cậu không cần gấp đâu, tàu hỏa chạy chậm ba mươi hai phút.”
+*Du Phỉ: Kim An, hai người đã tới ga chưa?*
 
-Triệu Kim An cất điện thoại, quay lưng lại: “Đừng nhìn, quay người đi.”
+*Du Phỉ: Hai người đừng cuống nhé, tàu bị trễ ba mươi hai phút đấy.*
 
-Không phải trốn tránh.
+Triệu Kim An cất điện thoại vào túi, xoay người lại: "Đừng nhìn nữa, quay người lại đi."
 
-Hắn chỉ là không muốn lãng phí tâm trí để đối phó với bất kỳ ai, hay xử lý những việc không cần thiết.
+Đâu phải trốn tránh.
 
-Triệu Chí Dũng lóng ngóng quay người, nhưng vẫn không nhịn được mà ngoảnh lại nhìn một cái.
+Cậu chỉ là không muốn lãng phí tâm sức để đi ứng phó với bất kỳ ai, hay vướng vào những chuyện không cần thiết.
 
-Hơi đáng tiếc.
+Triệu Trí Dũng lề mề xoay người lại, nhưng rồi vẫn không nhịn được mà ngoái đầu liếc nhìn thêm cái nữa.
 
-“Kim An, hình như Mộc Dao đang tìm mày đấy.”
+Trong lòng nó cảm thấy tiếc hùi hụi.
 
-Đúng lúc này, có một chuyến tàu đi hướng Nam bắt đầu xếp hàng soát vé.
+"Kim An, hình như Mộc Dao đang đi tìm mày đấy."
 
-Phòng chờ đông nghịt người, rất nhiều chỗ ngồi bị bỏ trống.
+Đúng lúc ấy, loa phát thanh thông báo chuyến tàu hướng Nam bắt đầu xếp hàng soát vé.
 
-Triệu Kim An dùng dư quang quan sát nhóm người kia, tìm một vị trí tương đối xa để ngồi xuống. Nhưng phòng chờ cũng chỉ lớn bấy nhiêu, hắn lại lấy điện thoại ra nhắn tin cho Du Phỉ.
+Dòng người trong phòng chờ nhốn nháo túa ra cửa soát vé, để lại khá nhiều dãy ghế trống.
 
-Triệu Kim An: “Đừng tìm tôi.”
+Triệu Kim An liếc mắt quan sát nhóm người đằng kia qua khóe mắt, rồi chọn một vị trí tương đối khuất và cách xa họ để ngồi xuống. Nhưng ngặt nỗi phòng chờ ga tàu chỉ có bấy nhiêu chỗ, cậu lại móc điện thoại ra gửi cho Du Phỉ một tin nhắn ngắn gọn.
 
-Nhắn xong, hắn nhìn về phía Triệu Chí Dũng ở bên cạnh.
+*Triệu Kim An: Đừng tìm tôi.*
 
-Triệu Chí Dũng ấp úng giải thích: “Tao không biết, Mộc Dao và Du Phỉ đều hỏi tao số hiệu chuyến tàu.”
+Gửi xong, cậu ngước mắt nhìn sang Triệu Trí Dũng bên cạnh.
 
-“Đừng tìm tôi, thật trực tiếp... đúng là tuyệt tình thật.”
+Triệu Trí Dũng ấp úng phân bua: "Tao... tao đâu có biết. Lúc trước cả Mộc Dao lẫn Du Phỉ đều hỏi tao đi chuyến tàu nào mà..."
 
-Ở phía bên kia, nhìn tin nhắn chỉ vỏn vẹn ba chữ, Du Phỉ bĩu môi thầm nghĩ trong lòng.
+"Đừng tìm tôi... Thật là dứt khoát... Tuyệt tình ghê gớm."
 
-Thực tế Trương Tuệ cũng đã dáo dác nhìn quanh mấy lần. Không hiểu sao bà ta lại muốn bắt gặp ánh mắt của Triệu Kim An, cho dù trong mắt hắn có là sự oán hận đi chăng nữa, thì điều đó cũng đại diện cho việc hắn đang nhìn về phía này.
+Ở phía bên kia, nhìn chằm chằm vào tin nhắn chỉ vỏn vẹn bốn chữ lạnh tanh, Du Phỉ bĩu môi, thầm lẩm bẩm trong lòng.
 
-Lại qua hai mươi phút nữa, chuyến tàu đi hướng Bắc bắt đầu xếp hàng soát vé.
+Thực ra, bà Trương Tuệ cũng đã dáo dác nhìn quanh mấy bận. Chẳng hiểu vì cớ gì, bà ta rất muốn bắt gặp ánh mắt của Triệu Kim An — dù trong ánh mắt ấy có là sự oán hận hay phẫn uất đi chăng nữa, thì ít nhất cũng chứng minh được rằng cậu đang nhìn về phía này.
 
-Triệu Kim An kéo Triệu Chí Dũng đang định đứng dậy lại: “Không gấp, cứ để bọn họ đi trước đi.”
+Hai mươi phút sau, loa thông báo đoàn tàu hướng Bắc bắt đầu mở cửa soát vé.
 
-Tàu hỏa chưa đến nửa tiếng thì sẽ không chạy ngay đâu. Trong dòng người xếp hàng, Mộc Dao đeo ba lô không ngừng nhìn về phía cửa: “Du Phỉ, không lẽ Kim An bọn họ vẫn chưa đến chứ?”
+Triệu Kim An giữ tay Triệu Trí Dũng đang định đứng bật dậy: "Không việc gì phải vội, cứ để họ đi trước đi."
 
-“Kịp mà.”
+Đoàn tàu dừng ở ga ít nhất nửa tiếng mới chạy. Giữa dòng người chen chúc, Mộc Dao đeo ba lô, chốc chốc lại ngoái đầu ngóng về phía cửa phòng chờ: "Du Phỉ, không lẽ Kim An và Trí Dũng vẫn chưa tới nơi sao?"
 
-Du Phỉ kéo vali cũng ngoảnh lại nhìn một cái.
+"Kịp mà, không trễ đâu."
 
-Con gái nhỏ đi học đại học, mỗi người hai cái vali, lại thêm mấy cái túi lớn túi nhỏ. Mộc Nhân Cường kéo vali xách túi, đặc biệt đến để tiễn vợ con lên tàu.
+Du Phỉ vừa kéo vali vừa quay đầu nhìn lại một cái.
 
-Mọi người đều kéo vali, túi to túi nhỏ, chen lấn xô đẩy nhau.
+Con gái nhà người ta đi học đại học, mỗi người lỉnh kỉnh hai chiếc vali to đùng cùng mấy túi xách lớn nhỏ. Mộc Nhân Cường tay xách nách mang, đích thân đến tiễn vợ con lên tàu.
 
-Chẳng biết là vội cái gì, thời gian còn đầy ra đó, lẽ nào lên tàu sớm thì được tranh chỗ ngồi chắc?
+Dòng người ai nấy đều kéo lê vali, xách túi to túi nhỏ, chen lấn xô đẩy nhau tranh nhau từng bước chân.
 
-Dù sao thì người thời nay đi tàu hỏa là như vậy.
+Chẳng hiểu họ vội vã cái gì, thời gian còn thênh thang, chẳng lẽ lên sớm thì cướp được chỗ ngồi của người khác hay sao?
 
-Trương Tuệ khoác một chiếc túi Gucci, ngẩng cao đầu, bước đi hiên ngang.
+Nhưng thói quen đi tàu hỏa của người thời nay vốn dĩ là như thế.
 
-Triệu Kim An tụt lại phía sau đoàn người đông đúc, hắn thầm nghĩ kết hôn với một người phụ nữ mạnh mẽ và có ham muốn kiểm soát cao như Trương Tuệ, ngày tháng của Mộc Nhân Cường chắc cũng chẳng dễ dàng gì.
+Trương Tuệ khoác chiếc túi Gucci sang chảnh, ngẩng cao đầu ưỡn ngực, bước đi tựa như mang theo cả luồng gió quý phái.
 
-Lên tàu hỏa, Triệu Chí Dũng dứt khoát vác hòm lên vai, len qua đám người đông đúc để đặt hành lý lên giá.
+Triệu Kim An thong thả rớt lại phía sau cùng của đoàn người. Cậu thầm nghĩ, phải lấy một người phụ nữ vừa ngang ngược, độc đoán lại có tính kiểm soát cao ngút trời như Trương Tuệ, chắc hẳn chuỗi ngày qua của Mộc Nhân Cường cũng chẳng dễ thở gì cho cam.
 
-Hắn còn rất hay giúp đỡ mọi người, hễ thấy bà mẹ nào đưa con gái đi nhập học là lại chủ động đưa tay giúp đỡ cất hành lý.
+Bước lên toa tàu, Triệu Trí Dũng dứt khoát vác bổng chiếc rương gỗ lên vai, lách qua đám đông chật ních rồi quẳng gọn gàng lên giá để hành lý.
 
-Triệu Kim An thì không có cái giác ngộ đó, trừ phi có người chủ động mở lời với hắn.
+Thằng nhóc này vốn tốt bụng, nhiệt tình, hễ thấy bà mẹ nào tiễn con gái đi học đại học mà xách đồ nặng nhọc là nó liền chủ động xắn tay áo giúp nâng vali lên giá.
 
-Chẳng còn cách nào, chiều cao của Triệu Kim An và Triệu Chí Dũng đều đã vượt quá 180 cm, ở miền Nam, chiều cao này được coi là rất nổi bật rồi.
+Triệu Kim An thì chẳng có cái sự nhiệt tình thừa thãi ấy, trừ phi có người mở lời nhờ vả trực tiếp.
 
-Triệu Chí Dũng trông rất cường tráng, nước da ngăm đen lại còn nhiệt tình.
+Cũng chẳng còn cách nào khác, vóc dáng của cả Triệu Kim An lẫn Triệu Trí Dũng đều vượt mốc một mét tám. Ở mảnh đất phương Nam này, chiều cao ấy thuộc hàng vượt trội.
 
-May mà Dũng Thiếu nhà ta trước khi khai giảng đã cắt phăng mái tóc vàng hoe che mắt kia đi, giờ đã có thể dùng cả hai mắt để nhìn người. Nếu không, chỉ cần hắn lắc đầu một cái, thổi môi một phát, mấy bà mẹ kia chắc chắn sẽ lo lắng sự nhiệt tình của hắn là đang có mưu đồ gì với con gái mình.
+Triệu Trí Dũng trông vạm vỡ, nước da ngăm đen khỏe khoắn, tính tình lại xởi lởi.
 
-Triệu Kim An ngồi cạnh cửa sổ, nhìn Triệu Chí Dũng bận rộn đến mức mồ hôi nhễ nhại, bất giác mỉm cười.
+Cũng may là trước ngày khai giảng, cậu thiếu gia Dũng của chúng ta đã chịu đi cắt phăng cái mái tóc vàng hoe vuốt xéo che nửa mặt, nhờ thế mới nhìn đời bằng cả hai con mắt đàng hoàng. Bằng không, cứ mỗi lần hất đầu phù mỏ thổi tóc mái, khéo các bà mẹ lại tưởng thằng nhóc loi nhoi này đang có mưu đồ mờ ám gì với con gái rượu nhà mình.
 
-Đoàn tàu này không phải loại có điều hòa, khi chưa chạy, toa tàu giống như một cái lồng hấp khổng lồ.
+Triệu Kim An ngồi cạnh cửa sổ, nhìn Triệu Trí Dũng mồ hôi mồ kê nhễ nhại vì bận rộn lăng xăng giúp người này người nọ, bất giác bật cười.
 
-Đối với một người đã quen ngồi tàu cao tốc như hắn, ngồi tàu hỏa quả là một sự giày vò.
+Đoàn tàu này không có điều hòa nhiệt độ. Khi tàu chưa chuyển bánh, không khí trong toa ngột ngạt chẳng khác nào một chiếc lồng hấp khổng lồ.
 
-Ưu điểm duy nhất là ở điểm nối giữa các toa tàu có thể hút thuốc.
+Đối với một người kiếp trước đã quen ngồi tàu cao tốc êm ru mát rượi như cậu, ngồi chuyến tàu hỏa kiểu này quả thực là một cực hình tra tấn.
 
-Ở phía bên kia, Mộc Nhân Cường sau khi sắp xếp xong cho vợ con, lại giúp đỡ Lưu Văn Tinh, dặn dò thêm vài câu cuối cùng mới xuống tàu. Sau khi xuống dưới, ông lại mua bốn chai nước khoáng rồi đưa qua cửa sổ vào trong.
+Điểm cộng duy nhất có lẽ là ở khoảng không gian nối giữa hai toa xe, người ta có thể thoải mái đứng hút thuốc lá.
 
-“Trương Tuệ, chồng cậu tâm lý thật đấy.”
+Ở một góc toa khác, Mộc Nhân Cường sau khi thu xếp chỗ ngồi ổn thỏa cho vợ con, lại quay sang đỡ đần hành lý cho Lưu Văn Tinh. Ông dặn dò thêm vài câu rồi mới bước xuống sân ga, sau đó chạy vội đi mua bốn chai nước khoáng rồi chìa tay qua khe cửa sổ đưa vào trong.
 
-Lưu Văn Tinh cười nói.
+"Trương Tuệ à, chồng chị chu đáo thật đấy." Lưu Văn Tinh mỉm cười tán thưởng.
 
-Gương mặt Trương Tuệ lộ rõ vẻ kiêu hãnh, bà ta vẫy tay với Mộc Nhân Cường ở dưới tàu: “Được rồi, anh mau về đi.”
+Trương Tuệ nở nụ cười đầy kiêu hãnh trên gương mặt, vẫy tay ra hiệu cho Mộc Nhân Cường dưới sân ga: "Được rồi, anh mau về đi."
 
-......
+...
 
 Mười lăm phút sau.
 
-“Khình khàng, khình khàng”, đoàn tàu màu xanh lá khởi động, bắt đầu chầm chậm lăn bánh.
+"Xình xịch... xình xịch..."
 
-Nhìn lướt qua một lượt, hành khách hầu như toàn là cha mẹ đưa con cái đi nhập học.
+Đoàn tàu hỏa da xanh từ từ chuyển bánh, chầm chậm lăn bánh rời khỏi sân ga.
 
-Mọi người lần lượt lấy đồ ăn vặt đã chuẩn bị sẵn ra. Từ Sâm Châu đến Quận Sa mất khoảng bốn tiếng rưỡi, đúng lúc mười một giờ rưỡi, là giờ ăn trưa.
+Đưa mắt nhìn quanh toa tàu, phần lớn hành khách đều là các bậc cha mẹ đưa con cái đi nhập học đại học.
 
-Triệu Kim An nhìn ra ngoài cửa sổ xe, trên sân ga có rất nhiều cha mẹ đang vẫy tay từ biệt con cái, cứ quyến luyến mãi không rời. Hắn không thích nhìn cảnh tượng như vậy, cực kỳ không thích.
+Mọi người bắt đầu lục tục mở đồ ăn vặt đã chuẩn bị sẵn ra. Từ Sâm Thành đến Quận Sa mất chừng bốn tiếng rưỡi đồng hồ, lúc này đã là mười một giờ rưỡi trưa, vừa vặn đến giờ cơm trưa.
+
+Triệu Kim An tựa đầu nhìn ra ngoài khung cửa sổ. Trên sân ga, rất nhiều bậc cha mẹ vẫn đứng vẫy tay chào tạm biệt con cái, ánh mắt dõi theo con tàu mãi không nỡ rời đi. Cậu không thích nhìn những khung cảnh ly biệt bịn rịn như thế, thực sự chẳng thích chút nào.

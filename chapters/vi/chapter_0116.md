@@ -1,255 +1,205 @@
-# Chương 117: Từ Mạn Mạn Hạt Dẻ Bà Nội Trồng Là Hạt Dẻ Ngon Nhất
+# Chương 116: Cậu là ân nhân của mẹ con tôi
 
-Tôi Từng Ăn
+> **Tiêu đề gốc**: 第116章 你是我们的恩人。
 
-Thẩm Tử Ngôn không ở lại Quận Sa, ở Quận Sa đã có Triệu Kim An.
+Tháng Bảy.
 
-Triệu Bác Lan nói thành tích ở Thường Đức không tốt lắm, Thẩm Tử Ngôn liền chủ động xin đi Thường Đức.
+Tiết trời Quận Sa nóng đến ngột ngạt, danh xưng một trong "tứ đại lò lửa" của cả nước quả nhiên chẳng phải ngoa truyền.
 
-Ngay cả Lạc Cẩn Chi sau khi biết chuyện cũng nói, những thứ khác chưa bàn tới, Thẩm Tử Ngôn quả thực rất có trách nhiệm.
+Chiếc quạt máy cũ kỹ quay kẽo cà kẽo kẹt trên trần, trong phòng khách tuyệt nhiên không thấy bóng dáng chiếc máy điều hòa nào.
 
-Thẩm Tử Ngôn lái chiếc Mercedes đi, thuê một căn hộ đơn ở trung tâm thành phố.
+Bộ ghế sofa bọc da màu đen đã sờn rách nhiều chỗ, để lộ cả những mảng mút xốp màu vàng ố bên trong.
 
-Đầu tiên cô gặp tất cả các nhân viên kinh doanh, phát hiện có hai người không có kinh nghiệm làm việc. Không có kinh nghiệm cũng không sao, chỉ cần chịu chạy, chịu cố gắng là được, làm hàng tiêu dùng nhanh không cần quá nhiều kỹ năng đàm phán.
+Những căn nhà trọ bình dân giá rẻ nhìn chung đều mang dáng dấp như thế.
 
-Chỉ cần chăm chỉ chạy là ổn.
+Căn hộ này gồm hai phòng ngủ và một phòng khách, có trang bị sẵn tivi và tủ lạnh, duy chỉ thiếu điều hòa ở không gian sinh hoạt chung.
 
-Quan trọng nhất là không được lười biếng, Thẩm Tử Ngôn liền sa thải hai người có biểu hiện lười nhác trước.
+Đường Hiểu Tình bảo trước kia nơi này do một cặp vợ chồng già thuê ở, nay họ đã dọn đi sống cùng con trai.
 
-Về người phụ trách khu vực Thường Đức, Thẩm Tử Ngôn quan sát vài ngày, sau đó phản hồi với Triệu Kim An rằng Lư Kiều Vĩ tự mình đi làm thị trường rất chăm chỉ và thiết thực, nhưng năng lực quản lý thì không ổn.
+Triệu Kim An đứng trước quạt, khẽ kéo rộng cổ áo phông cho thoáng khí, nhưng luồng gió thổi ra từ cánh quạt cũng hầm hập hơi nóng.
 
-Công ty mở rộng quá nhanh, không có nhân sự dự phòng.
+Trong gian bếp nhỏ hẹp, Lưu Mỹ Nga và Đường Hiểu Tình mồ hôi mồ kê nhễ nhại, ướt đầm cả lưng áo.
 
-Triệu Kim An và Lạc Cẩn Chi chỉ có thể chọn người dựa trên năng lực nghiệp vụ cá nhân, không có quá nhiều lựa chọn.
+Những giọt mồ hôi túa ra làm chiếc áo sơ mi dính bết vào da thịt. Phụ nữ lại phải mặc thêm lớp nội y bên trong, khiến Lưu Mỹ Nga lần đầu tiên đặt chân đến Quận Sa cảm thấy vô cùng bức bối, ngột ngạt.
 
-Làm hàng tiêu dùng nhanh vốn không yêu cầu bằng cấp cao, không cần làm phương án, cũng không phải đi đàm phán những thương vụ lớn lao gì.
+Ở quê nhà miền núi của bà, mùa hè thậm chí chẳng cần bật quạt.
 
-Lư Kiều Vĩ là nhân viên cũ của Lạc Cẩn Chi, Triệu Kim An đã bàn với Lạc Cẩn Chi rằng nếu làm người phụ trách thành phố không được thì cho xuống cấp đi, bảo Lạc Cẩn Chi đi trao đổi với Lư Kiều Vĩ.
+Đến đêm đi ngủ còn phải đắp một tấm chăn mỏng cho đỡ lạnh.
 
-Dù sao Lư Kiều Vĩ cũng là một nhân viên kinh doanh giỏi, là một nhân tài.
+Triệu Kim An tiện tay vén vạt áo phông lên lau mồ hôi trên trán, đúng lúc Lưu Mỹ Nga từ trong bếp bước ra.
 
-Cứ như vậy, Thẩm Tử Ngôn ở lại Thường Đức. Ban ngày cô cũng tự mình lái xe tải đi giao hàng, không có bản đồ dẫn đường thì mua bản đồ giấy, thực sự không tìm thấy thì hỏi đường.
+Vừa nhìn thấy Triệu Kim An ở phòng khách, Lưu Mỹ Nga toan mở miệng nói gì đó nhưng rồi lại vội vàng ngậm chặt môi.
 
-Buổi tối trở về căn hộ, cô mở máy tính hoàn thiện kế hoạch hoạt động cho mùa khai trường.
+Triệu Kim An tuy không sở hữu cơ bụng tám múi cuồn cuộn, nhưng vóc dáng lại vô cùng cân đối, săn chắc. Vốn quen với công việc lao động đồng áng từ nhỏ, những đường nét cơ bắp trên cơ thể anh toát lên vẻ khỏe khoắn, rắn rỏi và rất đỗi ưa nhìn.
 
-Hôm đó, vừa tắm xong bước ra từ phòng tắm, điện thoại vang lên.
+Đứng từ phía sau nhìn tấm lưng trần của Triệu Kim An, Lưu Mỹ Nga thoáng chốc sững sờ, cứ đứng lặng yên ngắm nhìn mà không thốt nên lời.
 
-Thẩm Tử Ngôn nhấc máy: "Ba."
+Đường Hiểu Tình từng tâm sự mẹ cô không đi bước nữa, bởi lẽ ở vùng quê nghèo, có người đàn ông nào chịu rước một người đàn bà quanh năm ốm đau bệnh tật về nuôi?
 
-"Nghỉ hè cũng không về nhà, nhà thiếu tiền cho con tiêu sao? Mẹ con cứ lải nhải suốt, nói là ba đã đồng ý cho con không về nhà dịp hè này."
+Lưu Mỹ Nga đã bao nhiêu năm nay không có hơi ấm của đàn ông chạm vào da thịt.
 
-"Bây giờ con vẫn chưa đi được, bận xong đợt này con sẽ về thăm hai người."
+Một người phụ nữ chừng bốn mươi tuổi, có lẽ đang ở vào độ tuổi mà nhu cầu sinh lý và khao khát tình cảm âm ỉ mãnh liệt nhất.
 
-Thẩm Tử Ngôn nói: "Ba, anh ấy rất ưu tú, ba có thể lên mạng tra về Trăn Nhiên. Nếu không biết Trăn Nhiên thì ba tra Tiểu Tạc Đạn Oxy Nhẹ, chính là do một tay anh ấy vận hành đấy."
+"Dì Lưu."
 
-Đầu dây bên kia có chút bất ngờ: "Con mà cũng chịu phục một người cùng lứa sao?"
+Triệu Kim An chợt cảm nhận được có người đứng phía sau, liền quay người lại.
 
-Thẩm Tử Ngôn cười khẽ một tiếng: "Quyết sách và mô hình bán hàng của công ty đều là từ anh ấy. Nếu là con, con có thể nghĩ đến việc học theo Hồng Trà Băng tổ chức một buổi hoạt động, nhưng con sẽ không nghĩ đến việc tặng tủ lạnh."
+"Nóng... nóng quá cháu nhỉ, thời tiết Quận Sa nhà các cháu oi bức thật..."
 
-"Còn bài hát đó cũng là do anh ấy viết."
+Lưu Mỹ Nga có chút luống cuống, lúng túng, nhịp tim đập loạn xạ. Bà bối rối vò vò vạt áo, vội vàng dời ánh mắt sang hướng khác, không dám nhìn thẳng vào Triệu Kim An nữa.
 
-"Nhạc quảng cáo, tủ lạnh, Cúp Trăn Nhiên, ba mũi giáp công..."
+Bà thậm chí còn quên bẵng mất mình vừa bước ra khỏi bếp để làm gì.
 
-Đầu dây bên kia cười ha hả: "Nói vậy là con tìm cho ba một chàng rể hiền rồi? Ba có thể nghỉ hưu sớm được chưa?"
+Lưu Mỹ Nga vốn là người phụ nữ nhút nhát, chất phác, cả đời quanh quẩn nơi xó núi, chưa từng bước chân ra thế giới phồn hoa bên ngoài.
 
-"Ba, ba đừng nói lung tung."
+Thấy vầng trán lấm tấm mồ hôi cùng đôi gò má ửng đỏ ngượng ngùng của Lưu Mỹ Nga, bộ dạng đứng trước mặt mình có phần lúng túng luống cuống, Triệu Kim An không khỏi cảm thấy đôi chút lạ lẫm.
 
-"Nói lung tung? Con không mưu cầu người ta, chẳng lẽ lại mưu cầu mấy đồng tiền lương đó?"
+"Dì ơi, hay là dì ăn que kem cho mát nhé? Mùa hè ở Quận Sa khắc nghiệt lắm."
 
-"Thôi được rồi, ba dỗ dành mẹ hộ con với, bây giờ con sợ nghe điện thoại của mẹ lắm."
+Triệu Kim An kéo ngăn đá tủ lạnh, lấy ra một chiếc kem ốc quế nhãn hiệu Trung Sơn.
 
-Cúp điện thoại, Thẩm Tử Ngôn ngồi xuống mở máy tính, lại xem lại một tin nhắn mà Lưu Sấm Phong từng gửi cho mình.
+Đến khi đưa que kem sang tay Lưu Mỹ Nga, anh mới bất chợt nhận ra hai mẹ con nhà này quả thực có nét đẫy đà đến khó tin. Thân hình tuy nhỏ nhắn, gầy gò mà vòng một lại nảy nở, đầy đặn đến thế, nhất là trong điều kiện ăn uống thiếu thốn bao năm qua.
 
-[Triệu Kim An nói theo đuổi cậu rất đơn giản, tặng cậu một trăm chiếc BMW là được.]
+Đường Hiểu Tình theo mắt nhìn ước chừng cỡ 34D, còn quy mô của Lưu Mỹ Nga thì chỉ có hơn chứ tuyệt đối không kém con gái.
 
-Lưu Sấm Phong đã gửi cho Thẩm Tử Ngôn rất nhiều tin nhắn, cô chỉ giữ lại duy nhất tin này không xóa.
+Lưu Mỹ Nga ăn mặc rất đỗi kín đáo, cổ hủ. Trời nóng như thiêu như đốt thế này mà chiếc áo sơ mi của bà chỉ dám cởi hờ duy nhất chiếc cúc trên cùng.
 
-Hơn nữa mỗi lần thấy tin nhắn này, Thẩm Tử Ngôn đều bất giác mỉm cười.
+Đứng sát cạnh Triệu Kim An, bà cũng giống như Đường Hiểu Tình, vóc người nhỏ nhắn chỉ cao chừng đến nách anh.
 
-Không so được với sự thâm tình trong hai bức thư tình của Mộc Dao, nhưng nó có sự ngây ngô và lãng mạn như trẻ con.
+"Hiểu Tình, cậu có ăn kem không?" Triệu Kim An cất tiếng gọi với vào bếp.
 
-Xem một lát cô mới đăng nhập QQ.
+"Lát nữa em ăn sau ạ!"
 
-Thẩm Tử Ngôn: "Triệu Kim An, cầu xin đấy, lần này cấp thêm một ngàn chiếc tủ lạnh cho Thường Đức đi."
+Đường Hiểu Tình đứng tựa ở cửa bếp, tay vẫn cầm con dao thái rau, nở nụ cười rạng rỡ nói: "Mẹ, mẹ ăn đi, kem ốc quế vị sữa thơm lắm đấy."
 
-Triệu Kim An: "Ngày cậu mới đến đã cướp mất 500 chiếc của Giang Công Kỳ rồi còn gì!"
+Nói đoạn, cô bé còn nhìn Triệu Kim An mỉm cười đầy hàm ơn: "Ở quê mẹ em chỉ toàn ăn loại kem đá hai hào một que thôi."
 
-Thẩm Tử Ngôn rất biết mượn đà, lúc đi đã đòi thêm 500 chiếc tủ lạnh, nói là để thuận lợi triển khai công việc, nếu không nhân viên kinh doanh vừa nhìn thấy đã thấy lãnh đạo chỉ mang mỗi cái miệng đến.
+Lúc này Lưu Mỹ Nga mới sực nhớ ra mục đích mình vừa chạy ra mở tủ lạnh là để lấy đĩa rau.
 
-Nhìn tin nhắn QQ, Thẩm Tử Ngôn vừa tắm xong, vén tóc mỉm cười.
+Trong lòng bà lại dấy lên cảm giác tự trách, tự thấy xấu hổ vì ban nãy đã lén nhìn trộm thân hình của chàng trai trẻ.
 
-Thẩm Tử Ngôn: "Hiện tại thành tích của công ty ở Thường Đức hơi kém, cần được hỗ trợ."
+Đường Hiểu Tình lại lên tiếng: "Triệu Kim An, hay là anh vào phòng ngủ nằm nghỉ một lát đi, bên trong phòng ngủ có lắp máy điều hòa đấy."
 
-Triệu Kim An: "Một ngàn thì không có, cấp thêm cho cậu 500 chiếc."
+"À, phải rồi, nấu xong cơm dì sẽ gọi cháu dậy ăn nhé."
 
-Thẩm Tử Ngôn: "800."
+Lưu Mỹ Nga vội vàng đẩy cánh cửa phòng ngủ, tìm chiếc điều khiển từ xa bấm nút bật máy lạnh, vừa cất giọng dặn dò: "Căn phòng bên kia không có điều hòa, nên hai mẹ con dì ngủ chung phòng này. Buổi tối chỉ cần bật hai ba tiếng cho mát phòng là ngủ ngon rồi."
 
-Triệu Kim An: "Cậu cướp của Giang Công Kỳ 500 chiếc, anh ta đã gọi điện đến than vãn từ sớm rồi."
+Chiếc máy điều hòa bắt đầu khởi động, phát ra tiếng vo vo nhè nhẹ.
 
-Thẩm Tử Ngôn: "700, không thể ít hơn được."
+Triệu Kim An nhìn chiếc giường gỗ kiểu cũ, trên đó đặt hai chiếc gối và một tấm chăn mỏng, trong lòng thầm nghĩ mình là khách mà lại nằm lên giường riêng của hai mẹ con nhà người ta thì liệu có tiện không?
 
-Triệu Kim An: "Tỉnh Hồ Nam có 14 đơn vị hành chính cấp thị, tôi biết biến đâu ra cho cậu đây? Tối đa cấp thêm 500 chiếc thôi, còn phải bí mật đấy, không thì bọn họ loạn lên mất!"
+Nhận thấy Triệu Kim An còn chần chừ ngập ngừng, Lưu Mỹ Nga liền nói bằng giọng vô cùng chân thành, tha thiết: "Cậu Triệu à, cậu chính là ân nhân cứu mạng của mẹ con dì. Cậu cứ tự nhiên nằm nghỉ, không phải ngại gì đâu. Con bé Hiểu Tình đã kể hết cho dì nghe rồi, nếu không có cậu giúp đỡ, giờ này con bé vẫn còn phải nai lưng lau bàn quét dọn ở nhà ăn sinh viên..."
 
-Thẩm Tử Ngôn cười rất vui vẻ, cô thích mỗi tối trao đổi vài câu về công việc với Triệu Kim An như vậy, cảm giác rất tròn đầy.
+"Cuộc sống đủ đầy mà mẹ con dì có được ngày hôm nay, tất cả đều là nhờ ơn cậu ban cho."
 
-"Tít tít tít."
+"Hôm qua dì còn nghe thấy mấy người ở công ty gọi con bé là 'Giám đốc Đường'... Ôi dào, con bé Hiểu Tình nhà dì... làm sao gánh nổi cái chức giám đốc ấy chứ."
 
-Lúc này góc dưới bên phải QQ lại nhảy thông báo, nhấn mở ra là nhóm QQ của phòng 406.
+Cái danh "Giám đốc Đường" thực chất chỉ là mọi người trong công ty gọi đùa cho vui, chắc hẳn Đường Hiểu Tình cũng đã giải thích cặn kẽ cho mẹ nghe rồi.
 
-Sân Hảo Hữu Nhĩ: "Tử Ngôn, công việc thế nào rồi? Có bị phơi nắng đến đen nhẻm không?"
+Lưu Mỹ Nga có lẽ cảm thấy tự hào và xúc động vô ngần khi thấy con gái mình làm việc ở công ty cũng được mọi người tôn trọng, yêu quý, chứ không phải chỉ biết lầm lũi cắm đầu làm việc như một cái bóng vô hình chẳng ai đoái hoài, giống hệt cái đêm con bé cặm cụi lau từng chiếc bàn ăn bẩn thỉu trong nhà ăn trường đại học.
 
-Thẩm Tử Ngôn: "Phơi đen rồi thì cậu không cần tớ nữa à?"
+Triệu Kim An nhẹ nhàng nói: "Dì à, Hiểu Tình làm việc rất chăm chỉ và chu đáo."
 
-Sân Hảo Hữu Nhĩ: "Cần chứ cần chứ, đúng rồi, lương cậu được bao nhiêu?"
+"Con bé chỉ biết cắm cúi làm lụng thôi... Cũng tại cái thân già đau ốm này của dì... nếu không thì con bé đâu phải chịu nhiều vất vả, tủi nhục đến thế."
 
-Thẩm Tử Ngôn: "Bí mật."
+Giọng Lưu Mỹ Nga chùng xuống, nghẹn ngào vì tự thấy mình là gánh nặng kéo lùi tương lai của con gái. Bà cúi người xuống bên mép giường, khẽ đập đập chiếc gối cho phồng lên, lại đưa tay vuốt phẳng tấm chiếu trúc, ân cần bảo: "Cậu Triệu, cậu cứ nằm nghỉ đi, đừng ngại gì cả."
 
-Sân Hảo Hữu Nhĩ: "Aiz, mới về nhà mấy ngày mà đã chán quá rồi, tớ cũng muốn đi làm thêm đây."
+Lưu Mỹ Nga thực sự không hề câu nệ hay bận tâm việc Triệu Kim An nằm trên chiếc giường của mình, bởi trong mắt bà, Triệu Kim An là một chàng trai vô cùng đứng đắn, đàng hoàng và "sạch sẽ".
 
-Tư Tinh.
+Thực tế đây là phòng ngủ chính, xưa nay chẳng có gia đình nào lại nhường phòng ngủ chính cho khách vào nằm.
 
-Mộc Dao đang ăn dưa hấu lạnh, thổi điều hòa, tivi cũng đang mở, tận hưởng kỳ nghỉ hè đại học đầu tiên.
+"Cậu Triệu cứ chợp mắt đi nhé, cơm nước xong xuôi dì sẽ gọi."
 
-Trong nhóm đột nhiên náo nhiệt như vậy, cô nhấn mở xem thì sững sờ.
+Sau khi Lưu Mỹ Nga khép cửa bước ra ngoài, Triệu Kim An không gối đầu lên gối mà chỉ nằm vắt ngang qua mép giường.
 
-"Thẩm Tử Ngôn không về nhà?"
+Trên mặt chiếu thoang thoảng mùi hương dịu nhẹ, đặc trưng của hai người phụ nữ.
 
-Dao Dao Thỏ: "Tử Ngôn, cậu đang đi làm thêm hè à?"
+Mùi hương trên người Lưu Mỹ Nga có phần nồng nàn, đằm thắm hơn đôi chút.
 
-Thấy tin nhắn của Mộc Dao, Thẩm Tử Ngôn suy nghĩ một lát rồi trả lời một chữ: "Ừ."
+Triệu Kim An bỗng dưng nhớ đến thằng bạn nối khố Triệu Trí Dũng, cái thằng khốn kiếp ấy giờ đã được "nếm mùi đời" rồi, cuộc sống xem chừng còn sung sướng hơn cả mình.
 
-Trong nhóm im lặng.
+"Một người đàn bà đẫy đà, mặn mà như Trịnh Như... ở cái độ tuổi hừng hực xuân thì ấy, liệu cái thằng oắt con đó có kham nổi không nhỉ?"
 
-Quận Sa.
+Còn Lưu Mỹ Nga thì vóc người nhỏ nhắn, thể trạng lại yếu ớt nhiều năm... chắc chắn không thể dẻo dai, cuồng nhiệt như Trịnh Như được. Triệu Kim An – kẻ đã trọng sinh trở về tròn một năm mà vẫn chưa hề được "khai hoa nở nhụy" lần nào – cứ thế miên man suy nghĩ trong cơn mơ màng rồi dần dần chìm vào giấc ngủ sâu.
 
-Từ Mạn Mạn đã sớm thấy tin nhắn trong nhóm, chỉ là vẫn luôn im lặng.
+Chẳng biết đã trôi qua bao lâu, Đường Hiểu Tình khẽ gõ cửa gọi anh dậy ăn cơm trưa.
 
-Thẩm Tử Ngôn đã nói cho Diêu Tân biết trên đường ra ga tàu hỏa, còn Từ Mạn Mạn thấy Thẩm Tử Ngôn đột ngột mua xe trước khi nghỉ lễ là đã đoán được rồi, nên chỉ có Mộc Dao là không biết.
+Tay nghề nấu nướng của Lưu Mỹ Nga thực sự rất khéo. Bà bảo con gà này là gà ta chính gốc nuôi thả vườn ở quê mang lên, liên tục gắp thức ăn giục Triệu Kim An ăn thật nhiều, còn dặn dò sau này lúc nào muốn ăn cơm nhà cứ việc ghé qua, chỉ cần gọi điện báo trước một tiếng để bà kịp đi chợ mua đồ tươi ngon.
 
-Dao Dao Thỏ: "Thẩm Tử Ngôn, cậu làm cùng công ty với Triệu Kim An sao?"
+Đường Hiểu Tình đã đưa mẹ đi dạo làm quen với đường sá quanh khu vực, nên Lưu Mỹ Nga cũng biết nhóm Triệu Kim An thường hay ăn cơm ở nhà Đơn Vĩ.
 
-Thẩm Tử Ngôn: "Ừ."
+Lưu Mỹ Nga tiếp đãi vô cùng niềm nở, chu đáo. Bà tuyệt nhiên không dám tơ tưởng đến chuyện hoang đường rằng Triệu Kim An có thể trở thành con rể tương lai của mình.
 
-Dao Dao Thỏ: "Tại sao?"
+Trong lòng bà lúc này chỉ ngập tràn lòng biết ơn sâu sắc.
 
-Dao Dao Thỏ: "Tại sao cậu phải làm cùng công ty với Triệu Kim An?"
+Bà coi Triệu Kim An như đại ân nhân đã cứu vớt số phận của hai mẹ con.
 
-Thẩm Tử Ngôn: "Mộc Dao, tớ không cần thiết phải giải thích với cậu."
+Nếu như Trương Tuệ chê bai mắt nhìn người của con gái mình là Mộc Dao tầm thường, thì Lưu Mỹ Nga lại tự thấy gia cảnh bần hàn của mẹ con mình quá đỗi thấp kém, chẳng dám với cao tới một người ưu tú như Triệu Kim An.
 
-Trong nhóm chỉ còn lại cuộc đối thoại của hai người.
+Ăn xong bữa cơm trưa, Triệu Kim An thong thả tản bộ trở về ký túc xá trường, vừa bước vào phòng thì bắt gặp Cốc Siêu Thừa vẫn chưa về quê, đang từ trong nhà tắm bước ra.
 
-Mộc Dao có chút kích động, ôm điện thoại gõ chữ "tạch tạch tạch".
+Triệu Kim An có phần ngạc nhiên: "Kỳ nghỉ hè này cậu cũng không về nhà à?"
 
-Ở phòng khách, thấy con gái như vậy, Trương Tuệ và Mộc Nhân Cường cảm thấy hơi lạ.
+Nhuệ khí và sự kiêu ngạo của Cốc Siêu Thừa dạo này đã giảm đi trông thấy. Trước đây cậu ta cứ ngỡ sinh viên đại học đi tìm việc làm thêm mùa hè là chuyện dễ như trở bàn tay, nhất là khi nhìn vào tấm gương của Triệu Kim An, rồi đến Đường Hiểu Tình, hay như Lưu S闖 Phong chỉ tranh thủ kỳ nghỉ đông đi bán vé tàu hỏa phe phẩy cũng kiếm gọn hai ngàn tệ.
 
-Dao Dao Thỏ: "Thẩm Tử Ngôn, có phải cậu thích Triệu Kim An không?"
+Nhìn bề ngoài, việc kiếm tiền dường như chẳng có gì khó khăn.
 
-Dao Dao Thỏ: "Cậu không về nhà mà ở lại Quận Sa, cậu mua cả xe Mercedes rồi, cậu đâu có cần đi làm thêm hè!!"
+Một chàng sinh viên mười chín tuổi ngút ngàn tự tin chẳng bao giờ nghĩ mình lại thua kém người khác.
 
-Thẩm Tử Ngôn: "Mộc Dao, cậu và Triệu Kim An chia tay được một năm rồi. Cậu có Khổng Triết Vũ theo đuổi, Triệu Kim An có người theo đuổi không phải rất bình thường sao?"
+Thế nhưng thực tế phũ phàng đã tạt ngay một gáo nước lạnh vào mặt cậu.
 
-Dao Dao Thỏ: "Không có, tớ không có đồng ý Khổng Triết Vũ!"
+Cốc Siêu Thừa lặn lội đi tìm việc suốt mấy ngày trời, vừa mở miệng ra đã khoe: "Cháu là sinh viên đại học muốn đi làm thêm dịp hè để rèn luyện bản thân." Thử hỏi có ông chủ doanh nghiệp nào rảnh rỗi lại muốn lãng phí hai tháng trời để bỏ công đào tạo cho một cậu ấm?
 
-Thẩm Tử Ngôn: "Đó là tự do của cậu."
+Cậu muốn rèn luyện bản thân thì tìm bố cậu mà nhờ, người ta mở công ty kinh doanh chứ có phải trại huấn luyện đâu!
 
-Trong nhóm, hai người đối đầu gay gắt.
+Cuối cùng, có một công ty chịu "cưu mang" nhận cậu ta vào làm chân chạy quảng cáo tuyển dụng ngoài trời, với mức lương cứng trách nhiệm vỏn vẹn 800 tệ mỗi tháng!
 
-Diêu Tân không dám lên tiếng nữa, Thẩm Tử Ngôn dũng cảm quá, ngay cả chuyện Khổng Triết Vũ cũng nói ra luôn.
+"Tìm được việc rồi, tớ định làm tạm một thời gian xem sao."
 
-Từ Mạn Mạn đứng dậy đi về phòng ngủ, nàng rất ngưỡng mộ Thẩm Tử Ngôn.
+Mới lăn lộn ngoài đường có mấy ngày mà làn da Cốc Siêu Thừa đã sạm đen đi trông thấy. Trước đây cậu ta từng mạnh miệng tuyên bố sẵn sàng cùng Đường Hiểu Tình chăm sóc mẹ cô, mấy hôm trước còn bĩu môi bảo mức lương hơn một ngàn tệ của Đường Hiểu Tình chẳng đáng là bao.
 
-Dao Dao Thỏ: "Thẩm Tử Ngôn, cậu đừng quên, Triệu Kim An là bạn trai tớ, cậu cướp bạn trai của bạn cùng phòng!"
+Bây giờ thì nhuệ khí đã xẹp lép, bởi lẽ số tiền cậu ta cày cuốc kiếm được còn chưa bằng một nửa của Đường Hiểu Tình.
 
-Thẩm Tử Ngôn: "Các cậu chia tay rồi."
+Nhìn Triệu Kim An da dẻ vẫn trắng trẻo, phong thái lúc nào cũng ung dung, tự tại, Cốc Siêu Thừa muốn nói lại thôi, trong lòng đầy vẻ ngập ngừng.
 
-Mộc Dao chưa từng nghi ngờ Thẩm Tử Ngôn, Thẩm Tử Ngôn và Triệu Kim An suốt cả năm nhất chẳng gặp nhau được mấy lần, lúc đi làm tình nguyện viên thì Từ Mạn Mạn cũng đi.
+Triệu Kim An lên tiếng: "Không sang tìm Đường Hiểu Tình nữa à?"
 
-Thẩm Tử Ngôn mỗi tối đều về ký túc xá, nghe nói Triệu Kim An cũng không lên lớp.
+Cốc Siêu Thừa lắc đầu, giọng nói bất giác cao hơn một tông để che giấu sự tự ti: "Tớ chỉ muốn kiếm tiền để chứng minh cho cô ấy thấy thôi, chứ tớ không thèm bám riết lấy cô ấy nữa đâu."
 
-Thực tế, hai người rất ít tiếp xúc.
+Triệu Kim An khẽ gật đầu.
 
-Dao Dao Thỏ: "Thẩm Tử Ngôn, cậu không được thích Triệu Kim An."
+Suy nghĩ này đúng chất của một cậu sinh viên đại học mới lớn, tràn đầy năng lượng tích cực nhưng cũng ngây thơ hết phần thiên hạ.
 
-Thẩm Tử Ngôn: "Mộc Dao, chúng ta đều là người trưởng thành rồi, vả lại tớ không ở Quận Sa."
+"Kim An này..."
 
-Dao Dao Thỏ: "Vậy cậu đang ở đâu?"
+Cốc Siêu Thừa ngập ngừng mấp máy môi: "Mỗi tháng Đường Hiểu Tình được nhận lương bao nhiêu thế?"
 
-Thẩm Tử Ngôn: "Thường Đức, ngày thứ hai sau khi các cậu rời trường tớ đã đến đây rồi."
-
-Thấy tin nhắn này, Diêu Tân và Từ Mạn Mạn đều rất bất ngờ, họ cứ ngỡ Thẩm Tử Ngôn đang ở Quận Sa.
-
-Một cảm giác lạ kỳ nảy sinh, Từ Mạn Mạn dừng bước, khẽ thở phào một hơi.
-
-Mộc Dao cũng hơi thả lỏng.
-
-"Dao Dao, có chuyện gì vậy?" Trương Tuệ nhịn không được hỏi.
-
-"Mẹ!"
-
-Mộc Dao đỏ hoe mắt, đột nhiên quát Trương Tuệ: "Thẩm Tử Ngôn thích Kim An, mẹ hài lòng chưa? Các người hài lòng rồi chứ!?"
-
-Mộc Nhân Cường: "..."
-
-"Liên quan gì đến mẹ? Với lại Thẩm Tử Ngôn là ai?"
-
-Trương Tuệ cũng có chút ngơ ngác.
-
-Trên đường nghỉ hè về Sâm Thành, bà và Trương Vân Thiến còn giáo dục Mộc Dao, nói cô bé tên Từ Mạn Mạn kia có mắt nhìn tốt.
-
-Mộc Nhân Cường nói: "Ai trong hai mẹ con có thể nói cho ba biết có chuyện gì không?"
-
-"Thẩm Tử Ngôn, bạn cùng phòng đại học của Dao Dao, một cô bé rất xinh đẹp lại có khí chất."
-
-Trương Tuệ liếc nhìn chồng: "Chiếc xe cô bé lái còn tốt hơn chiếc Volkswagen của ông, là Mercedes E230 đấy."
-
-Mộc Nhân Cường: "..."
-
-Bà nói thì nói đi, mắc mớ gì lôi tôi ra so sánh?
-
-Mộc Nhân Cường không dám cãi lại, chỉ dám lẩm bẩm trong lòng, nếu không vợ bà lại chuẩn bị bài ca ai ai đó thăng chức rồi, chỉ có ông là bao nhiêu năm nay cứ đứng im một chỗ ở đơn vị.
-
-"Mẹ!"
-
-Mộc Dao treo vài giọt nước mắt: "Trên đường về mẹ và dì nhỏ cứ nói con suốt, nói Từ Mạn Mạn mắt nhìn tốt, nói Thẩm Tử Ngôn chắc chắn cũng thế này thế nọ, vậy bây giờ mẹ nói sao đây?"
+Triệu Kim An thành thật trả lời: "Hai ngàn tệ."
 
 "..."
 
-Trương Tuệ bị vặc lại đến mức không nói nên lời, bà cũng không hiểu nổi, đám con gái bây giờ chỉ nhìn vẻ bề ngoài thôi sao?
+Cốc Siêu Thừa há hốc mồm, im lặng một hồi lâu rồi mới lí nhí hỏi tiếp: "Thế... thế còn cậu thì sao?"
 
-Trên đường về Sâm Thành, Trương Tuệ và Trương Vân Thiến mới đánh giá rằng Thẩm Tử Ngôn trong ký túc xá của con trông trưởng thành nhất, lý trí nhất, còn Từ Mạn Mạn trông dịu dàng đoan trang, giống như tiểu thư khuê các.
+Triệu Kim An suy nghĩ giây lát rồi mỉm cười: "Nhiều hơn Đường Hiểu Tình một ức điểm."
 
-Triệu Kim An trông rất đẹp trai, ngay cả Trương Tuệ đã 40 tuổi cũng chưa bao giờ phủ nhận điều đó, bà cũng không chê bai gì khác, duy chỉ có việc...
+Cốc Siêu Thừa câm nín toàn tập: "..."
 
-Đêm nay.
+"Kim An, cậu cũng đi tắm đi... Tớ leo lên giường đi ngủ đây."
 
-Mộc Dao trằn trọc trên giường không ngủ được, liền tìm Du Phỉ trò chuyện.
+"Cậu không giặt quần áo à?"
 
-Du Phỉ vừa thấy bất ngờ lại vừa thấy không bất ngờ.
+"Thôi, chẳng buồn giặt nữa."
 
-Bất ngờ là vì người đó là Thẩm Tử Ngôn, Thẩm Tử Ngôn là hoa khôi trong miệng các nam sinh lớp họ, ở trường cũng có chút danh tiếng.
+Cốc Siêu Thừa lẳng lặng leo lên giường tầng trên mà không gây ra một tiếng động nhỏ nào, trong lòng bỗng dâng lên nỗi nhớ mẹ da diết.
 
-Không bất ngờ là vì, lên đại học chắc chắn sẽ có những cô gái rất ưu tú thích Triệu Kim An.
+Sinh viên các phòng ký túc xá bên cạnh đều đã về quê nghỉ hè hết, không gian xung quanh vắng tanh không còn những tiếng cười đùa ồn ào náo nhiệt thường ngày, khiến Cốc Siêu Thừa cảm thấy một sự hụt hẫng, cô đơn trống trải tột cùng. Cậu ta lại nghiêng đầu nhìn xuống Triệu Kim An bên dưới, chủ động bắt chuyện:
 
-Điểm này Du Phỉ chưa bao giờ nghi ngờ.
+"Kim An, đợt nghỉ đông vừa rồi cậu cũng chỉ ở lại ký túc xá một mình thế này thôi à?"
 
-Cuối cùng Du Phỉ nói: "Dao Dao, cậu chẳng phải cũng có một đàn anh năm ba theo đuổi sao, Khổng Triết Vũ cũng rất ưu tú mà."
+"Ừ."
 
-Mộc Dao im lặng.
+Cốc Siêu Thừa lại im bặt. Cậu ta chợt nhận ra Triệu Kim An luôn quen với sự cô độc một mình... Hồi đầu năm học mới, cậu ta còn từng thầm nghĩ Triệu Kim An là kẻ quá đỗi lập dị và cô độc.
 
-Khổng Triết Vũ canh dưới lầu ký túc xá nữ để tặng bữa sáng cho Mộc Dao, Du Phỉ chắc chắn biết rõ.
+Triệu Kim An cầm bộ quần áo sạch chuẩn bị đi tắm, ngước mắt nhìn Cốc Siêu Thừa một lúc, rồi vỗ nhẹ vào thành giường cậu ta, cười nói: "Xét về độ lanh lợi bươn chải thì Lưu S闯 Phong giỏi hơn cậu nhiều đấy."
 
-Đêm nay.
-
-Từ Mạn Mạn cũng mãi không thể chợp mắt, nhìn thời gian đã là 01:32.
-
-Nàng ngồi dậy mở máy tính, tìm đến thư mục ẩn, nhấn mở bức ảnh đó.
-
-Dù là ở trong phòng ngủ của mình, chỉ có một mình nàng.
-
-Trên ghế, Từ Mạn Mạn vẫn giữ tư thế ngồi đoan trang, lưng thẳng tắp, nhìn vào màn hình máy tính, nàng đột ngột đưa tay chạm vào bức ảnh.
-
-"Cậu sẽ thích Thẩm Tử Ngôn chứ?"
-
-"Hạt dẻ bà nội trồng là hạt dẻ ngon nhất tôi từng ăn."
-
-"Tôi chẳng cho ai cả."
+Cốc Siêu Thừa khẽ gật đầu, kéo chăn trùm kín mặt.

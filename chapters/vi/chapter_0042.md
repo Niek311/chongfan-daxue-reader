@@ -1,173 +1,181 @@
-# Chương 42: Mẹ Của Bạn Học
+# Chương 42: Mẹ của bạn học
 
-Ở phía bên kia, Trương Tuệ và Trương Vân Thiến đưa Mộc Dao đi ăn ngoài, đến 10 giờ mới lái xe quay lại ký túc xá trường.
+> **Tiêu đề gốc**: 第42章 同学的妈妈。
 
-Lúc chiều báo danh vẫn chưa gặp được đầy đủ bạn cùng phòng của con gái, nên Trương Tuệ lại đặc biệt lên một chuyến.
+Ở một diễn biến khác, sau khi dẫn Mộc Dao đi ăn tối bên ngoài, mãi đến mười giờ đêm Trương Tuệ và Trương Vân Thiến mới lái xe quay trở lại ký túc xá trường.
 
-Lần này cả bốn cô gái phòng 406 đã tụ tập đông đủ. Trương Vân Thiến khoác túi LV, ngón tay thon dài móc chùm chìa khóa xe BMW, ngẩng cao đầu, chân giẫm giày cao gót kêu "lộc cộc" bước vào.
+Lúc chiều đến làm thủ tục nhập học vẫn chưa gặp đủ các bạn cùng phòng của con gái, nên Trương Tuệ mới cố ý quay lại một chuyến.
 
-Có chút ý vị muốn làm vẻ vang mặt mũi cho cô cháu gái.
+Lần này, bốn cô nữ sinh của phòng 406 đã tề tựu đông đủ. Trương Vân Thiến đeo chiếc túi LV bên hông, ngón tay thon dài lủng lẳng chiếc chìa khóa xe BMW, ưỡn ngực ngẩng cao đầu, gót giày cao gót gõ "cộc cộc cộc" vang dội trên nền gạch khi bước vào phòng.
 
-Trương Tuệ khoác túi Gucci, tay xách một túi đồ ăn vặt: "Chào các cháu, dì là mẹ của Mộc Dao, có mang cho các cháu ít đồ ăn vặt đây."
+Dáng vẻ ấy mang đậm phong thái muốn phô trương thanh thế, nở mày nở mặt cho cô cháu gái.
 
-"Cháu cảm ơn dì ạ."
+Trương Tuệ khoác chiếc túi Gucci trên vai, tay xách một túi quà vặt lớn: "Chào các cháu, cô là mẹ của Mộc Dao, có mua chút đồ ăn vặt mang lên cho các cháu đây."
 
-Ba cô gái lễ phép chào cảm ơn.
+"Cháu cảm ơn cô ạ."
 
-Họ nhìn nhìn Mộc Dao, rồi lại nhìn sang Trương Tuệ. Trương Tuệ rất khác với nhiều phụ huynh đến từ nông thôn, nhìn một cái là biết người làm việc lâu năm trong cơ quan nhà nước.
+Ba cô gái lễ phép cất tiếng cảm ơn.
 
-Khí chất là thứ khó nói thành lời, nhưng có thể cảm nhận được.
+Họ đưa mắt nhìn Mộc Dao, rồi lại nhìn sang Trương Tuệ. Trương Tuệ hoàn toàn khác biệt với những bậc phụ huynh từ nông thôn lên, chỉ cần nhìn thoáng qua là biết ngay người công tác lâu năm trong bộ máy nhà nước.
 
-Cùng là cười, nhưng nụ cười của Trương Tuệ rất chuyên nghiệp, thấu ra một vẻ lãnh đạm và xa cách; trong khi nhiều phụ huynh nông thôn có nụ cười chất phác, hơi ngốc nghếch, thậm chí còn có chút nịnh nọt và lúng túng.
+Khí chất là thứ rất khó diễn tả thành lời, nhưng lại có thể cảm nhận được vô cùng rõ nét.
 
-"Mọi người đừng khách sáo, đều là đặc sản Sâm Châu quê dì cả, cá Đông Giang, vịt Lâm Vũ."
+Cũng là một nụ cười, nhưng nụ cười của Trương Tuệ mang đậm tính chất công sở, phảng phất vẻ cao ngạo, xa cách và lạnh nhạt; trong khi những phụ huynh chốn thôn quê nụ cười lại chất phác, đượm chút đôn hậu thật thà.
 
-Trương Tuệ đặt đồ lên bàn: "Mộc Dao nhà dì lần đầu đi xa, các cháu cùng một phòng, sau này hãy giúp đỡ và bao dung lẫn nhau..."
+Thậm chí đôi khi còn mang theo vẻ lấy lòng và luống cuống không biết phải làm sao.
 
-Vẫn không ai động vào túi đồ.
+"Mọi người đừng khách sáo nhé, toàn là đặc sản Sâm Thành của bọn cô đấy, cá Đông Giang với vịt Lâm Vũ."
 
-Hai cô gái chỉ gật đầu nói một tiếng "vâng".
+Trương Tuệ đặt túi đồ lên bàn: "Mộc Dao nhà cô là lần đầu tiên đi học xa nhà, mấy đứa ở chung một phòng, sau này nhớ bảo ban, giúp đỡ và bao dung lẫn nhau..."
 
-Một cô gái vừa tắm xong, đang lau mái tóc ướt sũng, liếc nhìn Trương Tuệ và Trương Vân Thiến một cái, rồi lại tiếp tục lau tóc.
+Vẫn chẳng có ai động tay vào túi đồ.
 
-Lúc này Trương Vân Thiến lên tiếng: "Món này hơi cay một chút, nhưng cá Đông Giang với vịt Lâm Vũ cũng phải mấy chục tệ một cân đấy, các cháu nếm thử xem?"
+Hai cô bạn chỉ khẽ gật đầu nói một tiếng "vâng ạ".
 
-Ý gì đây?!
+Một cô gái khác vừa mới tắm xong, đang dùng khăn bông lau mái tóc ướt sũng, liếc nhìn Trương Tuệ và Trương Vân Thiến một cái, rồi lại tiếp tục thong thả lau tóc.
 
-Cần dì phải nhấn mạnh là mấy chục tệ một cân sao?
+Đúng lúc này Trương Vân Thiến lên tiếng: "Mấy món này hơi cay một chút, nhưng cá Đông Giang với vịt Lâm Vũ toàn mấy chục tệ một cân đấy, mấy cháu ăn thử đi xem sao?"
 
-"... Hì hì, cháu không ăn được cay, cảm ơn dì."
+Ý tứ gì đây chứ?!
 
-Hai cô gái lắc đầu, cười cực kỳ gượng gạo, sau đó chẳng thèm liếc nhìn thêm cái nào nữa.
+Có cần thiết phải nhấn mạnh mấy chục tệ một cân thế không?
 
-Cô gái đang lau tóc nhìn nhìn Trương Vân Thiến, liếc qua cái túi xách và chìa khóa xe, mẫu lỗi thời, cũng chẳng phải bản full option, lại nhìn sang Mộc Dao, rồi dứt khoát đi ra ban công lau tóc.
+"... Haha, cháu không ăn được cay, cháu cảm ơn cô ạ."
 
-Trương Tuệ lườm Trương Vân Thiến một cái, bà biết tính nết em gái mình thế nào. Lát sau, bà kéo Mộc Dao ra ngoài hành lang.
+Hai cô gái lắc đầu, nụ cười gượng gạo đến cùng cực, sau đó chẳng buồn nhìn thêm cái nào nữa.
+
+Cô gái đang lau tóc kia liếc nhìn Trương Vân Thiến, đảo mắt lướt qua chiếc túi xách cùng chùm chìa khóa xe — mẫu mã đã lỗi thời, xe cũng chẳng phải bản cao cấp nhất — rồi lại ngó sang Mộc Dao, sau đó dứt khoát quay người bước ra ban công tiếp tục lau tóc.
+
+Trương Tuệ lườm Trương Vân Thiến một cái sắc lẹm. Bà thừa hiểu tính nết cô em gái mình thế nào. Nán lại một lát, bà bèn kéo Mộc Dao ra ngoài hành lang.
 
 "Mẹ, có chuyện gì thế ạ?"
 
-"Sau này con nên kết bạn nhiều hơn với bạn tên là Thẩm Tử Ngôn ấy."
+"Sau này con nhớ chịu khó qua lại, kết thân với cô bạn tên Thẩm Tử Ngôn kia nhiều vào."
 
-"Tại sao ạ?" Mộc Dao hỏi.
+"Tại sao ạ?" Mộc Dao thắc mắc.
 
-"Đừng hỏi tại sao. Tối nay mẹ qua nhà dì nhỏ con ngủ, con cứ ở ký túc xá đi, ngày đầu tiên mà không ở lại... dễ bị cô lập lắm."
+"Đừng hỏi nhiều tại sao. Tối nay mẹ sang nhà dì con ngủ, con cứ ở lại ký túc xá đi. Ngày đầu tiên mà không ở lại... rất dễ bị người ta cô lập đấy."
 
-Đây chính là Trương Tuệ.
+Đó chính là Trương Tuệ.
 
-Bà có thể nhận ra khí chất của Thẩm Tử Ngôn rất tốt, điều kiện gia đình chắc chắn rất khá giả.
+Bà có thể nhìn ra ngay khí chất của Thẩm Tử Ngôn rất nổi bật, điều kiện gia đình ắt hẳn không phải dạng vừa.
 
-Có những lời bà không tiện nói thẳng với con gái, ví dụ như ở đại học việc học rất quan trọng, nhưng kết giao mạng lưới quan hệ còn quan trọng hơn.
+Có những lời bà không tiện nói thẳng toẹt ra với con gái, chẳng hạn như lên đại học chuyện học hành tuy quan trọng, nhưng việc tạo dựng các mối quan hệ xã hội lại càng quan trọng hơn gấp bội.
 
-Bạn có thể nói đó là tầm nhìn, cũng có thể nói là hám lợi.
+Người ta có thể gọi đó là tầm nhìn, cũng có thể gọi đó là thực dụng hám lợi.
 
-Giống như bà nội và Vương Kim Như thì sẽ không hiểu những điều này, họ chỉ biết dặn dò Triệu Kim An phải giữ quan hệ tốt với bạn cùng phòng, đừng để xảy ra mâu thuẫn.
+Những điều này, người như bà nội hay Vương Kim Như đời nào hiểu được. Họ chỉ biết dặn dò Triệu Kim An phải cố gắng hòa đồng với bạn cùng phòng, tuyệt đối đừng để xảy ra xích mích mâu thuẫn.
 
-Các trường đại học ở tỉnh Hồ Nam, ngoại trừ Đại học Công nghệ Quốc phòng, thì tiếp theo là Trung Nam. Xếp hạng tổng hợp toàn quốc rơi vào khoảng vị trí 25, còn cao hơn cả Hồ Đại, Hồ Đại nằm trong khoảng 30-40.
+Các trường đại học ở tỉnh Tương Nam, ngoại trừ Đại học Khoa học Công nghệ Quốc phòng ra, thì đứng đầu chính là Đại học Trung Nam, xếp hạng tổng thể toàn quốc nằm trong top 25, còn cao hơn cả Đại học Hồ Nam (vốn xếp ở khoảng 30 đến 40).
 
-Sư Đại thì hơi xa một chút, xếp thứ tư trong tỉnh Hồ Nam, hạng toàn quốc tầm từ 80-120.
+Đại học Sư phạm thì cách một khoảng khá xa, xếp thứ tư trong toàn tỉnh, còn trên bảng xếp hạng toàn quốc thì lùi về tận khoảng 80 đến 120.
 
-Đỉnh nhất là Đại học Công nghệ Quốc phòng, thôi được rồi, ngôi trường đó không tham gia bảng xếp hạng thông thường.
+Trường đỉnh nhất là Quốc Phòng Khoa Đại thì khỏi phải bàn, ngôi trường đó vốn không tham gia vào các bảng xếp hạng thông thường.
 
-Còn về Học viện Tương Nam mà Vương Kim Như hay nhắc đến, ngôi trường đại học hệ chính quy duy nhất ở Sâm Châu, thì ở một số bảng xếp hạng có thể lọt vào top 600, còn có những bảng xếp hạng thì chẳng thấy tăm hơi đâu trong top 600 cả.
+Còn cái trường Học viện Tương Nam mà Vương Kim Như suốt ngày lải nhải bên tai, trường đại học hệ chính quy duy nhất ở Sâm Thành, thì có bảng xếp hạng lọt được vào top 600, nhưng cũng có bảng xếp hạng tìm mỏi mắt trong top 600 chẳng thấy tăm hơi đâu.
 
-Triệu Kim An xách xô trở về ký túc xá đã là 11 giờ đêm, Trần Trạch không có ở đó, chìa khóa xe trên bàn cũng biến mất.
+...
 
-Lưu Sấm Phong và Cốc Siêu Thừa đã làm hòa, đang nằm trên giường tán dóc về Trần Trạch, thấy Triệu Kim An đi vào, hai người lập tức im bặt.
+Lúc Triệu Kim An xách xô nhựa quay về phòng ký túc xá thì đã là mười một giờ đêm. Trần Trạch không có trong phòng, chiếc chìa khóa xe trên bàn cũng biến mất từ lúc nào.
 
-"Hì hì, Kim An, ông đi đâu thế?"
+Lưu Sấm Phong và Cốc Siêu Thừa đã làm lành với nhau, đang nằm vắt chân trên giường rôm rả bàn tán về Trần Trạch. Vừa thấy Triệu Kim An bước vào, cả hai lập tức im bặt.
 
-Lưu Sấm Phong nằm bò trên giường cười hỏi.
+"Hì hì, Kim An đi đâu về thế?"
 
-Triệu Kim An bảo là đi dạo loanh quanh.
+Lưu Sấm Phong nằm bò ra mép giường cười hỏi.
 
-Hắn lấy từ trong xô ra một ít đồ dùng sinh hoạt, có một chai dầu gội Rejoice màu xanh lá loại nhỏ, siêu thị chỉ bán 9 tệ 9.
+Triệu Kim An thản nhiên đáp mình ra ngoài đi dạo một vòng.
 
-Không có sữa tắm hay sữa rửa mặt, chỉ có một túi bột giặt Liby lớn.
+Anh lấy từ trong xô ra vài món đồ dùng sinh hoạt hàng ngày, trong đó có một chai dầu gội Rejoice loại nhỏ màu xanh lá, trong siêu thị chỉ bán với giá chín tệ chín.
 
-Lưu Sấm Phong và Cốc Siêu Thừa nhìn nhau một cái. Mười phút trước họ còn đang bảo Triệu Kim An có chút không hòa đồng, ngày đầu tiên đã hành động đơn độc, nhưng lạ là họ lại không hề bảo Trần Trạch không hòa đồng.
+Không có sữa tắm, cũng chẳng có sữa rửa mặt, chỉ có thêm một túi bột giặt Liby cỡ lớn.
 
-Triệu Kim An cầm dầu gội vào phòng tắm, chuẩn bị tắm rửa rồi ngủ.
+Lưu Sấm Phong và Cốc Siêu Thừa đưa mắt nhìn nhau. Mười phút trước hai người họ còn xì xào bảo Triệu Kim An có vẻ hơi khó gần, ngày đầu tiên đã tách đoàn đi đánh lẻ một mình; điều kỳ quặc là, họ tuyệt nhiên chẳng hề nhắc nửa lời về việc Trần Trạch cũng đi riêng như thế.
 
-Lưu Sấm Phong cười hì hì gọi lại: "Kim An này, cái đó, tôi quên mua thuốc rồi, ông có thuốc không?"
+Triệu Kim An cầm chai dầu gội đi vào phòng tắm, chuẩn bị dội nước tắm mát rồi đi ngủ.
 
-Triệu Kim An sờ túi áo, hắn cũng quên mua thuốc, bèn móc từ trong túi ra nửa bao Bạch Sa cũ hơi nhăn nhúm, hỏi Lưu Sấm Phong có lấy không?
+Lưu Sấm Phong cười hì hì gọi với theo: "Kim An này, cái đó... tôi quên chưa mua thuốc lá, cậu có điếu nào không cho tôi xin một điếu?"
 
-"Hì hì, cảm ơn nhé, cho tôi một điếu."
+Triệu Kim An sờ túi quần. Bản thân anh cũng quên khuấy mất việc mua thuốc lá mới, bèn móc từ trong túi ra nửa bao Bạch Sa Cũ đã hơi nát bấy, hỏi Lưu Sấm Phong có hút không.
 
-Lưu Sấm Phong không phải người Hồ Nam, không rành thuốc lá Bạch Sa, cầm điếu thuốc ngắm nghía rồi hỏi đây là loại thuốc gì, bao nhiêu tiền một bao?
+"Hề hề, cảm ơn nhé, cho tôi một điếu."
 
-Triệu Kim An nói: "Bạch Sa cũ, 4 tệ một bao."
+Lưu Sấm Phong không phải người Tương Nam nên không rành về dòng thuốc lá Bạch Sa, cầm điếu thuốc ngắm nghía rồi hỏi đây là thuốc gì, bao nhiêu tiền một bao.
 
-"Chỉ có 4 tệ một bao thôi á?"
+Triệu Kim An đáp: "Bạch Sa Cũ, bốn tệ một bao."
 
-Có lẽ là vô ý, nhưng Lưu Sấm Phong vừa mới hút loại thuốc lá 10 tệ một điếu xong.
+"Có bốn tệ một bao thôi á?"
 
-Điều khiến Cốc Siêu Thừa và Lưu Sấm Phong vạn lần không ngờ tới là, Triệu Kim An thế mà lại đi ngược trở lại, ngoắc ngoắc ngón tay với Lưu Sấm Phong, hỏi: "Thế ông có hút không? Không hút thì trả lại đây cho tôi."
+Có lẽ chỉ là câu buột miệng vô tâm, dẫu sao ban nãy Lưu Sấm Phong vừa mới được rít điếu thuốc mười tệ một điếu xong.
 
-Cốc Siêu Thừa: . . . . . .
+Thế nhưng, điều khiến cả Cốc Siêu Thừa lẫn Lưu Sấm Phong vạn vạn lần không ngờ tới là Triệu Kim An bỗng dưng quay ngoắt người lại, ngoắc ngoắc ngón tay về phía Lưu Sấm Phong, bình thản hỏi:
 
-Cậu ta nằm bên mép giường, trợn mắt há mốc mồm.
+"Thế cậu có hút không? Không hút thì trả lại đây."
 
-Đây là cái gì thế này?
+Cốc Siêu Thừa: "..."
 
-Biểu hiện của EQ thấp? Hay là đang giận rồi?
+Nằm nhoài trên mép giường, Cốc Siêu Thừa trố mắt nhìn sững sờ.
 
-Dù sao đi nữa, trong lòng Cốc Siêu Thừa cảm thấy hơi sướng thầm, vì lúc nãy cậu ta cũng gặp phải tình huống tương tự, kết quả làm thế nào cũng thấy không đúng, đành phải ngậm bồ hòn làm ngọt.
+Cái gì thế này?
 
-Lưu Sấm Phong là người lúng túng nhất, hắn không ngờ Triệu Kim An lại trực tiếp như vậy, nhìn biểu cảm thì lại không giống như đang tức giận.
+Là biểu hiện của kẻ EQ thấp? Hay là cậu ta nổi giận thật rồi?
 
-"Cái đó, Kim An, tôi không có ý đó đâu, mai tôi sẽ mua bao thuốc xịn."
+Nhưng bất luận thế nào, trong lòng Cốc Siêu Thừa lại dâng lên một cảm giác hả hê thầm kín. Bởi vì ban nãy chính cậu ta cũng rơi vào tình cảnh tương tự, kết quả là làm thế nào cũng thấy sai, đành phải ngậm bồ hòn làm ngọt.
 
-Lưu Sấm Phong ấp úng, cười cực kỳ ngượng nghịu.
+Lưu Sấm Phong là người ngượng ngùng nhất. Gã không ngờ Triệu Kim An lại thẳng thắn sỗ sàng đến thế, mà nhìn nét mặt anh thì lại chẳng có vẻ gì là đang tức giận cả.
 
-Lúc này Triệu Kim An mới rụt tay về, quay người cười cười, cầm khăn mặt và dầu gội đi vào phòng tắm.
+"À ừm... Kim An, tôi không có ý đó đâu, mai tôi mua bao thuốc xịn bù lại nhé."
 
-Đợi đến khi tiếng nước "ào ào" trong phòng tắm vang lên, Lưu Sấm Phong mới hoàn hồn, hất hàm về phía đối diện với Cốc Siêu Thừa một cái, rồi lắc đầu nhìn về phía phòng tắm.
+Lưu Sấm Phong ấp a ấp úng, nụ cười trên mặt sượng trân.
 
-"Ông ấy không phải đang giận, không phải giận tôi."
+Lúc này Triệu Kim An mới thu tay về, xoay người khẽ mỉm cười, cầm khăn mặt cùng chai dầu gội bước vào phòng tắm.
 
-Lưu Sấm Phong chỉ chỉ vào đầu mình: "Ông ấy... ông ấy làm sao mà thi đỗ vào Sư Đại được nhỉ?"
+Mãi cho đến khi tiếng nước xả "rào rào" vang lên trong phòng tắm, Lưu Sấm Phong mới hoàn hồn lại, hướng về phía Cốc Siêu Thừa đối diện khẽ "hầy" một tiếng, hất đầu về phía cánh cửa phòng tắm.
 
-Hay thật, sao cái ký túc xá này lại nhiều kẻ kỳ lạ thế không biết?
+"Cậu ta không giận, không hề giận tôi chút nào."
 
-Hắn cảm thấy chỉ có mình và Cốc Siêu Thừa là người bình thường, Trần Trạch thì hơi tự đại, quá ngông cuồng, còn Triệu Kim An... đúng là chẳng biết phải nói sao cho hết.
+Lưu Sấm Phong lấy ngón tay chỉ chỉ vào đầu mình: "Cậu... cậu bảo cậu ta làm sao thi đỗ vào Sư Đại được thế nhỉ?"
 
-Cuối cùng, Lưu Sấm Phong và Cốc Siêu Thừa đều quy kết rằng Triệu Kim An có EQ không cao.
+Được lắm, cái phòng ký túc xá này sao mà lắm kẻ kỳ quặc thế không biết?
 
-Triệu Kim An từ phòng tắm đi ra lại giặt luôn quần áo, cầm mắc áo phơi ngoài ban công. Chai dầu gội Rejoice nhỏ 9 tệ 9 kia được để lại trong phòng tắm, bên trong còn có một bộ đồ dùng cao cấp của Trần Trạch. Cuối cùng, hắn leo lên giường chuẩn bị đi ngủ.
+Gã đinh ninh chỉ có mình và Cốc Siêu Thừa là người bình thường, Trần Trạch thì tự cao tự đại, ngông cuồng quá mức, còn Triệu Kim An thì... quả thực cạn lời chẳng biết diễn tả thế nào.
 
-Lát sau, Lưu Sấm Phong lại nhắc đến Trần Trạch, bảo Trần Trạch vừa nhập học năm nhất đã lái BMW, chắc là đi hẹn hò rồi.
+Cuối cùng, cả Lưu Sấm Phong và Cốc Siêu Thừa đều đi đến chung một kết luận: Triệu Kim An là kẻ có chỉ số EQ cực thấp.
 
-Trong giọng nói lộ ra vẻ ngưỡng mộ, còn có chút vị chua xót, chỉ suýt chút nữa là nói thẳng ra rằng Trần Trạch quá làm màu.
+Triệu Kim An tắm rửa xong bước ra, tiện tay giặt luôn bộ quần áo, lấy móc phơi ra ngoài ban công. Chai Rejoice nhỏ giá chín tệ chín kia được anh để lại luôn trong phòng tắm, cạnh đó là bộ đồ tắm gội cao cấp của Trần Trạch. Xong xuôi, anh trèo lên giường chuẩn bị chìm vào giấc ngủ.
 
-Hắn còn bảo mẹ của Trần Trạch trông rất trẻ trung xinh đẹp, đưa Trần Trạch đến ký túc xá bằng xe Mercedes lớn, nghe bà ấy nghe điện thoại trong phòng thì chắc là chủ công ty lớn.
+Một lát sau, Lưu Sấm Phong lại khơi mào câu chuyện về Trần Trạch, bảo Trần Trạch mới năm nhất khai giảng đã lái BMW đi học, chắc mẩm là đi hẹn hò với gái rồi.
 
-Họ đồn đoán là có liên quan đến thương mại quốc tế.
+Trong giọng điệu ngập tràn vẻ ngưỡng mộ, xen lẫn chút mùi ghen tị chua lè, suýt chút nữa thì gã thốt ra câu bảo Trần Trạch thích làm màu làm mè.
 
-Cốc Siêu Thừa thi thoảng phụ họa theo Lưu Sấm Phong vài câu, khi nhắc đến chủ đề này mới cùng Lưu Sấm Phong thảo luận sôi nổi, hỏi liệu có phải mẹ kế không, vì trông quá trẻ.
+Gã còn kể mẹ của Trần Trạch trông trẻ đẹp lắm, lúc đưa Trần Trạch đến ký túc xá là lái chiếc xe Mercedes cỡ lớn, nghe bà ấy nghe điện thoại trong phòng có vẻ như là giám đốc công ty lớn.
 
-Lưu Sấm Phong khẳng định không phải, hắn đã nhìn kỹ rồi, có ba nếp nhăn đuôi cá.
+Họ đoán già đoán non chắc là liên quan đến ngành xuất nhập khẩu.
 
-"Kim An, ông đến muộn quá, mẹ của Trần Trạch thật sự rất có khí chất phụ nữ."
+Cốc Siêu Thừa thi thoảng phụ họa vài câu, nhưng hễ chạm đến đề tài này là lại bàn tán rôm rả với Lưu Sấm Phong, còn tò mò hỏi không biết có phải mẹ kế không mà nhìn trẻ trung đến thế.
 
-"Dáng người đó... Dì ấy trèo lên giường giúp Trần Trạch dọn dẹp giường chiếu, tôi..."
+Lưu Sấm Phong quả quyết bảo không phải, gã đã quan sát rất kỹ, đuôi mắt bà ấy có ba nếp nhăn vết chân chim hẳn hoi.
 
-Lưu Sấm Phong và Cốc Siêu Thừa như vẫn còn chưa dứt lời, chẳng qua đó là mẹ của bạn học nên không tiện nói quá lộ liễu.
+"Kim An, cậu đến muộn quá không thấy, mẹ của Trần Trạch thực sự đẫy đà, quyến rũ chết đi được."
 
-Nếu là mẹ ruột của Trần Trạch, một người phụ nữ ngoài 40, thì chỉ có thể dùng các từ đầy đặn, phong vận, thành thục, gợi cảm để hình dung.
+"Dáng người đó... lúc dì ấy trèo lên giường giúp anh Trạch trải chiếu, tôi..."
 
-Triệu Kim An không ngờ Lưu Sấm Phong lại quan sát tỉ mỉ đến thế, nhưng điều này cũng gián tiếp chứng minh mẹ của Trần Trạch rất biết cách "khêu gợi" hormone của đám sinh viên này.
+Lưu Sấm Phong và Cốc Siêu Thừa như vẫn còn dư âm mê mẩn, chỉ là dẫu sao đó cũng là mẹ của bạn học, không tiện buông những lời quá trần trụi, thô tục.
 
-Đúng là hơi "đại nghịch bất đạo" mà!
+Nếu quả thực là mẹ ruột của Trần Trạch, một phụ nữ ngoài bốn mươi tuổi, thì chỉ có thể dùng những từ ngữ như đẫy đà, phong vận, mặn mà, gợi cảm để hình dung mà thôi.
 
-Hai chàng trai 18 tuổi tán dóc một hồi, lại chuyển sang chương trình Siêu Cấp Nữ Thanh đang nổi đình nổi đám năm 2005, một chương trình tuyển tú do Quận Sa tổ chức.
+Triệu Kim An không ngờ Lưu Sấm Phong lại quan sát tỉ mỉ đến mức ấy, nhưng điều này cũng gián tiếp chứng minh mẹ của Trần Trạch quả thực rất có sức khiêu khích hormone của đám thanh niên mới lớn này.
 
-Suốt quá trình đó, Triệu Kim An không hề góp lời.
+Chỉ là... có hơi "đại nghịch bất đạo" quá rồi đấy!
 
-Kiếp trước hắn chưa từng gặp mẹ của Trần Trạch. Cái sự "rất xinh đẹp" trong miệng Lưu Sấm Phong và Cốc Siêu Thừa, phần lớn có lẽ là để hình dung khí chất.
+Hai cậu thanh niên mười tám tuổi nằm tán hươu tán vượn một hồi, lại chuyển đề tài sang chương trình "Super Girl" làm mưa làm gió khắp cõi mạng năm 2005 — một gameshow tuyển chọn tài năng âm nhạc đình đám do chính đài truyền hình Quận Sa sáng lập.
 
-Phụ nữ có tiền thì càng có điều kiện để trưng diện, tự khắc sẽ mang theo hào quang.
+Triệu Kim An suốt từ đầu đến cuối không hề tiếp lời.
 
-Triệu Kim An nhớ tới người phụ nữ mình ôm tối nay, Tô Miền, trên cổ tay nàng đeo một chiếc Patek Philippe.
+Kiếp trước anh chưa từng gặp mẹ của Trần Trạch. Cái gọi là "rất xinh đẹp" trong miệng Lưu Sấm Phong và Cốc Siêu Thừa, có lẽ phần lớn là để miêu tả khí chất sang trọng toát ra từ người phụ nữ ấy mà thôi.
 
-Cho đến khi Lưu Sấm Phong thở dài một tiếng, "bịch" một cái nằm vật xuống giường, nói muốn khởi nghiệp ở đại học, Triệu Kim An mới vểnh tai lên nghe, chẳng lẽ mình cầm nhầm kịch bản rồi sao?
+Phụ nữ có tiền luôn có điều kiện chăm chút cho bản thân tốt hơn, tự khắc trên người sẽ mang theo một vầng hào quang rực rỡ.
+
+Bất giác, Triệu Kim An lại nhớ tới người phụ nữ mà mình đã ôm trong lòng tối nay — Tô Miến, trên cổ tay chị ấy đeo một chiếc đồng hồ Patek Philippe.
+
+Mãi đến khi Lưu Sấm Phong thở dài một tiếng thườn thượt, ngã "bịch" một cái xuống giường, buột miệng bảo muốn khởi nghiệp ngay từ thời đại học, Triệu Kim An mới khẽ nhướng tai lên nghe... Chẳng lẽ kịch bản kiếp này lại bị cầm nhầm rồi sao?

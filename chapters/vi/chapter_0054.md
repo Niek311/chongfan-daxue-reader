@@ -1,169 +1,171 @@
-# Chương 54: Là Một Cô Gái Tốt
+# Chương 54: Một cô gái ngoan
 
-Ở phía bên kia, ngày hôm sau Đơn Vĩ đã xin nghỉ việc ở xưởng sửa chữa ô tô. Ông chủ dùng cách tăng lương để níu kéo hắn, bởi vì rất nhiều "bệnh nan y" của xe cộ chỉ có Đơn Vĩ mới xử lý được.
+> **Tiêu đề gốc**: 第54章 是个好女孩。
 
-Đơn Vĩ khéo léo từ chối, hắn gọi điện cho Triệu Kim An: "Ông chủ, xe tôi đã đi xem rồi, có sẵn xe đấy."
+Ở một diễn biến khác, ngay ngày hôm sau Đan Vĩ đã đệ đơn xin nghỉ việc tại xưởng sửa chữa ô tô. Ông chủ xưởng ra sức giữ chân Đan Vĩ bằng cách đề nghị tăng lương, bởi rất nhiều "ca bệnh khó nhằn" của các loại xe chỉ có tay nghề lão luyện của Đan Vĩ mới xử lý dứt điểm được.
 
-Triệu Kim An bắt taxi đi đón Đơn Vĩ. Đơn Vĩ ngồi ở ghế phụ, Triệu Kim An ngồi hàng ghế sau. Đơn Vĩ liếc nhìn gương chiếu hậu, chỉ cảm thấy Triệu Kim An quá giống những thiếu gia của các gia đình quyền quý.
+Đan Vĩ khéo léo từ chối, đoạn rút điện thoại gọi cho Triệu Kim An: "Ông chủ, xe tôi đã đi khảo sát rồi, bên showroom có sẵn xe giao ngay."
 
-Quá giống luôn!
+Triệu Kim An bắt một chiếc taxi qua đón Đan Vĩ. Đan Vĩ ngồi ở ghế phụ phía trước, Triệu Kim An ngồi ở hàng ghế sau. Thỉnh thoảng Đan Vĩ lại liếc nhìn qua gương chiếu hậu, trong lòng không khỏi thầm cảm thán: chàng thanh niên này toát ra phong thái đĩnh đạc, trầm ổn chẳng khác nào thiếu gia của những gia tộc trâm anh thế phiệt.
 
-Đến cửa hàng 4S, Đơn Vĩ nhanh chân xuống xe trước để mở cửa.
+Quá đỗi giống!
 
-Triệu Kim An trả tiền taxi xong liền nói: "Cái này không cần đâu."
+Tới đại lý 4S phân phối ô tô, Đan Vĩ nhanh chân xuống xe trước, cung kính kéo rộng cửa xe cho Triệu Kim An.
 
-Nói thì nói vậy, nhưng Đơn Vĩ vẫn đứng né sang một bên giữ cửa xe, rồi lẳng lặng đi theo sau Triệu Kim An vào trong cửa hàng.
+Triệu Kim An vừa trả tiền xe cho tài xế vừa nói: "Mấy việc này không cần câu nệ quá đâu."
 
-Đơn Vĩ còn cố ý trưng ra bộ mặt lạnh lùng.
+Nói thì nói vậy, nhưng Đan Vĩ vẫn đứng thẳng người giữ chặt cánh cửa, rồi răm rắp theo sát sau lưng Triệu Kim An bước vào sảnh lớn của showroom.
 
-Triệu Kim An lại nói: "Đừng quá gồng như thế, có chuyện gì thì anh cứ đảm bảo tôi nằm trong tầm mắt của anh là được."
+Gương mặt Đan Vĩ cố tình giữ vẻ đăm đăm, lạnh như tiền.
 
-Đơn Vĩ lúc này mới gật đầu, đứng canh ở ngoài cửa.
+Triệu Kim An lại khẽ nhắc nhở: "Đừng cố gồng mình một cách gượng gạo như thế. Khi có việc ra ngoài, chú chỉ cần đảm bảo tôi luôn nằm trong tầm quan sát của chú là được rồi."
 
-Nữ nhân viên bán hàng trong bộ đồng phục công sở thấy có người vào cửa liền tươi cười đón tiếp. Sau khi nhìn rõ diện mạo của Triệu Kim An rồi thầm ước lượng tuổi tác, động tác chào hỏi vốn định làm một nửa bỗng khựng lại.
+Đan Vĩ nghe vậy mới gật đầu, lui ra đứng canh chừng gần cửa ra vào.
 
-Triệu Kim An coi như không thấy, nhân viên bán hàng vốn dĩ dựa vào cái này để kiếm cơm, hắn chỉ hỏi thẳng xem có sẵn xe Audi A6 hay không.
+Một nữ nhân viên tư vấn bán hàng trong bộ âu phục công sở vừa thấy có khách bước vào liền nở nụ cười tươi rói bước nhanh tới đón. Thế nhưng khi nhìn rõ gương mặt trẻ măng của Triệu Kim An, trong đầu cô ta liền thầm tính toán tuổi tác của khách, động tác cúi chào niềm nở ban đầu chỉ làm được nửa chừng rồi khựng lại.
 
-Cô nàng bán xe sững người vài giây, đáp: "Có ạ."
+Triệu Kim An xem như không thấy. Dân bán hàng vốn dĩ sống bằng nghề nhìn mặt mà bắt hình dong, anh đi thẳng vào vấn đề, hỏi dòng Audi A6 hiện có sẵn xe giao ngay hay không.
 
-"Tôi đặt cọc trước, hết kỳ nghỉ lễ sẽ tới lấy xe."
+Nữ nhân viên bán hàng thoáng sững sờ mất vài giây, vội đáp: "Dạ có ạ."
 
-Tiền của Triệu Kim An còn ở trong thị trường chứng khoán, dịp Quốc khánh không rút ra được nên hắn chỉ trả mười nghìn tệ tiền cọc. Hắn chẳng hỏi han gì thêm, ví dụ như hiện tại có ưu đãi gì không, chỉ chỉ tay về phía Đơn Vĩ ở cửa.
+"Tôi đặt cọc trước, qua đợt nghỉ lễ Quốc khánh sẽ tới làm thủ tục nhận xe."
 
-Cô nhân viên sực nhớ ra, người này hôm qua đã tới xem qua một lần.
+Tiền của Triệu Kim An hiện vẫn đang nằm trong tài khoản chứng khoán, dịp nghỉ lễ không thể rút ra ngay được, nên anh chỉ rút ví đặt cọc trước một vạn tệ. Anh chẳng buồn hỏi han thêm những chi tiết như ưu đãi hay quà tặng kèm theo, chỉ tay về phía Đan Vĩ đang đứng ngoài cửa.
 
-"Cái đó, Kim An... Triệu tổng?"
+Nữ nhân viên lúc này mới sực nhớ ra, người đàn ông đứng ngoài cửa kia hôm qua vừa đến đây ngắm nghía xe rất kỹ.
 
-Người phụ nữ đưa thẻ công tác ra, tên là Đồng Nghệ Mẫn. Triệu Kim An lưu số điện thoại của cô ta, bảo cô ta cứ trao đổi với Đơn Vĩ, còn mình thì rời đi trước.
+"Dạ thưa... Triệu, Triệu tổng?"
 
-Dịp Quốc khánh không về nhà, Vương Kim Như gọi điện đến hỏi Triệu Kim An ở đại học thế nào.
+Người phụ nữ vội rút thẻ nhân viên cài trên ngực ra giới thiệu tên mình là Đồng Nghệ Mẫn. Triệu Kim An lưu lại số điện thoại di động của cô ta, bảo cô ta trao đổi trực tiếp các thông số kỹ thuật với Đan Vĩ, còn bản thân thì rời đi trước.
 
-Triệu Kim An bảo rất tốt.
+...
 
-Vương Kim Như lại dặn: "Cần tiêu thì cứ tiêu, bà nội và chú của cháu bảo cháu đừng về dịp này là vì sợ tốn tiền vé xe... Nhưng cháu cũng đừng tiết kiệm quá, phải giữ quan hệ tốt với bạn cùng phòng."
+Dịp Quốc khánh không về quê, thím Vương Kim Như gọi điện hỏi han xem Triệu Kim An ở trường đại học sinh hoạt thế nào, có quen không.
 
-Triệu Kim An hiểu lòng Vương Kim Như, mỗi lần nghe thấy những lời này, tận sâu trong lòng hắn đều trào dâng một luồng ấm áp. Hắn áp điện thoại vào tai, nói với Vương Kim Như: "Thím, cháu nhớ mọi người rồi."
+Triệu Kim An đáp mọi chuyện đều rất tốt.
 
-Đầu dây bên kia, Vương Kim Như im lặng hồi lâu, cuối cùng nghẹn giọng mắng: "Nhớ nhung cái gì mà nhớ, lớn tướng rồi còn thế!"
+Vương Kim Như ở đầu dây bên kia dặn dò thêm: "Cái gì cần chi thì cứ chi, bà nội với chú mày bảo mày đợt này đừng về là vì sợ tốn kém tiền tàu xe đi lại... Nhưng ở trên đó cũng đừng có tằn tiện quá mức, nhớ đối xử hòa nhã, giữ mối quan hệ tốt với bạn cùng phòng."
 
-Đoạn Thu Bình cũng gọi điện tới, bà cũng giống như Vương Kim Như, chưa bao giờ nhắn tin.
+Triệu Kim An hiểu tấm lòng của thím. Mỗi lần nghe những lời mộc mạc, chan chứa yêu thương ấy, tận sâu trong đáy lòng anh lại dâng lên một luồng hơi ấm ngập tràn. Anh áp chặt chiếc điện thoại vào tai, nghẹn ngào nói với Vương Kim Như: "Thím ơi, cháu nhớ mọi người ở nhà lắm."
 
-Triệu Kim An lần nào cũng nói vẫn ổn, vẫn quen.
+Đầu dây bên kia, Vương Kim Như im lặng hồi lâu không cất nên lời. Mãi sau, bà mới cố nén giọng nghẹn ngào, giả vờ gắt gỏng: "Nhớ với chả nhung cái gì, lớn từng này đầu rồi mà còn nhõng nhẽo!"
 
-Chỉ cần Đoạn Thu Bình không nghĩ đến chuyện bắt Triệu Kim An phải nhận Tống Gia Nguyệt, không mong hắn phải tạo quan hệ tốt với Tống Uyển Hòa và Tống Siêu Văn, thì Triệu Kim An đều có thể trò chuyện với bà vài câu.
+Bà Đoạn Thu Bình cũng gọi điện tới, bà cũng giống như Vương Kim Như, chẳng bao giờ có thói quen nhắn tin.
 
-Trở về ký túc xá, Lưu Sấm Phong và Cốc Siêu Thừa cũng có mặt, bọn họ nhà xa nên dịp Quốc khánh này không về.
+Lần nào nói chuyện với mẹ, Triệu Kim An cũng chỉ đáp ngắn gọn là mọi thứ vẫn ổn, đã quen với môi trường mới.
 
-Mấy ngày nay hai người họ ngày nào cũng dính lấy nhau, thấy Triệu Kim An lại về muộn như vậy, Lưu Sấm Phong nằm bò trên giường hỏi: "Kim An, ngày nào cậu cũng ra ngoài từ sớm, đi đâu chơi thế?"
+Miễn là Đoạn Thu Bình không ép anh phải nhận Tống Gia Nguyệt làm cha, không bắt anh phải gượng ép hòa nhập, lấy lòng Tống Uyển Hòa và Tống Siêu Văn, thì Triệu Kim An vẫn sẵn lòng trò chuyện với bà vài ba câu cho tròn đạo làm con.
 
-Cốc Siêu Thừa cũng bò ra mép giường với vẻ mặt tò mò.
+...
 
-Triệu Kim An ra ban công lấy quần áo thay giặt, đáp: "Các cậu không có bạn học cấp ba à? Không đi tụ tập sao?"
+Trở về phòng ký túc xá, Lưu Sấm Phong và Cốc Siêu Thừa đều đang ở trong phòng. Quê quán xa xôi nên đợt nghỉ Quốc khánh này cả hai đều không về nhà.
 
-Cốc Siêu Thừa nói: "Lớp chúng tớ chỉ có mỗi mình tớ lên Quận Sa học đại học. Trên mạng trường tuy có một nhóm đồng hương, nhưng không quen lắm, đa số là các anh chị khóa trên."
+Mấy ngày nay hai người họ dính lấy nhau như hình với bóng. Thấy Triệu Kim An hôm nào cũng đi từ sáng sớm tới tối mịt mới về, Lưu Sấm Phong nằm bò trên giường tò mò hỏi: "Kim An, ngày nào cậu cũng ra ngoài từ sớm tinh mơ, rốt cuộc là đi chơi bời ở đâu thế?"
 
-Thời buổi này, nhiều trường đại học đều có hội đồng hương, do Hội sinh viên hoặc Liên chi hội các câu lạc bộ tổ chức, mang tính chất bán chính thức, cũng có những nhóm đồng hương do sinh viên tự lập ra.
+Cốc Siêu Thừa cũng ngỏng đầu dậy, mặt đầy vẻ hiếu kỳ.
 
-Mục đích là tương trợ lẫn nhau, giúp tân sinh viên thích nghi với môi trường, hỗ trợ sinh hoạt và thúc đẩy giao lưu giữa những người cùng quê.
+Triệu Kim An ra ban công lấy quần áo sạch để chuẩn bị đi tắm, thản nhiên đáp: "Hai cậu không có bạn học cấp ba học ở đây à? Không tụ tập gặp mặt nhau sao?"
 
-Chỉ là dần dà, một số hội đồng hương bắt đầu bị "biến chất".
+Cốc Siêu Thừa chép miệng: "Cả lớp cấp ba của tớ có mỗi mình tớ lên quận Sa học đại học thôi. Trên mạng nội bộ trường có nhóm đồng hương đấy, nhưng toàn người lạ hoắc, lại nhiều anh chị khóa trên nữa nên tớ chẳng muốn tham gia."
 
-"Kim An, cậu đi tìm chị họ à?"
+Thời buổi này, nhiều trường đại học đều thành lập hội đồng hương do Hội sinh viên hoặc Liên hiệp các câu lạc bộ đứng ra tổ chức, mang tính chất nửa chính thức, bên cạnh đó cũng có những nhóm đồng hương do sinh viên tự phát lập nên.
 
-"Đúng rồi Kim An, nhà cậu làm kinh doanh gì thế?"
+Mục đích ban đầu là tương thân tương ái, giúp đỡ các tân sinh viên nhanh chóng hòa nhập với môi trường mới, hỗ trợ đời sống và tăng cường giao lưu đồng hương.
 
-Không biết từ lúc nào, Lưu Sấm Phong và Cốc Siêu Thừa đã xếp Triệu Kim An và Trần Trạch vào cùng một loại người: con nhà giàu, rảnh rỗi sinh nông nổi. Hai người họ đã đoán già đoán non ở ký túc xá suốt buổi.
+Chỉ có điều, càng về sau này, một số hội đồng hương dần dà bị "biến chất" đi ít nhiều.
 
-Triệu Kim An suy nghĩ một chút, nói thật lòng: "Không phải chị họ, là người cùng quê thôi. Nhà tớ cũng không làm kinh doanh."
+"Kim An này, có phải cậu qua chỗ chị họ chơi không?"
 
-"Thật không đấy?"
+"À đúng rồi Kim An, nhà cậu làm kinh doanh mảng gì thế?"
 
-Không ngờ khi nói thật, bọn họ lại chẳng tin.
+Chẳng biết tự lúc nào, Lưu Sấm Phong và Cốc Siêu Thừa đã ngầm xếp Triệu Kim An và Trần Trạch vào cùng một nhóm người: dạng công tử con nhà giàu, rảnh rỗi sinh nông nổi. Mấy ngày nay hai người họ ở phòng đã đoán già đoán non đủ kiểu.
 
-Vệ sinh cá nhân xong xuôi rồi leo lên giường, điều khiến hắn ngạc nhiên là Lâm Thanh Tuyết bỗng nhiên trở nên rất nhiệt tình. Trước đây phải mấy ngày nàng mới nhắn một câu trên QQ: "Có đó không?".
+Triệu Kim An ngẫm nghĩ một thoáng, rồi thật thà nói: "Không phải chị họ đâu, chỉ là người cùng quê thôi. Nhà tớ cũng chẳng buôn bán kinh doanh gì cả."
 
-Thường là vào khoảng 11, 12 giờ đêm, lúc đêm khuya tĩnh lặng.
+"Thôi đi, đừng có đùa!"
 
-Triệu Kim An cũng đã mua máy tính xách tay, hôm nay vừa đăng nhập QQ, ảnh đại diện của "Băng Tâm Tuyết Vận" đã nhảy lên liên tục.
+Ai ngờ khi anh nói thật lòng, hai người họ lại tuyệt nhiên chẳng chịu tin.
 
-Băng Tâm Tuyết Vận: "Có đó không?"
+Tắm rửa sạch sẽ xong xuôi, Triệu Kim An trèo lên giường tầng của mình. Điều khiến anh khá bất ngờ là Lâm Thanh Tuyết bỗng nhiên trở nên vô cùng vồ vập, nhiệt tình. Trước đây phải mất mấy ngày cô nàng mới buông một câu "Cậu có đó không?" cộc lốc trên QQ.
 
-Băng Tâm Tuyết Vận: "Triệu Kim An, tớ cũng không về nhà, Lý Lộ về rồi, tớ ở ký túc xá một mình buồn quá."
+Mà thường là vào khoảng mười một, mười hai giờ đêm muộn, khi không gian đã hoàn toàn chìm vào tĩnh mịch.
 
-Mấy lời mang tính ám chỉ này thì thôi đi, nàng còn gửi tới một tấm ảnh. Chiếc váy ngủ sau khi tắm xong lúc ẩn lúc hiện, Lâm Thanh Tuyết quả thực rất hiểu đàn ông.
+Triệu Kim An cũng mới sắm một chiếc máy tính xách tay. Vừa đăng nhập vào tài khoản QQ, biểu tượng đại diện của nick *Băng Tâm Tuyết Vận* đã nhấp nháy liên hồi không ngớt.
 
-Cái kiểu nửa kín nửa hở này còn khiêu gợi hơn cả việc không mặc gì.
+*Băng Tâm Tuyết Vận*: "Cậu có đó không?"
 
-Dáng người cũng thực sự rất đẹp, làn da trắng ngần, đúng kiểu "có rãnh là nổi".
+*Băng Tâm Tuyết Vận*: "Triệu Kim An, đợt này tớ cũng không về quê nè. Lý Lộ về mất rồi, một mình tớ ở ký túc xá buồn chán chết đi được."
 
-Phải thừa nhận rằng, nhìn thấy tấm ảnh như vậy, lòng Triệu Kim An không dao động nhưng cơ thể của tuổi mười tám tràn đầy huyết khí lại rất thành thật.
+Nếu chỉ là những lời bóng gió mang tính khơi gợi này thì thôi đi, đằng này cô nàng còn tiện tay gửi kèm một tấm ảnh. Trong ảnh, cô diện một chiếc váy ngủ mỏng manh sau khi vừa tắm xong, lấp la lấp lửng những đường cong cơ thể. Lâm Thanh Tuyết quả thực rất hiểu tâm lý đàn ông.
 
-Lúc này Cốc Siêu Thừa nhắc chuyện hôm kia bọn họ gặp Lâm Thanh Tuyết ở trường, Lưu Sấm Phong còn "xuất huyết" nặng khi mời mấy nữ sinh cùng phòng của Lâm Thanh Tuyết đi ăn pizza.
+Cái kiểu nửa kín nửa hở này đôi khi còn có sức cám dỗ chết người hơn cả việc trần như nhộng.
 
-"Hì hì, cái pizza sầu riêng đó vị cũng được phết."
+Dáng người cô nàng quả thực rất chuẩn, làn da trắng ngần mịn màng, vòng một đẫy đà đầy đặn đúng chuẩn "ngực khủng ắt nổi".
 
-Lưu Sấm Phong cười hì hì nói.
+Phải thừa nhận một điều rằng, khi nhìn thấy tấm ảnh bốc lửa như thế này, tâm trí Triệu Kim An không hề xao động, nhưng cơ thể thanh niên mười tám tuổi hừng hực khí huyết thì lại phản ứng vô cùng thành thật.
 
-"Cậu có được ăn miếng nào đâu!?"
+Đúng lúc này, Cốc Siêu Thừa ở giường bên nhắc lại chuyện hôm kia hai người tình cờ chạm mặt Lâm Thanh Tuyết trong khuôn viên trường, Lưu Sấm Phong còn cắn răng "chảy máu túi" bao Lâm Thanh Tuyết cùng mấy cô bạn cùng phòng của cô nàng một bữa pizza ra trò.
 
-Cốc Siêu Thừa hậm hực vung tay ra hiệu: "Chẳng phải đều bị Lâm Thanh Tuyết và mấy cô nàng đó ăn sạch sao, chúng mình chỉ được ăn một miếng pizza phô mai nhỏ, bụng còn chưa kịp dính da."
+"Hê hê, cái món pizza sầu riêng đó ăn ngon phết đấy chứ." Lưu Sấm Phong cười hề hề nhớ lại.
 
-"Hì hì, tại nó đắt quá mà."
+"Cậu có được ăn miếng nào đâu mà to còi!?"
 
-Lưu Sấm Phong bảo mời khách, ý định ban đầu là ra nhà ăn, hôm đó Trần Trạch gọi nhiều món như vậy cũng không tính là quá đắt.
+Cốc Siêu Thừa hậm hực vung tay phân trần: "Chẳng phải toàn bộ đều chui vào bụng đám Lâm Thanh Tuyết hết rồi sao? Bọn mình chỉ được chia cho đúng một mẩu bánh pizza phô mai bé tí tẹo, bụng đói meo cả lũ."
 
-Nhưng Lâm Thanh Tuyết lại bảo muốn ăn pizza.
+"Hê hê, tại nó đắt quá mà."
 
-Mấy người tìm được một tiệm pizza, nhìn thấy giá cả trên đó, Lưu Sấm Phong đã thấy xót tiền rồi, nhưng trước mặt Lâm Thanh Tuyết, hắn vẫn tỏ ra hào phóng gọi ba cái pizza rẻ nhất.
+Lưu Sấm Phong mở miệng bảo mời, ban đầu bụng tính là kéo nhau ra nhà ăn sinh viên, hôm nọ thấy Trần Trạch gọi cả bàn tiệc ê hề món ngon mà tính ra cũng chẳng đáng bao nhiêu tiền.
 
-Lâm Thanh Tuyết lại nũng nịu bảo: "Tớ muốn ăn pizza sầu riêng cơ."
+Ai ngờ Lâm Thanh Tuyết lại nũng nịu đòi đi ăn pizza cho bằng được.
 
-Lưu Sấm Phong đành cắn răng gọi, bản thân lại chẳng dám ăn lấy một miếng, chỉ sợ không đủ lại phải gọi thêm, chẳng lẽ mời khách đi ăn mà mấy cô gái lại ăn không no sao?
+Mấy người dắt díu nhau vào một tiệm bánh pizza, vừa nhìn thấy bảng giá niêm yết trên thực đơn, tim Lưu Sấm Phong đã thắt lại vì xót tiền. Thế nhưng trước mặt Lâm Thanh Tuyết, hắn vẫn cố tỏ ra hào phóng gọi ba chiếc pizza loại rẻ nhất.
 
-Hắn còn giả vờ như mình thường xuyên ăn loại đồ này, thực tế thì bụng vẫn rỗng tuếch.
+Lâm Thanh Tuyết lại nũng nịu cất giọng ngọt xớt: "Em muốn ăn pizza sầu riêng cơ."
 
-Với sức ăn của Lưu Sấm Phong, một mình hắn có thể đánh chén hết hai cái.
+Lưu Sấm Phong đành phải cắn răng bấm bụng gọi thêm, nhưng bản thân thì chẳng dám đụng đũa lấy một miếng, chỉ sợ không đủ phần cho các nàng rồi lại phải gọi thêm thì toi đời. Chẳng lẽ mời người ta đi ăn mà lại để mấy cô gái ăn không đủ no?
 
-Chưa dừng lại ở đó.
+Hắn còn phải làm bộ làm tịch như thể mình thường xuyên lui tới những nơi sang chảnh này để thưởng thức, trong khi thực tế bụng dạ đang réo ùng ục vì đói.
 
-Lâm Thanh Tuyết bảo muốn uống trà sữa, nhưng chính mình lại không đi mua.
+Với sức ăn như hạm của Lưu Sấm Phong, một mình hắn có thể xơi tái hai cái bánh lớn ngon ơ.
 
-Lưu Sấm Phong thế là lại phải đi mua mấy cốc trà sữa, tổng cộng hết 120 tệ. Giờ mới thấy xót của, hắn nói: "Lão Cốc, tớ mời cậu ăn ngon rồi, mai cậu phải mời lại tớ đấy."
+Đó vẫn chưa phải là tất cả.
 
-"Xì, tớ đã được ăn no đâu!"
+Lâm Thanh Tuyết lại bảo khát nước muốn uống trà sữa, nhưng bản thân tuyệt nhiên không chịu rút tiền ra mua.
 
-Cốc Siêu Thừa trở mình trên giường hỏi: "Cậu đang nhắn tin với Lâm Thanh Tuyết à?"
+Lưu Sấm Phong đành lục tục chạy đi mua thêm mấy ly trà sữa, tổng cộng cả bữa tiêu tốn hết một trăm hai mươi tệ. Giờ nghĩ lại mới thấy thốn tận rốn, hắn quay sang bảo: "Lão Cốc này, hôm nay tớ đãi cậu một bữa thịnh soạn rồi đấy nhé, ngày mai đến lượt cậu bao tớ đấy."
 
-"Không có, cô ấy bảo đi tắm rồi, bảo hôm nay đi mua sắm mệt quá nên muốn đi ngủ sớm."
+"Mẹ kiếp, tao đã được ăn no đâu mà thịnh soạn!"
 
-Lưu Sấm Phong cầm điện thoại, vẻ mặt cười ngây ngô như đang yêu.
+Cốc Siêu Thừa trở mình trên giường, tò mò hỏi: "Mày đang nhắn tin với Lâm Thanh Tuyết đấy à?"
 
-"Cô ấy ngày nào cũng ngủ khá sớm, bảo là đã tạo thành thói quen rồi."
+"Không, cô ấy bảo đi tắm rồi, hôm nay đi lượn phố mệt nên muốn ngủ sớm."
 
-Nói đoạn, Lưu Sấm Phong lại trở mình, đổi giọng nói: "Tớ bảo cô ấy gửi cho tấm ảnh sau khi tắm xong, cô ấy bảo con gái không tiện. Này lão Cốc, cậu nói xem Lâm Thanh Tuyết có phải là một cô gái tốt không?"
+Lưu Sấm Phong giơ cao chiếc điện thoại, trên mặt nở nụ cười ngây ngô hệt như một kẻ đang chìm đắm trong tình yêu sét đánh.
 
-"Cô ấy cũng khá giữ mình đấy chứ nhỉ?"
+"Ngày nào cô ấy cũng đi ngủ sớm thế đấy, bảo là giữ thói quen sinh hoạt lành mạnh."
 
-Triệu Kim An liếc nhìn thời gian trên khung đối thoại. Ừm, là đi tắm thật, Lâm Thanh Tuyết không nói dối, mặc bộ váy ngủ như thế đúng là không tiện chụp ảnh, quả là một cô gái tốt.
+Nói đoạn, Lưu Sấm Phong lại xoay người, đổi sang một tông giọng đầy vẻ ngưỡng mộ: "Tao bảo cô ấy gửi cho một tấm ảnh sau khi tắm xong, cô ấy bảo con gái con lứa ai lại làm thế, không tiện... Hầy, lão Cốc mày xem, Lâm Thanh Tuyết đúng là một cô gái ngoan nhỉ?"
 
-Cốc Siêu Thừa không biết trả lời thế nào, không thể nói chỉ vì ăn một cái pizza mà không phải gái ngoan được?
+"Cô ấy biết giữ mình phết đấy chứ?"
 
-"Cậu mới theo đuổi người ta, người ta làm sao gửi cho cậu loại ảnh đó được."
+Triệu Kim An liếc nhìn mốc thời gian trên khung chat QQ vừa nhận được... Ừm, đúng là vừa tắm xong thật, Lâm Thanh Tuyết không hề nói dối. Mặc một chiếc váy ngủ mỏng tang như thế này thì quả thực là không tiện chụp ảnh gửi cho Lưu Sấm Phong xem rồi, đúng là một cô gái "rất ngoan".
 
-Cốc Siêu Thừa đưa ra nhận định của mình.
+Cốc Siêu Thừa nhất thời không biết phải trả lời sao cho phải, chẳng lẽ chỉ vì ăn chực một bữa pizza mà bảo người ta không phải gái ngoan?
 
-"Kim An, cậu nói xem Lâm Thanh Tuyết có phải là gái ngoan không?"
+"Mày mới đang trong giai đoạn cưa cẩm người ta thôi, đời nào người ta lại đi gửi mấy tấm ảnh nhạy cảm như thế cho mày xem." Cốc Siêu Thừa đưa ra nhận định của riêng mình.
 
-Lưu Sấm Phong đột nhiên lại xoay người hỏi Triệu Kim An.
+"Kim An, cậu thấy Lâm Thanh Tuyết có phải là cô gái ngoan không?"
 
-Triệu Kim An cũng không biết trả lời sao, nếu bảo không phải, biết đâu Lưu Sấm Phong lại quay lưng nói với Lâm Thanh Tuyết ngay. Hắn nhìn tấm ảnh lả lướt của Lâm Thanh Tuyết, đáp: "Rất xinh đẹp."
+Lưu Sấm Phong bỗng nhiên lại quay ngoắt người sang hướng giường Triệu Kim An gặng hỏi.
 
-Đây là lời nói thật.
+Triệu Kim An cũng chẳng biết phải trả lời thế nào cho đặng. Nếu bảo không phải, khéo Lưu Sấm Phong quay lưng lại đem nguyên văn lời đó đi mách lẻo với Lâm Thanh Tuyết ngay. Anh đưa mắt nhìn tấm ảnh đầy vẻ khêu gợi của Lâm Thanh Tuyết trên màn hình laptop, thản nhiên đáp một câu: "Khá xinh đẹp."
 
-Lâm Thanh Tuyết khi cười có hai lúm đồng tiền, vừa thuần khiết vừa gợi tình, là hoa khôi được nam sinh lớp Kế toán 1 công nhận.
+Đó là lời nói thật lòng.
 
-Với vóc dáng này, cũng không thể nói là không đẹp được.
+Lâm Thanh Tuyết mỗi khi cười đều để lộ hai lúm đồng tiền duyên dáng, vừa ngây thơ thuần khiết lại vừa gợi cảm phong tình, được đám con trai lớp Kế toán 1 công nhận là hoa khôi của lớp.
 
-"Hì hì."
+Với vóc dáng nóng bỏng thế kia thì quả thực không thể phủ nhận là cô ta rất đẹp.
 
-Lưu Sấm Phong ôm điện thoại cười ngớ ngẩn vài tiếng. Hắn cũng tìm Thẩm Tử Ngôn để trò chuyện, nhưng Thẩm Tử Ngôn lại quá lạnh lùng.
+"Hê hê."
+
+Lưu Sấm Phong ôm chặt chiếc điện thoại vào lòng, cười ngây ngô thêm vài tiếng. Hắn cũng từng thử nhắn tin bắt chuyện với Thẩm Tử Ngôn, nhưng thái độ của Thẩm Tử Ngôn lại quá đỗi lạnh nhạt, xa cách...

@@ -1,231 +1,225 @@
-# Chương 39: Lan Lan, Chú Của Cậu Lạc Mất Rồi
+# Chương 39: Lan Lan, chú mày lạc rồi kìa!
 
-"Chào đàn em, mình tên Chu Sở Hân, là bạn cùng phòng với Lan Lan."
+> **Tiêu đề gốc**: 第39章 兰兰，你叔丢了！
 
-Chu Sở Hân mỉm cười rạng rỡ, cố ý đưa tay ra muốn bắt tay.
+"Chào em khóa dưới nhé, chị tên là Chu Sở Hân, là bạn cùng phòng của Lan Lan."
 
-Triệu Kim An do dự vài giây, khẽ bắt một cái rồi buông ra ngay.
+Chu Sở Hân nở nụ cười tươi như hoa mùa xuân, cố ý chìa bàn tay nhỏ nhắn ra đòi bắt tay.
 
-"Chào đàn chị, cảm ơn chị."
+Triệu Kim An chần chừ mất vài giây, rồi khẽ nắm hờ lấy những đầu ngón tay của cô nàng rồi buông ra ngay: "Chào chị khóa trên, cảm ơn chị nhiều."
 
-"... Hiểu lễ nghĩa thế sao? Ha ha ha, trông ngoan quá đi mất."
+"...Sao mà lễ phép thế này? Ha ha ha, trông ngoan ngoãn đáng yêu ghê cơ!"
 
-Chu Sở Hân giống như vừa phát hiện ra điều gì đó thú vị. Triệu Bác Lan liếc nàng một cái, hơi cạn lời, nhìn biểu cảm là biết trong lòng cô bạn cùng phòng đang nghĩ gì.
+Chu Sở Hân như vừa phát hiện ra một món đồ chơi vô cùng thú vị. Triệu Bác Lan liếc xéo cô bạn một cái, trong lòng đầy vẻ bất lực; chỉ cần nhìn cái điệu bộ kia là cô thừa biết trong đầu con bạn thân đang vẽ ra những trò nhảm nhí gì.
 
-Nhưng Triệu Kim An đúng là vừa đẹp trai vừa ngoan, nổi tiếng ngoan ngoãn hiểu chuyện khắp cả làng, điều này Triệu Bác Lan cũng có nghe qua.
+Nhưng công nhận Triệu Kim An vừa điển trai lại vừa ngoan ngoãn thật. Tiếng tăm là đứa trẻ hiểu chuyện, nghe lời người lớn đã nổi khắp đầu làng cuối xóm từ lâu, điều này Triệu Bác Lan nắm rất rõ.
 
-"Chao ôi, thế này thì dễ bị người ta 'ăn hiếp' lắm, nếu mà gặp phải trà xanh thì..."
+"Haizz, tính cách thế này dễ bị người ta bắt nạt lắm đây, sau này mà va phải mấy ả 'trà xanh' thì khốn..."
 
-Triệu Kim An cao 1m81, nhưng lại mang đến cho người ta cảm giác như vậy, thật là kỳ lạ. Triệu Bác Lan nhìn thời gian rồi giục: "Kim An, đồ đạc mang đủ hết chưa?"
+Triệu Kim An sở hữu chiều cao mét tám mươi mốt, ấy vậy mà dáng vẻ lại toát ra sự mềm mỏng, an phận đến kỳ lạ. Triệu Bác Lan nhìn đồng hồ rồi sốt ruột giục giã: "Kim An, em mang đầy đủ giấy tờ tùy thân chưa?"
 
-"Sắp đến giờ nghỉ trưa rồi, chúng ta mau đi nộp học phí thôi, thím của em đã gọi mấy cuộc điện thoại rồi đấy."
+"Sắp đến giờ cán bộ nghỉ làm rồi, chúng ta mau đi nộp học phí thôi, thím ở nhà đã gọi điện giục mấy lần rồi đấy."
 
-"Đúng đúng đúng, nộp học phí xong đàn chị sẽ mời em đi ăn."
+"Đúng đúng đúng, nộp xong học phí đi rồi chị khóa trên đây bao em ăn cơm ngon nhé!"
 
-......
+...
 
-Lúc này đang là tháng chín, những tháng nóng nực nhất, cũng là mùa khai giảng.
+Thời điểm này đang là tháng Chín — quãng thời gian oi nồng nhất trong năm, lại đúng vào đợt tựu trường đông nghẹt.
 
-Các trường đại học ở khu đại học Quận Sa không có tường bao, thậm chí một số trường còn không có cổng trường theo đúng nghĩa đen, không có cảnh quan khuôn viên lung linh huyền ảo như trong phim.
+Các trường đại học trong làng đại học Quận Sa vốn không xây tường bao khép kín, thậm chí một số trường còn chẳng có cổng trường theo đúng nghĩa đen, hoàn toàn không có những khung cảnh khuôn viên thơ mộng, lãng mạn như trong các bộ phim truyền hình thanh xuân.
 
-Ngược lại, hơi thở xã hội và không khí thương mại ở đây rất nồng đậm.
+Ngược lại, nơi đây đậm đặc hơi thở xô bồ của xã hội và không khí thương mại sầm uất.
 
-Đặc biệt là đường Lộ Sơn Nam.
+Đặc biệt là trục đường Lộc Sơn Nam.
 
-Hai bên đường là đủ loại cửa hàng quần áo, tiệm trà sữa, quán ăn vặt, và cả những quán nét cực kỳ kiếm tiền thời bấy giờ.
+Hai bên mặt đường san sát các cửa hàng quần áo thời trang, quán trà sữa, quầy ăn vặt đủ loại, cùng với những phòng net đang vào thời kỳ hốt bạc như nước.
 
-Nghe nói để làm được một tờ giấy phép kinh doanh, loại như chứng nhận mở quán nét, cái giá lên tới 800.000 tệ.
+Nghe đồn thời bấy giờ, để làm được một tờ giấy phép kinh doanh mở quán net như vậy, người ta phải bỏ ra cái giá ngót nghét tám mươi vạn tệ.
 
-Mà còn phải có quan hệ, có cửa nẻo mới làm được.
+Đã thế còn phải có ô dù, có quan hệ luồn lách đủ đường mới xin nổi.
 
-Kiếp trước Triệu Kim An thường xuyên đến đây, nhưng không phải với tư cách người tiêu dùng, mà là đi làm thêm.
+Ở kiếp trước, Triệu Kim An thường xuyên lui tới con đường này, nhưng tuyệt nhiên không phải với tư cách của một khách hàng đến tiêu tiền, mà là một kẻ làm thuê chạy vạy khắp nơi.
 
-Còn có một con phố "Đọa Lạc" rất nổi tiếng. Nổi tiếng đến mức nào? Đám học sinh lớp 209 kia còn chưa đến Quận Sa báo danh đã bắt đầu bàn tán, hẹn nhau tới đó chơi.
+Gần đó còn có một con phố vô cùng nổi tiếng mang tên "Đọa Lạc Nhai" (Phố Trụy Lạc). Nó nổi danh đến mức nào ư? Ngay cả đám học sinh lớp 209 trước khi lên Quận Sa nhập học đã râm ran bàn tán, rủ rê nhau phải đến đó quẩy một bữa cho biết mùi đời.
 
-Chỉ là Triệu Kim An rất ít khi đi, bởi vì Mộc Dao thường xuyên cùng bạn học đến đó chơi.
+Chỉ có điều Triệu Kim An rất hiếm khi đặt chân tới đó, bởi lẽ Mộc Dao thường xuyên cùng bạn bè kéo nhau đến tụ tập ăn chơi.
 
-Có hai "cựu binh" là Triệu Bác Lan và Chu Sở Hân dẫn đường cộng thêm hỗ trợ bên cạnh, Triệu Kim An nhanh chóng làm xong thủ tục báo danh, nộp tiền xong là thấy yên tâm hẳn.
+Có hai "bà chị già" năm ba là Triệu Bác Lan và Chu Sở Hân dẫn đường chỉ lối kiêm hỗ trợ mọi thủ tục, Triệu Kim An nhanh chóng hoàn tất toàn bộ quy trình nhập học. Tiền học phí nộp xong xuôi vào tài khoản nhà trường, ai nấy đều thở phào nhẹ nhõm.
 
-Triệu Bác Lan gọi điện về nhà xem như đã hoàn thành nhiệm vụ.
+Triệu Bác Lan gọi điện về quê báo cáo xem như đã hoàn thành xuất sắc nhiệm vụ được giao.
 
-Nàng đi ra xa vài bước, bịt lấy điện thoại nói rất nhỏ.
+Cô nàng bước sang một góc vắng, lấy tay che miệng nói nhỏ vào ống nghe:
 
-"Chú với chả không chú cái gì, có phải ở trong làng đâu, được rồi được rồi, con biết rồi mà..."
+"Chú với bác cái gì chứ, có phải ở trong làng đâu ạ... Vâng vâng, con biết rồi, mẹ dặn mãi..."
 
-Ở trong làng thì không sao, nhưng ra ngoài rồi, hẳn là bố mẹ nàng dặn Triệu Bác Lan phải chăm sóc tốt cho Triệu Kim An mới chân ướt chân ráo đến đây.
+Ở trong làng thì xưng hô theo tôn ti trật tự không sao, nhưng ra chốn phồn hoa đô hội, chắc hẳn bố mẹ cô ở nhà cũng đã căn dặn kỹ lưỡng rằng phải hết lòng nâng đỡ, giúp đỡ đứa cháu họ lần đầu xa nhà này.
 
-Triệu Kim An cũng gọi điện cho Vương Kim Như. Bà nội không có điện thoại, nghe giọng thì có vẻ Vương Kim Như và bà nội đều đang ở nhà Triệu Bác Lan.
+Triệu Kim An cũng bấm máy gọi về cho thím Vương Kim Như. Bà nội không dùng điện thoại di động, nghe tiếng vọng trong ống nghe thì hình như cả thím lẫn bà nội đều đang ngồi đợi tin ở bên nhà Triệu Bác Lan.
 
-Cúp máy nghĩ một lát, hắn lại gửi cho Đoạn Thu Bình một tin nhắn ngắn.
+Cúp máy xong, cậu ngẫm nghĩ một thoáng rồi soạn một tin nhắn ngắn gửi cho Đoàn Thu Bình.
 
-Chỉ có sáu chữ: Đến rồi, đã nộp học phí.
+Vỏn vẹn chỉ có sáu chữ: *Đã đến nơi, đã nộp học phí.*
 
-"Này Lan Lan, mình muốn làm thím của cậu."
+"Này Lan Lan, tớ quyết định rồi, tớ muốn làm thím của cậu!"
 
-"Cậu muốn chết à!"
+"Cậu muốn chết à?!"
 
-"Hi hi, nhan sắc này đúng gu mình quá, thật muốn nuôi quá đi."
+"Hì hì, nhan sắc này đúng gu tớ mê mẩn luôn á, chỉ muốn mang về nuôi nhốt trong lồng thôi!"
 
-"Cậu nhỏ tiếng chút cho mình nhờ!"
+"Cậu làm ơn nói nhỏ cái mồm lại giùm tớ!"
 
-"Nhìn xem, tỷ lệ quay đầu nhìn chú của cậu cao thật đấy."
+"Nhìn kìa nhìn kìa, chú của cậu đi trên đường mà tỉ lệ người ta quay đầu lại ngắm cao ngút ngàn luôn kìa!"
 
-Triệu Bác Lan thật sự muốn tìm cái lỗ nào đó để chui xuống, nàng hơi hối hận vì đã dắt theo Chu Sở Hân, thật là mất mặt quá.
+Triệu Bác Lan ngượng chín mặt chỉ muốn tìm ngay một cái lỗ nẻ nào đó để chui xuống. Cô bắt đầu thấy hối hận vì đã lôi cái con bạn mê trai này đi cùng, đúng là mất mặt không để đâu cho hết.
 
-Nhưng Triệu Bác Lan cũng không ngờ Triệu Kim An, người trước đây thường xuyên cùng đi học, lại thay đổi lớn như vậy. Mùa hè này gặp Triệu Kim An ở cửa nhà, thật sự khiến người ta phải sáng mắt lên.
+Thế nhưng Triệu Bác Lan cũng không thể ngờ được rằng, cậu nhóc Triệu Kim An ngày xưa hay lẵng nhẵng đi học cùng mình lại có sự thay đổi ngoạn mục đến nhường này. Hồi hè vừa rồi nhìn thấy cậu đứng trước cổng nhà, cô đã thực sự bị ấn tượng mạnh.
 
-Không phải người ta hay nói con gái mười tám đổi thay sao?
+Chẳng phải người ta vẫn bảo "con gái mười tám tuổi thay da đổi thịt" sao?
 
-Đây vẫn là cái tên Triệu Kim An gầy như khỉ, đeo cặp sách lẽo đẽo đi sau mông mình hồi đó ư?
+Đây thật sự là cái thằng nhóc gầy gò ốm đói như con khỉ còi, ngày nào cũng đeo chiếc cặp sách cũ mèm lẽo đẽo đi sau mông mình hồi trước đấy ư?
 
-Ấn tượng của Triệu Bác Lan về Triệu Kim An trước mùa hè này vẫn còn dừng lại ở năm lớp sáu tiểu học.
+Ấn tượng của Triệu Bác Lan về Triệu Kim An, trước mùa hè năm nay, vẫn còn dừng lại ở những năm tháng học lớp sáu trường làng.
 
-Khu đại học có quá nhiều nữ sinh xinh đẹp, Sư Đại còn có học viện Mỹ thuật và học viện Âm nhạc.
+Khu làng đại học này có bạt ngàn các nữ sinh viên xinh đẹp, Đại học Sư phạm lại có hẳn cả Học viện Mỹ thuật và Học viện Âm nhạc.
 
-Hai học viện này là nơi "sản sinh" ra mỹ nữ.
+Hai viện này vốn nổi tiếng là cái nôi sản sinh ra toàn mỹ nhân.
 
-Họ mặc quần đùi, lộ ra đôi chân dài trắng bóc, những cô nàng bạo dạn hơn thì mặc áo hai dây, để lộ vòng eo thon gọn và bờ vai trắng nõn.
+Các cô gái xúng xính trong những chiếc quần soóc ngắn cũn cỡn khoe đôi chân dài miên man trắng muốt; những cô nàng bạo dạn hơn thì diện hẳn áo hai dây croptop, để lộ vòng eo con kiến thon thả cùng bờ vai trần nõn nà như tuyết.
 
-Tóm lại, khắp nơi đều tràn ngập hơi thở thanh xuân.
+Khắp nơi đều ngập tràn hơi thở thanh xuân phơi phới, rực rỡ và căng tràn sức sống.
 
-Kẻ không hiểu phong tình như Triệu Kim An suốt dọc đường cứ cúi đầu nhắn tin, mắt không nhìn liếc đi đâu.
+Thế nhưng gã Triệu Kim An "chẳng hiểu phong tình" kia suốt dọc đường chỉ cắm cúi bấm điện thoại, mắt nhìn thẳng phía trước chứ chẳng buồn liếc ngang liếc dọc lấy một lần.
 
-Hắn lần lượt trả lời tin nhắn của Doãn Hiểu Lan và Triệu Chí Dũng, còn có Du Phỉ cũng gửi lại một tin. Vương Kim Như không chơi nhắn tin.
+Cậu kiên nhẫn nhắn tin trả lời từng người một: từ chị dâu Doãn Hiểu Lan, Triệu Trí Dũng, cho tới Du Phỉ. Thím Vương Kim Như thì không biết xài tin nhắn, có lẽ thím không biết chữ điện tử, dù sao từ trước đến nay cậu cũng chưa từng thấy thím nhắn tin bao giờ.
 
-Có lẽ thím không biết dùng, dù sao hắn cũng chưa thấy bao giờ.
+"Lan Lan này, chú của cậu không phải thuộc dạng 'ngoài mặt giả vờ đứng đắn nhưng bên trong ngấm ngầm' đấy chứ?"
 
-"Lan Lan, chú của cậu không phải là dạng ngầm dâm đãng (munsou) đấy chứ?"
+"Cái gì cơ?"
 
-"Cái gì?"
+"Cậu xem, cậu ấy cứ lủi thủi đi sau một mình... cắm đầu bấm điện thoại, chẳng thèm nhìn tớ, mà cũng chẳng thèm liếc trộm mấy bạn nữ xung quanh lấy một cái."
 
-"Cậu ấy cứ đi một mình ở phía sau... cúi đầu nghịch điện thoại, không nhìn mình, cũng không nhìn trộm các nữ sinh khác."
+Chu Sở Hân cúi đầu nhìn lại bản thân: "Chân tớ không dài à? Da tớ không trắng à? Dáng tớ không đẹp à? Thế mà cậu ấy chẳng thèm nhìn trộm một cái nào luôn kìa."
 
-Chu Sở Hân cúi đầu nhìn một cái: "Chân mình không dài sao? Không trắng sao? Không đẹp sao? Cậu ấy thật sự không thèm nhìn trộm kìa."
+Triệu Bác Lan ngoái đầu nhìn lại một cái: "Nó từ nhỏ đã thế rồi, trầm tính... chẳng mấy khi chịu mở miệng nói chuyện đâu."
 
-Triệu Bác Lan quay đầu nhìn một cái: "Em ấy vẫn luôn như vậy, yên tĩnh... ít lời."
+"Thế à~~ Hì hì, thế thì tớ lại càng thích hơn rồi đấy!"
 
-"Thế à~~ hì hì, mình lại càng thích hơn rồi đấy."
+"Tớ chịu thua cậu luôn rồi đấy! Chúng mình là các chị đại sinh viên năm ba rồi, cậu bớt cái thói mê trai lại giùm tớ được không?!"
 
-"Mình chịu cậu luôn rồi, chúng ta là đàn chị năm ba rồi đấy, cậu đừng có mê trai như thế được không!"
+"À mà này, cậu ấy đi theo sau có bị lạc không đấy?"
 
-"Đúng rồi, cậu ấy không bị lạc chứ?"
+"Tớ..."
 
-"Mình..."
+Triệu Bác Lan hít sâu một hơi, vẻ mặt như muốn buông xuôi tất cả: "Không lạc được đâu, nó có phải con nít lên ba đâu... Tính nó trước giờ vẫn lầm lì như thế."
 
-Triệu Bác Lan hít sâu một hơi, vẻ mặt sống không bằng chết: "Không lạc được đâu, em ấy đâu phải đứa trẻ lên ba... em ấy luôn như vậy mà."
+"Chao ôi... Không được rồi, tớ càng ngày càng muốn mang về nuôi nhốt thôi!"
 
-"Chụt chụt chụt, không được, mình càng muốn nuôi quá đi mất."
+"Nuôi nhốt cái gì mà nuôi nhốt?"
 
-"Nuôi cái gì mà nuôi?"
+"Ừm..."
 
-"Hửm——"
-
-Chu Sở Hân nghiêng đầu suy nghĩ một chút: "Nuôi nhốt ấy, không cho ai xem hết, thỉnh thoảng mới dắt ra ngoài đi dạo thôi."
+Chu Sở Hân nghiêng đầu ngẫm nghĩ: "Thì nuôi nhốt riêng một chỗ, giấu kín không cho ai nhìn thấy, thỉnh thoảng mới dắt ra ngoài đi dạo một vòng!"
 
 Triệu Bác Lan: "..."
 
-"Cậu đừng có như vậy, em ấy... em ấy hơi đáng thương. Hồi tiểu học bố bị tai nạn xe máy mất, mẹ lại tái giá, chỉ còn mỗi bà nội... đừng có đùa như thế."
+"Cậu đừng có đùa bậy bạ như thế! Cậu ấy... hoàn cảnh đáng thương lắm. Hồi học tiểu học thì bố mất vì tai nạn xe máy, mẹ sau đó cũng đi lấy chồng khác, chỉ sống thui thủi với mỗi bà nội già... Đừng có lấy chuyện đó ra làm trò đùa."
 
-"A... vậy sao, mình xin lỗi nhé."
+"A... Thế à... Tớ xin lỗi nhé."
 
-Chu Sở Hân cũng thấy từ "nuôi nhốt" hơi quá đáng, có chút xúc phạm người khác.
+Chu Sở Hân cũng nhận ra từ "nuôi nhốt" mình vừa buột miệng nói ra có phần quá trớn và xúc phạm đến người khác.
 
-Đang đi, đi ngang qua một sạp tình nguyện viên, Triệu Bác Lan và Chu Sở Hân bỗng cảm thấy phía sau thiếu mất cái "đuôi".
+Vừa đi được một đoạn, ngang qua một dãy bàn của các tình nguyện viên, Triệu Bác Lan và Chu Sở Hân bỗng cảm thấy cái "cái đuôi nhỏ" lẵng nhẵng theo sau mình tự dưng biến đâu mất tăm.
 
-Còn bảo là không lạc!?
+Vừa mới mạnh mồm bảo không lạc xong cơ mà?!
 
-"Lan Lan, chú của cậu lạc mất rồi!"
+"Lan Lan ơi, chú mày bị lạc mất rồi kìa!"
 
-"Chưa bao giờ lạc cơ mà."
+"Từ bé đến lớn có bao giờ nó bị lạc đâu chứ!"
 
-Mùa khai giảng, khu đại học thật sự quá đông người.
+Vào mùa khai giảng, làng đại học đông như nêm cối.
 
-Hai người nhìn quanh quất rồi quay lại tìm, đi được mấy bước thì thấy Triệu Kim An trước một cái sạp.
+Hai cô nàng dáo dác nhìn quanh rồi vội vàng quay ngược trở lại tìm kiếm. Đi được vài bước, họ liền trông thấy Triệu Kim An đang đứng trước một bàn tình nguyện viên.
 
-Triệu Kim An đang bị một nữ tình nguyện viên kéo lại, cô gái mặc một chiếc áo vest đỏ, trên áo có in logo "M-Zone".
+Triệu Kim An đang bị một nữ tình nguyện viên giữ lại. Cô gái mặc chiếc áo gile màu đỏ có in logo "Động Cảm Địa Đái" (M-Zone của nhà mạng China Mobile).
 
-Cô nàng thấy Triệu Kim An đeo ba lô cúi đầu nghịch điện thoại, liền hỏi có phải người bản địa không.
+Trông thấy Triệu Kim An một mình đeo ba lô cúi đầu bấm điện thoại, cô nàng liền đon đả hỏi cậu có phải người địa phương không.
 
-Triệu Kim An trả lời không phải.
+Triệu Kim An đáp không phải.
 
-Nữ tình nguyện viên lập tức phấn chấn hẳn lên, hỏi hắn có muốn làm thẻ điện thoại không, nói: "Cước phí ở đây đắt lắm, nếu cậu không dùng thẻ Quận Sa thì sẽ bị tính phí chuyển vùng."
+Đôi mắt cô tình nguyện viên lập tức sáng rực lên, vội vã chèo kéo cậu làm thẻ sim điện thoại mới, miệng liến thoắng: "Cước phí ở đây đắt lắm em ơi, dùng sim ngoại tỉnh lên Quận Sa là bị tính cước chuyển vùng đắt đỏ lắm đấy."
 
-Cô nàng còn lấy ra một chiếc điện thoại có ngoại hình khá đẹp, hơi giống loại điện thoại kèm hợp đồng sau này, nói: "Chỉ cần làm thẻ ở đây nộp 500 tệ là được tặng miễn phí một chiếc điện thoại như thế này."
+Cô ta còn rút ra một chiếc điện thoại di động có kiểu dáng khá bắt mắt — na ná như loại máy kèm gói cước sau này — rồi đon đả mồi chài: "Chỉ cần đăng ký làm sim ở đây và nạp trước năm trăm tệ là được tặng miễn phí luôn chiếc điện thoại xịn sò này nhé."
 
-"Hơn nữa 500 tệ đó là tiền điện thoại, coi như điện thoại là tặng không, bên trong còn có các gói cước, mỗi tháng có 1GB lưu lượng miễn phí."
+"Đã thế năm trăm tệ này đều là tiền cước trong tài khoản, coi như điện thoại được tặng không, bên trong còn tích hợp sẵn gói cước ưu đãi, mỗi tháng được miễn phí hẳn 1GB dung lượng data tốc độ cao nữa đấy!"
 
-Đúng lúc này, Triệu Bác Lan và Chu Sở Hân chen vào. Chu Sở Hân thay Triệu Kim An từ chối cô gái kia, nói chỉ cần làm một chiếc thẻ "M-Zone" là được rồi.
+Đúng lúc này, Triệu Bác Lan và Chu Sở Hân kịp thời chen vào. Chu Sở Hân lập tức lên tiếng từ chối khéo cô gái kia giùm Triệu Kim An, bảo rằng chỉ cần đăng ký một chiếc sim sinh viên "M-Zone" thông thường là đủ rồi.
 
-Ngay sau đó, nàng lại thay Triệu Kim An chọn gói cước.
+Ngay sau đó, cô nàng liền thoăn thoắt chọn giúp Triệu Kim An một gói cước tiết kiệm và phù hợp nhất.
 
-Cô gái kia có chút tiếc nuối, Triệu Kim An không có bố mẹ đi cùng, nhìn qua là thấy rất dễ lừa, thế là lại hụt mất một chiếc điện thoại.
+Cô tình nguyện viên tỏ vẻ hơi tiếc nuối. Thấy Triệu Kim An đi một mình không có phụ huynh kèm cặp, ngỡ đâu vớ được một "chú cừu non" dễ dụ, ai ngờ lại hụt mất cơ hội bán kèm một chiếc điện thoại.
 
-Chỉ làm thẻ điện thoại thì hoa hồng không cao.
+Bởi vì nếu chỉ bán mỗi chiếc sim không thì tiền hoa hồng chẳng đáng là bao.
 
-Thậm chí không cần quảng cáo rầm rộ.
+Thực ra cũng chẳng cần phải ra sức tiếp thị làm gì cho mệt.
 
-Bởi vì phí chuyển vùng hiện nay rất đắt, phí bạn chủ động gọi điện = phí chuyển vùng (0.6 tệ/phút) + phí đường dài, thậm chí nghe điện thoại cũng mất 4 hào một phút.
+Bởi vì vào năm 2006, cước phí chuyển vùng ngoại tỉnh cực kỳ đắt đỏ: cước gọi đi bằng cước chuyển vùng (0.6 tệ/phút) cộng thêm cước gọi đường dài, ngay cả việc nghe máy thôi cũng bị trừ đứt bốn hào một phút.
 
-Cho nên, tân sinh viên ngoại tỉnh đến đại học hầu như đều sẽ thay thẻ điện thoại.
+Chính vì thế, bất kỳ tân sinh viên ngoại tỉnh nào khi đặt chân đến trường đại học cũng đều bắt buộc phải đổi sang sim nội tỉnh.
 
-Chu Sở Hân cầm lấy thẻ, tháo nắp pin điện thoại của Triệu Kim An, lắp thẻ vào rồi lưu số điện thoại của mình, cả bộ động tác vô cùng lưu loát.
+Chu Sở Hân cầm lấy chiếc sim mới, thuần thục cạy nắp lưng tháo pin điện thoại của Triệu Kim An ra, lắp sim mới vào rồi tiện tay lưu luôn số điện thoại của mình vào danh bạ. Toàn bộ chuỗi động tác diễn ra mượt mà, lưu loát như nước chảy mây trôi.
 
-"Kim An, em đừng có để người ta nói gì là nghe nấy, phải biết từ chối."
+"Kim An, người ta nói cái gì em cũng đừng có gật đầu bừa bãi, phải biết cách từ chối chứ." Triệu Bác Lan đứng bên cạnh cất giọng nhắc nhở, chỉ bảo như một người chị đi trước.
 
-Triệu Bác Lan đứng bên cạnh dạy bảo.
+"Em biết rồi."
 
-"Em biết mà."
+Triệu Kim An dĩ nhiên là biết, thậm chí cái gì cậu cũng nắm rõ như lòng bàn tay. Bởi lẽ ở kiếp trước, chính cậu cũng từng mặc chiếc áo gile đỏ này đi làm tình nguyện viên đứng chèo kéo bán sim M-Zone khắp các ngõ ngách.
 
-Triệu Kim An đương nhiên biết, cái gì hắn cũng biết, bởi vì kiếp trước hắn từng làm tình nguyện viên như thế này, đi quảng cáo thẻ điện thoại M-Zone.
+"Biết rồi, biết rồi, em thì biết cái gì cơ chứ!"
 
-"Biết, biết, em biết cái gì?"
+Chu Sở Hân bĩu môi hờn dỗi: "Cái loại điện thoại khuyến mãi đó dùng lởm lắm, năm trăm tệ tiền cước thì bị gài bẫy đủ thứ điều khoản ràng buộc này nọ, tiền của em..."
 
-Chu Sở Hân bĩu môi: "Cái điện thoại kia dùng chẳng ra sao, 500 tệ tiền điện thoại còn không biết là tiền gì, hạn chế này quy định nọ, tiền của em..."
+Chu Sở Hân thực sự đã nhập tâm vào vai diễn "người chị bảo vệ em trai" mất rồi.
 
-Chu Sở Hân nhập tâm rồi.
+Sau khi nghe Triệu Bác Lan kể về hoàn cảnh gia đình của Triệu Kim An, trái tim thiếu nữ của Chu Sở Hân bỗng dâng trào một cảm giác muốn che chở, bao bọc mãnh liệt.
 
-Từ miệng Triệu Bác Lan biết được gia cảnh của Triệu Kim An, trái tim thiếu nữ mang tâm lý "chị gái bảo vệ em trai" của Chu Sở Hân nổ tung.
+Năm trăm tệ đấy! Các người nhẫn tâm đi lừa gạt năm trăm tệ mồ hôi nước mắt của một đứa trẻ mồ côi như Triệu Kim An, lương tâm các người không thấy cắn rứt sao?!
 
-500 tệ đấy, các người lừa Triệu Kim An 500 tệ, lương tâm không thấy cắn rứt sao?
+Chỉ có điều khi vừa nhắc đến chữ "tiền", sợ chạm vào lòng tự ái của Triệu Kim An nên cô nàng đã kịp thời phanh lại, ngậm miệng không nói tiếp nữa.
 
-Chỉ là khi nói đến chữ "tiền", Chu Sở Hân lại kiêng dè cảm nhận của Triệu Kim An nên chọn cách kịp thời ngậm miệng.
+Triệu Kim An đưa mắt nhìn Chu Sở Hân, khẽ nở nụ cười hiền lành: "Chị khóa trên, chị thật sự là một người tốt."
 
-Triệu Kim An nhìn Chu Sở Hân, mỉm cười nhẹ nhàng: "Đàn chị, chị là người tốt."
+Triệu Bác Lan: (⊙_⊙)
 
-Triệu Bác Lan: (°д°)
-
-Em nói cái gì!? Người tốt? Em đúng là chú của chị, chú ruột luôn!
+*Mày vừa bảo cái gì cơ?! Người tốt á? Mày đúng là chú tao thật rồi, chú ruột luôn đấy!*
 
 Chu Sở Hân: "..."
 
-Thẻ người tốt?
+*Thẻ người tốt á?*
 
-Mình bị phát thẻ người tốt rồi sao!?
+*Mình vừa bị thằng nhóc này phát thẻ người tốt đấy à?!*
 
-Triệu Bác Lan cười không nổi nữa, nhịn đến đau cả bụng.
+Triệu Bác Lan ôm bụng cười ngặt nghẽo, nhịn cười đến mức suýt thì nội thương.
 
-Nhìn Triệu Kim An vẻ mặt chân thành, Chu Sở Hân có chút rối loạn thần kinh, mất cân bằng nội tiết.
+Nhìn vẻ mặt vô cùng chân thành và nghiêm túc của Triệu Kim An, Chu Sở Hân cảm thấy đầu óc mình như muốn nổ tung, dây thần kinh hỗn loạn hết cả lên.
 
-"Lan Lan, chú của cậu là người ở đâu đến vậy?"
+"Lan Lan ơi, cái ông chú này của mày từ hành tinh nào rơi xuống vậy hả?!"
 
-Triệu Bác Lan nén cười: "Cậu là người tốt."
+Triệu Bác Lan vừa nén cười vừa nhại lại: "Chị là một người tốt~"
 
-"Á! Mình không muốn làm người tốt đâu." Chu Sở Hân sắp phát điên rồi.
+"Á á á! Tớ không thèm làm người tốt đâu!" Chu Sở Hân phát điên lên.
 
-"Thẳng thắn chứ?"
+"Thế nào, thẳng thắn chưa?" Triệu Bác Lan hỏi.
 
-Triệu Bác Lan hỏi.
+Chu Sở Hân gật đầu lia lịa: "Thẳng! Thẳng như ruột ngựa luôn á!"
 
-Chu Sở Hân gật đầu: "Thẳng, quá thẳng luôn."
+"Không sao đâu, hai chữ 'người tốt' trong miệng nó... nghĩa là người tốt thật sự đấy, không có ý mỉa mai gì đâu."
 
-"Không sao đâu, 'người tốt' trong miệng em ấy... chính là người tốt, không có ý nghĩa nào khác."
+Triệu Kim An lại lùi lại phía sau vài bước, cặm cụi cúi đầu nhắn tin thông báo số điện thoại mới cho những người trong danh bạ, sau đó gọi thêm một cuộc cho thím Vương Kim Như dặn thím lưu lại số này.
 
-Triệu Kim An lại tụt lại phía sau bọn họ cúi đầu gửi tin nhắn, báo cho những người trong danh bạ, còn gọi cho Vương Kim Như một cuộc điện thoại bảo mình đã đổi số, nhớ lưu lại.
+"Thím ơi, cháu biết rồi ạ, vâng, cháu không đi lung tung đâu."
 
-"Thím, cháu biết rồi, vâng, không chạy lung tung đâu ạ."
+"Sao mà ngoan ngoãn thế không biết..."
 
-"Ngoan thế không biết——"
+Nghe những lời đối thoại nhỏ nhẹ phía sau lưng, Chu Sở Hân lại cảm thấy hai từ "nuôi nhốt" lúc nãy quả thực quá đỗi hợp lý. Một cậu em vừa đẹp trai ngời ngời lại vừa ngoan ngoãn biết điều thế này, không đem về giấu kín nuôi riêng thì đúng là lãng phí của trời!
 
-Nghe cuộc đối thoại phía sau, Chu Sở Hân lại cảm thấy từ "nuôi nhốt" này thật sự rất hợp, vừa đẹp trai vừa ngoan thế này mà không "nuôi nhốt" lại thì phí quá.
-
-Triệu Bác Lan cũng vểnh tai lên nghe, cười mà không nói.
+Triệu Bác Lan cũng vểnh tai lắng nghe, khóe môi khẽ cong lên một nụ cười đầy ẩn ý.

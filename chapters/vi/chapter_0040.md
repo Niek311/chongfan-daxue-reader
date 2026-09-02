@@ -1,199 +1,201 @@
-# Chương 40: Trên xe lăn của nữ nhân.
+# Chương 40: Người phụ nữ trên xe lăn
 
-Tại nhà ăn, chu sở hân cướp xoát của phiếu ăn, chính là có một chút không tốt, lúc nào cũng chiếm Triệu Kim An tiện nghi.
+> **Tiêu đề gốc**: 第40章 轮椅上的女人。
 
-Không phải rất chảnh Triệu Kim An cánh tay, chính là kéo cánh tay.
+Ở nhà ăn sinh viên, Chu Sở Hân giành lấy phần quẹt thẻ cơm cho bằng được. Chỉ có mỗi một tật xấu là cô nàng cứ hở ra là tìm cách chiếm tiện nghi của Triệu Kim An.
 
-"Kim An, ngươi trốn cái gì?"
+Lúc thì nắm chặt lấy bắp tay, khi thì khoác hờ lấy cánh tay cậu không chịu buông.
 
-Đối mặt nữ sinh quăng tới ánh mắt, chu sở hân một mặt đắc ý, phảng phất Triệu Kim An là bạn trai nàng.
+"Kim An, em né tránh cái gì thế?"
 
-"trên người của ta không thơm sao? Ta tắm rửa mới ra ngoài."
+Trước những ánh mắt tò mò, ngưỡng mộ của các nữ sinh xung quanh đổ dồn về phía mình, Chu Sở Hân tỏ vẻ đắc ý vô cùng, cứ làm như Triệu Kim An là bạn trai chính thức của cô nàng vậy.
 
-Mặc ngắn tay, nữ sinh của da thịt chính xác trơn mềm, Triệu Kim An tức giận nói:"học tỷ, ngươi liền quét qua 6 khối tiền phiếu ăn, tiện nghi chiếm nhiều lắm."
+"Trên người chị không thơm à? Chị vừa mới tắm gội sạch sẽ thơm tho rồi mới ra ngoài đấy nhé."
 
-"ha ha ha.... Không phải bún thập cẩm cay?"
+Thời tiết nóng nực nên ai cũng mặc áo cộc tay, làn da con gái đúng là mềm mại mát rượi. Triệu Kim An dở khóc dở cười nói: "Chị khóa trên ơi, chị mới quẹt thẻ có sáu tệ tiền cơm mà đã chiếm tiện nghi của em nhiều quá rồi đấy."
 
-Chu sở hân một tay bưng bàn ăn, cười gập cả người.
+"Khục khục khục... Thế chẳng lẽ em muốn ăn lẩu cay sáu tệ sao?"
 
-Triệu Bác lan cũng cười, nàng kéo ra chu sở hân nói:"đi, đừng có đùa nữ lưu manh rồi!"
+Chu Sở Hân một tay bưng khay cơm, cười đến mức gập cả người lại.
 
-"Kim An, ngươi còn muốn ăn cái gì, đừng khách khí, xoát cơm của ta tạp là được."
+Triệu Bác Lan cũng bật cười theo, cô đưa tay kéo Chu Sở Hân ra: "Thôi đi cô nương, bớt giở trò lưu manh lại hộ tôi cái!"
 
-"đủ."
+"Kim An, em còn muốn ăn thêm món gì nữa không? Cứ tự nhiên nhé, quẹt thẻ của chị này."
 
-Triệu Kim An thả xuống bàn ăn, đến bên cạnh mua 3 ly đá trấn đậu xanh hiếm, 6 khối tiền.
+"Đủ rồi ạ."
 
-"Kim An, ngươi....."
+Triệu Kim An đặt khay cơm xuống bàn, rồi quay người đi sang quầy giải khát bên cạnh mua ba cốc chè đậu xanh ướp lạnh, hết sáu tệ.
 
-"đúng a, Kim An, ngươi ngày đầu tiên tới sao có thể nhường ngươi mua...."
+"Kim An, em..."
 
-Triệu Bác lan cùng chu sở hân đều lo lắng Triệu Kim An một tháng không có nhiều tiền sinh hoạt, lần này liền xài 6 khối tiền, nhìn xem các nàng Triệu Kim An cảm thấy buồn cười.
+"Phải đấy Kim An, hôm nay là ngày đầu tiên em nhập học, sao lại để em phải bỏ tiền túi ra mua thế này..."
 
-Hắn có rất thời gian dài không thấy own chứng khoán trương mục.
+Cả Triệu Bác Lan lẫn Chu Sở Hân đều thầm lo lắng Triệu Kim An một tháng chẳng có bao nhiêu tiền sinh hoạt phí, vừa đặt chân đến trường đã tiêu mất toi sáu tệ bạc. Nhìn vẻ mặt lo sốt vó của hai bà chị, Triệu Kim An bỗng thấy buồn cười.
 
-Còn có, chính là Triệu Bác lan cô cháu gái này, người cũng không tệ lắm.
+Đã lâu lắm rồi cậu không buồn mở tài khoản chứng khoán của mình ra kiểm tra xem nó đã sinh lời đến mức nào.
 
-Ở kiếp trước Triệu Kim An cùng Triệu Bác lan có giao tụ tập, nhưng không nhiều, Triệu Bác lan năm thứ ba đại học còn có một năm liền muốn rời khỏi trường học, đằng sau giống như đến rồi Hồ Bắc.
+Lại nói đến cô cháu gái họ Triệu Bác Lan này, tính tình quả thực rất tốt bụng và chu đáo.
 
-Từ nhà ăn đi ra, chu sở hân cùng Triệu Bác lan lại tiễn đưa Triệu Kim An trở về ký túc xá, chu sở hân một đường cho Triệu Kim An phổ cập đại học thành, từ nhà ăn đến xe buýt con đường.
+Ở kiếp trước, Triệu Kim An và Triệu Bác Lan cũng có qua lại với nhau nhưng không nhiều lắm. Triệu Bác Lan khi ấy đã là sinh viên năm ba, chỉ còn một năm nữa là tốt nghiệp ra trường, sau này nghe đâu lấy chồng rồi chuyển hẳn về tỉnh Ngạc sinh sống.
 
-Miệng nhỏ không ngừng qua.
+Rời khỏi nhà ăn sinh viên, Chu Sở Hân và Triệu Bác Lan nhiệt tình hộ tống Triệu Kim An về tận khu ký túc xá. Suốt cả dọc đường, Chu Sở Hân liến thoắng không ngừng phổ cập cho cậu mọi ngóc ngách trong làng đại học: từ nhà ăn nào nấu ngon nhất cho tới các tuyến xe buýt thuận tiện.
 
-Chu sở hân lại hỏi Triệu Kim An có bạn gái sao?
+Cái miệng nhỏ xinh cứ ríu rít như chim hót.
 
-Triệu Kim An nghĩ nghĩ không có trả lời, đằng sau lại suy nghĩ một chút nói điểm.
+Chu Sở Hân lại tò mò dò hỏi xem Triệu Kim An đã có bạn gái chưa.
 
-"ân!?"
+Triệu Kim An ngẫm nghĩ một lát rồi đáp là chưa, sau đó lại nghĩ ngợi thêm một thoáng rồi bổ sung: "Chia tay rồi ạ."
 
-Lần này Triệu Bác lan ngẩng đầu, một mặt kinh ngạc.
+"Hử?!"
 
-Dạng này người cao trung liền đàm luận bạn gái?
+Lần này đến lượt Triệu Bác Lan phải ngẩng phắt đầu lên, gương mặt lộ rõ vẻ sửng sốt.
 
-Bất quá Triệu Kim An không có trò chuyện nhiều của ý tứ, hắn chỉ nói kết quả, trên mặt không có bất kỳ cái gì cảm xúc, giống như chỉ ở trần thuật sự thật.
+Một người ngoan ngoãn, hiền lành như cậu nhóc này mà hồi cấp ba đã dám yêu đương rồi sao?
 
-"mối tình đầu mới biệt ly đi? Hắn sẽ không đả thương tâm khổ sở?"
+Thế nhưng Triệu Kim An dường như không có ý định muốn đào sâu thêm về chuyện tình cảm. Cậu chỉ bình thản thông báo kết quả, trên gương mặt không hề gợn lên chút cảm xúc bi lụy nào, tựa như đang trần thuật lại một sự thật hiển nhiên của người khác.
 
-Chu sở hân cùng Triệu Bác lan liếc nhau, chấm dứt cái đề tài này.
+*Chắc là mối tình đầu vừa mới tan vỡ nhỉ? Sao trông cậu ấy chẳng có vẻ gì là đau lòng hay buồn bã thế kia?*
 
-Đến rồi túc xá lầu dưới, Triệu Kim An đối với Triệu Bác lan nói chỉ đưa tới đây, có thể.
+Chu Sở Hân và Triệu Bác Lan khẽ đưa mắt nhìn nhau, rồi ngầm hiểu ý tự động khép lại chủ đề nhạy cảm này.
 
-Chu sở hân đột nhiên tiến lên ôm một cái Triệu Kim An, nói:"Kim An ngươi muốn bảo vệ tốt chính mình nha."
+Đến trước sảnh tòa nhà ký túc xá nam, Triệu Kim An quay sang nói với Triệu Bác Lan rằng hai chị đưa tới đây là được rồi.
 
-Triệu Kim An: · · · · · ·
+Chu Sở Hân bỗng nhiên bước tới, dang hai tay ôm chầm lấy Triệu Kim An một cái thật chặt rồi thì thầm: "Kim An à, em ở trường nhớ phải biết tự bảo vệ bản thân mình đấy nhé."
 
-Một mặt mộng bức.
+Triệu Kim An: "..."
 
-Quá minh mục trương đảm đi?
+Cậu đứng chết trân tại chỗ, đầu óc hoàn toàn mụ mị.
 
-Trình lão sư ôm ta còn đưa hai ta ngàn, ngươi miễn phí ôm?
+Cái này chẳng phải là quá đỗi trắng trợn rồi sao?
 
-Nói thực ra, Trình lão sư có liệu chút.
+Hồi ở trường cấp ba, cô giáo Trình ôm mình một cái xong còn dúi cho hai nghìn tệ, thế mà bà chị này lại dám ôm chùa miễn phí à?
 
-Triệu Bác lan ở một bên cười trộm, kéo ra"chiếm tiện nghi"của chu sở hân, chu sở hân lại giơ tay lên cơ nói Triệu Kim An có ai khi dễ ngươi liền gọi điện thoại cho ta.
+Nói thật lòng thì... cô giáo Trình ôm vào có cảm giác "đầy đặn, đẫy đà" hơn nhiều.
 
-Năm thứ ba đại học học tỷ có cái này sức mạnh!
+Triệu Bác Lan đứng bên cạnh cười thầm, vội vàng kéo cái "ả hám trai" Chu Sở Hân ra. Chu Sở Hân vừa lùi lại vừa giơ cao chiếc điện thoại lên lắc lắc, dặn dò: "Kim An, sau này có đứa nào dám bắt nạt em thì cứ bấm máy gọi ngay cho chị nhé!"
 
-"Kim An, vậy chúng ta đi?"
+Đàn chị năm ba trường Sư phạm hoàn toàn có đủ bản lĩnh và tự tin để tuyên bố câu đó!
 
-Triệu Bác lan ngẩng đầu nhìn một cái nam sinh ký túc xá.
+"Kim An, bọn chị về nhé?" Triệu Bác Lan ngước nhìn lên tòa ký túc xá nam.
 
-Triệu Kim An gật gật đầu:"ân."
+Triệu Kim An gật đầu: "Vâng ạ."
 
-"có việc liền gọi điện thoại cho ta."
+"Có chuyện gì cần giúp đỡ cứ gọi cho chị."
 
-"hảo."
+"Dạ vâng."
 
-Đường trở về nhà trọ bên trên, chu sở hân nhịn không được vấn đạo:"lan lan, hắn một mực dạng này?"
+Trên đường rảo bước trở về ký túc xá nữ, Chu Sở Hân không kìm được tò mò liền hỏi: "Lan Lan này, trước giờ cậu ấy vẫn luôn lầm lì ít nói như thế à?"
 
-Triệu Bác lan nghĩ nghĩ nói trong ấn tượng không gặp hắn sầu mi khổ kiểm qua, hẳn là không có tư cách thương tâm khổ sở đi?
+Triệu Bác Lan ngẫm nghĩ một hồi rồi đáp, trong ký ức của cô dường như chưa từng thấy Triệu Kim An nhăn nhó ủ dột hay than vãn bao giờ. Có lẽ là vì... cậu ấy hiểu rằng bản thân mình không có tư cách để được quyền bi thương, đau buồn chăng?
 
-Cùng là cao tài sinh chu sở hân nghe hiểu câu nói này, không có tư cách thương tâm khổ sở.
+Cùng là những sinh viên ưu tú đỗ đạt trường top, Chu Sở Hân lập tức hiểu ngay hàm ý sâu xa ẩn giấu trong câu nói ấy. Không có tư cách để bi thương buồn bã.
 
-Ở đây không chỉ là chỉ nam nữ tình cảm, mà là đối mặt sinh hoạt thái độ.
+Đó không chỉ đơn thuần là nói về chuyện tình cảm nam nữ, mà là cả một thái độ đối mặt với sự nghiệt ngã của số phận cuộc đời.
 
-"ta cùng hắn trước đó thường xuyên cùng ngươi học chung cũng không nói qua mấy câu."
+"Hồi nhỏ tớ với nó thường xuyên đi bộ cùng đường tới trường, nhưng cả quãng đường chẳng nói với nhau được mấy câu."
 
-Triệu Bác lan bên cạnh nhớ lại vừa nói:"hắn liền đeo bọc sách đi theo phía sau ngươi, đặc biệt là mới vừa lên tiểu học toàn cấp 5 niên cấp lúc đó, chúng ta tới trường học muốn đi hơn nửa giờ đường đi."
+Triệu Bác Lan vừa đi vừa hồi tưởng lại: "Nó cứ lầm lũi đeo chiếc cặp sách cũ rích đi theo sau lưng tớ, nhất là hồi vừa học xong lớp năm, đoạn đường từ làng tới trường phải đi bộ mất hơn nửa tiếng đồng hồ."
 
-Chu sở hân trừng mắt nhìn:"đó là, chính là ngươi thúc, các ngươi là tiểu bối, hắn cùng các ngươi trò chuyện cái gì?"
+Chu Sở Hân chớp chớp mắt tinh quái: "Thì đúng rồi còn gì, người ta là chú của cậu, các cậu chỉ là phận con cháu vai dưới, người ta hơi đâu mà bắt chuyện với lũ con nít ranh?"
 
-"ngươi đi chết!"
+"Cậu đi chết đi!"
 
-"ha ha, ta là ngươi thẩm."
+"Ha ha ha, tớ là thím của cậu đấy nhé!"
 
-Triệu Bác lan: · · · · · ·
+Triệu Bác Lan: "..."
 
-Triệu Kim An không có lên lầu, chờ Triệu Bác lan cùng chu sở hân sau khi rời đi, hắn quay người đón xe đi Tương Giang bên cạnh.
+Ở phía bên kia, Triệu Kim An không hề bước lên phòng ký túc xá. Đợi cho bóng dáng của Triệu Bác Lan và Chu Sở Hân khuất hẳn sau rặng cây, cậu liền xoay người đi ra cổng, bắt một chiếc taxi chạy thẳng ra bờ sông Tương.
 
-Dọc theo Tiêu Tương lộ, tìm được đại khái vị trí.
+Đi dọc theo đại lộ Tiêu Tương, cậu tìm đến đúng vị trí trong ký ức.
 
-Trần Thanh Trĩ nói lần thứ nhất gặp Triệu Kim An chính là ở đây, Mộc Dao cùng Triệu Kim An chia tay đêm đó, nàng và mấy cái bạn cùng phòng đi qua không có tới gần, chứng kiến một đôi tình lữ chia tay.
+Trần Thanh Trĩ từng kể với cậu rằng, lần đầu tiên cô nhìn thấy Triệu Kim An chính là ở khúc sông này. Đó là vào cái đêm mà Mộc Dao và Triệu Kim An chính thức nói lời chia tay, cô cùng mấy người bạn cùng phòng ký túc xá đi dạo ngang qua nhưng không dám bước lại gần, chỉ đứng từ xa chứng kiến một đôi tình nhân tan vỡ.
 
-Trần Thanh Trĩ còn nói ngươi sau khi rời đi, Mộc Dao ngồi xổm trên mặt đất khóc cực kỳ lâu, lúc kia các nàng không hiểu, tất nhiên khóc lâu như vậy lại vì cái gì muốn nói chia tay?
+Trần Thanh Trĩ còn kể, sau khi anh dứt khoát quay lưng bước đi, Mộc Dao đã ngồi thụp xuống ven đường ôm mặt khóc rất lâu, rất lâu. Khi ấy các cô không tài nào hiểu nổi, nếu đã đau đớn khóc lóc thảm thiết đến nhường ấy, thì cớ sao ngay từ đầu lại nhẫn tâm nói ra hai chữ chia tay?
 
-Lúc kia đã kết hôn rồi, Trần Thanh Trĩ cười hì hì nói để cho ta nhặt được cái tiện nghi, nàng không nghĩ tới chính mình cũng chỉ cùng Triệu Kim An kéo dài 4 năm hôn nhân.
+Sau này khi hai người đã nên duyên vợ chồng, Trần Thanh Trĩ thường cười tít mắt trêu anh rằng nhờ có đêm hôm ấy mà cô mới "nhặt được món hời lớn". Nào ngờ chính bản thân cô cũng chỉ có thể cùng Triệu Kim An đi hết một đoạn hôn nhân ngắn ngủi kéo dài vỏn vẹn bốn năm trời.
 
-"Thanh Trĩ cao hơn hai đi?"
+"Thanh Trĩ bây giờ chắc đang học lớp mười một rồi nhỉ?"
 
-Triệu Kim An lấy ra một điếu thuốc nhóm lửa, nhìn về phía sông phía trước Hà Đông, tối như mực một mảnh.
+Triệu Kim An móc một điếu thuốc lá ra châm lửa, đưa mắt nhìn sang bờ sông Hà Đông phía đối diện — một màu đen kịt mịt mù.
 
-Trước đây phòng ở liền mua tại phía trước, Trần Thanh Trĩ đề nghị, nói là kỷ niệm hai người của duyên phận, kết quả đằng sau phòng ở cũng bán mất, nhớ tới liền có chút hài hước.
+Căn nhà tân hôn năm xưa của hai vợ chồng được mua ở ngay bờ đối diện kia, theo đúng gợi ý của Trần Thanh Trĩ, cô bảo mua ở đó là để kỷ niệm cho mối duyên định mệnh của hai người. Kết quả là sau này căn nhà ấy cũng phải bán đi mất... Nghĩ lại chuyện cũ, quả thực có chút nực cười và xót xa.
 
-Bây giờ đối với mặt tối như mực hoang vu một mảnh, cư xá còn không có dựng lên.
+Lúc này, bờ sông phía bên kia vẫn là một bãi đất hoang vu, tối tăm mù mịt, khu chung cư cao cấp ấy vẫn chưa hề được khởi công xây dựng.
 
-Quỷ thần xui khiến, Triệu Kim An tìm được hàng rào của một cái khe hở, chen vào ba cây thuốc lá, giống như là đang lễ tế cái gì.
+Như bị ma xui quỷ khiến, Triệu Kim An tìm thấy một khe hở trên lan can đá ven sông, cẩn thận cắm ba điếu thuốc lá đang cháy dở vào đó, tựa như một nghi thức thầm lặng để tế lễ cho những ký ức của tiền kiếp đã lùi sâu vào dĩ vãng.
 
-"uy, ngươi, ngươi đang làm gì?"
+"Này... anh... anh đang làm cái trò gì đấy?!"
 
-Đột nhiên có một nữ nhân lắp bắp nói:"đêm hôm khuya khoắt của, ngươi đừng làm dọa người như vậy có được hay không?"
+Đột nhiên có tiếng một người phụ nữ cất lên lắp bắp: "Nửa đêm nửa hôm, anh đừng có bày trò dọa ma dọa quỷ người ta thế có được không hả?!"
 
-Tương Giang phong quang mang rất nhiều người, bất quá rời đi đại học thành khu đoạn người liền hiếm hoi rất nhiều, Triệu Kim An từ khe hở lấy ra một điếu thuốc lá hít một hơi.
+Dải công viên ven sông Tương vốn rất đông người dạo mát, nhưng khi đi xa dần khỏi khu vực làng đại học thì khung cảnh bắt đầu vắng vẻ thưa thớt hơn hẳn. Triệu Kim An rút một điếu thuốc từ trong khe lan can ra đưa lên miệng rít một hơi sâu.
 
-Nhìn cách đó không xa hai nữ nhân, cười nói:"nhìn thấy khói sao, bốc khói."
+Cậu đưa mắt nhìn hai người phụ nữ đang đứng cách đó không xa, khẽ mỉm cười giải thích: "Thấy điếu thuốc chưa? Đang bốc khói đàng hoàng này."
 
-Talking nữ nhân gọi bành tưởng nhớ đào, nàng cười một tiếng:"vậy ngươi cũng đừng ban đêm làm những thứ này, quái dọa người."
+Người phụ nữ vừa lên tiếng tên là Bành Tư Đào, nghe cậu nói vậy cô bật cười một tiếng: "Thế thì anh cũng đừng có nửa đêm ra đây làm mấy trò này, trông rợn cả người."
 
-Còn có một cái nữ nhân rất xinh đẹp, toàn thân màu đen hệ, ngồi trên xe lăn, băng lãnh của một trương mặt trái xoan, nàng chỉ quay đầu nhìn Triệu Kim An một cái.
+Đi cùng cô còn có một người phụ nữ vô cùng xinh đẹp đang ngồi trên chiếc xe lăn. Cô gái mặc nguyên một cây đồ màu đen tuyền sang trọng, sở hữu khuôn mặt trái xoan thanh tú nhưng toát lên vẻ lạnh lùng kiêu sa đến thấu xương. Cô chỉ khẽ nghiêng đầu liếc nhìn Triệu Kim An đúng một cái rồi thu hồi tầm mắt.
 
-"tô xa, trở về đi, ca của ngươi gọi điện thoại tới."
+"Tô Miến, chúng ta về thôi, anh trai cậu vừa gọi điện giục rồi đấy."
 
-Bành tưởng nhớ đào đẩy xe lăn:"còn không tiễn đưa ngươi về nhà, ta sợ công ty của ta không tiếp tục mở được."
+Bành Tư Đào vừa đẩy xe lăn vừa than thở: "Còn không mau đưa cậu về dinh, tớ sợ cái công ty bé nhỏ của tớ không trụ nổi trên đất này mất."
 
-"hắn không dám, ta đêm nay đi nhà ngươi ngủ."
+"Anh ấy không dám đâu. Tối nay tớ qua nhà cậu ngủ."
 
-Tô xa mở miệng, thanh tuyến băng lãnh, không có một tia cảm tình màu sắc.
+Tô Miến cất lời. Giọng nói của cô lạnh ngắt như băng tuyết, không mang theo bất kỳ một chút gợn sóng cảm xúc nào.
 
-Phản nghịch?
+Nổi loạn sao?
 
-Triệu Kim An ngẩng đầu nhìn một cái, lại cúi đầu lấy điện thoại di động ra.
+Triệu Kim An ngước mắt nhìn thoáng qua một cái, rồi lại cúi đầu móc điện thoại trong túi ra.
 
-"soái ca, có thể giúp một chuyện hay không, giúp ta đỡ xuống lên xe."
+"Này anh bạn đẹp trai ơi, có thể giúp tôi một tay được không, đỡ giúp cô ấy lên xe với."
 
-Bành tưởng nhớ đào đẩy một khoảng cách, lên dốc không cảm thấy, phía dưới sườn dốc làm khó.
+Bành Tư Đào đẩy xe lăn đi được một đoạn ngắn, lúc leo dốc thì không thấy trở ngại gì, nhưng đến khi xuống đoạn dốc thoai thoải dẫn ra bãi đỗ xe thì bắt đầu thấy lúng túng, chật vật.
 
-Triệu Kim An vô ý thức liền ngẩng đầu tìm kiếm camera, làm việc tốt có thể, hắn lo lắng bị lừa bịp rồi.
+Triệu Kim An theo phản xạ tự nhiên ngẩng đầu lên nhìn quanh quất để tìm xem có camera an ninh nào gần đó hay không. Làm việc tốt thì sẵn lòng thôi, nhưng cậu sợ nhất là bị người ta giở trò ăn vạ tống tiền.
 
-Dù sao câu nói kia quá nổi danh, không phải ngươi đụng, ngươi tại sao muốn đỡ?
+Dù sao thì câu nói chấn động dư luận kia quá đỗi nổi tiếng: *Không phải do anh đâm trúng thì việc quái gì anh phải đỡ?*
 
-"làm phiền ngươi hỗ trợ đẩy tới."
+"Phiền anh đẩy giùm một tay với nhé."
 
-Triệu Kim An đẩy xe lăn, bành tưởng nhớ đào cẩn thận từng li từng tí che chở, xuống sườn dốc bành tưởng nhớ đào phụ giúp tô xa tại một đài Porche Ca-i-en bên cạnh dừng lại, kéo ra tay lái phụ cửa xe.
+Triệu Kim An bước tới nắm lấy tay đẩy xe lăn, Bành Tư Đào cẩn thận đi bên cạnh giữ chừng. Xuống hết con dốc, Bành Tư Đào đẩy Tô Miến dừng lại bên cạnh một chiếc Porsche Cayenne màu đen bóng lộn rồi kéo mở cửa ghế phụ ra.
 
-Triệu Kim An xử ở bên cạnh, không biết như thế nào ra tay.
+Triệu Kim An đứng sững bên cạnh, nhất thời không biết phải ra tay đỡ thế nào cho phải phép.
 
-Tô xa tinh xảo của trang dung, đầu tròn cẩn thận tỉ mỉ, cao cổ đồ hàng len áo, màu đen váy dài, mặc dù ngồi lên xe lăn, nhưng xem xét liền có người cho nàng tinh xảo xử lý.
+Tô Miến trang điểm vô cùng tinh tế, mái tóc búi củ tỏi gọn gàng không một sợi tóc thừa, mặc chiếc áo len dệt kim cổ lọ phối cùng chân váy dài màu đen quý phái. Dù phải ngồi trên xe lăn, nhưng chỉ cần nhìn qua là biết cô xuất thân từ một gia đình trâm anh thế phiệt và luôn được người ta chăm sóc, hầu hạ vô cùng chu đáo.
 
-"soái ca, làm phiền ngươi phụ một tay."bành tưởng nhớ đào nói.
+"Anh bạn ơi, làm ơn đỡ giúp một tay với." Bành Tư Đào giục.
 
-Porche Ca-i-en có chút cao, Triệu Kim An đưa tay bắt lấy tô xa một đầu cánh tay, bành tưởng nhớ đào bắt lấy nàng một cái khác cánh tay, hai người ngược lại khó dùng lực, tô xa của chân giống như hoàn toàn không thể khiến kình.
+Chiếc Porsche Cayenne gầm xe khá cao. Triệu Kim An đưa tay giữ lấy một bên cánh tay của Tô Miến, còn Bành Tư Đào nắm lấy cánh tay còn lại. Thế nhưng hai người cùng đỡ ngược hướng lại khiến đôi bên khó dùng lực, đôi chân của Tô Miến dường như hoàn toàn mất đi tri giác, không thể tự phát lực được chút nào.
 
-Bị giày vò như vậy, nàng hơi hơi nhíu mày, hẳn là bị làm đau.
+Bị giằng co qua lại như thế, đôi chân mày thanh tú của Tô Miến khẽ nhíu lại, chắc hẳn là do bị va chạm đau đớn.
 
-Nhưng không có lên tiếng.
+Thế nhưng cô tuyệt nhiên không hé răng kêu ca nửa lời.
 
-Triệu Kim An nói:"vẫn là ta một người đến đây đi."
+Triệu Kim An dứt khoát nói: "Để một mình tôi làm cho nhanh."
 
-Nói, hắn một tay quơ lấy tô xa hai chân, ôm công chúa giống như đem nàng đặt ở tay lái phụ.
+Nói đoạn, cậu khom người luồn một tay xuống dưới khoeo chân, tay kia ôm lấy bờ lưng thon thả của Tô Miến, bế bổng cô lên theo kiểu công chúa rồi nhẹ nhàng đặt cô ngồi vững vàng vào chiếc ghế phụ.
 
-Có một trăm tới cân đi, cái này thể trọng để Triệu Kim An có chút ngoài ý muốn, nếu như từ tiểu liền không thể đi lại lời nói, lại có người chiếu cố cơ thể cũng sẽ gầy gò, tuyệt đối không có cái này thể trọng.
+Cơ thể cô nặng tầm chừng năm mươi cân. Cân nặng này khiến Triệu Kim An có chút bất ngờ — bởi lẽ nếu một người bị liệt bẩm sinh từ nhỏ không thể đi lại được, thì dù có được chăm sóc bồi bổ kỹ lưỡng đến đâu cơ thể cũng sẽ bị teo cơ gầy gò, tuyệt đối không thể duy trì được vóc dáng và trọng lượng đầy đặn như thế này.
 
-Tay lái phụ của tô xa không có nói lời cảm tạ, chính mình thắt chặt dây an toàn, đại khái là vừa mới thật làm đau, biểu lộ có chút bị đau.
+Ngồi trên ghế phụ, Tô Miến không nói lời cảm ơn, chỉ tự mình kéo dây an toàn cài lại. Có lẽ vết thương vừa rồi bị động vào đau đớn thật nên nét mặt cô lộ rõ vẻ chịu đựng.
 
-Còn tốt, tay có thể động.
+Dù sao thì đôi bàn tay của cô vẫn cử động rất linh hoạt.
 
-Bành tưởng nhớ đào cười nói:"soái ca, ngươi đi nơi nào, thuận đường lời nói lại ngươi đoạn đường."
+Bành Tư Đào cười tươi rói nói: "Anh bạn đẹp trai ơi, anh định đi đâu đấy? Nếu tiện đường thì lên xe chúng tôi chở một đoạn."
 
-"không cần, ta chỉ mấy bước lộ."
+"Không cần đâu ạ, trường tôi ở ngay gần đây thôi."
 
-Triệu Kim An chỉ chỉ đại học thành phương hướng lại lấy ra điện thoại, cõng hai vai bao một người hướng trường học đi.
+Triệu Kim An chỉ tay về hướng làng đại học rồi lại rút điện thoại ra bấm, một mình đeo chiếc ba lô chầm chậm rảo bước đi bộ về phía cổng trường.
 
-Porche từ bên cạnh hắn đi ngang qua minh rồi âm thanh địch, đánh xuống song tránh, giống như là đang biểu đạt cảm tạ.
+Chiếc xe Porsche Cayenne từ từ lăn bánh lướt qua bên cạnh cậu, khẽ bấm một hồi còi ngắn rồi nháy hai đèn xi nhan khẩn cấp kép, tựa như một lời cảm ơn thầm lặng gửi tới chàng trai trẻ.
 
-"tô xa, ngươi đêm nay ngủ nhà ta, tô đại thị trưởng bão nổi rồi mà nói, ngươi cần phải khuyên điểm a."
+"Tô Miến này, tối nay cậu sang nhà tớ ngủ, ngộ nhỡ ngài Thị trưởng Tô đùng đùng nổi trận lôi đình thì cậu phải đứng ra can ngăn đấy nhé."
 
-Bành tưởng nhớ đào vừa lái xe vừa cười nói:"ta thế nhưng là sợ ca của ngươi, đúng, ngươi chừng nào thì về kinh đô?"
+Bành Tư Đào vừa cầm vô lăng vừa cười nói: "Tớ là tớ sợ anh trai cậu một phép luôn rồi đấy. Mà này, bao giờ thì cậu quay trở lại Kinh Đô?"
 
-"không muốn trở về."
+"Không muốn về."
 
-Tô xa hơi hơi nghiêng đầu, nhìn xem kính chiếu hậu, trong kính chiếu hậu Triệu Kim An cúi đầu, một người yên lặng hướng phía trước
+Tô Miến khẽ nghiêng đầu nhìn vào chiếc gương chiếu hậu bên ngoài cửa kính.
+
+Trong tấm gương phản chiếu, bóng dáng Triệu Kim An vẫn đang cúi đầu, lầm lũi một mình bước đi giữa màn đêm tĩnh lặng của chốn phồn hoa.

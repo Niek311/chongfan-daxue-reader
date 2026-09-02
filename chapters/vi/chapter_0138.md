@@ -1,219 +1,223 @@
-# Chương 138: Chính là quá hiểu nhân tính.
+# Chương 138: Hiểu thấu lòng người
 
-Phòng bếp nhiều người như vậy, nãi nãi dành thời gian đi xem tô xa.
+> **Tiêu đề gốc**: 第138章 就是太懂人性了。
 
-Tô xa ngồi lên xe lăn, ở phía trên của trong ruộng nhìn phía dưới của người bắt cá.
+Gian bếp đông đúc, rộn ràng là thế, bà nội vẫn tranh thủ lúc rảnh tay đi ra bờ ruộng xem Tô Miến thế nào.
 
-Kỳ thực có triệu có tài cùng triệu kiên nhẫn đến giúp đỡ là được rồi, kết quả rồi nhiều người như vậy.
+Tô Miến đang ngồi trên chiếc xe lăn đặt ở khoảnh ruộng phía trên, say sưa ngắm nhìn mọi người lội bùn bắt cá ở thửa ruộng bên dưới.
 
-Bọn hắn để Triệu Kim An đều không cần làm việc, ngay tại phía trên bồi tiếp tô xa.
+Kỳ thực chỉ cần hai anh em Triệu Hữu Tài và Triệu Hữu Hằng sang giúp là xong xuôi, nào ngờ rốt cuộc lại kéo đến đông nghịt cả làng.
 
-Thẳng đến bắt cá thời điểm, Triệu Kim An mới nhảy đi xuống, tô xa ngay tại phía trên hô to, Kim An, ở đây, dò thân thể có chút cấp bách nói nơi này có con cá lớn.
+Mấy người đàn ông nhất quyết không cho Triệu Kim An đụng tay vào việc gì, cứ bắt anh phải ở trên bờ túc trực, bầu bạn với Tô Miến.
 
-Nãi nãi đứng bờ ruộng nhìn một hồi lâu, nhìn cháu trai cùng tô xa đều chơi rất vui vẻ đi trở về.
+Mãi đến lúc bắt đầu tát nước mò cá, Triệu Kim An mới nhảy xuống ruộng. Tô Miến liền ngồi trên xe lăn nhoài người ra reo hò ầm ĩ: "Kim An, chỗ này này! Mau lên, chỗ này có con cá to lắm!"
 
-Nàng có thể nhìn ra cháu trai có phải hay không phát ra từ nội tâm loại kia vui vẻ.
+Bà nội đứng trên bờ ruộng ngắm nhìn thật lâu. Thấy cháu trai cùng Tô Miến đều cười đùa vui vẻ hết mình, bà mới an lòng quay trở về nhà.
 
-Ruộng Thúy Phượng mới vừa nói vương kim như, ngươi thực sự là mẹ....
+Bà có thể nhìn ra được cháu trai mình có đang thực sự hạnh phúc từ tận đáy lòng hay không.
 
-Nãi nãi ghi ở trong lòng.
+Lúc nãy ngoài sân, Điền Thúy Phượng nửa đùa nửa thật bảo Vương Kim Như: "Bà thế này đúng là chẳng khác gì mẹ ruột rồi đấy..."
 
-Đoạn thu bình năm ngoái gọi điện thoại, ngữ khí có chút trách cứ nãi nãi cùng vương kim như đối với Triệu Kim An không chịu trách nhiệm, không có nói rõ, nhưng đại khái biểu đạt là, không thể nói nhà gái trong nhà có tiền, các ngươi đáp ứng.
+Bà nội nghe thấy và ghi tạc trong lòng.
 
-Nãi nãi cũng ghi ở trong lòng.
+Năm ngoái Đoạn Thu Bình gọi điện về, giọng điệu có chút trách móc bà nội và Vương Kim Như thiếu trách nhiệm với Triệu Kim An. Dù không nói thẳng ra, nhưng ý tứ đại khái là: Không thể vì nhà gái giàu có mà các người cứ thế vội vàng gật đầu đồng ý.
 
-Đoạn thu bình lo lắng, nãi nãi tâm lý nắm chắc, chỉ là ngoài miệng không nói.
+Bà nội cũng ghi nhớ điều đó trong lòng.
 
-Ở kiếp trước nãi nãi không thể chạy được nữa thời điểm, Trần Thanh Trĩ còn chưa chạy tới, nãi nãi nắm Triệu Kim An của tay, hỏi một câu:"ngươi có phải hay không những năm này trải qua không vui, nãi nãi rất ít trông thấy ngươi cười."
+Những nỗi lo lắng của Đoạn Thu Bình, bà nội đều hiểu rõ mười mươi, chỉ là bà không nói ra ngoài miệng mà thôi.
 
-Triệu Kim An kéo lên khuôn mặt tươi cười, lắc đầu nói, không có.
+Kiếp trước, vào cái ngày bà nội sắp trút hơi thở cuối cùng, Trần Thanh Trĩ vẫn chưa kịp chạy về tới nơi. Bà nội nắm chặt lấy bàn tay Triệu Kim An, run run hỏi một câu: "Có phải bao năm qua cháu sống không hề hạnh phúc không? Bà hiếm khi thấy cháu cười..."
 
-Nãi nãi nói:"có phải hay không um tùm đi ngươi nơi đó, ngươi thẩm thẩm cùng ngươi nhạc mẫu nương cãi nhau...."
+Triệu Kim An cố gượng nụ cười trên môi, lắc đầu đáp: "Không có đâu bà."
 
-Triệu Kim An vẫn lắc đầu, nói không có.
+Bà nội lại hỏi: "Có phải mỗi lần bé Thiên Thiên lên thành phố chơi với cháu, thím hai lại cãi nhau với mẹ vợ cháu không..."
 
-Ngược lại nãi nãi sau khi qua đời, vương kim như cũng rất ít đi quận cát rồi, cũng không cùng bành vĩnh lệ ầm ĩ.
+Triệu Kim An vẫn chỉ lắc đầu, lặp lại: "Không có đâu bà."
 
-Cứ như vậy một mẫu ruộng nước, một chút liền cắt xong.
+Dù sao thì sau khi bà nội qua đời, Vương Kim Như cũng rất ít khi lên Quận Sa nữa, và cũng chẳng còn cãi cọ qua lại với Bành Vĩnh Lệ.
 
-Một đám lão nam nhân lại chơi cho tới trưa mới trở về, ở giữa có người tiễn đưa cá trở về.
+Chỉ vẻn vẹn có một sào ruộng nước, loáng một cái là gặt xong xuôi.
 
-Triệu Kim An một thân bùn nhão, cứ như vậy đem tô xa ôm trở về tới.
+Thế nhưng cả một đám đàn ông già trẻ lại đắm mình lội bùn, nô đùa suốt cả buổi sáng mới chịu lục tục kéo nhau về, giữa chừng đã có người xách mấy xô cá tươi về nhà trước.
 
-Tô xa trong ngực còn đưa tay bôi Triệu Kim An mặt mũi tràn đầy là bùn nhão.
+Triệu Kim An toàn thân dính đầy bùn đất, cứ thế bế bổng Tô Miến trở về nhà.
 
-Triệu Kim An uy hiếp nói:"ngươi dạng này, ta liền đem ngươi ném trong ruộng đi."
+Tô Miến nằm gọn trong vòng tay anh, tinh nghịch giơ bàn tay dính bùn trét lem luốc khắp mặt Triệu Kim An.
 
-Tô xa liền ôm chặt cổ nói:"ngươi ném a, ngược lại trên người của ta cũng là bùn nhão rồi."
+Triệu Kim An vờ đe dọa: "Em mà còn quậy nữa là anh quẳng em xuống ruộng đấy nhé."
 
-Về đến nhà, Doãn Hiểu Lan cùng chương ngọc bé gái cắt gọn rồi dưa hấu, còn có tắm xong nho.
+Tô Miến liền siết chặt hai tay ôm lấy cổ anh, phụng phịu: "Anh quẳng đi, đằng nào thì người em cũng dính đầy bùn đất rồi!"
 
-Nam nhân về nhà thay quần áo, Triệu Kim An cũng ôm tô xa đi phòng tắm.
+Về đến nhà, Doãn Hiểu Lan và Chương Ngọc Ni đã gọt sẵn dưa hấu, rửa sạch mấy chùm nho mọng nước bày ra đĩa.
 
-Doãn Hiểu Lan không có gì kỳ quái.
+Đám đàn ông tự động giải tán về nhà tắm rửa thay quần áo, Triệu Kim An cũng bế Tô Miến thẳng vào phòng tắm.
 
-Chương ngọc bé gái ăn bánh bích quy nhìn Triệu Kim An ôm tô xa đi phòng tắm, há to mồm, các nàng cùng nhau tắm rửa?
+Doãn Hiểu Lan nhìn thấy cảnh này thì chẳng lấy làm lạ.
 
-Bây giờ của dưa hấu không có giống năm ngoái tết xuân được hoan nghênh như thế, tiểu hài tử không chút ăn, Triệu gia thôn rất nhiều người trong nhà đều trồng dưa hấu.
+Chỉ có Chương Ngọc Ni vừa nhai bánh quy vừa trố mắt nhìn Triệu Kim An bế Tô Miến vào phòng tắm, mồm há hốc kinh ngạc: Họ... họ tắm chung với nhau đấy à?
 
-Bọn người sau khi trở về, tô xa sớm đổi xong quần áo, ngồi trên xe lăn nói:"chí dũng, ngươi đi thuốc lá điểm."
+Dưa hấu lúc này không còn được lũ trẻ con săn đón cuồng nhiệt như đợt Tết Nguyên đán năm ngoái nữa, chúng chẳng mấy hào hứng ăn, bởi lẽ nhà nào ở Triệu gia thôn mùa này cũng trồng đầy dưa hấu.
 
-Đến giúp đỡ của nam nhân không nghĩ tới lại có thuốc lá.
+Đợi mọi người quay lại đông đủ, Tô Miến đã thay xong bộ quần áo tinh tươm, ngồi ngay ngắn trên xe lăn dặn: "Trí Dũng, mày đi chia thuốc lá cho các chú các bác đi."
 
-Triệu Chí Dũng tính một cái, một người cho 6 bao, mỗi người đều đắp điểm, từ đó hoa đến Hoàng Phù, còn có cùng thiên hạ.
+Mấy người đàn ông đến phụ giúp không ngờ lại tiếp tục được nhận thuốc lá xịn.
 
-Chó này.... Khâu lệ hà thật T M biết kiếm tiền!
+Triệu Trí Dũng tính toán một hồi, chia đều cho mỗi người sáu bao, ai cũng được chia đủ loại, từ Trung Hoa, Hoàng Phù Dung cho đến cả Hòa Thiên Hạ.
 
-Trong thôn lúc nào tiến cùng thiên hạ, ngươi bán cho ai?
+Mẹ kiếp... cái mụ Khâu Lệ Hà này đúng là biết kiếm tiền thật đấy!
 
-Còn có những thứ này tán bao của, sợ không phải hôm qua bọn hắn lấy về đổi Bạch Sa khói đi!?
+Cái tiệm tạp hóa thôn quê này từ bao giờ lại nhập cả thuốc lá Hòa Thiên Hạ về bán, định bán cho ma chắc?
 
-Đúng lúc này, có người kỵ đan xa ra bán kem cây, phía trên một cái bọt biển rương, hai mao tiền, đủ mọi màu sắc loại kia.
+Chưa kể mấy bao thuốc lá lẻ này, khéo lại chính là số thuốc lá Bạch Sa hôm qua dân làng mang ra đổi lại cũng nên!?
 
-Đắt tiền nhất 5 mao tiền.
+Đúng lúc này, có người đạp xe cút kít cất tiếng rao bán kem dạo đi ngang qua ngõ. Phía sau xe buộc một thùng xốp giữ nhiệt, bên trong đựng đủ loại kem que xanh đỏ hai hào một que.
 
-Tô xa gặp nhiều như vậy tiểu hài tử liền hô Triệu Chí Dũng toàn bộ mua lại.
+Loại đắt nhất cũng chỉ có năm hào.
 
-Cái này bán kem cây của cũng là trong thôn của, hàng năm cũng là hắn trong thôn rao hàng, đại khái cũng là biết tô xa tại, mới cố ý tới.
+Tô Miến nhìn thấy nhiều trẻ con vây quanh bèn bảo Triệu Trí Dũng mua đứt cả thùng kem.
 
-Tô xa chắc chắn cũng biết.
+Người bán kem dạo này cũng là người trong làng, năm nào đến mùa hè thu ông cũng đạp xe quanh xóm rao bán, có lẽ biết tin Tô Miến đang ở đây nên mới cố ý đạp xe qua.
 
-Mọi người đều biết.
+Tô Miến dĩ nhiên biết tỏng.
 
-Triệu gia thôn rất lớn, có 6 0 0 nhiều nhà, huyện bên đại thôn có 1 khoảng một nghìn nhà.
+Mọi người ai nấy đều hiểu rõ.
 
-Không phải mỗi hộ đều cùng Triệu Kim An nhà đi được gần, giống cái này bán kem cây của là thuộc về rất xa một mạch rồi.
+Triệu gia thôn rất lớn, có hơn sáu trăm hộ dân, thôn lớn ở huyện bên cạnh thậm chí còn lên tới cả nghìn hộ.
 
-Triệu Chí Dũng đếm tiểu hài nói:"tiểu thẩm thẩm, nhiều lắm."
+Không phải hộ nào cũng có quan hệ thân cận với nhà Triệu Kim An, như ông chú bán kem này thuộc về một nhánh họ hàng rất xa xôi.
 
-Tô xa nói:"không quan hệ, đại nhân các ngươi muốn ăn cũng có thể ăn."
+Triệu Trí Dũng đếm đầu lũ trẻ con rồi nói: "Thím nhỏ ơi, nhiều quá ăn không hết đâu."
 
-Nàng gọi cái này bán kem cây dọc theo thôn cho tiểu hài, đem còn lại của phát xong là được rồi.
+Tô Miến bảo: "Không sao đâu, các chú các bác người lớn muốn ăn thì cứ lấy mà ăn."
 
-Về phần hắn có thể hay không cõng về nhà không quản, đại khái sẽ không, tất cả mọi người là một cái thôn của, cái kia thanh danh liền thật sự xấu.
+Cô dặn người bán kem cứ đạp xe dọc đường làng phát cho trẻ con, phát cho đến khi hết sạch thùng kem là được.
 
-Có chút nam nhân cũng cầm một kem cây, tất cả mọi người nhìn xem tô xa.
+Còn chuyện ông ta có giấu giếm mang về nhà bớt hay không thì chắc là không, cùng là người một làng với nhau, làm trò bẩn thỉu đó thì thanh danh coi như vứt đi.
 
-Kỳ thực liền một trăm khối tiền không đến, cùng thuốc lá không thể so sánh, chính là thấy được tô xa của hào phóng.
+Mấy người đàn ông cũng tiện tay cầm một que kem mút mát, ánh mắt ai nấy đều dồn về phía Tô Miến.
 
-Không chỉ có là tiền, là vì người tính cách phương diện rất đại khí, không có một chút không phóng khoáng.
+Thực ra cả thùng kem cộng lại chưa đầy một trăm tệ, chẳng thấm tháp vào đâu so với mấy cây thuốc lá đắt tiền, nhưng ai nấy đều phải thán phục trước sự rộng rãi, thoáng tính của Tô Miến.
 
-Tô xa còn phá lệ hô câu:"có tài, ăn kem cây!"
+Không chỉ đơn thuần là chuyện tiền bạc, mà là ở tính cách, phong thái vô cùng phóng khoáng, đại khí, tuyệt nhiên không vương chút bủn xỉn, nhỏ mọn nào.
 
-Triệu có tài xoa xoa tay tới bắt một cây.
+Tô Miến còn cất tiếng gọi to: "Anh Hữu Tài, ăn kem đi anh!"
 
-Một đám nam nhân cười vang.
+Triệu Hữu Tài xoa xoa hai bàn tay thô ráp, ngượng nghịu bước lại lấy một que.
 
-Nãi nãi bưng tới một đầu làm xong lúa hoa ngư cho tô xa, nói không có thả quả ớt.
+Cả đám đàn ông trong sân cười ồ lên thích thú.
 
-Lần này giống như là không có người gọi điện thoại thúc giục tô xa trở về, ngô hiểu các nàng liền ở tại thị lý khách sạn.
+Bà nội bưng một đĩa cá hoa sen vừa om xong thơm phức ra cho Tô Miến, ân cần bảo món này bà không bỏ tí ớt nào.
 
-Triệu Kim An trở về cũng nên đi mấy chuyến nhà máy nước, nhà máy nước đang tại xây dựng thêm.
+Lần này dường như chẳng có ai gọi điện giục giã Tô Miến phải trở về, Ngô Hiểu và đoàn người tùy tùng đều ở lại khách sạn dưới thành phố.
 
-Tô xa ở trong nhà.
+Triệu Kim An đã về quê thì thế nào cũng phải ghé qua nhà máy nước vài chuyến, công xưởng nước khoáng hiện đang trong giai đoạn mở rộng quy mô.
 
-Không thể bước đi, an vị tại nhà chính cửa chính.
+Tô Miến thì ở lại nhà.
 
-Có Triệu Duyệt Thiên bồi tiếp nàng, còn có trẻ con trong thôn.
+Không đi lại được, cô cứ ngồi trên xe lăn ngay trước cửa chính gian nhà chính.
 
-Nãi nãi thỉnh thoảng tới hỏi tô nhớ lại ăn chút gì, vương kim như qua một thời gian ngắn cũng tới hỏi đầy miệng.
+Có Triệu Duyệt Thiên quấn quýt bên cạnh, lại thêm đám con nít trong làng ríu rít vây quanh.
 
-Cũng sẽ không quá nhàm chán, trong thôn thỉnh thoảng có nữ nhân tới thông cửa tán gẫu.
+Bà nội chốc chốc lại bước ra hỏi Tô Miến muốn ăn món gì, Vương Kim Như thỉnh thoảng cũng tạt qua hỏi han một câu.
 
-Cái kia bán kem cây của mỗi ngày tới, tô xa đều sẽ mua lại.
+Cuộc sống trôi qua chẳng hề tẻ nhạt, phụ nữ trong làng thi thoảng lại rủ nhau sang chơi, ngồi túm tụm cắn hạt dưa tán gẫu.
 
-Tới tiểu hài lại càng tới càng nhiều.
+Ông chú bán kem dạo ngày nào cũng ghé qua, và lần nào Tô Miến cũng bao trọn cả thùng kem.
 
-Triệu Kim An trở về, liền ôm tô xa trích nho, hỏi nàng nhàm chán sao?
+Lũ trẻ con kéo đến sân nhà họ Triệu tụ tập ngày một đông hơn.
 
-Tô xa nói tuyệt không nhàm chán, chơi rất vui.
+Mỗi khi Triệu Kim An đi công việc về, anh lại bế Tô Miến ra giàn hái nho, hỏi cô có thấy buồn chán không.
 
-Nàng uy rồi Triệu Kim An một khỏa nho, nói ở đây nhiều người như vậy, một người ngồi trong nhà mới chính thức nhàm chán.
+Tô Miến cười bảo chẳng thấy chán chút nào, vui lắm là đằng khác.
 
-Triệu Kim An có chút minh bạch.
+Cô đút một quả nho mọng nước vào miệng Triệu Kim An, thủ thỉ rằng ở đây đông vui nhộn nhịp thế này, chứ một mình thui thủi ngồi trong căn biệt thự rộng lớn ở nhà mới thực sự là cô đơn, buồn chán.
 
-Minh bạch tô xa thứ nhất Triệu gia thôn vì cái gì cứ như vậy hào phóng..... Nàng không phải không hiểu nhân tính, chính là quá hiểu nhân tính, trong lòng nàng tiêu ít tiền không quan trọng.
+Triệu Kim An bấy giờ mới vỡ lẽ phần nào.
 
-"Kim An, ta muốn trích này chuỗi đỏ."
+Anh hiểu được vì sao Tô Miến hễ về Triệu gia thôn lại vung tiền hào phóng đến như vậy... Cô không phải là không hiểu thói đời nhân tình thế thái, mà ngược lại, cô quá đỗi thấu hiểu lòng người. Trong mắt cô, tiêu chút tiền lẻ chẳng đáng là bao, nhưng đổi lại là sự ấm áp, chân thành và rộn rã tiếng cười.
 
-"hảo."
+"Kim An, em muốn hái chùm nho đỏ tím đằng kia kìa."
 
-Triệu Kim An đem tô xa nâng cao, Triệu Duyệt Thiên nhanh đi chuyển ghế.
+"Được rồi."
 
-Triệu Kim An của tính cách nói sợ giẫm bất ổn.
+Triệu Kim An nâng bổng Tô Miến lên cao, Triệu Duyệt Thiên thấy thế liền lăng xăng chạy đi bê ghế đẩu lại.
 
-Tô xa nói không sợ, Kim An ta tin tưởng ngươi.
+Tính khí Triệu Kim An cẩn thận, bảo sợ giẫm ghế không vững trượt chân.
 
-Cuối cùng Triệu Kim An ôm tô xa trích đến đó một chùm nho, không có mượn nhờ khác công cụ.
+Tô Miến liền bảo không sợ đâu, Kim An, em tin tưởng anh mà.
 
-Có tô xa tại, Triệu Kim An trong nhà mỗi ngày rất náo nhiệt.
+Cuối cùng, Triệu Kim An dùng chính đôi tay vững chãi của mình nâng Tô Miến lên hái trọn chùm nho mà chẳng cần mượn đến bất kỳ dụng cụ nào kê dưới chân.
 
-Trong thôn của quầy bán quà vặt trời vừa tối càng náo nhiệt, vây quanh chủ đề cũng là tô xa.
+Có Tô Miến ở đây, căn nhà của Triệu Kim An ngày nào cũng rộn rã tiếng cười vui như mở hội.
 
-Có người nói tô xa nhà nhất định là ngàn vạn phú hào.
+Tiệm tạp hóa trong làng cứ hễ về đêm lại càng thêm náo nhiệt, đề tài bàn tán rôm rả của dân làng bao giờ cũng xoay quanh cô tiểu thư Tô Miến.
 
-Có người nói là ức vạn phú hào.
+Người thì đoán gia đình Tô Miến chắc chắn là triệu phú cỡ hàng chục triệu tệ.
 
-Cái đề tài này còn không phải nghị luận nhiều nhất, triệu kiên nhẫn thứ nhất, khâu lệ hà trêu ghẹo nói:"kiên nhẫn, ngươi tiểu thẩm thẩm cho ngươi nhiều như vậy khói, ngươi để đổi Bạch Sa khói?"
+Kẻ lại quả quyết nhà cô phải là tỷ phú trăm triệu tệ trở lên.
 
-"cái rắm!"
+Đó vẫn chưa phải là chủ đề được mổ xẻ nhiều nhất. Vừa thấy Triệu Hữu Hằng bước vào, Khâu Lệ Hà liền cất giọng trêu chọc: "Hữu Hằng này, thím nhỏ cho mày nhiều thuốc lá xịn thế, mày mang ra đây đổi lấy thuốc Bạch Sa à?"
 
-Triệu kiên nhẫn nói:"ta đến mua bình tương du."
+"Xì! Nói bậy!"
 
-"hắc, kiên nhẫn, ngươi tiểu thẩm thẩm có phải hay không con gái một?"
+Triệu Hữu Hằng quở: "Tôi ra mua chai nước tương thôi."
 
-Có phụ nhân nhà bát quái.
+"Này Hữu Hằng, thím nhỏ của mày có phải là con một trong nhà không đấy?"
 
-Vấn đề này rất mấu chốt, tại trong lòng các nàng, nếu như tô xa là con gái một, Triệu Kim An liền phát đạt.
+Mấy mụ đàn bà nhiều chuyện xúm lại tò mò hỏi han.
 
-"liên quan quái gì đến các người? Mù lo lắng!"
+Câu hỏi này vô cùng mấu chốt, trong suy nghĩ của họ, nếu Tô Miến là con một độc nhất vô nhị, thế thì thằng Kim An coi như đổi đời, phát tài to rồi.
 
-Triệu kiên nhẫn tức giận nói.
+"Mắc mớ gì đến các bà? Rảnh rỗi lo bò trắng răng!"
 
-Có người nói vương kim như chân mệnh hảo, bây giờ tại trong thôn đi đường đều mang gió.
+Triệu Hữu Hằng gắt gỏng bực bội.
 
-Có người đột nhiên nói lên đoạn thu bình, nói tô xa đi gặp qua đoạn thu bình sao, không có người biết, cuối cùng lại quy kết đến vương kim như tốt số.
+Có người chép miệng bảo Vương Kim Như đúng là số sướng như tiên, giờ ra đường bước đi gió thổi phần phật, mặt vênh tận trời.
 
-Lần này triệu kiên nhẫn không nói chuyện.
+Lại có người đột nhiên nhắc đến Đoạn Thu Bình, hỏi xem Tô Miến đã sang gặp mặt Đoạn Thu Bình chưa, chẳng ai biết rõ thực hư, cuối cùng câu chuyện lại quay về kết luận muôn thuở: Vương Kim Như tốt số thật.
 
-Sâm thành.
+Lần này Triệu Hữu Hằng im lặng, không thèm đáp lời.
 
-Đoạn thu bình cúp điện thoại, đối với tống siêu văn nói:"tô xa tới."
+***
 
-"ai?"
+Thành phố Sầm Thành.
 
-Tống siêu văn đánh hảo bao đưa tiễn một người khách nhân.
+Đoạn Thu Bình đặt ống nghe điện thoại xuống, quay sang bảo Tống Siêu Văn: "Tô Miến về rồi."
 
-Đoạn thu bình tìm cái băng ngồi xuống, nói:"Kim An! Tô xa tới Triệu gia thôn."
+"Ai cơ?"
 
-"a!?"
+Tống Siêu Văn vừa thoăn thoắt gói đồ ăn đưa cho khách vừa ngẩng lên hỏi.
 
-Đang tại quét sân tống đẹp lúa nâng người lên, một mặt kinh ngạc:"liền Kim An của bạn gái? Năm ngoái tại thôn bọn họ bên trong phát tiền cái kia?"
+Đoạn Thu Bình kéo chiếc ghế đẩu ngồi xuống, đáp: "Thằng Kim An ấy! Con bé Tô Miến nó theo chân Kim An về Triệu gia thôn rồi."
 
-Quốc khánh làm ăn khá, tống đẹp lúa cũng tới hỗ trợ.
+"Hả!?"
 
-Một nhà bốn miệng, liền tống gia nguyệt còn nhỏ mới 4 tuổi không thể làm công việc, một người thành thành thật thật ngồi trên ghế, chờ lấy mụ mụ giúp xong mang về nhà mình ngủ.
+Tống Uyển Hòa đang cầm chổi quét nhà liền đứng thẳng người dậy, gương mặt lộ rõ vẻ kinh ngạc: "Chính là cô bạn gái của anh Kim An đấy ạ? Cái người năm ngoái về làng phát tiền rầm rộ ấy hả mẹ?"
 
-Bên cạnh quầy hàng lão Lý nghe được điểm, kéo lên yết hầu:"lão Tống, ngươi lần trước cùng chúng ta khoác lác, nói ngươi đứa con trai kia tìm một cái siêu có tiền bạn gái, ngươi còn không phải giống như chúng ta đang bán đồ nướng!?"
+Dịp nghỉ lễ Quốc khánh quán ăn làm ăn phát đạt, đông khách nên Tống Uyển Hòa cũng ra phụ giúp một tay.
 
-"chính là!"
+Gia đình bốn người, chỉ có bé Tống Gia Nguyệt mới bốn tuổi còn quá nhỏ chưa làm được việc gì, cứ ngồi ngoan ngoãn trên chiếc ghế con, chờ mẹ bận xong việc sẽ dẫn về nhà ngủ.
 
-Cái kia chủ quán cười ha hả gây rối.
+Bác Lý ở quầy hàng bên cạnh nghe loáng thoáng được vài câu, liền cao giọng trêu: "Lão Tống ơi, hôm nọ ông khoe khoang với bọn này bảo thằng con trai ông tìm được cô bạn gái siêu giàu có nứt đố đổ vách, thế sao bây giờ ông vẫn phải đứng đây bán đồ nướng với chúng tôi thế này hả!?"
 
-Tống siêu văn cười ngượng ngùng vài tiếng, có chút ngượng ngùng.
+"Chuẩn luôn!"
 
-Đoạn thu bình ngẩng đầu nhìn một chút tống siêu văn, lại nhìn về phía một người trung thực đang ngồi tống gia nguyệt, nói:"ta ngày mai phải về Triệu gia thôn một chuyến."
+Một chủ quầy hàng khác cũng ha hả cười hùa theo.
 
-Tống siêu văn há há mồm, cuối cùng gật đầu nói, hảo.
+Tống Siêu Văn cười gượng gạo vài tiếng, nét mặt lộ rõ vẻ ngượng ngùng, bối rối.
 
-"cái kia, ta đi có thể chứ?"
+Đoạn Thu Bình ngước mắt nhìn Tống Siêu Văn một cái, rồi lại nhìn sang bé Tống Gia Nguyệt đang ngồi ngoan ngoãn một góc, cất lời: "Ngày mai tôi phải về Triệu gia thôn một chuyến."
 
-Tống đẹp lúa chưa thấy qua tô xa, chính là Triệu Kim An, cũng là Triệu Kim An bên trên lúc sơ trung gặp mặt một lần.
+Tống Siêu Văn mấp máy môi định nói gì đó, nhưng cuối cùng chỉ gật đầu bảo: "Được, bà cứ đi đi."
 
-Là người liền sẽ có lòng hiếu kỳ.
+"Dì ơi, con đi cùng với dì có được không?"
 
-Tống đẹp lúa hỏi đoạn thu bình, chính là tống siêu văn đều nói Triệu Kim An dáng dấp hảo.
+Tống Uyển Hòa chưa từng gặp mặt Tô Miến, ngay cả Triệu Kim An thì cô cũng chỉ mới nhìn thấy đúng một lần hồi anh còn học cấp hai.
 
-Còn có đoạn thu bình nói, nghe người trong thôn nói tô xa rất xinh đẹp.
+Là con người thì ai chẳng có tính tò mò.
 
-Không phải một cái hai cái, là rất nhiều người đều như vậy
+Tống Uyển Hòa đã gặng hỏi Đoạn Thu Bình nhiều lần, ngay cả bố cô là Tống Siêu Văn cũng hết lời khen Triệu Kim An khôi ngô tuấn tú, sáng sủa.
+
+Lại thêm lời Đoạn Thu Bình kể rằng người trong làng ai nấy đều khen Tô Miến xinh đẹp tuyệt trần.
+
+Không phải một hai người khen, mà là tất cả mọi người đều nói như vậy.

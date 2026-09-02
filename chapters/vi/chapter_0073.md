@@ -1,199 +1,201 @@
-# Chương 73: Người Cậu Không Thích Tôi Cũng Không Thích
+# Chương 73: Người cậu không thích, tôi cũng chẳng ưa
 
-Triệu Kim An đã hiểu ra đôi chút.
+> **Tiêu đề gốc**: 第73章 你不喜欢的人，我也不喜欢。
 
-"Thật ra sớm đã biết là đồ thừa, nhưng mà..."
+Triệu Kim An đã phần nào hiểu ra.
 
-Vu Tu Nhiên đột nhiên cảm khái: "Anh vừa mới dìu một vị sư huynh say rượu lên lầu, hắn nôn ra hành lang, văng cả vào quần anh. Cậu có biết hắn nói gì không?"
+"Thật ra thì từ sớm đã biết là đồ ăn thừa rồi, nhưng mà..."
 
-Triệu Kim An cúi đầu nhìn một cái rồi lắc đầu.
+Vu Tu Nhiên đột nhiên cảm thán: "Vừa rồi tôi đỡ một đàn anh uống say lên lầu, anh ta nôn ngay ngoài hành lang, dính cả vào ống quần tôi. Cậu có biết anh ta nói gì không?"
 
-"Hắn chẳng thèm xin lỗi, còn hất tay anh ra rồi lầu bầu bảo sao không phải là con gái, hừ."
+Triệu Kim An cúi đầu liếc nhìn ống quần anh ta rồi lắc đầu.
 
-Vu Tu Nhiên nói xong còn bật cười: "Anh đang nghĩ, sau khi tốt nghiệp đại học, thứ dùng để đong đếm chúng ta không phải nhân phẩm, càng không phải cái thứ đạo đức chết tiệt gì đó, mà là việc cậu làm ăn lớn thế nào, làm quan to bao nhiêu!"
+"Anh ta chẳng thèm xin lỗi một câu, lại còn hất tay tôi ra gắt gỏng hỏi sao không phải là nữ sinh đỡ, hừ hừ."
 
-Vu Tu Nhiên văng tục, anh ta nói: "Triệu Kim An, ngày hôm nay anh mới thực sự được học tiết học đầu tiên, anh rất cảm ơn hắn."
+Vu Tu Nhiên vừa nói vừa cười cay đắng: "Tôi đang nghĩ, sau khi tốt nghiệp đại học, thứ dùng để đo lường giá trị của chúng ta chẳng phải là nhân phẩm, càng đách phải là cái thứ đạo đức chết tiệt gì, mà là chuyện làm ăn của cậu lớn đến đâu, chức quan của cậu to đến mức nào!"
 
-Triệu Kim An không nói gì, đưa cho Vu Tu Nhiên một điếu thuốc.
+Vu Tu Nhiên văng tục một câu, rồi nói tiếp: "Triệu Kim An à, hôm nay tôi mới thật sự được học tiết học đầu tiên trong đời, tôi phải cảm ơn anh ta mới đúng."
 
-Vu Tu Nhiên châm thuốc, giống như có nói mãi cũng không hết chuyện.
+Triệu Kim An không nói gì, rút một điếu thuốc đưa cho Vu Tu Nhiên.
 
-"Cậu có biết tiêu chuẩn của cựu sinh viên ưu tú là gì không? Ở cái khách sạn này, bọn họ chia ra làm mấy đẳng cấp, mấy cô em kia cũng chia đẳng cấp, ngay từ lúc ở buổi gặp mặt tại sảnh tiệc đã phân cấp rõ ràng rồi."
+Vu Tu Nhiên châm thuốc, như thể có bao nhiêu nỗi niềm muốn trút bỏ:
 
-"Nực cười thật đúng không, mọi người đều là cựu sinh viên."
+"Cậu có biết tiêu chuẩn của 'cựu sinh viên kiệt xuất' là gì không? Ở cái khách sạn này được chia làm mấy đẳng cấp, bọn họ cũng chia đẳng cấp, ngay từ buổi gặp mặt giao lưu ở trường cho tới sảnh tiệc này đều đã phân chia thứ bậc rạch ròi rồi."
 
-"Ấy thế mà ai nấy đều hiểu rõ và mặc định như vậy. Ở buổi gặp mặt tại trường là do anh quá ngây thơ, giờ thì anh ngộ ra rồi."
+"Buồn cười thật đấy, rõ ràng cùng là cựu sinh viên của trường cả."
 
-"Người mà cậu phục vụ kia chính là nhân vật cấp đỉnh cao đấy!"
+"Thế nhưng ai nấy trong lòng đều hiểu rõ mười mươi và mặc nhiên chấp nhận. Ở buổi gặp mặt trên trường là do tôi ngây thơ quá, giờ thì tôi ngộ ra rồi."
 
-Vu Tu Nhiên chỉ chỉ lên lầu: "Triệu Kim An, năm nay anh đã năm tư rồi, thật hâm mộ các cậu vẫn còn thời gian để ngây thơ. Anh đang nghĩ, kỷ niệm 80 năm thành lập trường liệu anh có tư cách quay lại hay không, và sẽ quay lại với thân phận gì."
+"Vị mà cậu hầu hạ kia mới là đỉnh chóp nhất!"
 
-"Kỷ niệm 80 năm quay lại liệu có còn gặp được vị sư huynh này không, nếu nhiều năm sau anh vẫn tay trắng chẳng làm nên trò trống gì..."
+Vu Tu Nhiên chỉ tay lên tầng trên: "Triệu Kim An, năm nay tôi học năm tư rồi, thật sự rất ghen tị với các cậu vì vẫn còn thời gian để ngây thơ. Tôi đang tự hỏi, đến lễ kỷ niệm 80 năm ngày thành lập trường, liệu tôi có đủ tư cách để quay về hay không, và sẽ trở về với tư cách thân phận gì."
 
-Nói đến cuối cùng, Vu Tu Nhiên rít mạnh một hơi thuốc, vỗ vỗ vai Triệu Kim An: "Triệu Kim An, cậu đi xe Audi đến, anh không biết là của cậu hay của bạn cậu."
+"Đến lễ kỷ niệm 80 năm quay về, liệu có còn gặp lại vị đàn anh kia nữa không? Nếu như nhiều năm sau này tôi vẫn chỉ là một kẻ bất tài vô dụng..."
 
-"Ở trên lầu kia... có cơ hội nhất định phải nắm chắc lấy!"
+Nói đến cuối cùng, Vu Tu Nhiên rít một hơi thuốc thật sâu, vỗ mạnh vào vai Triệu Kim An: "Triệu Kim An, cậu ngồi xe Audi tới đây, tôi không biết xe đó là của cậu hay của bạn cậu."
 
-Vu Tu Nhiên giống như đã say, nhưng Triệu Kim An lại biết, lần lễ kỷ niệm này đối với Vu Tu Nhiên mà nói là một lần tẩy lễ và trưởng thành, cuộc đời của anh ta có lẽ cũng nhờ vậy mà trở nên rực rỡ hơn.
+"Nhưng người ở trên lầu kia... có cơ hội thì nhất định phải nắm thật chặt lấy!"
 
-Khách sạn có dành riêng phòng cho tình nguyện viên, nhưng chỉ là phòng đôi bình thường.
+Trông Vu Tu Nhiên cứ như người say rượu, nhưng Triệu Kim An hiểu rõ, đợt kỷ niệm trường lần này đối với Vu Tu Nhiên là một cuộc gột rửa và trưởng thành thực sự. Cuộc đời anh ta có lẽ cũng nhờ đó mà trở nên rực rỡ hơn đôi phần.
 
-Vu Tu Nhiên đã ngủ say trên giường, tiếng ngáy vang trời. Triệu Kim An lại không ngủ được, hắn đứng bên cửa sổ châm một điếu thuốc.
+Khách sạn có sắp xếp phòng nghỉ cho các tình nguyện viên, nhưng chỉ là phòng đôi tiêu chuẩn bình thường.
 
-Nhìn Vu Tu Nhiên, hắn như nhìn thấy chính mình của ngày xưa.
+Vu Tu Nhiên nằm trên giường đã ngủ say, tiếng ngáy vang lên đều đều. Triệu Kim An lại không tài nào chợp mắt được, anh đứng bên khung cửa sổ châm một điếu thuốc.
 
-Đã rất muộn, Lưu Sấm Phong gọi điện tới, Cốc Siêu Thừa còn ở bên cạnh hùa theo, hỏi Kim An có làm phiền đến cậu không, có đàn chị nào tìm cậu tâm sự chuyện đời không?
+Nhìn Vu Tu Nhiên, anh như nhìn thấy chính hình bóng của mình năm xưa.
 
-Trong điện thoại vang lên một tràng cười quái dị.
+Đêm đã rất muộn, Lưu Sấm Phong gọi điện thoại tới. Cốc Siêu Thừa ở bên cạnh hò reo trêu chọc, hỏi Kim An có bị làm phiền không, có đàn chị nào tìm cậu tâm sự chuyện nhân sinh lý tưởng hay chưa?
 
-Lưu Sấm Phong bảo hắn hối hận rồi, biết thế đã đến khách sạn làm tình nguyện viên.
+Trong điện thoại rộ lên những tràng cười đầy quái gở.
 
-Ngày hôm sau.
+Lưu Sấm Phong bảo cậu ta hối hận chết đi được, biết thế đã đăng ký tới khách sạn làm tình nguyện viên rồi.
 
-Vu Tu Nhiên từ rất sớm đã lên lầu tìm vị sư huynh tối qua, vị sư huynh kia đã xin lỗi anh ta.
+Hôm sau.
 
-Hai người trò chuyện rất vui vẻ.
+Vu Tu Nhiên từ rất sớm đã lên lầu tìm vị đàn anh tối qua. Vị đàn anh kia đã mở lời xin lỗi Vu Tu Nhiên.
 
-Triệu Kim An lại biết, Vu Tu Nhiên đã "lột xác".
+Hai người trò chuyện vô cùng rôm rả, hòa hợp.
 
-Sự trưởng thành của một con người có lẽ chỉ diễn ra trong tích tắc.
+Triệu Kim An nhìn thấy cảnh đó liền hiểu rằng, Vu Tu Nhiên đã hoàn toàn "lột xác".
 
-Chập tối.
+Sự trưởng thành của một con người đôi khi chỉ diễn ra trong vỏn vẹn một khoảnh khắc.
 
-Nhà thi đấu đông nghịt người, Trần Trạch thủ sẵn hai cây thuốc lá xanh tìm đến trưởng bộ phận Thể dục của Hội sinh viên. Vị trưởng bộ phận này tự mình giữ lấy một cây, cây còn lại thì đem chia cho cấp dưới.
+Chiều tối.
 
-Trần Trạch vẫy tay với Từ Mạn Mạn, dẫn theo bốn cô gái của phòng 406 trường Trung Nam vào trường.
+Trong nhà thi đấu đông nghẹt người, Trần Trạch giấu hai cây thuốc lá Phù Dung xanh trong người đi tìm Trưởng ban Thể dục thể thao Hội Sinh viên. Vị Trưởng ban tự đút túi một cây, cây còn lại chia cho đám đàn em cấp dưới.
 
-"Như vậy cũng được sao!?"
+Trần Trạch vẫy tay gọi Từ Mạn Mạn, dẫn bốn cô gái phòng 406 trường Trung Nam vào hội trường.
 
-Lưu Sấm Phong — lớp phó kiêm ủy viên thể dục lớp Kế toán 1, thành viên bộ phận Đối ngoại Hội sinh viên — chỉ được chia cho đúng một điếu thuốc.
+"Thế này cũng được á!?"
+
+Cậu bạn Lưu Sấm Phong - Lớp phó kiêm Ủy viên Thể dục thể thao lớp Kế toán 1, thành viên Ban Đối ngoại Hội Sinh viên - chỉ được chia đúng một điếu thuốc lá lẻ.
 
 Trần Trạch và Cốc Siêu Thừa tìm chỗ ngồi cho bốn cô gái phòng 406.
 
-Sau khi ngồi xuống, Mộc Dao nhìn quanh một lượt: "Trần Trạch, Kim An đâu?"
+Sau khi an tọa, Mộc Dao ngó nghiêng nhìn quanh: "Trần Trạch, Kim An đâu rồi?"
 
-Cốc Siêu Thừa nói: "Kim An cũng giống lão Lưu, đều là tình nguyện viên."
+Cốc Siêu Thừa nói: "Kim An với lão Lưu đều làm tình nguyện viên mà."
 
-"Vậy Kim An có đến không?" Mộc Dao dáo dác nhìn quanh.
+"Thế Kim An có tới đây không?" Mộc Dao dáo dác nhìn đông ngó tây.
 
-Thẩm Tử Ngôn quang minh chính đại nhìn về phía Cốc Siêu Thừa.
+Thẩm Tử Ngôn nhìn thẳng sang Cốc Siêu Thừa,
 
-Từ Mạn Mạn cũng vểnh tai lên nghe.
+Từ Mạn Mạn cũng vểnh tai lắng nghe.
 
-Cốc Siêu Thừa nói: "Chắc là sẽ đến, nhưng Kim An không xem được đến lúc kết thúc đâu, bọn họ phải đến khách sạn nơi các khách mời cư trú trước."
+Cốc Siêu Thừa bảo: "Chắc là có tới, nhưng Kim An không xem được đến hết đâu, bọn họ phải tới khách sạn lưu trú trước."
 
-"Vậy chúng ta giữ chỗ cho Kim An đi."
+"Vậy bọn mình giữ một chỗ ngồi cho Kim An nhé."
 
-Mộc Dao vừa nói xong, Thẩm Tử Ngôn liền ngồi dịch ra một vị trí, lấy túi xách đặt lên trên.
+Mộc Dao vừa dứt lời, Thẩm Tử Ngôn liền dịch sang một ghế, cầm túi xách đặt lên ghế trống bên cạnh.
 
-Cốc Siêu Thừa vốn dĩ muốn ngồi ở giữa, Trần Trạch lại chỉ tay về phía hàng ghế đầu, nói với Từ Mạn Mạn bên cạnh: "Đường Hiểu Tình kìa."
+Cốc Siêu Thừa vốn muốn chen vào ngồi giữa, Trần Trạch liền chỉ tay về hàng ghế phía trước bảo với Từ Mạn Mạn bên cạnh: "Đường Hiểu Tình kìa."
 
-Nghe vậy, bốn cô gái cùng nhìn về phía hàng trước.
+Nghe vậy, cả bốn cô gái đều đưa mắt nhìn về hàng ghế phía trước.
 
-Cốc Siêu Thừa rướn người giải thích với Mộc Dao: "Lý Lộ và Đường Hiểu Tình lớp tôi đều thích Kim An, cái cô Lý Lộ đó... Từ Mạn Mạn biết đấy, hôm đó còn tỏ tình với Kim An..."
+Cốc Siêu Thừa rướn người giải thích với Mộc Dao: "Lý Lộ với Đường Hiểu Tình lớp bọn mình thích Kim An lắm. Cái cậu Lý Lộ đó... Từ Mạn Mạn biết đấy, hôm đó còn công khai tỏ tình với Kim An cơ..."
 
-Mộc Dao "vèo" một cái đứng bật dậy.
+Mộc Dao "phắt" một cái đứng bật dậy.
 
-Từ Mạn Mạn kéo Mộc Dao lại, lắc đầu với nàng: "Đây là trường của họ, cậu không cần lo lắng, hôm đó Triệu Kim An đã từ chối cô ta rồi."
+Từ Mạn Mạn vội kéo tay Mộc Dao ngồi xuống, lắc đầu bảo: "Đây là trường của họ, cậu không cần lo đâu, hôm đó Triệu Kim An đã từ chối cậu ta rồi."
 
-Trần Trạch cũng rướn người nói với Mộc Dao: "Mộc Dao, Đường Hiểu Tình không có gì đáng lo đâu, cô ấy, cô ấy hơi thấp."
+Trần Trạch cũng ghé sang nói với Mộc Dao: "Mộc Dao à, Đường Hiểu Tình thì chẳng có gì đáng lo đâu, cậu ấy... cậu ấy vóc dáng hơi thấp bé."
 
-Từ Mạn Mạn lập tức nhìn chằm chằm Trần Trạch. Hắn biết mình đã nói sai, không nên nói về bạn cùng lớp như vậy, bèn há miệng: "Mạn Mạn, anh chỉ nói thật thôi, không có ý gì khác."
+Từ Mạn Mạn lập tức trừng mắt lườm Trần Trạch. Trần Trạch biết mình lỡ lời nói bậy sau lưng bạn học, vội vàng thanh minh: "Mạn Mạn, anh chỉ nói sự thật thôi chứ không có ý gì khác đâu."
 
-Đường Hiểu Tình ngồi ở hàng trước chỉ lộ ra đỉnh đầu, nàng đang tập trung nhìn sân khấu phía trước, giống như đang chờ đợi một buổi biểu diễn hoành tráng.
+Đường Hiểu Tình ngồi ở hàng ghế trước chỉ lộ ra đỉnh đầu, cô chăm chú ngước nhìn sân khấu rực rỡ phía trước, như thể đang chờ đón một buổi biểu diễn vô cùng hoành tráng.
 
-Một là, đây vừa là lễ kỷ niệm trường vừa là đêm nhạc hội chào tân sinh viên.
+Một là, đây vừa là đại lễ kỷ niệm trường vừa là đêm hội chào đón tân sinh viên.
 
-Đường Hiểu Tình thầm tự cổ vũ cho chính mình, nàng đã trở thành một sinh viên đại học rồi.
+Đường Hiểu Tình thầm tự vỗ tay chúc mừng cho chính mình trong lòng, rốt cuộc cô cũng đã trở thành một sinh viên đại học thực thụ.
 
-Hai là, nhà nàng đến cả tivi màu cũng không có, nếu có người về quê chiếu phim, nàng sẽ dìu mẹ ra ngoài từ rất sớm, đó coi như là hoạt động giải trí duy nhất của họ.
+Hai là, ở quê nhà cô nghèo đến mức ngay cả một chiếc tivi màu cũng không có. Hồi trước mỗi lần có đội chiếu phim lưu động về làng, cô đều từ rất sớm dìu mẹ ra bãi đất trống giữ chỗ, đó gần như là hoạt động giải trí duy nhất của hai mẹ con.
 
-Huống chi là sân khấu rực rỡ sắc màu thế kia, cả hội trường này có lẽ Đường Hiểu Tình chính là người mong đợi và nghiêm túc nhất.
+Huống chi một sân khấu lộng lẫy, rực rỡ sắc màu thế này, khắp cả khán phòng có lẽ Đường Hiểu Tình là người háo hức, mong chờ và chăm chú nhất.
 
-Nàng không hề biết đằng sau có bốn cô gái đang quan sát mình.
+Cô không hề hay biết phía sau có bốn cô gái đang dõi mắt nhìn mình.
 
-Lễ kỷ niệm sắp bắt đầu, lãnh đạo nhà trường và lãnh đạo các viện lần lượt có mặt, chỗ ngồi của họ ở hàng thứ nhất và thứ hai phía trước, các cựu sinh viên ưu tú cũng đã được sắp xếp chỗ ngồi.
+Lễ kỷ niệm sắp sửa bắt đầu, các vị lãnh đạo nhà trường và lãnh đạo các viện/khoa lục tục có mặt. Vị trí của họ được xếp ở hàng ghế thứ nhất và thứ hai, các cựu sinh viên kiệt xuất cũng đều được bố trí chỗ ngồi trang trọng.
 
-Bên ngoài nhà thi đấu, Triệu Kim An bế Tô Miền xuống xe, một đoạn đường ngắn hắn liền bế thẳng nàng lên bậc thang.
+Phía ngoài nhà thi đấu, Triệu Kim An bế Tô Miến xuống xe, qua một đoạn bậc thang ngắn anh bế thẳng cô bước lên.
 
-Tô Miền lần đầu tiên đưa tay nắm lấy tay áo của Triệu Kim An.
+Đây là lần đầu tiên Tô Miến chủ động đưa tay nắm chặt lấy tay áo của Triệu Kim An.
 
-Ở cửa, Lưu Sấm Phong trợn tròn mắt: "Kim An, mày, mày..."
+Đứng ngay cửa, Lưu Sấm Phong trố tròn hai mắt: "Kim An, cậu... cậu..."
 
-Cái tên mặt trắng này... thật sự có đàn chị sao!
+Thằng nhóc tiểu bạch kiểm này... thực sự kiếm được đàn chị bao nuôi rồi sao!
 
-Tối qua hắn... có được không nhỉ? Chắc là không được đâu?
+Tối hôm qua... liệu có làm ăn gì được không nhỉ? Chắc là không đâu nhỉ?
 
-Tô Miền liếc nhìn Lưu Sấm Phong đang làm vẻ kinh động, hỏi: "Bạn học của cậu à?"
+Tô Miến liếc nhìn Lưu Sấm Phong đang làm ầm ĩ, hỏi: "Bạn học của cậu à?"
 
-"Bạn cùng phòng."
+"Bạn cùng phòng ký túc xá."
 
-Triệu Kim An đẩy xe lăn, Ngô Hiểu đi theo sau. Tô Miền nói: "Có tĩnh điện."
+Triệu Kim An đẩy xe lăn đi vào, Ngô Hiểu đi theo sau. Tô Miến chợt bảo: "Có tĩnh điện."
 
-Triệu Kim An cúi đầu nhìn một cái: "Thời tiết này đúng là có tĩnh điện thật."
+Triệu Kim An cúi đầu nhìn: "Thời tiết này sinh ra tĩnh điện là chuyện bình thường mà."
 
-Tô Miền nói: "Có tĩnh điện là do áo cậu không tốt... là sợi polyester đấy."
-
-Triệu Kim An: "..."
-
-Không đẩy nữa.
-
-Tô Miền mỉm cười nói: "Tôi mua cho cậu."
-
-Hai người nhỏ giọng trò chuyện, Diêu Tân đột nhiên chỉ tay về phía lối đi: "Đó chẳng phải là Triệu Kim An sao?"
-
-Mấy người đồng loạt nhìn về phía lối đi, trước ngực Triệu Kim An đang treo thẻ tình nguyện viên. Một lúc sau, Trần Trạch lẩm bẩm: "Kim An không cần chúng ta giữ chỗ nữa rồi."
-
-Bốn cô gái nhìn chằm chằm vào người phụ nữ trên xe lăn, nhìn hàng ghế lãnh đạo trường phía trước là biết, thân phận của người phụ nữ này không hề đơn giản.
-
-Triệu Kim An đột nhiên phát hiện ra một người trông hơi quen mắt.
-
-Hà Minh Huy của Ban Chấp hành Đoàn viện, áo sơ mi trắng vest đen, bụng bia phệ ra, đang trưng bộ mặt nịnh bợ với người bên cạnh.
-
-Người bên cạnh chắc chắn chức vụ cao hơn lão, không phải lãnh đạo trực hệ của Đoàn trường thì cũng là lãnh đạo cấp cao hơn của trường.
-
-Cái tên Hà Minh Huy này dù có qua mười năm nữa Triệu Kim An cũng sẽ nhớ rõ, kéo theo đó là cảm giác bài xích với cả đám người này. Hắn biết cảm giác ấy chẳng vì lý do gì cả.
-
-Nhưng nội tâm hắn chính là bài xích!
-
-Kiếp trước Triệu Kim An đã quá khao khát có được khoản trợ cấp cho sinh viên nghèo.
-
-Nhưng hắn không lấy được.
-
-Hiện tại nhìn bọn họ nhường nhịn nhau, định ngồi lại thôi, Triệu Kim An chỉ cảm thấy hơi buồn nôn. Hắn biết mình có chút phẫn thế tục quá đà, theo cách nói của người trưởng thành.
-
-Hạng người như vậy không làm nên trò trống gì!
-
-Nghĩ đến biểu hiện sáng nay của Vu Tu Nhiên, Triệu Kim An cảm thấy mình không bằng anh ta.
-
-Nhận ra điều bất thường, Tô Miền ngẩng đầu lên: "Cậu không thích họ."
-
-Triệu Kim An nặn ra một nụ cười, không nói gì.
-
-Tô Miền bảo: "Người cậu không thích, tôi cũng không thích."
-
-"Chủ nhiệm Tô..."
-
-Hiệu trưởng Cung đứng dậy chào hỏi đầu tiên. Ông là người biết rõ lai lịch của Tô Miền, tuy rằng Tô Cảnh Hành cũng chỉ là cấp Sở, nhưng Sở và Sở lại không giống nhau.
-
-Quan trọng nhất là, cha của Tô Miền — Tô Minh Tùng.
-
-Tô Miền đúng là tùy hứng, nàng chỉ thản nhiên gật đầu với hiệu trưởng Cung, đến một nụ cười cũng chẳng thèm ban cho.
-
-Bàn tay hiệu trưởng Cung đưa ra đành ngượng ngùng rụt về.
-
-Ông đã sớm nghe nói Tô Minh Tùng cưng chiều nhất là cô con gái út này, còn có cả hai người anh trai của nàng nữa.
-
-Ngô Hiểu thì đã quá quen rồi, tiểu thư nhà họ Tô chính là tùy hứng như vậy, nhưng người ta có vốn liếng để tùy hứng.
-
-Tô Miền bảo Triệu Kim An ngồi xuống bên cạnh mình, ngay hàng ghế đầu tiên. Triệu Kim An quay đầu nhìn bảng tên, Tô Miền nói: "Không cần nhìn, chỗ ở đây cậu muốn ngồi đâu thì ngồi."
+Tô Miến nói: "Có tĩnh điện là do quần áo của cậu chất lượng kém... là sợi tổng hợp polyester."
 
 Triệu Kim An: "..."
 
-Các vị lãnh đạo trường ngồi hai bên trái phải đều cứng người, khóe miệng giật giật liên tục.
+Không thèm đẩy nữa.
 
-"Cái đó, cô không thể nói nhỏ giọng lại một chút sao?"
+Tô Miến khẽ mỉm cười: "Tôi mua cho cậu."
 
-Hàng ghế sau.
+Hai người nhỏ giọng trò chuyện qua lại, Diêu Sân đột nhiên đưa tay chỉ về phía lối đi: "Kia chẳng phải là Triệu Kim An sao?"
 
-Cốc Siêu Thừa bấu vào lưng ghế nói: "Trạch ca, Kim An ngồi ở hàng đầu tiên... bên cạnh là hiệu phó."
+Mấy người đồng loạt quay phắt lại nhìn về phía lối đi. Triệu Kim An đeo thẻ tình nguyện viên trước ngực. Một lát sau Trần Trạch ngơ ngác lẩm bẩm: "Kim An chẳng cần chúng ta giữ chỗ cho nữa rồi."
+
+Bốn cô gái nhìn trân trân vào người phụ nữ ngồi trên xe lăn, chỉ cần nhìn vị trí ngồi ngang hàng với các lãnh đạo trường ở hàng đầu là đủ biết thân phận của người phụ nữ này tuyệt đối không hề đơn giản.
+
+Triệu Kim An đột nhiên phát hiện một bóng người trông khá quen mắt.
+
+Hà Minh Huy của Đoàn trường khoa Kế toán, áo sơ mi trắng quần tây đen, bụng phệ nhô ra, đang trưng ra nụ cười nịnh nọt khúm núm trước một người bên cạnh.
+
+Người ngồi bên cạnh chắc chắn có chức vụ cao hơn hắn, không phải lãnh đạo trực tiếp của Đoàn trường thì cũng là nhân vật cấp cao hơn trong ban giám hiệu.
+
+Cái tên Hà Minh Huy này, cho dù có qua mười năm nữa Triệu Kim An cũng không bao giờ quên được. Nhìn thấy hắn, trong lòng anh liền dấy lên sự bài xích đối với toàn bộ những kẻ như vậy. Anh biết cảm giác này chẳng có lý do cụ thể nào cả.
+
+Nhưng tận đáy lòng chính là vô cùng chán ghét!
+
+Ở kiếp trước, Triệu Kim An đã khao khát có được suất học bổng trợ cấp sinh viên nghèo biết bao nhiêu.
+
+Thế nhưng anh không tài nào xin được.
+
+Bây giờ nhìn bọn họ nhường nhịn nhau từng chỗ ngồi, làm bộ làm tịch làm màu, Triệu Kim An chỉ cảm thấy buồn nôn. Anh biết bản thân có phần bất mãn với thói đời, nếu dùng cách nói của người trưởng thành thì...
+
+Loại người này chẳng bao giờ làm nên trò trống gì lớn lao!
+
+Nhớ lại biểu hiện sáng nay của Vu Tu Nhiên, Triệu Kim An tự thấy mình còn không bằng anh ta.
+
+Nhận ra sự khác lạ, Tô Miến ngước đầu nhìn anh: "Cậu không thích bọn họ à?"
+
+Triệu Kim An gượng cười một cái, không đáp.
+
+Tô Miến lạnh nhạt buông một câu: "Người cậu không thích, tôi cũng chẳng ưa."
+
+"Tô Chủ nhiệm..."
+
+Hiệu trưởng Cung đứng dậy bước tới chào hỏi đầu tiên. Ông là người nắm rõ lai lịch gia thế của Tô Miến. Tuy Tô Cảnh Hành cũng chỉ là cán bộ cấp Sảnh, nhưng cấp Sảnh này với cấp Sảnh khác vốn dĩ chẳng thể đánh đồng.
+
+Quan trọng nhất chính là cha của Tô Miến - ông cụ Tô Minh Tùng.
+
+Tô Miến quả thực vô cùng tùy tính và ngạo nghễ, cô chỉ khẽ gật đầu chào Hiệu trưởng Cung một cái, đến nửa nụ cười cũng chẳng thèm ban phát.
+
+Bàn tay Hiệu trưởng Cung đang chìa ra giữa chừng đành ngượng ngùng rụt lại, cười gượng gạo.
+
+Ông đã sớm nghe danh Tô Minh Tùng cưng chiều cô con gái út này nhất mực, thêm cả hai người anh trai quyền thế cũng hết lòng bảo bọc cô.
+
+Ngô Hiểu thì đã quá quen với cảnh này rồi. Tô tiểu thư xưa nay vẫn ngông nghênh ngang tàng như thế, có điều người ta có đủ vốn liếng và chỗ dựa để tùy ý làm càn.
+
+Tô Miến bảo Triệu Kim An ngồi xuống ngay bên cạnh mình, ở vị trí trang trọng nhất hàng ghế đầu tiên. Triệu Kim An ngoái nhìn biển tên đặt trên bàn, Tô Miến liền nói: "Không cần phải nhìn, chỗ ngồi ở đây cậu muốn ngồi đâu thì ngồi."
+
+Triệu Kim An: "..."
+
+Các vị lãnh đạo nhà trường ngồi ngay ngắn hai bên tả hữu, khóe miệng ai nấy giật giật liên hồi.
+
+Nói năng bá đạo như thế, cô không biết hạ bớt âm lượng xuống một chút à?
+
+Ở hàng ghế phía sau.
+
+Cốc Siêu Thừa vịn vào lưng ghế phía trước thảng thốt bảo: "Trạch ca, Kim An ngồi ở hàng đầu tiên kìa... ngồi ngay cạnh Phó Hiệu trưởng luôn..."

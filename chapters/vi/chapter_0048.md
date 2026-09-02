@@ -1,201 +1,205 @@
-# Chương 48: Tâm Địa Sắt Đá, Còn Vô Tình
+# Chương 48: Lòng dạ sắt đá hơn bất cứ ai, lại còn vô tình
 
-Nghe Vương Duy Đào nói vậy, Trần Trạch cũng chẳng để tâm, hắn vẫn luôn cảm thấy Triệu Kim An là người khiêm tốn.
+> **Tiêu đề gốc**: 第48章 心肠比谁都硬，还无情。
 
-Giờ thì chân tướng đã rõ.
+Nghe thấy lời nhận xét của Vương Duy Đào, Trần Trạch cũng chẳng hề tỏ vẻ khó chịu, bởi từ trước tới nay hắn vẫn luôn có cảm giác Triệu Kim An là kiểu người thích sống kín tiếng, ẩn mình.
 
-Trần Trạch là người hiểu về xe cộ.
+Bây giờ thì chân tướng đã lộ rõ.
 
-Cứ nói thế này đi, trên đường phố Quận Sa năm 2006, số lượng xe Land Rover không vượt quá 100 chiếc.
+Trần Trạch là người rất sành sỏi về xe cộ.
 
-"Lão Cốc, tôi muốn làm mặt trắng nhỏ."
+Nói một cách thực tế, vào năm 2006 này, số lượng xe Range Rover lăn bánh trên đường phố Quận Sa chắc chắn không vượt quá một trăm chiếc.
 
-Cốc Siêu Thừa liếc hắn một cái: "Cậu chỉ là một gã thô kệch thôi."
+"Lão Cốc, tao cũng muốn đi làm 'tiểu bạch kiểm' ăn cơm mềm quá."
 
-Lưu Sấm Phong: "..."
+Cốc Siêu Thừa liếc xéo hắn một cái: "Mày chỉ là thằng đàn ông thô kệch cục mịch mà thôi."
 
-"Tôi thô kệch chỗ nào? Kiểu như tôi mới là đàn ông đích thực!"
+Lưu Sấm Phong nghẹn họng: "..."
 
-Hắn không chỉ một lần nói rằng Triệu Kim An còn thanh nhã hơn cả đám đàn bà con gái ở chỗ bọn họ.
+"Tao thô kệch chỗ nào chứ? Dáng dấp như tao mới đích thị là đàn ông đích thực!"
 
-Triệu Kim An bước tới, cất tiếng chào: "Lạc tổng."
+Trước đây hắn đã không ít lần rêu rao rằng Triệu Kim An trông còn ẻo lả, thư sinh hơn cả đàn bà con gái ở quê hắn.
 
-"Không bị phơi nắng đến đen đi sao?"
+Triệu Kim An từ tốn cất bước đi tới, khẽ cất tiếng chào: "Lạc tổng."
 
-Một tháng không gặp, Lạc Cẩn Chi đánh giá Triệu Kim An từ trên xuống dưới một lượt, định đưa tay nắm lấy cánh tay hắn, nhưng Triệu Kim An lùi lại một bước, khẽ lắc đầu.
+"Vẫn chưa bị phơi nắng đến đen nhèm nhỉ?"
 
-Lạc Cẩn Chi thu tay lại, nở nụ cười.
+Một tháng không gặp, Lạc Cẩn Chi đưa mắt đánh giá Triệu Kim An từ trên xuống dưới một lượt, vừa mỉm cười vừa đưa tay định kéo lấy cánh tay anh. Triệu Kim An liền lùi lại nửa bước, khẽ lắc đầu từ chối.
 
-"Người này..."
+Lạc Cẩn Chi thấy vậy liền thu tay về, nở nụ cười ý nhị.
 
-Cử chỉ thân mật của hai người lọt vào mắt mọi người, biểu cảm của đám sinh viên lớp Kế toán 1 vô cùng phong phú.
+"Cái thằng này..."
 
-Chẳng lẽ đúng là mặt trắng nhỏ thật? Triệu Kim An thật sự được bao nuôi sao?
+Hành động có phần thân mật và tự nhiên giữa hai người lọt trọn vào tầm mắt của tất cả mọi người, khiến biểu cảm của đám sinh viên lớp Kế toán 1 trở nên vô cùng đặc sắc.
 
-Lưu Sấm Phong lại cuống lên.
+Chẳng lẽ đúng là "tiểu bạch kiểm" thật sao? Triệu Kim An thật sự được người ta bao nuôi rồi ư!?
 
-"Kim An làm mặt trắng nhỏ thế này là không đạt yêu cầu, quá không đạt yêu cầu rồi! Sao cậu ấy có thể né tránh chứ? Xinh đẹp như vậy... là tôi thì kiểu gì cũng chịu, bảo uống nước tắm tôi cũng cam lòng!"
+Lưu Sấm Phong đứng đằng xa lại sốt ruột giậm chân bình bịch.
 
-"Nước tắm!?"
+"Thằng Kim An này làm 'tiểu bạch kiểm' dở quá, không đạt tiêu chuẩn chút nào cả! Nó làm sao có thể né tránh người ta như thế chứ? Người đẹp nghiêng nước nghiêng thành thế kia... Đổi lại là tao thì cái gì tao cũng chịu, bảo tao uống nước tắm của chị ấy tao cũng cam lòng!"
 
-Cốc Siêu Thừa ngẩn người, tên này đúng là chẳng có giới hạn gì cả, nhưng khi nhìn về phía Lạc Cẩn Chi, hắn lại nói: "Cậu mơ tưởng đẹp đẽ quá nhỉ."
+"Uống nước tắm!?"
 
-"Sao, nước tắm mà các cậu cũng muốn tranh giành à?"
+Cốc Siêu Thừa ngẩn người ra, thầm nghĩ cái thằng này đúng là không còn chút liêm sỉ hay giới hạn đạo đức nào nữa rồi, nhưng khi nhìn về phía Lạc Cẩn Chi, hắn cũng đành chép miệng: "Mày chỉ giỏi mơ mộng hão huyền thôi."
 
-Lưu Sấm Phong nhỏ giọng hỏi vặn lại, mắt nhìn Lạc Cẩn Chi không chớp lấy một cái.
+"Sao, đến nước tắm mà chúng mày cũng định tranh phần với tao à?"
 
-Mọi người: "..."
+Lưu Sấm Phong hạ giọng hỏi vặn lại, đôi mắt dán chặt không chớp vào Lạc Cẩn Chi.
 
-Vương Duy Đào bỏ lại một câu: "Lớp phó, cậu còn buồn nôn hơn cả tôi."
+Tất cả mọi người xung quanh: "..."
 
-Lạc Cẩn Chi mỉm cười gật đầu với bọn họ, rồi hỏi Triệu Kim An: "Bạn học của em à?"
+Vương Duy Đào ném lại một câu khinh bỉ: "Lớp phó, cậu còn kinh tởm hơn cả tôi tưởng đấy."
+
+Lạc Cẩn Chi mỉm cười khẽ gật đầu chào mọi người, rồi quay sang hỏi Triệu Kim An: "Bạn học của em à?"
 
 Triệu Kim An gật đầu: "Vâng."
 
-"Cuộc sống đại học... khá tốt đấy."
+"Cuộc sống thời đại học... quả thực rất tuyệt."
 
-Lạc Cẩn Chi tiến về phía này, mỉm cười đầy thân thiện nói: "Chào các bạn, tôi là chị họ của Kim An."
+Lạc Cẩn Chi ung dung sải bước tiến lại gần đám đông, nở nụ cười vô cùng hòa nhã và thân thiện: "Chào các em, chị là chị họ của Kim An."
 
 "Chị họ!?"
 
-Đối mặt với mỹ nhân chốn công sở, mọi người có chút lúng túng, chỉ có Trần Trạch là bình tĩnh hơn: "Chào chị họ."
+Đứng trước một mỹ nhân công sở thành đạt và quý phái nhường này, đám tân sinh viên không khỏi cảm thấy có chút bối rối, rụt rè. Chỉ có Trần Trạch là giữ được vẻ bình tĩnh, lễ phép lên tiếng: "Em chào chị họ."
 
-Lạc Cẩn Chi cười cười, nói: "Tôi xin phép đưa Kim An đi trước nhé, không thể đi cùng các bạn được rồi."
+Lạc Cẩn Chi cười tươi đáp lễ: "Hôm nay chị xin phép 'bắt cóc' Kim An đi một lát nhé, không để em ấy đi cùng các em được rồi."
 
-"Đưa đi trước là cái quái gì thế?"
+" 'Bắt cóc đi' là cái quái gì thế trời?"
 
-Lưu Sấm Phong và Cốc Siêu Thừa nhìn nhau, đây là lời chị họ nên nói sao?
+Lưu Sấm Phong và Cốc Siêu Thừa đưa mắt nhìn nhau đầy hoang mang. Đây mà là lời của một người chị họ nói sao?
 
-"Kim An, lên xe."
+"Kim An, lên xe đi em."
 
-Lạc Cẩn Chi chào Triệu Kim An ngồi vào ghế phụ, sau đó quay xe rời đi.
+Lạc Cẩn Chi vẫy tay ra hiệu cho Triệu Kim An ngồi vào ghế phụ lái, sau đó thành thạo đánh tay lái quay đầu xe rời đi.
 
-"Tiểu Tuyết, là chị họ, không phải bao nuôi đâu."
+"Tiểu Tuyết, là chị họ của cậu ấy đấy, không phải được bao nuôi đâu."
 
-Cách đó không xa, Lý Lộ mắt sáng rực lên. Lâm Thanh Tuyết cảm thấy mình đã tính sai, thời gian qua nàng săn đón Trần Trạch vì so sánh ra thì thấy Triệu Kim An chỉ là một nam sinh đại học đẹp trai bình thường.
+Cách đó không xa, mắt Lý Lộ sáng rực lên. Lâm Thanh Tuyết thì lại thầm thở dài tiếc nuối, tự trách bản thân đã tính toán sai lầm. Suốt thời gian qua cô nàng ra sức ân cần săn đón Trần Trạch, bởi khi đặt lên bàn cân so sánh, cô ta cứ ngỡ Triệu Kim An chỉ là một cậu sinh viên nghèo điển trai đơn thuần mà thôi.
 
-Ngờ đâu Triệu Kim An cũng là phú nhị đại?
+Nào ngờ đâu Triệu Kim An cũng là một "phú nhị đại" thứ thiệt giấu mình?
 
-Chị họ đi xe Land Rover giàu có như vậy, thì gia cảnh của Triệu Kim An chắc cũng không kém cạnh gì đâu nhỉ.
+Có người chị họ lái hẳn Range Rover giàu sang ngút ngàn thế kia, thì gia cảnh của Triệu Kim An làm sao có thể tầm thường cho được.
 
-Ở đằng xa còn có một người nữa.
+Ở đằng xa còn có một người khác.
 
-Đường Hiểu Tình nắm chặt vạt áo, cúi đầu đi về phía ký túc xá.
+Đường Hiểu Tình siết chặt góc áo quân phục, lặng lẽ cúi gằm mặt bước nhanh về phía ký túc xá.
 
-Kho hàng của Lạc Cẩn Chi thuê ở quận Vũ Hoa, đi qua bến xe phía Nam khoảng 1 km, giá thuê ở đây rẻ hơn một chút, giao thông lại thuận tiện, văn phòng nằm ngay cạnh kho hàng.
+...
 
-Hồ Thần cũng đã đến, đang bắt đầu tuyển quân rầm rộ.
+Kho bãi của Lạc Cẩn Chi được thuê tại quận Vũ Hoa, đi qua bến xe ô tô phía Nam chừng một cây số. Mức giá thuê ở khu vực này tương đối mềm, giao thông lại vô cùng thuận tiện, văn phòng đại diện được đặt ngay sát bên cạnh kho hàng.
 
-Lạc Cẩn Chi vốn định lái xe đưa Triệu Kim An đến công ty, nhưng Triệu Kim An bảo vẫn đang trong kỳ huấn luyện quân sự nên muốn đi dạo quanh trường, Lạc Cẩn Chi thấy cũng hay, bầu không khí trong đại học rất tốt.
+Hồ Thần cũng đã có mặt tại đây, đang bận rộn với công tác tuyển dụng nhân sự mở rộng địa bàn.
 
-Lúc vừa đi qua một nhóm nữ sinh, Lạc Cẩn Chi ngồi trên xe quan sát hồi lâu, nàng cũng là người từng học đại học, không khỏi cảm thán một hồi, thanh xuân thật đẹp.
+Ban đầu Lạc Cẩn Chi định lái xe đưa Triệu Kim An về công ty tham quan, nhưng Triệu Kim An bảo buổi chiều vẫn còn lịch huấn luyện quân sự nên muốn đi dạo quanh trường một lát. Lạc Cẩn Chi thấy vậy cũng đồng ý, bầu không khí trong trẻo nơi giảng đường đại học quả thực rất dễ chịu.
 
-Chỉ có Triệu Kim An là đang nhìn một nam sinh, nhìn chăm chú đến vậy, dưới ánh nắng vàng rực rỡ, góc nghiêng tuấn tú của hắn khiến Lạc Cẩn Chi không nhịn được mà cười mắng.
+Vừa nãy khi lái xe ngang qua một nhóm nữ sinh, Lạc Cẩn Chi ngồi trên xe ngắm nhìn hồi lâu. Bản thân cô cũng từng trải qua những năm tháng thanh xuân đại học, trong lòng không khỏi dâng lên niềm cảm khái vô bờ: Tuổi trẻ quả thực thật tươi đẹp biết bao.
 
-"Em nhìn nam sinh làm gì, không biết ngắm mỹ nữ sao?"
+Chỉ có Triệu Kim An là đang mải nhìn theo bóng lưng của một nam sinh, ánh mắt chăm chú đến lạ kỳ. Dưới ánh nắng vàng rực rỡ, góc nghiêng khuôn mặt anh tuấn của anh khiến Lạc Cẩn Chi không nhịn được mà bật cười mắng yêu:
 
-Loa phát thanh của trường đang phát bài "Đám tang hoa hồng".
+"Em nhìn theo cậu nam sinh đó làm cái gì, không biết ngắm nhìn mỹ nữ xung quanh à?"
 
-Hứa Tung nổi tiếng vào năm nay, rất được sinh viên đại học yêu thích.
+Hệ thống loa phát thanh của trường đang phát bài hát *Tang lễ của hoa hồng*.
 
-Hai người sóng vai đi dạo trong khuôn viên trường, thu hút ánh nhìn của rất nhiều người, phần lớn bọn họ đều nhìn Lạc Cẩn Chi. Triệu Kim An trong bộ quân phục không mấy nổi bật, Lạc Cẩn Chi tháo kính râm ra, lên tiếng trước.
+Năm 2006 chính là thời điểm Hứa Tung nổi đình nổi đám trên mạng xã hội, âm nhạc của anh được đông đảo sinh viên đại học vô cùng mến mộ.
 
-"Chị không làm em mất mặt chứ?"
+Hai người sóng bước bên nhau dạo quanh khuôn viên trường, thu hút vô số ánh nhìn ngưỡng mộ của người qua đường. Phần lớn họ đều đổ dồn sự chú ý vào Lạc Cẩn Chi, bởi Triệu Kim An trong bộ quân phục giản dị không quá mức nổi bật. Lạc Cẩn Chi tháo chiếc kính râm xuống, chủ động mở lời trước:
 
-Triệu Kim An cười đáp: "Em sắp bị coi là mặt trắng nhỏ rồi đây."
+"Chị xuất hiện như thế không làm em bị mất mặt đấy chứ?"
 
-"Làm mặt trắng nhỏ của chị thì mất mặt lắm sao?"
+Triệu Kim An khẽ cười: "Em sắp bị bạn bè coi là 'tiểu bạch kiểm' được bao nuôi rồi đây này."
 
-Lạc Cẩn Chi đưa tay khoác lấy cánh tay Triệu Kim An, hắn cúi đầu nhìn bàn tay nàng: "Làm mặt trắng nhỏ của chị thì có gì tốt?"
+"Làm 'tiểu bạch kiểm' của chị thì có gì mà mất mặt cơ chứ?"
 
-Lạc Cẩn Chi ngẩn người.
+Lạc Cẩn Chi đưa tay kéo lấy cánh tay của Triệu Kim An. Anh cúi đầu nhìn bàn tay thon thả của cô đang đặt trên tay mình, thản nhiên hỏi: "Làm 'tiểu bạch kiểm' của chị thì có được lợi ích gì đâu?"
 
-Triệu Kim An tức giận nói: "Em chẳng thấy được lợi lộc gì cả, tiền, tiền không có; người, người cũng không."
+Lạc Cẩn Chi ngẩn người ra một thoáng.
 
-Lạc Cẩn Chi phản ứng lại rồi bật cười thành tiếng, kéo cánh tay Triệu Kim An sát vào mình hơn chút nữa, bảo: "Vậy thì tối nay đi khách sạn luôn nhé? Chị giao người cho em."
+Triệu Kim An nói với giọng điệu nửa đùa nửa thật: "Em chẳng thấy được chút hời nào cả. Tiền thì không thấy đâu, mà người thì cũng chẳng có."
 
-Triệu Kim An nói: "Chị giao cho em? Hay là em giao cho chị? Nụ hôn đầu của em vẫn còn đấy."
+Lạc Cẩn Chi hiểu ra ý tứ trong lời nói liền bật cười thành tiếng, cô kéo chặt cánh tay Triệu Kim An nép sát vào người mình hơn, cất giọng trêu chọc: "Thế thì tối nay đi khách sạn nhé? Chị trao thân cho em luôn."
 
-Lạc Cẩn Chi hiểu ý, cười đến mức không đứng thẳng người lên được, nàng nói: "Vậy để chị mừng cho em một cái hồng bao thật lớn nhé?"
+Triệu Kim An thản nhiên đáp: "Chị trao cho em? Hay là em trao cho chị? Em vẫn còn giữ nụ hôn đầu đấy nhé."
 
-"Lạc tổng, vào chuyện chính đi, chị tìm em là vì muốn bán cổ phần rồi sao?"
+Lạc Cẩn Chi nghe xong bật cười đến mức không thẳng nổi lưng, cô đưa tay ôm bụng: "Thế để chị bọc cho em một phong bao lì xì thật to nhé?"
 
-"Không bán cổ phần thì không thể tìm em à?"
+"Lạc tổng, quay lại chuyện chính đi. Chị đến tìm em là vì muốn bán lại cổ phần rồi đúng không?"
 
-Thấy Triệu Kim An nhìn mình, Lạc Cẩn Chi mới nghiêm túc lại: "Kim An, sao em cứ nhìn chằm chằm vào công ty của chị, nhìn chằm chằm vào hồ Đông Giang thế? Mở một công ty nước khoáng chỉ cần vài chục vạn là đủ rồi."
+"Không bán cổ phần thì không được phép đến tìm em à?"
 
-Triệu Kim An nói: "Bởi vì hồ Đông Giang nằm ở Tư Tinh."
+Thấy Triệu Kim An vẫn giữ ánh mắt bình thản nhìn mình, Lạc Cẩn Chi mới nghiêm túc trở lại: "Kim An, tại sao em cứ nhất quyết phải nhắm vào công ty của chị, nhắm vào nguồn nước Đông Giang Hồ thế? Muốn mở một công ty nước khoáng đóng chai, bỏ ra vài trăm nghìn tệ là đủ rồi mà."
 
-Đúng vậy, cả nước có rất nhiều nguồn nước, nhưng hồ Đông Giang là nguồn nước tốt nhất ở Tư Tinh. Triệu Kim An nghĩ đến bà nội và thím, coi như đây là một chút chấp niệm trong lòng.
+Triệu Kim An trầm ngâm đáp: "Bởi vì Đông Giang Hồ nằm ở huyện Tư Tinh."
 
-Lạc Cẩn Chi như suy tư điều gì đó, gật đầu.
+Đúng vậy, trên khắp cả nước có vô vàn mạch nước ngầm trứ danh, nhưng Đông Giang Hồ lại là nguồn nước khoáng tuyệt vời nhất của huyện Tư Tinh quê anh. Triệu Kim An nghĩ tới bà nội và thím, đó có lẽ là một chút chấp niệm sâu thẳm trong lòng anh.
 
-"Kim An, chị không thể ở lại Quận Sa lâu được, hay là lúc nào rảnh em đến công ty ngồi chơi chút đi?"
+Lạc Cẩn Chi như hiểu ra điều gì, khẽ gật đầu suy tư.
 
-"Không bắt em phải chạy vạy ngoài đường đâu, chỉ cần đưa ra ý kiến thôi, coi như tích lũy kinh nghiệm, vả lại em chỉ cần chịu trách nhiệm với mình chị, thấy sao?"
+"Kim An này, chị không thể ở lại Quận Sa lâu dài được. Hay là những lúc rảnh rỗi em cứ ghé qua công ty ngồi một lát?"
 
-Triệu Kim An lắc đầu từ chối, bảo muốn tự mình khởi nghiệp.
+"Không phải bắt em phải chạy vạy ngoài đường tiếp thị đâu, chỉ cần em hiến kế sách định hướng giúp chị, coi như là tích lũy thêm kinh nghiệm thực tế. Hơn nữa em chỉ cần chịu trách nhiệm trực tiếp với một mình chị thôi, thấy thế nào?"
 
-Đã trùng sinh rồi mà còn đi làm thêm cho người khác thì có hơi quá đáng nhỉ?
+Triệu Kim An lắc đầu từ chối, bảo rằng mình muốn tự tay lập nghiệp.
 
-Thấy Triệu Kim An cố chấp như vậy, Lạc Cẩn Chi nhìn tiệm trà sữa bên cạnh nói: "Kim An, em mua cho chị ly trà sữa đi."
+Đã được tái sinh sống lại một đời, chẳng lẽ lại đi làm thuê bán thời gian cho người khác, chuyện đó nghe thật chẳng ra làm sao.
 
-Lạc Cẩn Chi là người duy nhất biết Triệu Kim An có khả năng đang nắm trong tay khoản tiền khổng lồ mấy triệu tệ. Triệu Kim An đi mua một ly trà sữa, Lạc Cẩn Chi hút một ngụm rồi hỏi: "Bao nhiêu?"
+Thấy Triệu Kim An kiên định như vậy, Lạc Cẩn Chi đưa mắt nhìn tiệm trà sữa ven đường: "Kim An, mua cho chị một cốc trà sữa đi."
 
-"Ít nhất 67%."
+Lạc Cẩn Chi là người duy nhất lờ mờ đoán được rằng trong tay Triệu Kim An đang nắm giữ một món tiền khổng lồ lên tới tiền triệu. Triệu Kim An bước qua mua một cốc trà sữa đem lại, Lạc Cẩn Chi cắm ống hút uống một ngụm rồi hỏi: "Bao nhiêu?"
 
-Triệu Kim An báo ra một con số.
+"Ít nhất là 67%."
 
-Để nắm quyền kiểm soát tuyệt đối công ty là 50%, nhưng đối với các hạng mục đặc biệt thì cần nắm giữ hơn hai phần ba cổ phần.
+Triệu Kim An thản nhiên đưa ra một con số.
 
-Ví dụ như sửa đổi điều lệ công ty, tăng giảm vốn điều lệ, hợp nhất, chia tách, giải thể và các vấn đề trọng đại khác, cần phải có trên hai phần ba quyền biểu quyết thông qua.
+Quyền kiểm soát tuyệt đối của một công ty trên danh nghĩa là 50%, nhưng đối với những quyết định mang tính sống còn thì bắt buộc phải nắm giữ trên hai phần ba quyền biểu quyết.
 
-Nghĩa là tỷ lệ sở hữu phải lớn hơn 66.67%.
+Chẳng hạn như sửa đổi điều lệ công ty, tăng giảm vốn điều lệ, sáp nhập, chia tách hay giải thể doanh nghiệp... đều bắt buộc phải có trên hai phần ba số phiếu tán thành mới được thông qua.
 
-Lạc Cẩn Chi ngậm ống hút ngẩn người hồi lâu, nhìn chằm chằm vào gương mặt nghiêm túc của Triệu Kim An, có chút tức không nhịn được.
+Tức là tỷ lệ nắm giữ cổ phần phải lớn hơn 66,67%.
 
-"Kim An, chị coi em như em trai, mà em đối xử với chị mình như thế đấy à!?"
+Lạc Cẩn Chi cắn chặt ống hút, trố mắt nhìn Triệu Kim An suốt một hồi lâu. Nhìn vẻ mặt nghiêm túc không chút đùa cợt của anh, cô không khỏi dâng lên một ngọn lửa bực bội trong lòng.
 
-"67%, còn là ít nhất!?"
+"Kim An, chị xem em như em trai ruột thịt, thế mà em lại đối xử với chị gái mình như thế này đấy à!?"
 
-"Thế thì công ty thành của em luôn rồi còn gì!!"
+"67%, mà lại còn là 'ít nhất' nữa chứ!?"
 
-Càng nói càng giận, Lạc Cẩn Chi cắn đôi môi căng mọng, vung túi xách đập lên người Triệu Kim An: "Chị cứ tưởng em chỉ mở miệng đòi lấy 10% thôi, em đúng là tham lam thật đấy!"
+"Thế thì cả cái công ty này biến thành của em luôn rồi còn đâu nữa!!"
 
-"Nếu công ty làm ăn có lãi, chị có để em chịu thiệt bao giờ không?"
+Càng nói lại càng thấy tức, Lạc Cẩn Chi cắn chặt bờ môi căng mọng, vung chiếc túi xách hàng hiệu đập thùm thụp vào người Triệu Kim An: "Chị cứ ngỡ em mở miệng đòi tầm 10% thôi, không ngờ lòng tham của em lại không đáy như vậy!"
 
-Triệu Kim An lại tỏ vẻ trịnh trọng: "Chị bán 67% cho em, giá trị thị trường của công ty sau này sẽ cao gấp trăm lần, ngàn lần hiện tại."
+"Công ty mà làm ăn phát đạt, chẳng lẽ chị lại để em phải chịu thiệt thòi chắc?"
 
-"Đúng là bốc phét!"
+Gương mặt Triệu Kim An vẫn giữ nguyên nét trang trọng, bình thản: "Chị bán 67% cho em, giá trị thị trường của công ty sau này sẽ gấp trăm lần, thậm chí nghìn lần so với hiện tại."
 
-Lạc Cẩn Chi lườm Triệu Kim An một cái: "Em là một sinh viên đại học, lấy đâu ra nhiều thời gian và tâm sức thế?"
+"Toàn nói khoác lác không biết ngượng mồm!"
 
-"Giúp chị không tốt sao?"
+Lạc Cẩn Chi lườm Triệu Kim An một cái sắc lẹm: "Em chỉ là một cậu sinh viên đại học, lấy đâu ra nhiều thời gian và tâm sức đến thế?"
 
-"Yên tâm, chị không phải hạng người qua cầu rút ván đâu. Nếu công ty thực sự lớn mạnh, sau khi tốt nghiệp em cứ đến công ty chị, nếu em có năng lực, chị tặng em một ít cổ phần cũng được."
+"Giúp chị một tay không được sao?"
 
-Nói cũng lạ, Triệu Kim An cứ mở miệng là đòi mua công ty của Lạc Cẩn Chi, nhưng nàng cũng không hề tức giận.
+"Em yên tâm đi, chị không phải hạng người qua cầu rút ván đâu. Nếu sau này công ty thực sự lớn mạnh, em vừa tốt nghiệp là có thể về đầu quân cho chị ngay, em có năng lực thì chị tặng không cho em một ít cổ phần cũng chẳng tiếc."
 
-Ngày đầu tiên đến Quận Sa, Lạc Cẩn Chi đã muốn tới thăm cậu em sinh viên Triệu Kim An này rồi, nhưng vì công việc quá bận rộn.
+Nói ra cũng thật kỳ lạ, Triệu Kim An năm lần bảy lượt mở miệng đòi thâu tóm công ty của Lạc Cẩn Chi, thế nhưng cô lại chẳng hề giận dỗi thực sự.
 
-Triệu Kim An đưa tay ra, Lạc Cẩn Chi liếc nhìn một cái rồi đưa túi xách trong tay cho hắn để chỉnh lại tóc. Triệu Kim An hiếm khi tỏ ra tinh tế, hắn nói: "Lạc tổng, chị không nên đến Quận Sa."
+Ngay từ ngày đầu tiên đặt chân tới Quận Sa, việc đầu tiên Lạc Cẩn Chi muốn làm chính là đến thăm cậu sinh viên đại học Triệu Kim An này, chỉ là công việc bề bộn quá mức níu chân cô lại mà thôi.
 
-Người thông minh chỉ cần nói điểm qua là hiểu.
+Triệu Kim An đưa tay ra, Lạc Cẩn Chi liếc nhìn anh một cái rồi ngoan ngoãn đưa chiếc túi xách trong tay cho anh cầm giúp, còn mình thì đưa tay vén lại mái tóc mây. Triệu Kim An hiếm hoi lộ vẻ săn sóc chu đáo, anh cất lời: "Lạc tổng, thực ra chị không nên dấn thân tới Quận Sa vào lúc này."
 
-Chỉ có Lưu Sấm Phong và Cốc Siêu Thừa lúc mới khai giảng mới cảm thấy chỉ số cảm xúc của Triệu Kim An thấp, còn Lạc Cẩn Chi sau vài lần tiếp xúc đã hiểu rõ rồi. Lời Triệu Kim An nói cần phải nghiền ngẫm, giống như việc Lạc Cẩn Chi chỉ hỏi "Bao nhiêu", Triệu Kim An đã lập tức phản ứng lại được ngay.
+Người thông minh chỉ cần điểm nhẹ một câu là hiểu thấu.
 
-Với Lưu Sấm Phong và Cốc Siêu Thừa, chẳng qua là Triệu Kim An không chấp nhặt với bọn họ mà thôi.
+Chỉ có những kẻ như Lưu Sấm Phong và Cốc Siêu Thừa mới nông cạn cho rằng Triệu Kim An EQ thấp kém, còn Lạc Cẩn Chi tiếp xúc vài lần là đã thấu rõ: Lời Triệu Kim An nói ra đều phải nghiền ngẫm thật sâu. Giống như việc Lạc Cẩn Chi chỉ vừa buông một chữ "Bao nhiêu", Triệu Kim An đã lập tức phản ứng chuẩn xác ngay tắp lự.
 
-Lạc Cẩn Chi nhìn Triệu Kim An hồi lâu rồi nói: "Triệu Kim An, em đúng là khẩu thị tâm phi, em hận không thể để chị đến Quận Sa, chỉ mong chờ cái ngày chuỗi vốn của chị bị đứt chứ gì."
+Đối với Lưu Sấm Phong hay Cốc Siêu Thừa, Triệu Kim An chẳng qua là không buồn so đo tính toán với họ mà thôi.
 
-"Còn nữa, người khác cứ tưởng em ngoan ngoãn nghe lời, thật ra tâm địa em còn cứng hơn bất cứ ai."
+Lạc Cẩn Chi chăm chú nhìn Triệu Kim An một lúc lâu rồi thở dài: "Triệu Kim An, em đúng là đồ khẩu thị tâm phi. Trong bụng em chắc hẳn đang mong chị mau chóng tới Quận Sa hơn ai hết, chỉ chực chờ đến cái ngày chuỗi dòng tiền của chị bị đứt gãy mà thôi."
 
-"Lại còn đen tối nữa!!"
+"Hơn nữa, người ngoài cứ nhìn vào tưởng em ngoan ngoãn hiền lành, thực chất lòng dạ em còn rắn như đá hơn bất cứ ai."
 
-Cuối cùng, Lạc Cẩn Chi còn tức giận bổ sung thêm một câu.
+"Lại còn đen tối, nham hiểm nữa!!"
 
-Đây là lần đầu tiên Triệu Kim An nghe thấy có người đánh giá mình như vậy, hắn mỉm cười: "Lạc tổng, chúng ta đang bàn chuyện làm ăn, chị lại gieo rắc sự mập mờ rồi."
+Nói đến cuối câu, Lạc Cẩn Chi vẫn không nhịn được mà hậm hực bồi thêm một câu mắng mỏ.
 
-"Còn vô tình nữa!"
+Đây là lần đầu tiên Triệu Kim An nghe thấy có người đưa ra lời nhận xét sắc bén như vậy về mình. Anh khẽ mỉm cười: "Lạc tổng, chúng ta đang bàn chuyện làm ăn kinh doanh sòng phẳng, chị lại bắt đầu gieo rắc sự mập mờ rồi đấy."
 
-Lạc Cẩn Chi lại lầm bầm thêm một câu.
+"Lại còn vô tình bạc nghĩa nữa chứ!"
+
+Lạc Cẩn Chi bĩu môi hờn dỗi lầm bầm một câu.

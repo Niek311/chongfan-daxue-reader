@@ -1,209 +1,209 @@
-# Chương 78: Đùi gà là cho ngươi cầm.
+# Chương 78: Đùi gà là lấy cho cậu đấy
 
-Tất cả trường cao đẳng đều sẽ cung cấp một chút vừa học vừa làm cương vị.
+> **Tiêu đề gốc**: 第78章 鸡腿是给你拿的。
 
-Nói đến giờ lương cũng không tệ lắm, bất quá cần hướng trường học xin.
+Hầu như tất cả các trường đại học đều có những vị trí việc làm bán thời gian dành cho sinh viên diện vừa học vừa làm.
 
-Người không hiểu đại khái cho là chỉ có nhà ăn cùng thư viện những địa phương này.
+Tính theo giờ thì mức thù lao cũng khá ổn thỏa, chỉ có điều sinh viên bắt buộc phải làm đơn xin phép và được nhà trường xét duyệt.
 
-Kỳ thực có rất nhiều cương vị, tỉ như trợ giáo, chính là hiệp trợ giáo sư chấm bài tập, tổ chức lớp học thảo luận hoặc giải đáp nghi vấn, còn có học viện văn phòng trợ lý, phụ trách nghe điện thoại, số liệu ghi vào chờ hành chính sự vụ.
+Những ai không hiểu chuyện thường đinh ninh rằng việc làm thêm trong trường chỉ loanh quanh ở nhà ăn hoặc thư viện.
 
-Thậm chí chiêu sinh / vào nghề xử lý trợ lý khoan đã.
+Thực tế thì có rất nhiều vị trí khác nhau, chẳng hạn như trợ giảng — phụ giúp giảng viên chấm bài tập, điều phối các buổi thảo luận trên lớp hoặc giải đáp thắc mắc của sinh viên; hay trợ lý văn phòng viện — chịu trách nhiệm trực điện thoại, nhập liệu hồ sơ và giải quyết các thủ tục hành chính giấy tờ.
 
-Chỉ bất quá những thứ này nhẹ nhõm công việc, thể diện công việc không tới phiên Đường Hiểu tinh.
+Thậm chí còn có cả vị trí trợ lý tại phòng Tuyển sinh, phòng Công tác sinh viên và Giới thiệu việc làm...
 
-Thậm chí không thể nói là trường học vì nghèo khó sinh cung cấp làm việc ngoài giờ cương vị.
+Chỉ tiếc là những công việc vừa nhàn nhã, vừa có thể diện như thế vĩnh viễn chẳng bao giờ đến lượt Đường Hiểu Tình.
 
-Có chút cương vị lão sư trực tiếp liền chỉ định.
+Thậm chí nói một cách thẳng thắn, những vị trí đó chưa chắc đã thực sự dành cho các sinh viên nghèo cần mưu sinh.
 
-Người học sinh này có phải hay không nghèo khó sinh đều không nhất định.
+Nhiều công việc béo bở thường được các thầy cô trực tiếp chỉ định mặt gửi vàng từ trước.
 
-Triệu Kim An không có xin qua trường học của những thứ này cương vị, nghèo khó sinh tiền trợ cấp đều không cầm tới, còn xin những thứ này cương vị làm gì?
+Người được nhận vào làm rốt cuộc có phải là sinh viên nghèo hay không, chẳng ai dám chắc chắn.
 
-Hắn không muốn thiếu trường học của, vậy thì không có chút nào thiếu nợ.
+Triệu Kim An chưa từng nộp đơn xin bất kỳ công việc nào trong trường. Ngay cả khoản tiền trợ cấp sinh viên nghèo cậu còn chẳng buồn đoái hoài, thì tranh giành mấy vị trí đó để làm gì?
 
-Cứ việc ở kiếp trước không ai quan tâm.
+Cậu không muốn mang nợ nhà trường bất cứ điều gì, dứt khoát không nợ lấy một ly một lai.
 
-1 0 phút sau, Triệu Kim An đuổi tới nhà ăn, xốc lên trầm trọng có chút fat; fatty; greasy; oily; oleaginous; pinguid; tallowy; unctuous; stodgy rèm, nhìn thấy một cái nhỏ gầy thân ảnh đơn bạc.
+Dẫu rằng ở kiếp trước, chẳng có một ai bận tâm đến sự tự trọng ấy của cậu.
 
-Lớn như vậy nhà ăn im ắng.
+Mười phút sau, Triệu Kim An đã có mặt tại nhà ăn số một của trường. Cậu vén tấm rèm vải dày cộp bám đầy dầu mỡ bước vào, đập vào mắt là một bóng dáng nhỏ bé, gầy guộc và đơn độc.
 
-Dưới ánh đèn lờ mờ, nàng cố gắng lau cái bàn, 1 2 nguyệt hàn lạnh của mùa đông, nàng lau lau mồ hôi trên trán, tay chân lanh lẹ, động tác thuần thục làm cho đau lòng người.
+Cả khu nhà ăn rộng thênh thang chìm trong tĩnh lặng như tờ.
 
-1 5 2 của kích thước, thường thường muốn đi cà nhắc chỏi người lên mới có thể từ cái bàn cái này một đầu sát qua bên kia.
+Dưới ánh đèn vàng vọt, tù mù, cô bé đang cặm cụi, dốc hết sức mình lau chùi từng chiếc bàn ăn. Giữa tiết trời mùa đông tháng mười hai lạnh buốt căm căm, cô đưa tay áo quệt vội những giọt mồ hôi đang rịn ra trên trán. Đôi tay thoăn thoắt, động tác thuần thục, thành thạo đến mức khiến người ta nhìn vào không khỏi xót xa, nhói lòng.
 
-Nhưng nàng phảng phất có xài không hết kình.
+Với vóc dáng chỉ vỏn vẹn một mét năm mươi hai, cô bé thường xuyên phải kiễng chân, rướn cả người lên mới có thể với tay lau sạch từ đầu bàn này sang tận mép bàn bên kia.
 
-Nhớ tới lý Airam của Địch Áo son môi, Triệu Kim An nhịn cười không được một tiếng.
+Thế nhưng trong dáng người mảnh dẻ ấy dường như lại ẩn chứa một nguồn năng lượng dẻo dai, bền bỉ đến lạ kỳ.
+
+Chợt nhớ đến thỏi son Dior đắt tiền của Lý Ngải Lan, khóe môi Triệu Kim An khẽ nhếch lên thành một nụ cười mỉa mai, cay đắng.
 
 "Triệu Kim An!?"
 
-Đường Hiểu tinh ngẩng đầu, một mặt kinh ngạc.
+Đường Hiểu Tình ngẩng đầu lên, gương mặt tròn trịa lộ rõ vẻ kinh ngạc tột cùng.
 
-"ngươi, sao ngươi lại tới đây?"
+"Cậu... sao cậu lại tới đây?"
 
-Trong tay nàng còn cầm khăn lau, trong lúc nhất thời có chút chân tay luống cuống.
+Trên tay cô bé vẫn còn đang cầm chặt chiếc giẻ lau bàn ướt sũng, cả người trong thoáng chốc trở nên luống cuống, bối rối không biết giấu tay vào đâu.
 
-"không vội, ta chờ ngươi ở ngoài."
+"Cứ từ từ làm cho xong đi, tớ ra ngoài cửa đứng đợi cậu."
 
-Triệu Kim An hướng Đường Hiểu tinh lộ ra khuôn mặt tươi cười, không có đi vào phụ một tay.
+Triệu Kim An nở một nụ cười hiền từ với Đường Hiểu Tình, tuyệt nhiên không bước vào trong để xắn tay phụ giúp.
 
-Không có ý nghĩa.
+Bởi vì cậu hiểu rõ, làm như thế chẳng mang lại ý nghĩa thiết thực nào cả.
 
-Tại cửa phòng ăn, hắn tìm bậc thang ngồi xuống, nhóm lửa một điếu thuốc.
+Bước ra trước thềm nhà ăn, cậu tìm một bậc thềm sạch sẽ rồi ngồi xuống, rút một điếu thuốc lá ra châm lửa.
 
-Điện thoại"đinh"của một tiếng.
+Điện thoại trong túi bỗng "ting" lên một tiếng.
 
-Đáy vực siêu nhận: Kim An, Đường Hiểu tinh tại nhà ăn sao?
+Cốc Siêu Thừa: [Kim An, Đường Hiểu Tình có ở nhà ăn không?]
 
-Triệu Kim An không rõ đáy vực siêu nhận cái tin nhắn ngắn này của hàm nghĩa, hắn có thể tự mình tới nhà ăn tìm a, đáy vực siêu nhận cũng là quái nhân, bọn hắn ngoài miệng không có trào phúng qua Đường Hiểu tinh, lại luôn đem vóc dáng thấp treo ở bên miệng.
+Triệu Kim An không hiểu ngụ ý trong dòng tin nhắn này của Cốc Siêu Thừa là gì. Cậu ta hoàn toàn có thể tự mình chạy bộ sang nhà ăn tìm gặp cô bé cơ mà. Cốc Siêu Thừa quả là một người kỳ quặc, miệng lưỡi bọn họ ngoài mặt tuy không bao giờ buông lời chê bai, chế giễu Đường Hiểu Tình, nhưng lúc nào cũng đem chuyện cô bé thấp bé nhẹ cân ra để bàn tán, trêu đùa.
 
-Lưu xông phong ngày đó còn"cưỡng ép tụ thành một đôi!"
+Lưu Sấm Phong hôm nọ thậm chí còn giở trò "gán ghép bừa bãi"!
 
-Kỳ thực ở sâu trong nội tâm có chút"không nhìn trúng", chỉ là bọn hắn chính mình không có ý thức được.
+Thực chất trong sâu thẳm tâm can, bọn họ đều có chút tâm lý "coi thường", chỉ là bản thân họ không tự nhận thức được điều đó mà thôi.
 
 "Triệu Kim An!"
 
-Lúc này Đường Hiểu tinh vén rèm lên một mặt vui vẻ chạy chậm tới, nhanh đến trước mặt lúc cước bộ lại có chút chần chờ, mang theo xin lỗi nói:"ta, ta không có tiền rồi."
+Đúng lúc này, Đường Hiểu Tình hớn hở vén rèm chạy lon ton ra ngoài. Nhưng khi vừa chạy đến gần trước mặt cậu, bước chân cô bé bỗng khựng lại, ngập ngừng, trên nét mặt rạng rỡ vừa rồi lập tức phủ lên một vẻ áy náy, ngượng ngùng: "Tớ... tớ hết tiền rồi."
 
-"chỉ, chỉ có hai trăm."
+"Chỉ... chỉ còn lại có hai trăm tệ thôi."
 
-Nàng cho là Triệu Kim An là tới hỏi tiền, chính mình đã đáp ứng nghèo khó sinh học bổng xuống liền một người một nửa.
+Cô bé ngây thơ tưởng rằng Triệu Kim An tìm đến đây là để hỏi về số tiền trợ cấp, bởi trước đó cô từng hứa chắc nịch rằng hễ nhận được tiền trợ cấp sinh viên nghèo thì sẽ chia đôi mỗi người một nửa.
 
-"ta biết."
+"Tớ biết rồi."
 
-Triệu Kim An ép diệt tàn thuốc, Đường Hiểu tinh do dự một chút đưa tay túm hắn đứng dậy, rất lạc quan của nói:"bất quá ta tại nhà ăn làm việc ngoài giờ, một giờ có 1 0 khối tiền."
+Triệu Kim An dập tắt tàn thuốc. Đường Hiểu Tình ngập ngừng trong giây lát rồi đưa bàn tay nhỏ nhắn ra kéo cậu đứng dậy, giọng điệu lại trở nên tràn đầy lạc quan: "Nhưng mà tớ đang làm việc ở nhà ăn theo diện vừa học vừa làm này, mỗi giờ được mười tệ lận đấy."
 
-Triệu Kim An cười cười:"giờ lương cao như vậy sao?"
+Triệu Kim An mỉm cười: "Thù lao theo giờ cao thế cơ à?"
 
-"ân."
+"Ừm!"
 
-Đường Hiểu tinh ngẩng khuôn mặt nhỏ, nụ cười rực rỡ, nàng thật sự rất lạc quan, nàng nói:"chính là một ngày chỉ có hai giờ."
+Đường Hiểu Tình ngước khuôn mặt nhỏ nhắn lên, nụ cười rạng rỡ như ánh nắng ban mai. Cô bé thực sự là một người vô cùng lạc quan và kiên cường. Cô nói tiếp: "Chỉ có điều mỗi ngày nhà ăn chỉ cho làm có hai tiếng đồng hồ thôi."
 
-"đủ chưa?"
+"Đủ sống không?" Triệu Kim An cúi đầu nhìn cô, khẽ hỏi.
 
-Triệu Kim An cúi đầu vấn đạo.
+"Đủ chứ, ở đây còn được hỗ trợ thêm một bữa cơm nữa mà."
 
-"đủ a, còn có cơm bổ."
+"Thực sự đủ sao?"
 
-"thật là sao?"
+Đường Hiểu Tình bỗng nhiên im bặt. Nếu chỉ tính riêng tiền ăn uống, sinh hoạt phí sáu trăm tệ một tháng thì quả thực là quá đủ đầy. Thế nhưng còn tiền học phí cho năm học tới... rồi cả người mẹ ốm đau bệnh tật quanh năm suốt tháng ở quê nhà nữa.
 
-Đường Hiểu tinh không nói, nếu như chỉ là tiền sinh hoạt một tháng 6 trăm vậy quá đủ, nhưng sang năm học phí.... Còn có trong nhà cơ thể không tốt mụ mụ.
+Học phí năm thứ nhất là tiền đi vay mượn khắp nơi mới có được, chẳng lẽ sang năm hai lại tiếp tục ngửa tay đi vay mượn tiếp? Họ hàng thân thích ở quê làm gì có ai khá giả để mà cậy nhờ.
 
-Năm thứ nhất đại học học phí là mượn của, cũng không thể đại nhị lại mượn đi, không có cái gì có tiền thân thích.
+Nơi đáy mắt trong veo của Đường Hiểu Tình khẽ thoáng qua một tia âu lo, trĩu nặng.
 
-Đường Hiểu tinh đáy mắt toát ra một tia lo âu.
+Triệu Kim An chủ động chuyển đề tài: "Tối nay cậu đã ăn gì chưa?"
 
-Triệu Kim An nhảy qua chủ đề:"ban đêm ngươi ăn cái gì?"
+"Thịt kho tàu với khoai tây đấy!" Đường Hiểu Tình mau miệng đáp.
 
-"thịt kho tàu thổ đậu!"Đường Hiểu tinh nói.
+"Chắc là toàn khoai tây chứ làm gì có miếng thịt kho tàu nào đúng không?" Triệu Kim An cũng không nỡ vạch trần lời nói dối vụng về của cô bé.
 
-"chỉ có thổ đậu không có thịt kho tàu đi?"Triệu Kim An cũng không có vạch trần.
+Đường Hiểu Tình nghe vậy liền bật cười khúc khích: "Cũng không đến mức bị bớt xén thế đâu, tớ làm ở nhà ăn nên quen thân với các cô đầu bếp múc thức ăn mà."
 
-Đường Hiểu tinh lại cười đứng lên:"cũng không có như vậy run, ta tại nhà ăn cùng phát thức ăn của a di nhận biết."
+"Đi dạo một chút không? Bụng tớ đang đói cồn cào, muốn tìm cái gì đó lót dạ."
 
-"đi một chút? Bụng ta đói bụng, muốn ăn một chút gì đó."
+"Được chứ!"
 
-"tốt!"
+Đường Hiểu Tình chỉ mong có thế.
 
-Đường Hiểu tinh cầu còn không được.
+Có lần Lý Lộ tìm đến gây chuyện với Đường Hiểu Tình, sau đó cô bé đã từng lén lút đứng từ xa ngắm nhìn Mộc Dao.
 
-Lý Lộ có lần đi tìm Đường Hiểu tinh, nàng lặng lẽ đi xem qua Mộc Dao.
+Đường Hiểu Tình chưa bao giờ dám mơ tưởng mình sẽ trở thành bạn gái của Triệu Kim An. Nhưng một cô thiếu nữ tuổi mười tám, mười chín đang ở độ tuổi trăng tròn, trái tim vừa mới chớm biết rung động, bức ảnh chụp chung với Triệu Kim An trong đợt huấn luyện quân sự hồi đầu năm, tối nào nằm trên giường ký túc xá cô cũng mở ra ngắm nghía một lúc lâu rồi mới chịu đi ngủ.
 
-Đường Hiểu tinh chưa từng nghĩ qua trở thành Triệu Kim An bạn gái, nhưng 1 8, 9 tuổi tiểu nữ sinh chính là mới biết yêu, hoài xuân niên kỷ, huấn luyện quân sự cùng Triệu Kim An của chụp ảnh chung, nàng mỗi đêm nằm trên giường đều sẽ lật ra đến xem sẽ.
+Khu Đại học Thành Quận Sa chắc chắn là một trong những nơi tràn ngập phong vị nhân gian và nhịp sống về đêm sôi động bậc nhất.
 
-Quận cát đại học thành tuyệt đối là lớn nhất khói lửa của đại học thành.
+Đã mười một giờ đêm, các quầy hàng ăn đêm vẫn mọc lên san sát, tỏa khói nghi ngút, đây chính là khung giờ buôn bán tấp nập và nhộn nhịp nhất trong ngày.
 
-Ban đêm 1 1 điểm, cái gì bữa ăn khuya bày cũng có, chính là thời điểm náo nhiệt nhất.
+Mấy anh em cùng phòng ký túc xá rủ nhau đi nhậu, từng đôi bạn trẻ dập dìu tay trong tay, họ chính là lực lượng tiêu dùng hùng hậu nhất ở nơi này.
 
-Ký túc xá huynh đệ mấy cái, từng đôi tiểu tình lữ, các nàng chính là tiêu phí quân chủ lực.
+Hồi mới chân ướt chân ráo lên đây, Lưu Sấm Phong từng ngạc nhiên thốt lên rằng người Quận Sa các cậu đêm hôm khuya khoắt thế này rồi mà không thèm đi ngủ hay sao, lại còn luôn miệng cằn nhằn vật giá ở Quận Sa quá đắt đỏ, một bát bún gạo tận sáu tệ, trong khi ở quê cậu ta chỉ hai tệ là ăn no căng bụng.
 
-Lưu xông phong vừa tới lúc đó liền nói các ngươi quận cát người đã trễ thế như vậy còn chưa ngủ sao, còn thường xuyên nói quận cát của giá hàng quá cao, một bát bột gạo muốn 6 khối tiền, bọn hắn nơi đó hai khối tiền bao ăn no.
+"Triệu Kim An, bao thuốc lá của cậu giá bao nhiêu tiền một gói thế?"
 
-"Triệu Kim An, ngươi khói bao nhiêu tiền một bao?"
+Đang đi dạo bên nhau, Đường Hiểu Tình bỗng nhiên ngước lên hỏi.
 
-Đi tới đi tới, Đường Hiểu tinh đột nhiên vấn đạo.
+Triệu Kim An dừng bước, quay sang nhìn cô bé chăm chú. Đường Hiểu Tình thấy vậy vội vàng xua xua tay bối rối: "Không có gì đâu, tớ... tớ chỉ thuận miệng hỏi vu vơ thế thôi."
 
-Triệu Kim An dừng bước nhìn xem nàng, Đường Hiểu tinh vội vàng khoát tay nói:"không có gì, ta liền hỏi một chút."
+Trong đợt huấn luyện quân sự, Đường Hiểu Tình từng thấy Triệu Kim An rút bao thuốc lá màu vàng ra mời các bạn nam trong lớp.
 
-Huấn luyện quân sự trong lúc đó Đường Hiểu tinh gặp Triệu Kim An cho các bạn học khói tan lấy ra là màu vàng hộp thuốc lá.
+Giờ giải lao giữa các tiết học ở hành lang giảng đường cô cũng bắt gặp vài lần. Thế là có một hôm, cô đánh bạo bước vào tiệm tạp hóa nhỏ để hỏi giá.
 
-Nghỉ giữa khóa nghỉ ngơi ở hành lang cũng đã gặp mấy lần, thế là có ngày tại quầy bán quà vặt nàng lấy can đảm hỏi.
+Phù Dung Vương vỏ vàng, hai mươi ba tệ một bao!!
 
-Hoàng Phù dung vương, 2 3 khối tiền một bao!!
+Cô cũng từng thấy Trần Trạch thường xuyên rút bao thuốc lá màu xanh dương ra hút, nên cũng tiện thể hỏi luôn.
 
-Nàng còn gặp qua trần trạch thường xuyên móc ra màu lam hộp thuốc lá, cũng cùng nhau hỏi.
+Phù Dung Vương vỏ xanh, ba mươi lăm tệ một bao!!!
 
-Lam phù dung vương, 3 5 khối tiền một bao!!!
+Đường Hiểu Tình không phải có ý chê trách Triệu Kim An hút thuốc hoang phí tiền bạc, mà là cô tự cảm thấy tự ti, mặc cảm rằng bản thân mình sẽ không bao giờ đủ khả năng để "nuôi nổi" một chàng trai như Triệu Kim An. Một người như cậu sinh ra là để sánh đôi cùng những tiểu thư xinh đẹp, đài các và giàu có như Mộc Dao hay Thẩm Tử Ngôn.
 
-Đường Hiểu tinh không phải ghét bỏ Triệu Kim An hút thuốc lãng phí tiền, mà là tự ti chính mình"dưỡng"không dậy nổi Triệu Kim An, nam sinh như vậy trời sinh là thuộc về Mộc Dao cùng thẩm tử nói nữ sinh như vậy.
+Hôm nọ cô còn tình cờ nhìn thấy bạn gái của Trần Trạch — Từ Mạn Mạn.
 
-Nàng ngày đó còn gặp được trần trạch của bạn gái, Từ Mạn Mạn.
+Trần Trạch có xe hơi BMW sang trọng, nghe đâu trị giá tới mấy trăm nghìn tệ. Những cô gái ấy ai nấy đều quá đỗi "tỏa sáng rực rỡ".
 
-Trần trạch có BMW, nghe nói hơn mấy chục vạn, các nàng đều quá"sặc sỡ loá mắt"rồi.
+"Lý Lộ không được, Lý Lộ căn bản không xứng với Triệu Kim An!"
 
-"Lý Lộ không được, Lý Lộ không xứng với Triệu Kim An!"
+Đường Hiểu Tình chưa từng tiếp xúc trực tiếp với Mộc Dao, nhưng cô cảm nhận rất rõ con người và tính cách của Lý Lộ không ra gì.
 
-Đường Hiểu tinh chưa có tiếp xúc qua Mộc Dao, nhưng cảm giác được Lý Lộ làm người không quá đi.
+Rõ ràng Triệu Kim An cũng có hoàn cảnh gia đình khó khăn giống như mình, vậy mà trong thâm tâm Đường Hiểu Tình lại luôn đinh ninh rằng bạn gái của Triệu Kim An nhất định phải là một cô gái vô cùng xinh đẹp, giàu sang phú quý, là kiểu người cần được nâng niu, chăm sóc và chiều chuộng hết mực.
 
-Rõ ràng Triệu Kim An cũng giống như mình là nghèo khó sinh, Đường Hiểu tinh lại cảm thấy Triệu Kim An của bạn gái nên rất xinh đẹp rất có tiền, muốn bị thật tốt"dưỡng"lên loại kia.
+"Cậu đang nghĩ ngợi vẩn vơ cái gì đấy?"
 
-"ngươi nghĩ gì thế?"
+Triệu Kim An khẽ huých nhẹ vào vai Đường Hiểu Tình. Cô bé đang mải mê thất thần, suýt chút nữa thì loạng choạng đứng không vững.
 
-Triệu Kim An đụng một cái Đường Hiểu tinh, Đường Hiểu tinh thất thần suýt chút nữa không có đứng vững.
+"A... không, không có gì đâu."
 
-"a, không có, không có gì."
+Với chiều cao một mét năm mươi hai, lại thêm thói quen hay cúi gằm mặt xuống đất, đỉnh đầu Đường Hiểu Tình thực sự chỉ chạm tới ngang nách của Triệu Kim An. Khoảng cách chênh lệch chiều cao đáng yêu ấy khiến không ít sinh viên đi ngang qua đều tò mò ngoái lại nhìn thêm vài lần.
 
-1 5 2 của kích thước, Đường Hiểu tinh còn cúi đầu, thật sự chỉ tới Triệu Kim An dưới nách, dạng này chiều cao kém dọc theo đường có không ít học sinh đều hiếu kỳ nhìn lâu thêm vài lần.
+"Cậu ấy vừa mới chạm vào người mình ư?"
 
-"hắn vừa mới đụng ta rồi?"
+Đường Hiểu Tình phản xạ hơi chậm nửa nhịp, nửa người bên cạnh bỗng chốc mềm nhũn, râm ran một cảm giác tê dại, ngọt ngào khó tả.
 
-Đường Hiểu tinh phản ứng chậm nửa nhịp, thân thể nửa bên đều mềm.
+Triệu Kim An dừng chân trước một quầy đồ nướng ven đường, quay sang bảo Đường Hiểu Tình: "Cậu muốn ăn món gì thì cứ tự tay chọn lấy đi."
 
-Triệu Kim An tại một người nướng bày dừng bước, hỏi Đường Hiểu tinh:"ngươi muốn ăn cái gì, chính mình cầm."
+Đường Hiểu Tình bất giác đưa tay sờ nắn ngăn kéo nhỏ bên trong chiếc túi vải bố của mình, nơi có hai trăm tệ tiền tích cóp. Nhìn quầy thức ăn phong phú, đầy ắp các loại xiên nướng hấp dẫn, cô bé rụt rè, cẩn trọng hỏi: "Chú ơi, một cái đùi gà nướng giá bao nhiêu tiền ạ?"
 
-Đường Hiểu tinh không tự giác sờ lên túi vải dầy tường kép của hai trăm khối tiền, nhìn xem rực rỡ muôn màu của vegetable stall, cẩn thận từng li từng tí vấn đạo:"lão bản, đùi gà bao nhiêu tiền một cái?"
+"Sáu tệ!"
 
-"6 khối!"
+"Thế... thế còn xiên thịt này thì sao ạ?"
 
-"cái kia... Vậy cái này thịt xiên nhỉ?"
+"Một tệ một xiên!"
 
-"1 khối!"
+Đến lúc này Đường Hiểu Tình mới dám cẩn thận chọn lấy một chiếc đùi gà to nhất và một xiên thịt nhỏ đưa cho chủ quán.
 
-Đường Hiểu tinh lúc này mới chọn một lớn một chút đùi gà cùng một cây thịt xiên đưa cho lão bản.
+Triệu Kim An hỏi: "Đã đủ chưa? Sao cậu không chọn thêm vài món rau củ hay đồ ăn kèm?"
 
-Triệu Kim An hỏi:"đủ chưa? Ngươi không lấy chút thức nhắm?"
+"Dạ? Không phải đâu, tớ ăn no căng bụng rồi, chiếc đùi gà này là tớ lấy cho cậu ăn đấy."
 
-"a? Không phải, ta ăn no rồi, đùi gà là cho ngươi cầm."
+Đường Hiểu Tình vội vàng giải thích: "Tớ chỉ ăn một xiên thịt này là đủ rồi, cậu thích ăn thêm món gì thì cứ tự nhiên chọn nhé."
 
-Đường Hiểu tinh nhanh chóng giảng giải:"ta ăn xuyên là được rồi, ngươi muốn ăn cái gì chính mình cầm."
+"Tớ... để tớ trả tiền cho."
 
-"ta, ta trả tiền."
+Nói đoạn, Đường Hiểu Tình liền lúi húi mở khóa kéo chiếc túi vải bố để tìm tiền lẻ.
 
-Nói, Đường Hiểu tinh liền mở ra túi vải dầy thối tiền lẻ.
+Ông chủ quán nướng đang bận rộn tay chân, lúc này mới ngẩng lên đánh giá kỹ cô bé. Cô vẫn còn đang mặc chiếc áo khoác đồng phục học sinh cấp ba cũ mèm, giặt nhiều đến mức vải đã bạc phếch cả ra. Ông lại liếc mắt nhìn sang Triệu Kim An đứng bên cạnh, một chiếc áo khoác lông vũ tối màu phom dáng cực đẹp và xịn sò.
 
-Lão bản bề bộn nhiều việc, lúc này mới dò xét Đường Hiểu tinh, vẫn là mặc đồng phục cao trung, tắm đều trắng bệch, lại xem xét mắt một bên Triệu Kim An, màu đậm lông áo jacket.
+Tuy không biết chính xác giá tiền chiếc áo là bao nhiêu, nhưng liếc qua cũng thừa hiểu giá trị của nó chắc chắn không hề rẻ.
 
-Mặc dù không biết cụ thể giá cả, nhưng chắc chắn không rẻ.
+Mẹ kiếp, một cô bé nghèo khổ, chất phác như thế này... mà lương tâm mày không thấy cắn rứt sao hả thằng ranh?
 
-M D, dạng này tiểu nữ sinh.... Ngươi lương tâm sẽ không đau?
+Mày có muốn làm kiếp "trai bao ăn bám" thì cũng phải biết đường mà tìm đúng đối tượng chứ lị!!!
 
-Ngươi muốn ăn cơm chùa, cũng tìm nhầm đối tượng đi!!!
+"Chú ơi, gửi chú này!"
 
-"lão bản, cho!"
+Triệu Kim An tiện tay gắp thêm một chiếc đùi gà nữa cùng vài xiên tôm sú và thịt bò xiên que đưa sang. Vị chủ quán nướng ngập tràn tinh thần chính nghĩa hai tay đang cầm kẹp nướng lật qua lật lại mấy xiên thịt, nhất quyết vờ như điếc không thèm nhận lấy xiên của Triệu Kim An.
 
-Triệu Kim An lại cầm một cái đùi gà cùng mấy xâu tôm vàng rộn xiên thịt bò đưa tới, tinh thần trọng nghĩa bạo tăng của lão bản hai tay nắm lấy xuyên lật qua lật lại chính là không tiếp, làm bộ không nghe thấy.
+Mãi cho đến khi Triệu Kim An chủ động rút từ trong ví ra một tờ tiền mệnh giá một trăm tệ mới cứng, ông chủ quán mới vội vàng buông kẹp, nhanh tay đón lấy tờ tiền rồi thoăn thoắt thối lại tiền thừa.
 
-Thẳng đến Triệu Kim An lấy trước ra trương nhất trăm, lão bản mới nhanh chóng tiếp nhận tiền trả tiền thừa.
+Triệu Kim An cạn lời: "..."
 
-Triệu Kim An:......
+Ông chủ à, cái trò giả mù giả điếc có chọn lọc này của chú, chẳng lẽ là đang ghen tị với vẻ đẹp trai của tôi đấy ư?
 
-Lão bản ngươi mang tính lựa chọn thất thông, là ghen ghét ta sao?
+"Triệu Kim An, cậu... tớ..."
 
-"Triệu Kim An, ngươi, ta....."
+Đường Hiểu Tình cầm tờ hai mươi tệ trên tay, cánh tay cứng đờ giữa không trung, khuôn mặt nghệt ra: Tớ chỉ định mời cậu vài xiên thịt nướng thôi mà.
 
-Đường Hiểu tinh cầm trong tay một trương 2 0 của, dừng tại giữ không trung bên trong, ta liền mời mấy cái xâu nướng a.
+"Đúng là ngốc nghếch, con bé này quá ngây thơ rồi!"
 
-"ngốc đi, quá ngu rồi!"
-
-Lão bản nghĩ thầm còn tốt chính mình nhanh mắt tay
+Ông chủ quán thầm nghĩ trong bụng, cũng may là bản thân mình tay nhanh mắt lẹ, kịp thời ra tay ngăn chặn.

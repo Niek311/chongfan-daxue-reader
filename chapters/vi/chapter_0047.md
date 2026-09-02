@@ -1,181 +1,183 @@
-# Chương 47: Tôi Muốn Tố Cáo
+# Chương 47: Tao phải đi mách nhà trường!
 
-Trần Trạch là người duy nhất trong phòng 303 mua máy tính xách tay.
+> **Tiêu đề gốc**: 第47章 我要告状！
 
-Đêm đến.
+Trần Trạch là người duy nhất trong phòng 303 sắm được máy tính xách tay.
 
-Trong phòng 303 có hai màn hình điện thoại vẫn luôn sáng rực, Trần Trạch và Lưu Sấm Phong "tạch tạch tạch" bấm bàn phím điện thoại, không biết đang tán gẫu với ai mà tốc độ gõ chữ rất nhanh.
+Đêm khuya.
+
+Trong phòng 303 có hai màn hình điện thoại vẫn sáng trưng không ngớt. Trần Trạch và Lưu Sấm Phong bấm bàn phím tanh tách, chẳng biết đang bận rộn nhắn tin tán gẫu với ai mà tốc độ gõ chữ thoăn thoắt lạ thường.
 
 "Bịch" một tiếng.
 
-Lưu Sấm Phong đột nhiên ngồi bật dậy trên giường, vẻ mặt đầy phấn khích: "Thẩm Tử Ngôn nhắn tin lại cho tôi rồi!"
+Lưu Sấm Phong đột ngột bật dậy trên giường, gương mặt hớn hở tột độ: "Thẩm Tử Ngôn trả lời tin nhắn của tao rồi!"
 
-Trần Trạch hơi bất ngờ, chẳng lẽ một cô gái như Thẩm Tử Ngôn lại thực sự có thiện cảm với Lưu Sấm Phong?
+Trần Trạch có chút ngạc nhiên, chẳng lẽ mẫu con gái kiêu kỳ như Thẩm Tử Ngôn lại thật sự có cảm tình với gã Lưu Sấm Phong thô kệch này sao?
 
-Hắn hỏi Thẩm Tử Ngôn nhắn lại cái gì?
+Hắn liền gặng hỏi Thẩm Tử Ngôn nhắn lại những gì.
 
-Lưu Sấm Phong giơ điện thoại lên đầy đắc ý: "Tôi nói với cô ấy mình vừa là trưởng phòng ký túc xá, vừa là lớp phó, còn đang chuẩn bị vào Hội sinh viên nữa. Cô ấy bảo như vậy rất tốt, khen tôi rất có chí tiến thủ!"
+Lưu Sấm Phong giơ cao chiếc điện thoại đầy vẻ tự đắc: "Tao bảo với cô ấy tao vừa là trưởng phòng vừa là lớp trưởng, lại chuẩn bị thi vào Hội sinh viên nữa. Cô ấy khen như thế rất tốt, còn bảo tao là người có chí tiến thủ!"
 
-"Chỉ thế thôi à!?"
+"Chỉ có thế thôi á!?"
 
-Cốc Siêu Thừa sốt sắng xen lẫn chút ghen tị hỏi: "Còn gì nữa không?"
+Cốc Siêu Thừa sốt ruột hỏi dồn, giọng điệu sặc mùi ghen tị: "Còn gì nữa không?"
 
-"Chúng tôi vẫn đang trò chuyện đây."
+"Bọn tao vẫn đang nhắn tin đây này."
 
-Lưu Sấm Phong lại nằm bò ra giường "tạch tạch tạch" gõ chữ. Hắn không nói rằng mình đã gửi cho Thẩm Tử Ngôn hơn mười tin nhắn, mà nàng chỉ nhắn lại đúng một câu này.
+Lưu Sấm Phong lại nằm sấp xuống giường tiếp tục bấm phím tanh tách. Hắn giấu nhẹm chuyện mình đã gửi đi hơn mười tin nhắn dồn dập, và Thẩm Tử Ngôn chỉ lịch sự đáp lại đúng một câu duy nhất ấy.
 
-Cốc Siêu Thừa: "..."
+Cốc Siêu Thừa cạn lời: "..."
 
-"Lão Lưu, không phải ông là lớp phó học tập sao?"
+"Lão Lưu, chẳng phải mày chỉ là lớp phó thôi sao?"
 
-Lưu Sấm Phong chẳng buồn để ý đến cậu ta, lớp phó thì cũng là cán bộ lớp vậy, ai bảo các ông chẳng là cái đinh rỉ gì.
+Lưu Sấm Phong chẳng buồn đoái hoài tới hắn. Lớp phó thì cũng là cán bộ lớp chứ sao, ai bảo chúng mày chẳng có chức tước gì trong tay.
 
-Thực tế thì Lưu Sấm Phong đang nhắn tin cho Lâm Thanh Tuyết, mà Lâm Thanh Tuyết đã trả lời hắn từ năm phút trước rồi.
+Thực chất, người mà Lưu Sấm Phong đang tích cực nhắn tin là Lâm Thanh Tuyết, nhưng Lâm Thanh Tuyết từ năm phút trước đã gửi cho hắn một tin:
 
-"Tôi đi tắm rồi đi ngủ đây."
+[Tớ đi tắm rồi đi ngủ đây nhé.]
 
-Trưởng phòng 303 đang cố gồng mình giữ thể diện.
+Vị trưởng phòng 303 này chẳng qua chỉ đang cố giữ chút thể diện hão huyền mà thôi.
 
-Cốc Siêu Thừa suy nghĩ một hồi, chần chừ mãi cũng cầm điện thoại lên thử nhắn cho Mộc Dao một tin.
+Cốc Siêu Thừa ngẫm nghĩ một hồi, đắn đo mãi rồi cũng cầm điện thoại lên, thử gửi cho Mộc Dao một tin nhắn:
 
-"Cậu có đó không?"
+[Cậu còn thức không?]
 
-Đêm dài dằng dặc thật sự quá đỗi nhàm chán, Cốc Siêu Thừa không thích kiểu con gái như Thẩm Tử Ngôn, cũng chẳng phải là không thích, mà cảm thấy Mộc Dao và Từ Mạn Mạn mới giống sinh viên đại học hơn.
+Đêm dài đằng đẵng đúng là tẻ nhạt vô cùng. Cốc Siêu Thừa không mấy hứng thú với kiểu con gái sắc sảo như Thẩm Tử Ngôn, hay nói đúng hơn không phải không thích, mà là vì hắn cảm thấy những cô gái như Mộc Dao và Từ Mạn Mạn mới mang đậm dáng dấp trong trẻo của nữ sinh đại học.
 
-Kiểu con gái như Thẩm Tử Ngôn, Cốc Siêu Thừa thấy mình không thể nắm bắt nổi.
+Còn mẫu con gái kiêu sa như Thẩm Tử Ngôn, Cốc Siêu Thừa tự biết bản thân không tài nào với tới nổi.
 
-Đại học Trung Nam, phòng ký túc xá 406.
+Bên phía Đại học Trung Nam, phòng ký túc xá 406.
 
-Mộc Dao cầm điện thoại lên nhìn lướt qua, nói: "Đám con trai này thật vô vị. Từ Mạn Mạn, Trần Trạch vừa kết bạn QQ với mình."
+Mộc Dao liếc nhìn màn hình điện thoại rồi thở dài: "Mấy bạn nam này rảnh rỗi thật đấy. Từ Mạn Mạn này, Trần Trạch vừa gửi lời mời kết bạn QQ với tớ đấy."
 
-Thẩm Tử Ngôn cũng cười nói: "Mạn Mạn, Trần Trạch cũng kết bạn với mình nữa."
+Thẩm Tử Ngôn cũng khẽ cười góp chuyện: "Mạn Mạn, Trần Trạch cũng vừa kết bạn với tớ nữa."
 
-Bạn trai của bạn cùng phòng, cũng cần thiết phải báo một tiếng.
+Dù sao cũng là bạn trai của bạn cùng phòng, báo trước một tiếng vẫn là điều nên làm.
 
-Diêu Tân cầm điện thoại lên nhìn, oán hận nói: "Đám con trai này thực dụng quá, chẳng có ai thèm tìm mình tán gẫu cả."
+Diêu Sân cầm điện thoại lên nhìn lướt qua, giọng đầy hờn dỗi: "Mấy bạn nam thời nay thực tế ghê cơ, chẳng có ai thèm nhắn tin tán gẫu với tớ cả."
 
-Diêu Tân cố ý làm vậy để giảm bớt sự ngượng ngùng, bọn họ cứ ngỡ Từ Mạn Mạn sẽ nổi giận, lập tức gọi điện thoại chất vấn Trần Trạch.
+Diêu Sân cố ý nói đùa để xua tan bầu không khí ngượng ngùng. Các cô cứ ngỡ Từ Mạn Mạn sẽ nổi cơn ghen, lập tức gọi điện thoại chất vấn Trần Trạch ngay tắp lự.
 
-"Anh lén lút kết bạn QQ với bạn cùng phòng của tôi muốn làm cái gì!?"
+"Cậu lén lút kết bạn QQ với bạn cùng phòng của tôi để làm cái trò gì đấy!?"
 
-Đó mới là phản ứng bình thường của một người.
+Đó mới là phản ứng thông thường của một người con gái.
 
-Kết quả là Từ Mạn Mạn ngồi trên giường, ôm máy tính xách tay rất rộng lượng nói: "Anh ấy nói với mình rồi, bảo là muốn kết bạn QQ với mọi người."
+Thế nhưng Từ Mạn Mạn chỉ ngồi ngay ngắn trên giường, hai tay ôm chiếc máy tính xách tay, thản nhiên và rộng lượng đáp: "Cậu ấy có nói trước với tớ rồi, bảo là muốn xin QQ kết bạn với các cậu."
 
-"Oa, Mạn Mạn, Trần Trạch đang báo cáo với cậu sao?"
+"Oa, Mạn Mạn à, Trần Trạch đi đâu làm gì cũng đều báo cáo trước với cậu hết sao?"
 
-Diêu Tân còn khá tích cực ghép đôi Từ Mạn Mạn và Trần Trạch, một người nhiều tiền, một người dịu dàng rộng lượng.
+Diêu Sân thực lòng rất ngưỡng mộ cặp đôi Từ Mạn Mạn và Trần Trạch: một bên gia cảnh giàu sang hào phóng, một bên dịu dàng nết na lại độ lượng vô cùng.
 
-Từ Mạn Mạn mỉm cười không nói gì, trông rất ôn hòa.
+Từ Mạn Mạn chỉ khẽ mỉm cười không nói, nét mặt hiền hòa như nước.
 
-Nàng không hề nhắn tin chất vấn Trần Trạch, cái gì cũng không hỏi.
+Cô không hề gửi tin nhắn tra khảo hay gặng hỏi Trần Trạch bất cứ điều gì.
 
-Ở phòng 406, ngoài Diêu Tân ra thì Mộc Dao, Thẩm Tử Ngôn, Từ Mạn Mạn đều đã mua máy tính xách tay, còn cả máy MP3 nữa. Giờ đây bộ ba vật phẩm (máy tính, MP3, điện thoại) của tân sinh viên đại học đã đầy đủ.
+Phòng 406 ngoại trừ Diêu Sân ra thì Mộc Dao, Thẩm Tử Ngôn và Từ Mạn Mạn đều đã sắm máy tính xách tay, lại thêm cả máy nghe nhạc MP3. "Bộ ba bảo bối" thời thượng của sinh viên đại học thời bấy giờ (máy tính, MP3, điện thoại) xem như đã gom đủ.
 
-Triệu Kim An đang đắm chìm trong thế giới của riêng mình, mô phỏng lại mô hình Fat Dong Lai.
+Trong khi đó, Triệu Kim An vẫn hoàn toàn đắm chìm trong thế giới toan tính của riêng mình: mô phỏng chuỗi siêu thị Bàn Đông Lai.
 
-Từ rau củ quả của Triệu Kim An Gia thôn cho đến hóa mỹ phẩm dùng hàng ngày, hắn nhớ các sản phẩm tự doanh của Fat Dong Lai như dầu gội, bột giặt, dầu ăn, nước tương, rồi cả rượu bia... đều bán chạy đến mức cháy hàng.
+Từ nông sản rau củ quả của Triệu Gia Thôn cho đến các mặt hàng hóa mỹ phẩm gia dụng thường nhật. Anh nhớ rất rõ các sản phẩm mang thương hiệu tự doanh của Bàn Đông Lai từ dầu gội, bột giặt, dầu ăn, nước tương cho đến các loại rượu bia... thứ nào đưa lên kệ cũng đều bán sạch bách đến mức cháy hàng.
 
-Vậy mình có nên thành lập công máy không?
+Vậy thì bản thân mình có nên tự đứng ra xây dựng nhà máy sản xuất không?
 
-Hay là đặt ra tiêu chuẩn rồi giao cho người khác sản xuất?
+Hay là chỉ thiết lập bộ tiêu chuẩn chất lượng khắt khe rồi chuyển giao cho các đơn vị khác gia công?
 
-Dù thế giới này có thay đổi thế nào đi chăng nữa, đây vẫn là những nhu yếu phẩm trong cuộc sống, chỉ là kênh mua sắm đang thay đổi mà thôi.
+Bất kể thời thế thế giới có biến chuyển ra sao, những thứ này vĩnh viễn là nhu cầu thiết yếu phục vụ đời sống con người, thứ duy nhất thay đổi chỉ là kênh phân phối mua sắm mà thôi.
 
-Mọi người đều đang chú ý đến công nghệ, nhưng thực tế người dân chỉ quan tâm đến cơm ăn ba bữa, có một cơ thể khỏe mạnh mới là quan trọng nhất, đó cũng là điểm quan trọng nhất của Fat Dong Lai.
+Mọi người cứ mải mê chạy theo các ngành công nghệ cao siêu, nhưng thực tế với đại đa số người dân bình thường, ngày đủ ba bữa cơm no áo ấm, giữ được một cơ thể khỏe mạnh mới là điều quan trọng nhất. Và điều cốt lõi làm nên sự vĩ đại của Bàn Đông Lai chính là:
 
-Kiểm soát chất lượng!
+Kiểm soát chất lượng tuyệt đối!
 
-Nếu mình thành lập công ty, Triệu Kim An lại nghĩ đến tập đoàn trong top 500 thế giới - Johnson & Johnson, một trong những doanh nghiệp chăm sóc sức khỏe toàn diện nhất toàn cầu.
+Nếu tự mình xây dựng nhà máy sản xuất, Triệu Kim An lại liên tưởng tới tập đoàn nằm trong top 500 thế giới - Johnson & Johnson, một trong những doanh nghiệp chăm sóc sức khỏe toàn diện hàng đầu hành tinh.
 
-Đại Bảo SOD mật!
+Kem dưỡng da Dabao SOD Honey!
 
-Ban đầu chỉ bán vài tệ một chai, là sản phẩm dưỡng da duy nhất của Vương Kim Như.
+Thuở ban đầu chỉ bán với giá vài đồng một lọ, cũng là món mỹ phẩm dưỡng da duy nhất của thím Vương Kim Như.
 
-Vốn dĩ là thương hiệu trong nước, sau này bị Johnson & Johnson thâu tóm, đến cả Vương Kim Như cũng mua dùng thì có thể tưởng tượng được nó kiếm tiền đến mức nào.
+Vốn dĩ là một thương hiệu quốc dân nội địa, về sau lại bị Johnson & Johnson thâu tóm toàn bộ. Ngay cả một người phụ nữ tằn tiện như thím Vương Kim Như còn sẵn sàng móc hầu bao ra mua, đủ hiểu món đồ này hái ra tiền khủng khiếp đến mức nào.
 
-Dòng suy nghĩ lan man...
+Mạch suy nghĩ cứ thế miên man mở rộng...
 
-Kết quả là Lạc Cẩn Chi đột nhiên nói nàng đã đến Quận Sa, hỏi Triệu Kim An có thời gian không?
+Đúng lúc này, Lạc Cẩn Chi đột nhiên nhắn tin báo rằng cô đã đặt chân tới Quận Sa, hỏi Triệu Kim An có rảnh rỗi hay không?
 
-Lạc Cẩn Chi nói đến Quận Sa thuê một cái kho hàng, còn định thiết lập một văn phòng làm căn cứ. Xem ra nàng muốn khai phá thị trường Quận Sa, rồi thông qua Quận Sa để lan tỏa ra toàn bộ tỉnh Hồ Nam.
+Lạc Cẩn Chi cho biết cô tới Quận Sa để thuê một kho bãi lớn, đồng thời mở một văn phòng đại diện làm căn cứ địa tại đây. Xem ra cô thực sự muốn khai phá thị trường Quận Sa, rồi từ đầu mối giao thương này mở rộng độ phủ sóng ra khắp toàn bộ tỉnh Tương Nam.
 
-Ngày hôm đó sau khi kết thúc buổi quân huấn, Triệu Kim An cùng các bạn cùng lớp Kế toán 1 quay về ký túc xá. Vương Duy Đào cứ bám dính lấy Triệu Kim An, khiến hắn bắt đầu nảy sinh nghi ngờ thực sự.
+Buổi tập quân sự hôm đó vừa kết thúc, Triệu Kim An cùng các bạn học lớp Kế toán 1 rảo bước quay về ký túc xá. Vương Duy Đào cứ bám riết lấy anh không rời nửa bước, khiến Triệu Kim An không khỏi dấy lên chút nghi ngại trong lòng.
 
-Thằng chó này không phải định chờ tôi sơ hở để giở trò đấy chứ?
+Cái thằng trời đánh này không phải thực sự đang rình lúc mình sơ hở để giở trò đấy chứ?
 
-"Cậu tránh xa ra chút đi!"
+"Tránh xa tao ra một chút!"
 
-Vẻ mặt Triệu Kim An đầy ghét bỏ, nhưng Vương Duy Đào vẫn cứ mặt dày bám theo.
+Triệu Kim An lộ vẻ mặt ghét bỏ xua đuổi, nhưng Vương Duy Đào vẫn cứ trơ trẽn bám riết.
 
-Nghe thấy động tĩnh, Trần Trạch đi phía trước quay đầu lại cười cười: "Nam nữ thông ăn à?"
+Nghe thấy tiếng động ồn ào, Trần Trạch đi phía trước liền quay đầu lại cười cợt: "Cậu em đây là muốn 'bao trọn' cả nam lẫn nữ đấy à?"
 
-Không ngờ Lưu Sấm Phong lại nói câu này ra miệng, mang theo ý vị trêu chọc, hắn cười ha hả: "Kim An, cậu đúng là nam nữ thông ăn đấy nhỉ."
+Chẳng ngờ Lưu Sấm Phong lập tức chộp lấy câu nói đó, lớn tiếng trêu chọc đầy ác ý: "Kim An, chú mày đúng là cái giống gì cũng xơi được, nam nữ chẳng chừa ai!"
 
-"Sai rồi, là nam nữ già trẻ thông ăn!"
+"Nói bậy, phải là già trẻ lớn bé không tha mới đúng!"
 
-Vương Duy Đào lớn tiếng đính chính.
+Vương Duy Đào lớn giọng chỉnh đốn lại.
 
 Triệu Kim An: "..."
 
-Đột nhiên, một nhóm nữ sinh mặc quần áo tập luyện dáng dấp xinh đẹp, vừa cười vừa nói đi tới. Lưu Sấm Phong đi không nổi nữa, mắt nhìn thẳng tắp, không kìm được mà nuốt nước miếng.
+Đột nhiên, một nhóm nữ sinh mặc quần tập thể dục bó sát vừa đi vừa cười nói ríu rít bước tới từ phía đối diện. Lưu Sấm Phong lập tức như bị chôn chân tại chỗ, hai mắt dán chặt không rời, bất giác nuốt nước bọt đánh ực một tiếng.
 
-Hắn bảo những nữ sinh này thật lẳng lơ, mặc cả tất chân đen ra ngoài, còn có cả loại màu da nữa, to gan thật đấy, thật tuyệt, trước đây ở quê hắn chưa từng thấy bao giờ.
+Hắn tặc lưỡi bảo mấy cô nữ sinh này bạo dạn thật đấy, mặc nguyên cái quần tất đen sì thế kia ra đường, lại còn có cả loại màu da nữa chứ, gan to bằng trời, đúng là đã mắt thật, trước đây ở quê hắn làm gì có cơ hội được chứng kiến cảnh tượng này.
 
-"Ông không thể nói nhỏ một chút sao? Người ta nghe thấy bây giờ!"
+"Cậu làm ơn nói nhỏ cái mồm lại được không? Người ta nghe thấy bây giờ!"
 
-Biểu hiện của Lưu Sấm Phong khiến Trần Trạch có chút cạn lời, hắn nói: "Mấy chị khóa trên này là sinh viên ngành múa, mặc đồ tập luyện đấy."
+Biểu hiện thô lỗ của Lưu Sấm Phong khiến Trần Trạch không khỏi cạn lời. Hắn giải thích: "Mấy chị khóa trên đó là sinh viên khoa Múa, người ta đang mặc đồ tập chuyên dụng đấy."
 
-"Không phải, cái chị mặc đồ màu da kia kìa, trông chẳng khác gì không mặc cả."
+"Nhưng mà... cái con bé mặc quần màu da kia kìa, nhìn từ xa có khác gì không mặc đâu!"
 
-Lưu Sấm Phong lén lút chỉ trỏ vào một nữ sinh trong số đó.
+Lưu Sấm Phong lén lút đưa ngón tay chỉ trỏ về phía một nữ sinh trong nhóm.
 
-Trần Trạch không nhịn được nhìn một cái, rồi lại nhìn thêm cái nữa, đúng là thật.
+Trần Trạch không kìm được cũng liếc nhìn một cái, rồi lại liếc thêm cái nữa, quả nhiên đúng là như vậy thật.
 
-Dân học múa, vóc dáng đúng là không còn gì để chê.
+Dân học múa chuyên nghiệp, vóc dáng đường cong đúng là chẳng có chỗ nào để chê.
 
-"Không phải, thế ông cũng đừng có chỉ trỏ!"
+"Thôi đi, cậu đừng có giơ tay chỉ trỏ lung tung như thế!"
 
-Trần Trạch cảm thấy đi cùng Lưu Sấm Phong thật quá mất mặt, vội vàng giãn khoảng cách với hắn.
+Trần Trạch cảm thấy đi chung đường với Lưu Sấm Phong thật sự quá mất mặt, vội vàng rảo bước kéo giãn khoảng cách với hắn.
 
-Thực ra cũng không trách được Lưu Sấm Phong, nữ sinh đại học 20 tuổi mặc đồ tập luyện, cứ nghĩ đến những chiếc quần yoga trong các video ngắn sau này mà xem, chẳng phải cũng có bao nhiêu người nhấn thích đó sao?
+Thực ra cũng chẳng thể trách Lưu Sấm Phong được. Những cô nữ sinh đôi mươi khoác lên mình bộ đồ tập ôm sát cơ thể thế kia, cứ thử nghĩ đến những đoạn video ngắn khoe dáng với quần tập yoga ở đời sau xem, chẳng phải cũng thu về hàng triệu lượt thích đó sao?
 
-Thậm chí có những tài khoản còn cán mốc triệu lượt theo dõi.
+Thậm chí có những tài khoản còn sở hữu hàng triệu người theo dõi.
 
-Triệu Kim An quan sát Vương Duy Đào, thấy gã mặt đầy mụn trứng cá này cũng đang nhìn chăm chú thì mới yên tâm.
+Triệu Kim An kín đáo quan sát Vương Duy Đào, thấy khuôn mặt lấm tấm mụn trứng cá của cậu ta cũng đang dán chặt vào các cô gái múa với ánh mắt mê đắm, trong lòng mới khẽ thở phào nhẹ nhõm.
 
-Nếu không Triệu Kim An có lý do để nghi ngờ kiếp trước Vương Duy Đào đến Quận Sa công tác lại đối xử tốt với mình như vậy, thật không dám nghĩ sâu thêm...
+Nếu không thì anh hoàn toàn có lý do để nghi ngờ kiếp trước Vương Duy Đào mỗi lần tới Quận Sa công tác lại đối xử tốt với mình đến mức kỳ lạ như vậy, nghĩ sâu xa hơn chút nữa thì thật rợn cả người...
 
-Mấy nữ sinh kia ríu rít như chim oanh yến hót, phớt lờ những ánh mắt ngưỡng mộ của đám đàn em khóa dưới, còn che miệng cười duyên. Họ vốn dĩ chẳng coi mấy tân sinh viên mặc quân phục ra gì.
+Mấy cô nữ sinh khoa Múa dáng vẻ kiều diễm, hoàn toàn xem như không thấy những ánh mắt si mê của đám nam sinh mới lớn, còn khẽ lấy tay che miệng cười khúc khích. Đương nhiên là họ chẳng thèm để vào mắt đám tân sinh viên năm nhất đang khoác trên mình những bộ quân phục rộng thùng thình kia rồi.
 
-"Bíp——"
+"Bim bim ——"
 
-Ngay lúc này, phía sau có một chiếc Land Rover màu trắng chạy tới. Mọi người đều dừng bước, chiếc Land Rover cũng dừng lại một cách kỳ lạ.
+Đúng lúc này, phía sau lưng bỗng vang lên tiếng còi xe, một chiếc Range Rover màu trắng lướt tới rồi phanh lại ngay bên cạnh. Mọi người đồng loạt dừng bước, chiếc xe sang trọng cũng từ tốn đỗ xịch trước mặt họ.
 
-Lạc Cẩn Chi diện một bộ đồ công sở cao cấp, trông rất tháo vát và xinh đẹp, đeo kính râm lớn. Nàng đẩy cửa bước xuống xe, trên mặt nở nụ cười gọi lớn: "Triệu Kim An!"
+Lạc Cẩn Chi trong bộ âu phục công sở may đo cao cấp vô cùng tôn dáng, vừa toát lên vẻ sắc sảo thành đạt lại vừa kiều diễm hút hồn, trên gương mặt đeo chiếc kính râm bản lớn. Cô đẩy cửa bước xuống xe, nở nụ cười rạng rỡ cất tiếng gọi: "Triệu Kim An!"
 
-Vừa mới quân huấn xong chuẩn bị về ký túc xá, gần một nửa sinh viên lớp Kế toán 1 đều có mặt ở đó.
+Vừa mới tan buổi tập quân sự quay về ký túc xá, gần một nửa sinh viên lớp Kế toán 1 đều đang có mặt ở đây.
 
-Bọn họ trợn tròn mắt, vẻ mặt đầy hóng hớt.
+Đám đông trố tròn mắt nhìn, gương mặt ai nấy đều bừng lên ngọn lửa hóng hớt cuồng nhiệt.
 
-"Ai thế? Ai thế? Đây là ai vậy!?"
+"Ai thế? Ai thế kia? Người đẹp này là ai vậy!?"
 
-Lưu Sấm Phong cuống lên, thật sự là rất cuống. Đường Hiểu Tình và Lý Lộ thì thôi đi, nhưng người phụ nữ trước mặt này vừa xinh đẹp lại vừa giàu có.
+Lưu Sấm Phong cuống lên, thực sự sốt ruột đến phát điên. Đường Hiểu Tình hay Lý Lộ thì thôi đi, nhưng người phụ nữ vừa xuất hiện này rõ ràng vừa xinh đẹp ngút ngàn lại vừa toát lên vẻ giàu sang tột bậc.
 
-"Lão Cốc, xe gì thế?"
+"Lão Cốc, xe gì đấy?"
 
-Cốc Siêu Thừa nhìn vài cái rồi nói: "Hình như là Land Rover."
+Cốc Siêu Thừa nheo mắt nhìn ngắm vài lần rồi đáp: "Hình như là xe Lộ Hổ (Range Rover) thì phải."
 
-"Trông hầm hố thế, có đắt bằng chiếc BMW của anh Trạch không?"
+"Trông hầm hố dữ vậy, có đắt hơn chiếc BMW của anh Trạch không?"
 
-Lưu Sấm Phong rất tò mò.
+Lưu Sấm Phong vô cùng tò mò.
 
-"Nói nhảm!"
+"Nói thừa!"
 
-Vương Duy Đào vẫn luôn bênh vực Triệu Kim An, gã đảo mắt trắng dã: "Chiếc BMW đó của Trần Trạch có thể mua được ba chiếc!"
+Vương Duy Đào vốn trước giờ luôn đứng về phía Triệu Kim An, liền đảo mắt khinh bỉ: "Cái xe này đủ sức mua đứt ba chiếc BMW như của Trần Trạch đấy!"
 
-Lưu Sấm Phong: "..."
+Lưu Sấm Phong sững sờ cạn lời: "..."
 
-"Trai bao, chắc chắn là trai bao rồi, Kim An nhất định là được bao nuôi!"
+"Tiểu bạch kiểm! Đích thị là tiểu bạch kiểm rồi! Thằng Kim An chắc chắn là được phú bà bao nuôi rồi!"
 
-"Tố cáo, tôi muốn tố cáo, tôi phải báo cáo với nhà trường!"
+"Mách lẻo! Tao phải đi tố cáo, tao phải lên báo với Ban giám hiệu nhà trường mới được..."

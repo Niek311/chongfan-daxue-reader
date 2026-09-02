@@ -1,177 +1,179 @@
-# Chương 53: Ông Chủ Mới
+# Chương 53: Ông chủ mới
 
-"Không mua sao?"
+> **Tiêu đề gốc**: 第53章 新老板。
 
-Triệu Kim An liếc nhìn chiếc cốc thủy tinh, có lẽ là không chuẩn bị cốc dùng một lần, bởi bình thường nhà này cũng chẳng có ai đến khách.
+"Chưa kịp mua trà à?"
 
-Đơn Na Tề: "..."
+Triệu Kim An liếc nhìn chiếc cốc thủy tinh, đoán chừng trong nhà cũng không chuẩn bị sẵn cốc giấy dùng một lần, bởi nơi này bình thường vốn dĩ chẳng có khách khứa nào ghé thăm.
 
-Nàng không ngờ vị đại ca ca trông sạch sẽ lại đẹp trai trước mặt này nói chuyện thẳng thừng như vậy, chẳng lẽ mấy chuyện này không phải nên nhìn thấu mà không nói ra sao?
+Đan Na Tề: "..."
 
-Đơn Vĩ vẫn đang ngồi xổm dưới vòi nước ngoài cửa rửa tay, hắn đoán được phần nào lý do Triệu Kim An nói huỵch tẹt ra như thế.
+Cô bé không ngờ người anh trai sạch sẽ, khôi ngô trước mặt lại ăn nói thẳng thừng, toạc móng heo đến thế. Những chuyện nghèo khó thế này, người ta chẳng phải thường chọn cách "nhìn thấu nhưng không nói ra" để giữ thể diện cho nhau hay sao?
 
-Đơn Na Tề trái lại là một cô bé có nội tâm kiên cường, nàng không hề quẫn bách mà cúi đầu.
+Đan Vĩ vẫn đang ngồi xổm bên ngoài vòi nước rửa tay, ông lờ mờ đoán được lý do vì sao Triệu Kim An lại cố ý vạch trần điều đó.
 
-Triệu Kim An lại liếc nhìn phòng ngủ của cô bé, trên bàn học có mấy lọ thuốc, hắn khẽ hít hà, trong nhà phảng phất một mùi thuốc nhàn nhạt.
+Đan Na Tề trái lại là một cô bé có nội tâm vô cùng kiên cường, cô không hề bối rối cúi gằm mặt xuống.
 
-Không phải thuốc Đông y.
+Triệu Kim An lại đưa mắt nhìn qua khe cửa phòng ngủ của cô bé. Trên bàn học có đặt vài lọ thuốc tây, khẽ hít mũi một cái, trong căn nhà phảng phất một mùi thuốc thoang thoảng.
 
-Chỉ khi có người uống thuốc dài ngày, trong nhà mới ám mùi thuốc như vậy.
+Không phải mùi thuốc bắc sắc.
 
-Hắn lại nhìn Đơn Na Tề, không nhìn ra bệnh gì, nàng mặc bộ đồng phục xanh trắng, đôi giày hơi cũ nhưng sạch sẽ. Triệu Kim An không hỏi nàng bị bệnh gì.
+Đó là thứ mùi đặc trưng khi trong nhà có người phải uống thuốc tây điều trị bệnh triền miên năm này qua tháng nọ.
 
-Nếu ngươi hỏi như vậy, người khác sẽ nghĩ: Ngươi định bỏ tiền chữa trị cho tôi sao?
+Anh lại ngắm nhìn Đan Na Tề, bề ngoài trông cô bé hoàn toàn khỏe mạnh, không lộ vẻ gì là mang bệnh tật nặng nề. Thiếu nữ khoác trên mình bộ đồng phục học sinh màu xanh trắng, đôi giày dưới chân đã sờn cũ nhưng giặt giũ rất sạch sẽ. Triệu Kim An tuyệt nhiên không hỏi cô bé mắc bệnh gì.
 
-Đặc biệt là Đơn Vĩ đang ở ngoài cửa.
+Bởi nếu hỏi như vậy, người ta sẽ bất giác nghĩ: Anh hỏi để làm gì? Anh định bỏ tiền ra chữa bệnh cho tôi chắc?
 
-Có người sẽ nói Triệu Kim An lòng dạ sắt đá, nhưng đó là vì những kẻ đó luôn tự cho mình là lương thiện, thực tế loại người này mới là ích kỷ nhất, bọn họ ngoài miệng quan tâm người khác nhưng lại chẳng thể giúp đỡ được gì thực chất.
+Đặc biệt là Đan Vĩ đang ở ngay ngoài cửa kia.
 
-Sự quan tâm đầu môi của bọn họ chỉ để khiến bản thân cảm thấy dễ chịu hơn, thấy mình có lòng tốt, còn đối với người khác thì chẳng có bất kỳ sự giúp đỡ thực tế nào.
+Sẽ có người cho rằng Triệu Kim An sắt đá, vô tình, nhưng thực tế những kẻ luôn tự vỗ ngực cho mình là "lương thiện" mới là những kẻ ích kỷ nhất. Họ dùng những lời quan tâm đãi bôi ngoài miệng nhưng chưa từng thực sự dang tay giúp đỡ người khác một cách thiết thực.
 
-Triệu Kim An nhìn quanh một lượt, mỉm cười hỏi Đơn Na Tề: "Không dán giấy khen sao?"
+Sự quan tâm sáo rỗng trên môi chỉ nhằm làm cho lương tâm của chính họ cảm thấy dễ chịu hơn, ngộ nhận rằng mình là người tốt, trong khi đối với người đang trong cơn hoạn nạn thì những lời ấy chẳng đem lại bất kỳ giá trị thực tế nào.
+
+Triệu Kim An nhìn ngó quanh bốn bức tường quét vôi đơn sơ, rồi mỉm cười hỏi Đan Na Tề: "Không dán giấy khen à?"
 
 "..."
 
-Đơn Na Tề bĩu môi: "Ai lên cấp ba rồi còn dán giấy khen chứ?"
+Đan Na Tề bĩu môi đáp: "Ai lên cấp ba rồi mà còn dán giấy khen nữa chứ?"
 
-"Xa không?" Triệu Kim An lại hỏi.
+"Trường có xa không?" Triệu Kim An lại hỏi.
 
-"Cái gì xa?"
+"Gì cơ ạ?"
 
-Đơn Na Tề ngẩng đầu lên, nhất thời chưa hiểu lắm. Thiếu nữ đang tuổi dậy thì, vị đại ca ca trước mặt này cười lên thật sự rất đẹp trai, chỉ là hắn có quan hệ gì với ba mình nhỉ?
+Đan Na Tề ngẩng đầu lên, nhất thời chưa hiểu kịp mạch câu chuyện. Thiếu nữ đang độ tuổi trăng tròn nhạy cảm, người anh trai trước mặt này cười lên thực sự rất cuốn hút, nhưng rốt cuộc anh ấy có quan hệ thế nào với bố mình?
 
-Tại sao ba lại dẫn hắn về nhà?
+Tại sao bố lại dẫn anh ấy về nhà?
 
-Lớp mười một, cùng tuổi với Trần Thanh Trĩ, Triệu Kim An nói: "Sau này ba em sẽ đi theo tôi, tôi là ông chủ mới của ba em."
+Lớp 11, đúng bằng tuổi với Trần Thanh Trĩ thuở này. Triệu Kim An thong thả nói: "Bố em từ nay sẽ đi theo anh. Anh là ông chủ mới của bố em."
 
-"Ông chủ? Anh mới bao nhiêu tuổi chứ?"
+"Ông chủ á? Anh mới bao nhiêu tuổi chứ?"
 
-Đơn Na Tề nhìn về phía ba mình ngoài cửa, tay vẫn còn cầm cây bút bi.
+Đan Na Tề tròn xoe mắt nhìn ra người bố ngoài cửa, tay vẫn siết chặt chiếc bút bi.
 
-Nghe thấy câu này của Triệu Kim An, Đơn Vĩ mới khóa vòi nước đi vào, gọi một tiếng: "Ông chủ."
+Nghe thấy câu nói ấy của Triệu Kim An, Đan Vĩ mới khóa vòi nước, bước vào trong nhà, cung kính cất tiếng: "Ông chủ."
 
-"Lương một tháng ở xưởng sửa xe của chú là bao nhiêu?"
+"Ở xưởng sửa xe, lương tháng của chú được bao nhiêu?"
 
-"Có khi được hai ngàn."
+"Tháng nào nhiều việc thì được tầm hai nghìn."
 
-Triệu Kim An gật đầu, từ trong ba lô lấy tiền ra đếm bốn ngàn, lại đếm thêm mười tờ nữa, nói ngay trước mặt Đơn Na Tề: "Đã hứa với chú rồi, trả trước một tháng lương."
+Triệu Kim An gật đầu, mở ba lô rút cọc tiền ra đếm đủ bốn nghìn tệ, rồi lại rút thêm mười tờ một trăm tệ nữa, ngay trước mặt Đan Na Tề đưa sang: "Đã hứa với chú rồi, tạm ứng trước một tháng tiền lương."
 
-Đơn Vĩ dùng hai tay nhận tiền: "Vậy còn một ngàn..."
+Đan Vĩ dùng cả hai tay đón lấy cọc tiền dày cộp, ngập ngừng: "Thế còn một nghìn này..."
 
-"Bốn ngàn có vẻ hơi chật vật nhỉ?"
+"Bốn nghìn chi tiêu có vẻ vẫn hơi chật vật đúng không?"
 
-Đơn Vĩ gật đầu, tiền thuê nhà điện nước là khoản nhỏ, con gái học lớp mười một còn phải uống thuốc, cắn răng thì vẫn trụ được, chỉ là không đi học thêm được nữa.
+Đan Vĩ khẽ gật đầu. Tiền thuê nhà, điện nước chỉ là chuyện nhỏ, nuôi một đứa con gái học lớp 11 lại phải cắn răng gánh thêm tiền thuốc thang hàng tháng thì ông vẫn ráng gồng gánh nổi, chỉ có điều chẳng thể nào lo cho con đi học thêm ở các lớp bồi dưỡng được.
 
-Còn sau này lên đại học...
+Đó là chưa kể sau này con bé vào đại học...
 
-Triệu Kim An nhìn bàn ăn rồi nói: "Thuê một căn nhà nào gần trường học một chút."
+Triệu Kim An nhìn chiếc bàn ăn cũ kỹ rồi bảo: "Thuê một căn nhà khác ở gần trường học hơn đi."
 
 "Còn nữa."
 
-Hắn chỉ tay vào Đơn Vĩ: "Chút nữa đi tút tát lại bản thân đi, sau này đi theo tôi, đừng có cười với người khác."
+Anh chỉ tay vào người Đan Vĩ: "Tút tát lại bản thân một chút, sau này đi theo tôi thì tuyệt đối đừng có cười với người ngoài."
 
-"Đừng cười với người khác?"
+"Đừng cười với người ngoài ạ?"
 
-Đơn Vĩ nhất thời không hiểu, Đơn Na Tề nhìn Triệu Kim An hồi lâu, ghé tai ba nói nhỏ vài câu, Đơn Vĩ mới bừng tỉnh đại ngộ. Triệu Kim An hơi bất ngờ.
+Đan Vĩ nhất thời ngớ người chưa hiểu. Đan Na Tề chăm chú nhìn Triệu Kim An một lúc, rồi ghé tai bố thì thầm giải thích vài câu. Đan Vĩ nghe xong mới vỡ lẽ, gật đầu lia lịa. Triệu Kim An thầm ngạc nhiên:
 
-"Con bé này thông minh đấy."
+"Con bé này thông minh đấy chứ."
 
-"Ông chủ, vậy xe của anh... ở đâu?"
+"Ông chủ, thế... xe của cậu đỗ ở đâu rồi?"
 
-Đơn Vĩ thầm nghĩ, anh đã thuê cả vệ sĩ rồi thì chắc phải có xe chứ, nếu không cầm bốn ngàn này cắn rứt lương tâm quá, vệ sĩ kiêm tài xế mới xứng với mức lương này.
+Đan Vĩ bụng bảo dạ, người ta đã thuê cả vệ sĩ riêng thì chắc chắn phải có xe xịn rồi, bằng không cầm bốn nghìn tệ này trong tay thấy cắn rứt lương tâm lắm. Vừa làm vệ sĩ vừa kiêm luôn tài xế riêng thì mới xứng đáng với mức lương hậu hĩnh thế này.
 
-Triệu Kim An á khẩu, hắn lấy đâu ra xe.
+Triệu Kim An thoáng ngớ người, anh làm gì đã có xe nào đâu.
 
-Đơn Vĩ vỗ ngực cam đoan: "Ông chủ, anh yên tâm, xe gì tôi cũng biết lái, còn biết sửa nữa."
+Đan Vĩ vỗ ngực cam đoan: "Ông chủ cứ yên tâm, xe gì tôi cũng lái được tuốt, hỏng hóc đâu tôi tự sửa được luôn."
 
-Triệu Kim An nghĩ đến số vốn của mình, nói: "Vậy thì lấy con Audi A6 trước đi."
+Triệu Kim An nhẩm tính lại số vốn liếng hiện có, liền bảo: "Vậy tạm thời lấy một chiếc Audi A6 trước đi."
 
-"Lấy Audi A6 trước?"
+"Tạm thời... Audi A6 ạ?"
 
-Lần này đến lượt Đơn Na Tề không hiểu nổi, là hắn không có xe hay là nhà nhiều xe quá nên không biết đi chiếc nào?
+Lần này đến lượt Đan Na Tề há hốc mồm không hiểu nổi. Rốt cuộc là anh chàng này chưa có xe hay là nhà nhiều xe quá đến mức không biết nên chọn chiếc nào để đi?
 
-"Chú rành về xe thì cứ đi xem trước đi, màu đen, tốt nhất là có xe giao ngay."
+"Chú rành về xe cộ thì cứ đi khảo sát trước đi, lấy màu đen, tốt nhất là chỗ nào có sẵn xe giao ngay."
 
-"Còn nữa, chú thuê nhà thì tốt nhất là chỗ đó đậu được xe."
+"Còn nữa, tìm thuê nhà thì kiếm chỗ nào có chỗ đậu xe ô tô đàng hoàng."
 
-Triệu Kim An không muốn đậu xe dưới ký túc xá, hắn từng nghĩ đến Audi A8, dòng đó thiên về xe thương vụ hơn, thậm chí là những loại đắt tiền hơn, nhưng cứ lo kiếm tiền trước đã.
+Triệu Kim An không có ý định đỗ xe dưới sân ký túc xá trường. Anh từng nghĩ đến dòng Audi A8 sang trọng hơn, mang đậm chất thương gia, thậm chí là những dòng siêu xe đắt tiền hơn nữa, nhưng trước mắt việc kiếm tiền vẫn là ưu tiên số một.
 
-Sau khi Triệu Kim An rời đi, Đơn Vĩ và Đơn Na Tề nhìn năm ngàn tệ trên bàn, cùng với nửa bao Hoàng Phù và một cái bật lửa.
+Sau khi Triệu Kim An rời đi, Đan Vĩ và Đan Na Tề cùng nhìn chằm chằm vào năm nghìn tệ đặt trên bàn, kèm theo nửa bao thuốc lá Hoàng Phù Dung và một chiếc bật lửa anh để lại.
 
-"Tâm tư thật tỉ mỉ."
+"Đúng là người suy nghĩ chu toàn, sâu sắc."
 
-Đơn Vĩ nhớ lại cảnh Triệu Kim An chủ động đưa bật lửa cho mình trên cầu, lại nhất quyết đòi về nhà xem thử. Đơn Vĩ vốn bình thường tiết kiệm hết mức, nay cũng cầm điếu thuốc lên châm lửa.
+Đan Vĩ nhớ lại cảnh tượng trên cầu ban nãy, chàng thanh niên chủ động đưa bật lửa, rồi nhất quyết đòi về tận nhà để xem xét thực tế. Người đàn ông quanh năm tiết kiệm từng đồng cắc bèn rút một điếu thuốc ra châm lửa.
 
-"Ba, anh ấy làm nghề gì ạ?"
+"Bố, anh ấy làm nghề gì thế bố?"
 
-"Một sinh viên đại học."
+"Một cậu sinh viên đại học."
 
-......
+...
 
-Ngày thứ ba, Triệu Kim An lại đến Đường Lộc Sơn Nam. Ở phố đi bộ không tìm được mặt bằng ưng ý, nhưng ở Đường Lộc Sơn Nam lại thấy có người dán bảng cho thuê.
+Sang ngày thứ ba, Triệu Kim An lại lượn qua đường Lộc Sơn Nam. Hôm trước ở phố đi bộ không tìm được mặt bằng ưng ý, hôm nay qua đường Lộc Sơn Nam anh lại tình cờ thấy có người dán biển cho thuê cửa hàng.
 
-Đối với con đường này Triệu Kim An quá đỗi quen thuộc, dò hỏi một chút thì biết còn một tháng nữa mới hết hạn hợp đồng.
+Khu phố này Triệu Kim An rành rẽ như lòng bàn tay, vừa hỏi thăm thì được biết còn một tháng nữa hợp đồng cũ mới hết hạn.
 
-Do dự mãi, Triệu Kim An mới gọi vào số điện thoại của chủ nhà. Hắn vẫn chưa nghĩ ra sẽ kinh doanh gì, nhưng hiện tại những mặt bằng ở vị trí đẹp đúng là một mét vuông cũng khó tìm.
+Đắn đo suy tính một hồi, Triệu Kim An bấm số gọi cho chủ nhà. Tuy chưa tính kỹ sẽ kinh doanh mặt hàng gì, nhưng thời điểm này những mặt bằng có vị trí đắc địa thế này luôn là món hàng hiếm, hở ra là có người cướp mất ngay.
 
-Thậm chí mười năm sau, mặt bằng ở phố đi bộ và khu đại học cũng chẳng bao giờ lo không có người thuê.
+Dù có qua thêm mười năm nữa thì các gian hàng ở phố đi bộ và khu Đại học thành cũng chẳng bao giờ lo ế khách thuê.
 
-Điện thoại kết nối, chủ nhà đang chơi mạt chược, ông ta bảo tiền thuê mười hai ngàn, cọc ba trả ba, ký hợp đồng ba năm. Sau khi xác nhận Triệu Kim An không mặc cả, ông ta mới lững thững đi tới.
+Đầu dây bên kia bắt máy, tiếng xào bài mạt chược vang lên lách cách. Chủ nhà bảo giá thuê mười hai nghìn tệ một tháng, cọc ba đóng ba, ký hợp đồng ba năm một lần. Sau khi xác nhận Triệu Kim An không hề kỳ kèo bớt một thêm hai, người nọ mới đủng đỉnh phóng xe tới.
 
-Chủ nhà thời nay tính tình chính là kiểu như vậy.
+Chủ nhà thời buổi này chảnh chọe thế đấy.
 
-Ngươi thích thì thuê, không thì thôi!
+Thuê thì thuê, không thuê thì lượn!
 
-Bước xuống từ chiếc Mercedes S600, đối chiếu giấy chứng nhận quyền sở hữu, ký xong hợp đồng, Triệu Kim An trả mười ngàn tiền đặt cọc. Chủ nhà ném lại một câu: "Đến lúc đó cậu không thuê nữa thì không trả cọc đâu đấy," rồi lại lái xe đi mất.
+Một gã đàn ông bước xuống từ chiếc Mercedes S600 bóng lộn, đối chiếu giấy tờ sở hữu nhà đất, ký xong hợp đồng, Triệu Kim An đặt cọc trước một vạn tệ. Gã chủ nhà quẳng lại một câu cộc lốc: "Tới hạn mà chú mày không thuê nữa là mất toi tiền cọc đấy nhé", dứt lời liền nổ máy phóng xe đi mất dạng.
 
-Trước sau không quá mười lăm phút, chủ nhà còn bảo mình đang vội về chơi mạt chược.
+Toàn bộ quá trình chưa đầy mười lăm phút đồng hồ, gã còn bận than thở phải quay về bàn mạt chược cho kịp ván.
 
-Triệu Kim An thật sự... Đầu thai đúng là một môn nghệ thuật.
+Triệu Kim An thầm chửi thề trong bụng... Đầu thai đúng là một bộ môn nghệ thuật đỉnh cao.
 
-Khu đại học có quá nhiều triệu phú ngầm, chưa nói đến việc nhà nào cũng có vài chiếc Panamera, chỉ riêng tiền cho thuê nhà thôi cũng đủ để bọn họ tiêu dao tự tại rồi.
+Khu Đại học thành này có quá nhiều triệu phú ngầm, chưa nói đến chuyện đất đai giải tỏa đổi lấy cả dàn xe sang Panamera, chỉ riêng tiền cho thuê nhà hàng tháng cũng đủ để họ ăn chơi phè phỡn cả đời không hết.
 
-Triệu Chí Dũng phải gọi ít nhất năm mươi cuộc điện thoại Triệu Kim An mới rút ra được thời gian. Vương Duy Đào dịp Quốc khánh cũng không về, Triệu Kim An liền gọi hắn ra luôn.
+...
 
-Còn có Du Phỉ.
+Triệu Chí Dũng phải gọi tới không dưới năm mươi cuộc điện thoại, Triệu Kim An mới rảnh rỗi thu xếp thời gian ra ngoài tụ tập. Vương Duy Đào dịp Quốc khánh cũng không về quê nên Triệu Kim An gọi luôn cậu ta đi cùng.
 
-Thực tế Du Phỉ và Triệu Chí Dũng đã tụ tập với đám bạn cấp ba một lần rồi, ngay tại khu đại học.
+Còn có cả Du Phỉ nữa.
 
-Triệu Chí Dũng bảo Mộc Dao cũng tới, Mộc Dao còn mời tất cả các bạn ăn cơm ở nhà ăn, chỉ vì Điền Vũ Hạo ở trường Lâm Khoa và Lý Lị ở trường Nông Nghiệp nói chẳng phải Triệu Kim An cũng ở khu đại học sao?
+Thực tế Du Phỉ và Triệu Chí Dũng đã sớm có một buổi họp mặt bạn học cấp ba ở ngay khu Đại học thành này rồi.
 
-Có phải hắn sợ chúng ta bắt mời khách nên mới trốn biệt tăm không?
+Triệu Chí Dũng kể hôm đó Mộc Dao cũng tới, Mộc Dao còn hào phóng bao trọn gói bữa ăn cho tất cả bạn bè ở nhà ăn sinh viên, chỉ vì Điền Vũ Hạo bên trường Lâm Nghiệp và Lý Lợi bên trường Nông Nghiệp cứ cạnh khóe bảo: "Chẳng phải Triệu Kim An cũng học ở khu Đại học thành này sao? Có phải cậu ta sợ bọn này bắt khao một bữa nên mới trốn biệt tăm không dám ló mặt ra không?"
 
-Triệu Chí Dũng hôm đó hỏi Triệu Kim An qua điện thoại: "Kim An, mày với Mộc Dao thật sự kết thúc như vậy sao?"
+Hôm đó trong điện thoại, Triệu Chí Dũng ngập ngừng hỏi Triệu Kim An: "Kim An, mày với Mộc Dao thực sự cứ thế mà kết thúc rồi sao?"
 
-Đàn ông và phụ nữ không giống nhau, đàn ông thường khuyên hòa chứ không khuyên chia, còn phụ nữ mà có cô bạn thân ly hôn thì thôi xong rồi...
+Tâm lý đàn ông và phụ nữ hoàn toàn khác nhau. Đàn ông thường khuyên người ta gương vỡ lại lành chứ không nỡ khuyên chia tay, còn phụ nữ mà có cô bạn thân vừa ly hôn thì thôi rồi, mọi chuyện coi như toang hẳn...
 
-Mấy người hẹn nhau ở một quán thịt nướng do Triệu Kim An chọn. Sau khi gặp mặt, Triệu Chí Dũng và Vương Duy Đào nói chuyện rất hợp cạ, xem ra cái gọi là duyên phận thật sự tồn tại.
+Mấy người hẹn nhau tại một quán thịt nướng do chính Triệu Kim An chọn. Vừa gặp mặt, Triệu Chí Dũng và Vương Duy Đào đã nói chuyện vô cùng tâm đầu ý hợp, xem ra thứ gọi là duyên phận quả thực có tồn tại trên đời.
 
-Kiếp trước Vương Duy Đào đi công tác đến Quận Sa thường xuyên cùng Triệu Chí Dũng ngồi vỉa hè uống rượu đến tận nửa đêm, uống xong thì bá vai bá cổ gọi nhau một tiếng anh em.
+Kiếp trước, Vương Duy Đào mỗi lần có dịp đến quận Sa công tác đều thường xuyên cùng Triệu Chí Dũng ngồi ở các quán nhậu vỉa hè thi thố tửu lượng thâu đêm suốt sáng, uống đến lúc ngà ngà say là bá vai bá cổ xưng huynh gọi đệ rôm rả.
 
-Triệu Kim An không uống rượu nên phụ trách dọn dẹp bãi chiến trường, ném Vương Duy Đào về khách sạn rồi lại lái xe đưa Triệu Chí Dũng về nhà.
+Triệu Kim An vốn không ham hố rượu chè nên luôn nhận chân dọn dẹp hậu quả, vứt Vương Duy Đào về khách sạn rồi lại lái xe đưa Triệu Chí Dũng về tận nhà.
 
-Vương Duy Đào không biết tình hình thực tế, chỉ biết Triệu Kim An có một bà chị họ lái xe Land Rover.
+Vương Duy Đào không rõ thực hư gia cảnh của Triệu Kim An, chỉ biết anh có một bà chị họ lái Range Rover cực kỳ oai phong.
 
-Du Phỉ liếc nhìn bảng giá rồi chạy ra quầy thu ngân.
+Du Phỉ liếc nhìn bảng giá trên tường một cái, liền lẳng lặng bước nhanh về phía quầy thu ngân.
 
-Nàng biết điều kiện gia đình của Triệu Kim An và Triệu Chí Dũng nên định thanh toán trước.
+Cô biết rõ hoàn cảnh gia đình của Triệu Kim An và Triệu Chí Dũng, định bụng sẽ thanh toán trước hóa đơn bữa ăn này.
 
-Triệu Kim An đứng dậy đi tới nói: "Để tớ, cậu cứ đi ăn đi."
+Triệu Kim An lập tức đứng dậy bước theo sau, cất giọng ngăn lại: "Để tớ, cậu cứ về bàn ăn đi."
 
-Du Phỉ đã cho Triệu Kim An mượn tiền, Triệu Kim An cũng đã trả thêm ba trăm tiền lãi, nhưng cái ơn này hắn vẫn nợ nàng. Ai có thể đem hết số tiền mình có ra cho mượn chứ, bốn ngàn sáu trăm tệ đấy.
+Du Phỉ từng cho Triệu Kim An vay tiền, dù sau đó anh đã trả lại đủ kèm ba trăm tệ tiền lãi, nhưng món ân tình sâu nặng ấy Triệu Kim An vẫn luôn khắc cốt ghi tâm. Mấy ai có thể dốc cạn toàn bộ vốn liếng bốn nghìn sáu trăm tệ tích cóp được để cho người khác vay mà không mảy may do dự chứ?
 
-Triệu Chí Dũng không bận tâm mấy chuyện này, tiền của hắn và Triệu Kim An vốn không phân biệt, huống hồ kỳ nghỉ hè vừa rồi còn kiếm được bao nhiêu tiền.
+Triệu Chí Dũng thì chẳng bận tâm đến mấy chuyện tiền nong này, tiền của hắn với Triệu Kim An từ lâu đã không phân biệt của ai với ai, huống hồ dịp hè vừa rồi hai đứa kiếm được cả một món hời lớn.
 
-Sau khi quay lại chỗ ngồi, Triệu Kim An dưới gầm bàn đá Triệu Chí Dũng một cái, hỏi: "Mày ở trường thế nào rồi?"
+Quay lại bàn ăn, Triệu Kim An thò chân dưới gầm bàn đá nhẹ Triệu Chí Dũng một cái, hỏi: "Dạo này ở trường thế nào rồi?"
 
-Vương Duy Đào hơi ngạc nhiên, miệng vẫn đang nhồm nhoàm thịt nướng.
+Vương Duy Đào nhét đầy mồm thịt nướng, nhìn hai người với ánh mắt hơi kỳ lạ.
 
-Du Phỉ cười một tiếng, nói: "Triệu Chí Dũng phải gọi Kim An là chú đấy."
+Du Phỉ khẽ bật cười, giải thích: "Theo vai vế ở quê thì Triệu Chí Dũng phải gọi Kim An bằng chú đấy."
 
-Vương Duy Đào liền cười lớn, khoác vai Triệu Chí Dũng: "Thế thì tao cũng là chú của mày rồi."
+Vương Duy Đào nghe thế liền cười ha hả, vòng tay khoác vai Triệu Chí Dũng trêu chọc: "Thế thì tao cũng là chú của mày rồi cháu ơi!"
 
-Bàn dài bốn người, Du Phỉ và Triệu Kim An ngồi cùng một hàng. Mối quan hệ của hai người thì đừng nói là Triệu Chí Dũng, ngay cả Vương Duy Đào cũng không đùa giỡn, hắn liếc mắt là nhận ra Triệu Kim An và Du Phỉ chỉ là quan hệ bạn cũ cấp ba.
+Bốn người ngồi quanh chiếc bàn dài, Du Phỉ ngồi cùng một dãy với Triệu Kim An. Mối quan hệ giữa hai người họ, đừng nói là Triệu Chí Dũng, mà ngay cả Vương Duy Đào cũng không hề buông lời trêu ghẹo ghép đôi. Cậu ta chỉ cần nhìn qua một cái là nhận ra ngay Triệu Kim An và Du Phỉ hoàn toàn chỉ là mối quan hệ bạn bè cấp ba trong sáng, thuần túy.
 
-Nhìn Triệu Kim An bên cạnh, Du Phỉ chợt nhớ lại lời mẹ mình là Lưu Văn Tinh nói hôm đi báo danh.
+Đưa mắt nhìn chàng trai đang ngồi ngay bên cạnh mình, Du Phỉ bỗng nhớ lại những lời mẹ cô - bà Lưu Văn Tinh đã từng nói vào hôm nhập học:
 
-"Trương Tuệ à, hừ, con bé Mộc Dao đó sớm muộn gì cũng có ngày phải hối hận."
+"Trương Tuệ à, hừ, con bé Mộc Dao nhà bà ta rồi sẽ có ngày phải ôm hận hối tiếc..."

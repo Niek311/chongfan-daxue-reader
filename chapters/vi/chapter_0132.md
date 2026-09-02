@@ -1,209 +1,215 @@
-# Chương 132: Kim An Du Phỉ Là Ai
+# Chương 132: Kim An, Du Phi là ai?
 
-Bên kia.
+> **Tiêu đề gốc**: 第132章 今安，俞菲是谁？
 
-Lưu Sấm Phong đang đắc ý vô cùng.
+Ở một diễn biến khác.
 
-Là người đầu tiên của Lớp Kế toán 1 được lên tivi phỏng vấn, lão Lưu vừa quẹt chút nước bọt vừa hớn hở đếm tiền: "Kim An, lương một ngày của ông được bao nhiêu? Có nhiều bằng tôi không? Hì hì."
+Lưu Sấm Phong mấy ngày nay đắc ý ra mặt.
 
-Triệu Kim An: "..."
+Là người đầu tiên của lớp Kế toán 1 được lên truyền hình phỏng vấn, Lão Lưu vừa quệt chút nước bọt vào đầu ngón tay vừa cười hề hề đếm tiền: “Kim An này, lương cậu một ngày được bao nhiêu thế? Có nhiều bằng tôi không đấy? Hề hề.”
 
-Vương Duy Đào nhìn không nổi nữa, lên tiếng: "Lão Lưu, ông vừa vừa phai phải thôi."
+Triệu Kim An: “...”
 
-"Đúng đấy, suốt ngày khoe mẽ."
+Vương Duy Đào nhìn không lọt mắt, bèn lên tiếng: “Lão Lưu, ông vừa vừa phai phải thôi chứ.”
 
-Trong lòng Cốc Siêu Thừa đầy vị chua chát, hắn chỉ được có 35 tệ một ngày.
+“Chuẩn đấy, ngày nào cũng vênh váo khoe khoang.”
 
-Lưu Sấm Phong được 80 tệ một ngày, lại còn được lên tivi lộ mặt, lĩnh thêm 300 tệ tiền thưởng.
+Trong lòng Cốc Siêu Thừa chua xót khôn tả, cậu ta làm chỉ được ba mươi lăm tệ một ngày.
 
-Cốc Siêu Thừa làm 8 ngày chỉ có 280 tệ, còn Lưu Sấm Phong làm 8 ngày tổng cộng được tới 940 tệ.
+Còn Lưu Sấm Phong những tám mươi tệ một ngày, lại được lên sóng truyền hình nở mày nở mặt, cuối đợt còn được thưởng thêm ba trăm tệ.
 
-Ngay cả Vương Duy Đào những ngày qua cũng kiếm được 360 tệ.
+Cốc Siêu Thừa làm ròng rã tám ngày chỉ vỏn vẹn hai trăm tám mươi tệ, trong khi Lưu Sấm Phong làm tám ngày đút túi tổng cộng tận chín trăm bốn mươi tệ.
 
-Thứ Cốc Siêu Thừa để tâm không phải là khoảng cách vài trăm tệ kia, mà là Thẩm Tử Ngôn... đó là sự hụt hẫng trong lòng.
+Ngay cả Vương Duy Đào mấy ngày qua cũng kiếm được ba trăm sáu mươi tệ.
 
-Lưu Sấm Phong cười nói: "Tôi chỉ tò mò thôi, tính ra một ngày tôi được 118 tệ, các ông không tò mò tiền lương của Kim An sao? Chúng ta chỉ mới biết của Đường Hiểu Tình thôi."
+Nhưng điều Cốc Siêu Thừa bận tâm không hẳn là sự chênh lệch mấy trăm tệ ấy, mà là Thẩm Tử Ngôn... là nỗi hụt hẫng và mặc cảm sâu sắc đang dâng trào trong lòng.
 
-Vương Duy Đào gật đầu, đúng là rất tò mò.
+Lưu Sấm Phong cười hớn hở: “Tôi chỉ tò mò thôi mà. Tính bình quân ra mỗi ngày tôi kiếm được tận một trăm mười tám tệ, các ông bộ không tò mò mức lương của Kim An à? Chúng ta từ trước tới giờ chỉ biết mỗi lương của Đường Hiểu Tình thôi.”
 
-Triệu Kim An mỉm cười: "Tính như thế thì... lương của ông cao hơn tôi một chút."
+Vương Duy Đào gật gù, quả thực cậu cũng rất tò mò.
 
-Đây là lời nói thật.
+Triệu Kim An khẽ cười: “Tính như vậy thì... lương của cậu đúng là cao hơn tôi thật đấy.”
 
-Triệu Kim An và Lạc Cẩn Chi vốn chẳng hề nhận lương.
+Đây là lời nói thật lòng từ tận đáy lòng.
 
-Lưu Sấm Phong nghe vậy thì trong lòng khoan khoái hẳn, còn đưa cho Triệu Kim An một điếu thuốc Hoàng Phù.
+Bởi từ đầu đến cuối, Triệu Kim An và Lạc Cẩn Chi đâu có bao giờ nhận một đồng tiền lương nào.
 
-"Xá trưởng, ông..."
+Lưu Sấm Phong nghe xong thì cõi lòng nở hoa, khoan khoái vô cùng, bèn rút một điếu thuốc lá Phù Dung Vàng đưa cho Triệu Kim An.
 
-Triệu Kim An có chút thụ sủng nhược kinh, vậy mà cũng có ngày được hút thuốc do Lưu Sấm Phong mua.
+“Trưởng phòng, cậu...”
 
-"Kim An, ông đừng kinh ngạc thế, làm như tôi keo kiệt lắm không bằng."
+Triệu Kim An có chút thụ sủng nhược kinh, không ngờ cũng có ngày được hút thuốc lá do chính tay Lưu Sấm Phong bỏ tiền túi ra mua.
 
-Lưu Sấm Phong hào phóng chia một vòng thuốc: "Tiểu Tuyết sắp đồng ý lời tỏ tình của tôi rồi, giờ chắc cô ấy cũng có chút ngưỡng mộ tôi."
+“Kim An, cậu đừng làm bộ ngạc nhiên như thế chứ, làm như xưa nay tôi bủn xỉn lắm không bằng.”
 
-Vương Duy Đào nói: "Lão Lưu, hóa ra là vì chuyện này nên ông mới mua thuốc à."
+Lưu Sấm Phong phong độ hào sảng mời một vòng cả phòng: “Tiểu Tuyết sắp đồng ý lời tỏ tình của tôi rồi, chắc giờ em ấy đang thầm bái phục tôi lắm đây.”
 
-Ánh mắt Cốc Siêu Thừa dời khỏi người Triệu Kim An, tảng đá treo lơ lửng trong lòng cũng hơi hạ xuống.
+Vương Duy Đào bĩu môi: “Lão Lưu, hóa ra ông hào phóng mua thuốc lá là vì chuyện này đấy à.”
 
-Ngay cả Trần Trạch cũng có chút quan tâm xem một tháng Triệu Kim An kiếm được bao nhiêu, theo lý mà nói hắn không thiếu tiền, có lẽ là do biểu hiện của Triệu Kim An có chút quá rực rỡ chăng.
+Ánh mắt Cốc Siêu Thừa dời khỏi người Triệu Kim An, tảng đá đè nặng trong lòng rốt cuộc cũng vơi bớt đôi phần.
 
-Bọn họ nhẩm tính trong lòng, một ngày không tới 118 tệ, tức là không quá 3500 tệ một tháng.
+Ngay cả Trần Trạch cũng có chút để tâm đến chuyện Triệu Kim An kiếm được bao nhiêu tiền mỗi tháng. Theo lý mà nói, gia đình cậu ta vốn chẳng thiếu thốn tiền bạc, có lẽ là do sự tỏa sáng và năng lực vượt trội mà Triệu Kim An thể hiện dạo gần đây đã vô tình tạo nên áp lực.
 
-Như vậy... trong lòng bọn họ vẫn còn dễ chấp nhận được.
+Cả đám thầm nhẩm tính trong đầu, một ngày không tới một trăm mười tám tệ, tức là cả tháng chưa vượt quá ba nghìn năm trăm tệ.
 
-Trần Trạch nói: "Lão Lưu, ông lúc nhận phỏng vấn run quá, nhìn Thẩm Tử Ngôn người ta kìa... Mà Lâm Thanh Tuyết thật sự định đồng ý làm bạn gái ông à?"
+Nghĩ vậy... lòng dạ ai nấy đều dễ chịu hơn hẳn.
 
-Lâm Thanh Tuyết tuy không đẹp bằng Từ Mạn Mạn, nhưng lại là kiểu con gái vừa thuần khiết vừa gợi cảm.
+Trần Trạch tặc lưỡi: “Lão Lưu, lúc lên phỏng vấn ông căng thẳng quá đỗi, nhìn Thẩm Tử Ngôn người ta mà xem... Mà này, Lâm Thanh Tuyết thật sự sắp đồng ý làm bạn gái ông rồi à?”
 
-Triệu Kim An đã từng xem ảnh mặc váy ngủ của Lâm Thanh Tuyết, đúng là có chút hương vị đó, đừng nói là nam sinh, ngay cả mấy lão đàn ông cũng thích, chỉ là không hiểu cái câu "sắp đồng ý" kia là có ý gì.
+Lâm Thanh Tuyết tuy không thể sánh bằng vẻ đẹp kiều diễm của Hứa Mạn Mạn, nhưng cô nàng lại thuộc kiểu con gái vừa ngây thơ thuần khiết lại vừa gợi cảm, quyến rũ.
 
-Nhìn Lưu Sấm Phong đang mải mê đếm tiền, Triệu Kim An mặc niệm cho ví tiền của hắn ba giây.
+Triệu Kim An từng tình cờ nhìn thấy bức ảnh Lâm Thanh Tuyết mặc váy ngủ hai dây, quả thực toát lên phong vị vừa trong trẻo vừa ma mị, đừng nói đám thanh niên mới lớn, ngay cả những người đàn ông từng trải cũng khó lòng cưỡng lại. Chỉ là anh không tài nào hiểu nổi cụm từ “sắp đồng ý” của Lưu Sấm Phong rốt cuộc mang ý nghĩa gì.
 
-Cốc Siêu Thừa không còn tìm Đường Hiểu Tình nữa, lúc ở trên lớp hắn thích nhìn trộm nàng, nhưng lại có chút né tránh nàng.
+Nhìn Lưu Sấm Phong hớn hở ngồi đếm từng tờ tiền lẻ, Triệu Kim An thầm mặc niệm ba giây cho chiếc ví tiền tội nghiệp của cậu bạn cùng phòng.
 
-Những cô gái như Mộc Dao và Từ Mạn Mạn thì hắn không với tới, cũng không dám theo đuổi, còn với Đường Hiểu Tình, Cốc Siêu Thừa cũng đã mất đi dũng khí.
+Dạo này Cốc Siêu Thừa không còn chủ động tìm Đường Hiểu Tình nữa. Ngồi trong giảng đường, cậu ta vẫn thường lén đưa mắt nhìn cô, nhưng mỗi khi đối diện lại có phần né tránh.
 
-Có một hôm sau giờ học, Lưu Huy đến lớp biểu dương Lưu Sấm Phong vài câu, rồi lại tìm Triệu Kim An.
+Những đóa hoa rực rỡ như Mộc Dao hay Hứa Mạn Mạn thì với không tới và chẳng dám trèo cao, giờ đây ngay cả trước một Đường Hiểu Tình mộc mạc, Cốc Siêu Thừa cũng đã đánh mất hoàn toàn dũng khí.
 
-Đứng ở hành lang bên ngoài nhìn Triệu Kim An, Lưu Huy nhất thời không biết nên nói gì cho phải.
+Một hôm nọ sau giờ tan học, thầy cố vấn Lưu Huy ghé qua lớp khen ngợi Lưu Sấm Phong vài câu trước mặt mọi người, sau đó gọi riêng Triệu Kim An ra ngoài.
 
-Quần áo của Triệu Kim An là do Tô Miền mua, mỗi khi đến kỳ chuyển mùa, Ngô Hiểu lại đem tới, dù quần áo không có logo nhưng Lưu Huy vẫn nhìn ra được đó không phải hàng rẻ tiền.
+Đứng ở hành lang nhìn Triệu Kim An, Lưu Huy nhất thời chẳng biết nên mở lời thế nào cho phải.
 
-Dù sao thì bản thân ông là một cố vấn học tập cũng có cảm giác mình mua không nổi.
+Quần áo Triệu Kim An mặc trên người đều do Tô Miến chọn mua gửi tới. Cứ mỗi độ giao mùa, Ngô Hiểu lại mang sang tận nơi, dù trên trang phục không hề đính kèm logo lòe loẹt nhưng với con mắt của một người trưởng thành, Lưu Huy thừa sức nhận ra đó toàn là chất liệu thượng hạng đắt tiền.
 
-Cuối cùng Lưu Huy tò mò hỏi một câu: "Tiền lương làm thêm của em có được 3000 không?"
+Dù sao thì mức lương giáo viên cố vấn như thầy dường như cũng chẳng đủ sức để mua nổi những bộ cánh tinh tế cỡ ấy.
 
-Triệu Kim An gật đầu.
+Cuối cùng, Lưu Huy không kìm được trí tò mò bèn buột miệng hỏi một câu: “Lương làm thêm một tháng của em có được ba nghìn không?”
 
-"..."
+Triệu Kim An thản nhiên gật đầu.
 
-Lưu Huy không nói gì nữa, bỏ đi, trông có vẻ hơi buồn bực.
+“...”
 
-Học sinh đi làm thêm mà lương còn nhiều hơn cả giáo viên như mình, thì còn nói cái gì nữa?
+Lưu Huy nghẹn lời, chẳng biết nói gì thêm, đành lẳng lặng quay lưng bước đi, bóng lưng dường như còn phảng phất chút u uất, buồn bực.
 
-Nói cái rắm ấy!
+Học trò ngồi trên ghế giảng đường mà thu nhập kiếm ngoài còn cao hơn cả giảng viên đứng lớp, thì người làm thầy như ông còn biết căn dặn, giáo huấn cái nỗi gì nữa đây?
 
-Lạc Cẩn Chi đến Quận Sa, hỏi Triệu Kim An: "Trà sữa Ngung Quang không viết lấy một bài hát sao?"
+Còn nói cái cóc khô gì được nữa chứ!
 
-Triệu Kim An đáp: "Tôi học chuyên ngành kế toán, không phải làm âm nhạc."
+***
 
-Lạc Cẩn Chi nói doanh số trà sữa Ngung Quang rất tốt, các đại lý cũng sẵn sàng nhập hàng.
+Lạc Cẩn Chi từ Kinh Đô lặn lội đến Quận Sa, gặp Triệu Kim An liền hỏi: “Trà sữa Ngung Quang không định viết riêng một bài hát quảng cáo sao?”
 
-Loại trà sữa này là do Triệu Kim An mô phỏng theo trà sữa Assam, sau khi qua thị trường kiểm chứng, dù không quảng bá rầm rộ thì doanh số chắc chắn cũng không quá tệ.
+Triệu Kim An đáp: “Tôi học chuyên ngành kế toán, đâu phải dân sáng tác âm nhạc.”
 
-Thực tế doanh số ở tỉnh Hồ Nam còn tốt hơn, nhờ có tủ lạnh trưng bày cùng nhau.
+Lạc Cẩn Chi hào hứng thông báo rằng doanh số của trà sữa Ngung Quang đang vô cùng khả quan, các nhà phân phối lớn đều tranh nhau nhập hàng.
 
-Lạc Cẩn Chi đến để thương lượng việc thêm dây chuyền sản xuất, còn định xây thêm nhà máy nước.
+Loại trà sữa đóng chai này vốn là sản phẩm Triệu Kim An phỏng theo công thức trà sữa Assam trứ danh, đã được thị trường thực tế kiểm chứng qua nhiều năm tháng, nên dù không cần đổ tiền chạy chiến dịch quảng bá rầm rộ, sức tiêu thụ hiển nhiên cũng chẳng thể nào kém được.
 
-Nghĩa là lại phải đổ tiền vào đầu tư.
+Trên thực tế, doanh số tại khu vực tỉnh Tương Nam lại càng bùng nổ mạnh mẽ hơn, nhờ có các tủ đông trưng bày bắt mắt đặt cạnh các sản phẩm nước khoáng và trà giải khát.
 
-Cuối tháng Chín, Triệu Kim An bán hết cổ phiếu.
+Lần này Lạc Cẩn Chi sang đây là để bàn bạc việc mở rộng thêm dây chuyền sản xuất, đồng thời xây dựng thêm nhà máy nước mới.
 
-Hắn không nhớ rõ ngày nào của tháng Mười thì thị trường bò tót kết thúc.
+Đồng nghĩa với việc lại chuẩn bị phải rót vốn đầu tư một khoản tiền khổng lồ.
 
-Sau khi bán sạch, Triệu Kim An nắm giữ 3 triệu USD và 13 triệu nhân dân tệ.
+Cuối tháng Chín, Triệu Kim An quyết định tất toán, bán sạch toàn bộ số cổ phiếu đang nắm giữ.
 
-Triệu Kim An đi siêu thị, hắn muốn tiêu tiền, kiểu tiêu xài tùy thích.
+Anh không nhớ chính xác thị trường bò tót năm đó kết thúc vào ngày mấy tháng Mười, nhưng bài học an toàn tài chính dạy anh không nên tham lam ăn trọn đến khúc đuôi cá.
 
-"Kim An, ông mua cho ai đấy?"
+Sau khi thanh lý toàn bộ danh mục đầu tư, trong tay Triệu Kim An hiện nắm giữ ba triệu đô la Mỹ cùng mười ba triệu Nhân dân tệ tiền mặt.
 
-Vương Duy Đào đi theo sau, nhìn một xe đầy ắp đồ ăn vặt.
+Triệu Kim An thong thả rảo bước vào siêu thị lớn. Giờ phút này, anh chỉ muốn tiêu tiền, tận hưởng cảm giác thích gì nhặt nấy mà không cần phải bận tâm nhìn vào bảng giá.
 
-Triệu Kim An cười nói: "Em gái tôi."
+“Kim An, cậu mua cho ai mà nhiều thế?”
 
-"Kim An, ông còn có em gái à?" Vương Duy Đào rất ngạc nhiên.
+Vương Duy Đào đi theo sau, trố mắt nhìn chiếc xe đẩy chất đầy ắp bánh kẹo, đồ ăn vặt ngoại nhập.
 
-"Con gái của chú tôi, đang học lớp 1."
+Triệu Kim An mỉm cười: “Mua cho em gái tôi.”
 
-Trong đầu Triệu Kim An chẳng hề mảy may nhớ đến Tống Gia Nguyệt, chỉ có Triệu Duyệt Thiên.
+“Kim An, cậu còn có em gái nữa cơ à?” Vương Duy Đào vô cùng kinh ngạc.
 
-Lúc thanh toán, Triệu Kim An bảo chủ quán lấy một bao Hoàng Phù, thấy Vương Duy Đào đi cùng lại bảo lấy thêm hai bao nữa.
+“Con gái của chú tôi, năm nay bé mới vào lớp một.”
 
-"Kim An, thế thì tôi không khách sáo đâu nhé."
+Trong tâm trí Triệu Kim An từ lâu đã chẳng còn chút vương vấn nào về hình bóng của Tống Gia Nguyệt, nơi đó chỉ tràn ngập sự yêu thương dành cho cô em họ nhỏ bé Triệu Duyệt Thiên.
 
-Hồi mới khai giảng, Vương Duy Đào cứ thay đổi cách thức quẹt thẻ cơm ở nhà ăn cho hắn, Triệu Kim An đều biết rõ.
+Lúc ra quầy thanh toán, Triệu Kim An bảo chủ quán lấy một bao Phù Dung Vàng, liếc nhìn Vương Duy Đào một cái rồi bảo lấy thêm hai bao nữa.
 
-Vả lại kiếp trước Vương Duy Đào đối xử với hắn và Trần Thanh Trĩ đều rất hào phóng.
+“Kim An, thế thì tôi không khách khí đâu nhé.”
 
-Triệu Kim An cười nói: "Ông đứng xa tôi ra chút, đừng dán sát thế, cách xa một mét đi."
+Hồi đầu năm học mới, Vương Duy Đào thường kiếm cớ quẹt thẻ cơm bao anh ăn ở căng-tin, điều đó Triệu Kim An đều ghi nhớ trong lòng.
 
-Vương Duy Đào: "..."
+Chưa kể kiếp trước, Vương Duy Đào đối xử với anh và Trần Thanh Trĩ luôn vô cùng hào sảng, nhiệt tình.
 
-"Cách xa một mét" là câu cửa miệng của nam sinh Lớp Kế toán 1, thế là Vương Duy Đào biến thành "Một mét", mọi người đều hơi sợ Vương Duy Đào, bảo ông mau tìm lấy một cô bạn gái để chứng minh cho tụi tôi xem.
+Triệu Kim An cười mắng: “Cậu đứng cách xa tôi ra một chút, đừng có dán sát vào người tôi như thế, giữ khoảng cách một mét ngoài đi nhé.”
+
+Vương Duy Đào: “...”
+
+Cụm từ “cách xa một mét” vốn là câu trêu chọc do đám con trai lớp Kế toán 1 nghĩ ra, gán cho Vương Duy Đào biệt danh “người đàn ông một mét”. Mọi người ai nấy đều giả vờ sợ sệt, giục Vương Duy Đào mau kiếm lấy một cô bạn gái để chứng minh bản lĩnh đàn ông cho cả bọn sáng mắt ra.
+
+***
 
 Ngày 30 tháng Chín.
 
-Buổi trưa, Triệu Kim An nhận được điện thoại của Tô Miền.
+Đến giữa trưa, Triệu Kim An nhận được cuộc gọi từ Tô Miến.
 
-Tại cổng trường, Triệu Kim An gặp được Ngô Hiểu, và cả Tô Miền đã lâu không gặp.
+Tại cổng trường, anh trông thấy Ngô Hiểu cùng với Tô Miến đã lâu không gặp.
 
-"Kim An, anh mua gì thế?"
+“Kim An, anh mua gì nhiều thế?”
 
-Tô Miền không xuống xe, nàng ngồi ở hàng ghế thứ hai của một chiếc xe bảo mẫu Mercedes 7 chỗ màu trắng.
+Tô Miến không xuống xe, cô ngồi ở hàng ghế thứ hai của chiếc xe bảo mẫu Mercedes bảy chỗ màu trắng sang trọng.
 
-"Em muốn ăn không?"
+“Em có muốn ăn không?”
 
-Triệu Kim An đặt túi đồ xuống, bóc một cái thạch đút cho Tô Miền.
+Triệu Kim An đặt mấy túi đồ xuống sàn xe, bóc một chiếc thạch trái cây đưa tận miệng đút cho Tô Miến.
 
-Tô Miền ăn.
+Tô Miến hé môi ăn một cách ngon lành.
 
-Triệu Kim An lại nắm lấy tay Tô Miền, nàng chỉ nhìn hắn mỉm cười.
+Triệu Kim An đưa tay khẽ nắm lấy bàn tay nhỏ nhắn của cô, Tô Miến chỉ ngước mắt nhìn anh dịu dàng mỉm cười.
 
-Ngô Hiểu đứng bên cạnh bĩu môi, thời tiết này mà tay cũng lạnh được sao?
+Ngô Hiểu đứng bên cạnh khẽ bĩu môi, thời tiết mùa thu mát mẻ thế này mà tay làm sao lạnh được chứ? Rõ ràng là cố tình kiếm cớ nắm tay nhau!
 
-Triệu Kim An lại tìm trong túi ra một miếng socola Dove.
+Triệu Kim An lại từ trong túi lấy ra một thanh socola Dove.
 
-Tô Miền nói: "Mua cho Thiên Thiên à? Em cũng mua rồi, đều ở trong cốp xe."
+Tô Miến hỏi: “Anh mua cho bé Thiên Thiên hả? Em cũng mua nhiều lắm, chất đầy cả cốp sau rồi kìa.”
 
-Không chỉ cốp xe, mà hàng ghế sau cũng chất đầy đồ đạc.
+Không chỉ có cốp sau, mà cả hàng ghế sau cùng cũng đã chất đầy ắp quà cáp.
 
-Xem ra việc Vương Kim Như gọi Tô Miền về gặt lúa, nàng đã rất mong chờ ngày này.
+Xem ra lời dặn của Vương Kim Như bảo Tô Miến về quê phụ gặt lúa đã khiến cô háo hức, mong chờ ngày này suốt bao lâu nay.
 
-Triệu Kim An mở vài cái túi ra, hỏi Tô Miền: "Em muốn ăn gì?"
+Triệu Kim An mở vài túi đồ ra, ân cần hỏi Tô Miến: “Em muốn ăn cái nào?”
 
-Tô Miền thật sự nghiêm túc chọn lựa.
+Tô Miến liền nghiêm túc cúi đầu chọn lựa từng món một.
 
-Hai người ghé đầu vào nhau, nhỏ to bàn luận cái này ngon, cái kia cũng ngon.
+Hai cái đầu chụm sát vào nhau, rủ rỉ thì thầm bàn tán xem món này ngon, món kia đậm vị ra sao.
 
-"..."
+“...”
 
-Ngô Hiểu đứng nhìn một lúc, đột nhiên mỉm cười, trông thật giống một đôi tình nhân sinh viên đang yêu nhau.
+Ngô Hiểu đứng nhìn một hồi, bất giác bật cười thành tiếng. Trông hai người họ thực sự chẳng khác nào một đôi tình nhân sinh viên đang đắm chìm trong men say của mối tình đầu ngọt ngào.
 
-Mấy món đồ ăn vặt này, chắc là ở Tô gia... chẳng bao giờ có đâu nhỉ?
+Những món quà vặt bình dị này, có lẽ trong căn biệt thự xa hoa của nhà họ Tô... chưa từng xuất hiện bao giờ.
 
-Triệu Kim An nhìn tài xế nói: "Tôi biết lái xe."
+Triệu Kim An quay sang nhìn bác tài xế, nói: “Tôi biết lái xe, để tôi lái cho.”
 
-Tài xế: "..."
+Tài xế: “...”
 
-Tô Miền nói: "Vậy các người đừng đi nữa."
+Tô Miến liền tiếp lời: “Vậy hai người không cần đi cùng nữa đâu.”
 
-Ngô Hiểu cũng hơi cuống lên.
+Ngô Hiểu vừa nghe vậy thì quýnh quáng cả lên.
 
-Tô Miền tiếp lời: "Vậy Kim An anh lái xe đi, em ngồi ghế phụ."
+Tô Miến hào hứng bảo: “Để Kim An lái xe, em sẽ ngồi ở ghế phụ phía trước.”
 
-Tài xế sợ xanh mặt, Ngô Hiểu cũng xúm lại, họ thật sự sợ Triệu Kim An chỉ là lính mới.
+Bác tài xế toát mồ hôi hột, Ngô Hiểu cũng vội vã chạy lại can ngăn, bọn họ thực sự sợ Triệu Kim An chỉ là tay lái mới toanh.
 
-Kiểu mới lấy bằng nên đang ngứa tay thèm lái xe.
+Cái kiểu vừa mới lấy được bằng lái xe, ngứa ngáy tay chân rồi nổi hứng muốn cầm vô-lăng thể hiện.
 
-Tài xế hạ thấp giọng nhắc nhở Triệu Kim An: "Phải đi đường cao tốc đấy, nếu Tô tiểu thư có mệnh hệ gì, cậu có biết hậu quả là thế nào không?"
+Tài xế hạ thấp giọng nghiêm nghị nhắc nhở Triệu Kim An: “Cung đường này phải chạy trên cao tốc, nếu Tô tiểu thư xảy ra bất kỳ sự cố ngoài ý muốn nào, cậu có gánh nổi hậu quả không?”
 
-Ngô Hiểu cũng gật đầu lia lịa.
+Ngô Hiểu cũng gật đầu lia lịa đồng tình.
 
-Tài xế biết rõ nếu Tô Miền mà xảy ra chuyện, mình và Ngô Hiểu có lẽ vì hít thở quá nhiều không khí trong lành mà được "tặng" ngay một vé bóc lịch trên 10 năm.
+Bác tài xế hiểu quá rõ, nếu Tô Miến lỡ xảy ra chuyện gì trắc trở, bản thân ông ta và Ngô Hiểu e rằng chỉ vì hít thở nhiều hơn một ngụm không khí mà cũng đủ để “vinh hạnh” nhận bản án tù trên mười năm.
 
-"Yên tâm đi."
+“Yên tâm đi, tay lái tôi rất vững.”
 
-Triệu Kim An bế Tô Miền đặt vào ghế phụ, rồi giúp nàng thắt dây an toàn.
+Nói xong, Triệu Kim An nhẹ nhàng bế bổng Tô Miến đặt vào ghế phụ phía trước, rồi cẩn thận thắt dây an toàn cho cô.
 
-Hai người nhìn nhau một cái, tài xế đi ra một bên gọi điện thoại.
+Hai người đưa mắt nhìn nhau mỉm cười đầy thấu hiểu. Bác tài xế thấy vậy đành lùi sang một bên rút điện thoại ra gọi xin chỉ thị.
 
-Lúc quay lại, ông nói với Ngô Hiểu: "Ông chủ bảo cho một chiếc xe đi theo sau."
+Một lát sau quay lại, ông ta bảo với Ngô Hiểu rằng ông chủ dặn sẽ cho một chiếc xe khác bí mật chạy bám theo sau để hộ tống.
 
-Triệu Kim An lái xe đến Tài chuyên.
+Triệu Kim An nổ máy, lái xe hướng về phía trường Cao đẳng Tài chính.
 
-Tô Miền ngồi ở ghế phụ có chút vui vẻ, nàng gọi điện cho Triệu Chí Dũng, cảm giác như thật sự sắp được về nhà mình vậy.
+Tô Miến ngồi ở ghế phụ, tâm trạng phơi phới vui vẻ, cô rút điện thoại gọi cho Triệu Trí Dũng, cảm giác như chính mình đang được theo chồng trở về mái ấm gia đình.
 
-Một lát sau, Tô Miền quay sang nhìn Triệu Kim An.
+Nói chuyện một hồi, Tô Miến chợt nghiêng đầu quay sang nhìn Triệu Kim An.
 
-"Kim An, Du Phỉ là ai? Chí Dũng nói cậu ấy cũng muốn về nhà."
+“Kim An này, Du Phi là ai thế? Trí Dũng bảo bạn ấy cũng muốn đi nhờ xe về quê cùng chúng ta.”

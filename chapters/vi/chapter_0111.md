@@ -1,189 +1,191 @@
-# Chương 111: Thà Sợ Anh Em Chịu Khổ, Còn Hơn Sợ Anh Em Đi Xe
+# Chương 111: Sợ anh em chịu khổ, lại sợ anh em lái Land Rover
 
-Sang
+> **Tiêu đề gốc**: 第111章 既怕兄弟过的苦，又怕兄弟开路虎。
 
-Triệu Quốc Hoa gọi điện đến bảo ở nhà đang cấy mạ, năm nay ông còn nuôi thêm cá ruộng trong ruộng lúa.
+Triệu Quốc Hoa gọi điện lên bảo ở nhà đang vào vụ cấy lúa, năm nay chú thả thêm cá đồng vào ruộng lúa hoa.
 
-Triệu Kim An Gia thôn chỉ trồng một vụ lúa nước, đây chính là lúc xuống đồng cấy mạ.
+Làng họ Triệu chỉ cấy một vụ lúa nước trong năm, nên đúng tầm này mới bắt đầu cấy mạ.
 
-Có người rất thích ăn cá đồng, Triệu Kim An tuy không quá mặn mà nhưng lại thấy khá thú vị.
+Có người rất chuộng món cá ruộng ăn hoa lúa, Triệu Kim An thì không quá hảo món này, nhưng lại thấy rất vui.
 
-Đến mùa gặt lúa, việc ra đồng bắt cá là một cái thú vui khó tả.
+Đến mùa gặt, xắn quần lội bùn bắt cá trong ruộng là cái thú vô cùng khoái chí.
 
-Hơn nữa cá ruộng bán trên thị trường rất được giá, đắt hơn hẳn các loại cá thông thường.
+Hơn nữa cá đồng ăn phấn hoa lúa bán rất được giá ngoài chợ, đắt hơn hẳn các loại cá nuôi thông thường.
 
-Triệu Quốc Hoa bảo có thể bán được khoảng mười đến hai mươi tệ một cân.
+Triệu Quốc Hoa bảo loại cá này có thể bán được từ mười đến hai mươi tệ một cân.
 
-Triệu Quốc Hoa làm việc ở Tư Tinh nên có thể quán xuyến được việc nhà, Triệu Duyệt Thiên không còn là đứa trẻ lưu lạc nữa. Ông nói đợi đến mùa gặt, cháu hãy đưa Tô Miền về chơi vài ngày.
+Giờ chú đi làm ở Tư Tinh nên tiện bề chăm sóc gia đình, bé Triệu Duyệt Thiên không còn phải làm đứa trẻ mồ côi cha mẹ bươn chải xa nhà nữa. Chú dặn: "Hôm nào gặt lúa, cháu dẫn con bé Tô Miến về đây chơi vài hôm nhé."
 
-Chú của hắn còn lén lút kể nhỏ với Triệu Kim An rằng, vào cái ngày thả cá giống, bà nội còn nhắc đến nàng một câu.
+Chú út còn lén thì thầm với Triệu Kim An: "Hôm thả cá giống, bà nội cháu cứ lẩm bẩm nhắc mãi đấy."
 
-Chắc chắn Tô Miền sẽ thích.
+Bà bảo chắc chắn Tô Miến sẽ thích cho xem.
 
-Bà nội chính là thế, thấy Tô Miền thích ăn bữa cơm tất niên ở quê, thấy cô gái thành phố như nàng thích... là bà cứ nhớ mãi trong lòng.
+Bà nội vẫn luôn như vậy, thấy Tô Miến thích ăn bữa cơm mổ lợn ở quê, con bé thành phố hiểu chuyện thế... nên trong lòng bà lúc nào cũng đau đáu nhớ tới.
 
-Triệu Kim An gật đầu vâng dạ.
+Triệu Kim An gật đầu dạ vâng.
 
-Hắn bỗng nhiên lên tiếng: "Chú à, nếu cháu tìm một người phụ nữ góa chồng có con..."
+Bất chợt anh buột miệng: "Chú út này, nếu sau này cháu tìm một người phụ nữ góa chồng có con..."
 
-Đầu dây bên kia im lặng hồi lâu.
+Đầu dây bên kia im phăng phắc một hồi lâu.
 
-"Kim An, cháu có chuyện gì nghĩ không thông à?"
+"Kim An à, cháu có chuyện gì nghĩ quẩn trong lòng đấy hả?"
 
 Triệu Kim An: "..."
 
-"Cháu chỉ lấy ví dụ thôi."
+"Cháu chỉ ví dụ thế thôi mà."
 
-Triệu Quốc Hoa nói: "Thế thì lúc cháu về bà nội sẽ không nấu cơm cho cháu ăn đâu. Lúc đi tảo mộ, chú cũng sẽ tâm sự kỹ càng với anh cả của Tô Cảnh Hành một phen..."
+Triệu Quốc Hoa nghiêm giọng: "Thế thì cháu khỏi về nhà, bà nội sẽ chẳng nấu cho cháu nửa hạt cơm đâu. Đến tiết tảo mộ, chú sẽ đứng trước mộ kể tội tường tận với bố cháu..."
 
 "..."
 
-Triệu Kim An chỉ có thể mặc niệm cho Triệu Chí Dũng ba giây, tự cầu phúc cho mình đi.
+Triệu Kim An chỉ biết mặc niệm cho Triệu Trí Dũng đúng ba giây, tự cầu nhiều phúc đi thôi con giai.
 
-Xem ra con cái chính là lằn ranh cuối cùng của bà nội và chú, họ đối xử với một Tô Miền phải ngồi xe lăn rất tốt, nhưng chuyện khác thì không.
+Xem ra chuyện con cái chính là lằn ranh giới hạn cuối cùng của bà nội và chú út. Họ có thể hết mực yêu thương, đón nhận một Tô Miến phải ngồi xe lăn, nhưng chuyện rước về một góa phụ mang con thì tuyệt đối không thể.
 
 Hai ngày sau.
 
-Vương Kim Như lại gọi điện tới hỏi Triệu Kim An.
+Thím Vương Kim Như lại hớt hải gọi điện thoại tới tra hỏi Triệu Kim An:
 
-"Kim An, cháu nói thật cho thím biết, Tô Miền rốt cuộc là người thế nào? Nhà cô ấy làm nghề gì vậy?!"
+"Kim An, cháu nói thật cho thím biết đi, con bé Tô Miến rốt cuộc là lai lịch thế nào? Nhà nó làm nghề gì vậy hả?!"
 
-Triệu Kim An ngơ ngác không hiểu gì.
+Triệu Kim An ngơ ngác chẳng hiểu mô tê gì.
 
-Vương Kim Như thốt lên: "Tô Miền thực sự đã tặng cho Thiên Thiên một cái KFC đấy!!!"
-
-Triệu Kim An: "..."
-
-Vương Kim Như còn sợ Triệu Kim An nghe không hiểu, nhấn mạnh lần nữa: "Không phải là bánh hamburger hay khoai tây chiên đâu, mà là một cái KFC, cả một cửa hàng luôn ấy!!!"
-
-Triệu Kim An ngây người hỏi: "Đường trong thôn sửa chưa ạ?"
-
-"Chưa, sửa đường gì cơ?"
-
-Vương Kim Như nói: "Bây giờ thím với Thiên Thiên đang ở trong quán đây này, KFC đã trang trí xong và đi vào hoạt động rồi. Tô Miền bảo thím qua ký một bản hợp đồng là được, nói là quà tặng cho Thiên Thiên."
-
-Tô Miền mới chỉ nhắc qua chuyện này vào hôm đó.
-
-Đừng nói là Vương Kim Như hay Triệu Quốc Hoa, ngay cả Triệu Kim An cũng tưởng nàng chỉ nói chơi cho vui thôi.
-
-Triệu Duyệt Thiên vẫn chưa biết mình đã sở hữu một cái KFC, con bé đang bưng một ly kem Sundae, mỗi lần múc một thìa lại liếm sạch bong cả thìa.
-
-Triệu Kim An bỗng thấy không biết mình còn phải phấn đấu vì cái gì nữa.
-
-Triệu Duyệt Thiên sáu tuổi dường như còn sống sung sướng hơn cả hắn.
-
-Hiện giờ để nhượng quyền một cửa hàng KFC, phí nhượng quyền mất từ 300 đến 500 nghìn tệ, tiền trang trí và thiết bị từ 2 đến 5 triệu tệ, tiền ký quỹ cũng phải 500 nghìn đến 1 triệu tệ...
-
-Cúp máy xong, Triệu Kim An vẫn đang phải lái chiếc xe bánh mì đi giao hàng!
-
-Ở ghế phụ, Chu Sở Hân đang cầm một chiếc gương nhỏ để dặm lại lớp trang điểm.
-
-Triệu Kim An liếc nàng một cái: "Chị không phải là thư ký đâu, chúng ta là đi giao hàng thật đấy."
-
-Chu Sở Hân mím môi tô lại son: "Kim An, kính của cái xe bánh mì này độ xuyên thấu có tốt không? Bên ngoài có nhìn rõ bên trong không nhỉ?"
-
-Nàng còn nhìn ngó xung quanh: "Hình như hơi khó triển khai chân tay thì phải. Đợi giao hàng xong, lót thêm ít bìa các-tông vào thùng xe... Em bảo sàn xe có cứng quá không?"
+Vương Kim Như xúc động thốt lên: "Tô Miến thực sự tặng cho con bé Thiên Thiên một cửa hàng KFC rồi đấy!!!"
 
 Triệu Kim An: "..."
 
-Hắn nhìn vào gương chiếu hậu, thùng xe toàn là nước khoáng và nước bọt khí.
+Thím sợ Triệu Kim An nghe không rõ, bèn nhấn mạnh từng chữ: "Không phải là một phần hamburger với khoai tây chiên đâu, mà là cả một tiệm gà rán KFC to đùng đấy!!!"
 
-Lái xe ba bánh nhỏ không cần bằng lái, nhưng lái ô tô thì cần.
+Triệu Kim An ngây người hỏi lại: "Đường trong làng đã sửa xong chưa ạ?"
 
-Vì chưa tuyển được người, lại bận rộn không xuể nên Triệu Kim An đành phải đích thân đi giao hàng ở khu đại học.
+"Chưa, sửa đường cái gì chứ?"
 
-Lạc Cẩn Chi đề nghị mua hai chiếc xe tải nhỏ, xe bánh mì không chở được bao nhiêu hàng, còn ở Tư Tinh thì dùng xe ba bánh là đủ đối phó rồi.
+Vương Kim Như dồn dập kể: "Giờ thím với con bé Thiên Thiên đang đứng trong quán đây này! Tiệm KFC này đã trang hoàng xong xuôi và đi vào kinh doanh rồi. Tô Miến bảo thím chỉ cần tới ký vào hợp đồng chuyển nhượng là xong, nói đây là quà tặng cho Thiên Thiên."
 
-Triệu Bác Lan lập tức tán thành, hiện giờ chị đang có chút "nghiện" việc sắm sửa tài sản cố định cho công ty.
+Hôm đó Tô Miến chỉ thuận miệng nhắc qua một câu.
 
-Nhìn thấy xe của công ty ngày càng nhiều, Triệu Bác Lan cảm thấy rất thành tựu. Nghĩ lại lúc trước chỉ có mấy chiếc xe ba bánh, thật sự là quá nghèo nàn.
+Đừng nói là vợ chồng chú Triệu Quốc Hoa, ngay cả Triệu Kim An cũng chỉ nghĩ cô nàng tiểu thư nói chơi cho vui miệng.
 
-Điều này cũng chứng tỏ công ty đã bắt đầu nhìn thấy lợi nhuận.
+Bé Triệu Duyệt Thiên nào biết mình vừa bỗng chốc trở thành bà chủ một cửa hàng KFC. Con bé đang ôm ly kem Sundae, mỗi lần xúc một thìa là lại liếm sạch bóng que kem, mắt tít lại vì sung sướng.
 
-Chu Sở Hân chỉ vào một cửa hàng rồi lấy sổ ra lật xem, bảo là cần 4 thùng nước khoáng và 3 thùng Tiểu Tạc Đạn Oxy Nhẹ.
+Triệu Kim An chẳng biết mình còn cắm đầu phấn đấu làm gì nữa.
 
-Triệu Kim An dừng xe, mở cốp sau rồi bốc hàng.
+Mới 6 tuổi đầu, dường như Triệu Duyệt Thiên đã thành đạt hơn cả ông anh họ rồi.
 
-Chu Sở Hân cầm cuốn sổ nhỏ, cũng tự tay bưng một thùng nước khoáng.
+Vào thời điểm năm 2007 này, muốn nhượng quyền một tiệm KFC, phí nhượng quyền đã từ ba trăm đến năm trăm nghìn tệ, chi phí trang trí và trang thiết bị ngốn từ hai đến năm triệu tệ, tiền bảo chứng thêm năm trăm nghìn đến một triệu nữa...
 
-"Ông chủ! Đến giao hàng đây!!"
+Cúp điện thoại, Triệu Kim An vẫn đang còng lưng lái chiếc xe van... đi giao nước!
 
-Chu Sở Hân khoác thêm một chiếc áo gile nhỏ của Trăn Nhiên, giọng nói rất lớn: "Ông chủ, ông có muốn lấy thêm vài thùng Tiểu Tạc Đạn không? Bây giờ ở khu đại học món này bán chạy lắm đấy."
+Ở ghế phụ, Chu Sở Hân đang cầm chiếc gương nhỏ cẩn thận dặm lại lớp trang điểm.
 
-"Lần sau ông gọi điện giục hàng, chúng tôi chưa chắc đã giao nhanh được thế này đâu."
+Triệu Kim An liếc nhìn cô một cái: "Cậu đâu phải thư ký của tôi, chúng ta chỉ đi giao hàng thôi mà."
 
-Ông chủ quán có chút do dự.
+Chu Sở Hân mím mím đôi môi tô son đỏ mọng: "Kim An, cửa kính xe van này độ trong suốt thế nào nhỉ? Người bên ngoài có nhìn rõ bên trong không?"
 
-Chu Sở Hân chỉ vào chiếc xe bánh mì ở cửa: "Tôi không phải tiếp thị đâu, cả xe hàng này chỉ cần qua vài tiệm tạp hóa nữa là hết sạch rồi."
+Cô nàng còn dáo dác nhìn quanh trước sau: "Hình như không gian hơi chật hẹp, khó mà thi triển được đấy nhỉ. Đợi giao hết nước xong, lót bìa các-tông xuống sàn thùng xe... Cậu bảo sàn xe có cứng quá không?"
 
-Triệu Kim An vừa bê nước khoáng vừa mỉm cười.
+Triệu Kim An: "..."
 
-Phong cách tiếp thị của Chu Sở Hân và Giang Công Kỳ hoàn toàn khác nhau.
+Anh liếc mắt nhìn qua gương chiếu hậu, trong thùng xe chất kín nào là nước khoáng và soda bọt khí.
 
-Giang Công Kỳ thường nói nhiều nhất là: "Ông chủ, tôi cứ bày ở đây trước, ông bán đi, bán được rồi mới lấy tiền!"
+Chạy xe ba gác thì không cần bằng lái, chứ lái chiếc xe van này bắt buộc phải có bằng.
 
-Dĩ nhiên, lúc đó hàng thực sự rất khó bán.
+Công ty chưa tuyển thêm được tài xế giao hàng, bận rộn không xuể nên Triệu Kim An đành phải tự mình đích thân đi giao hàng khắp làng đại học.
 
-Chu Sở Hân tính tình xởi lởi nhưng làm việc lại rất nghiêm túc. Triệu Kim An phụ trách lái xe bốc hàng, còn Chu Sở Hân thì tính toán tiền hàng với chủ quán. Nàng bảo: "Kim An, có mấy thùng nước khoáng lẻ tẻ này em không cần phải đứng ra thương lượng với ông chủ làm gì cho mệt."
+Lạc Cẩn Chi đề xuất nên mua thêm hai chiếc xe tải nhỏ, vì xe van không chở được bao nhiêu hàng, còn ở mạn Tư Tinh thì xe ba gác máy vẫn đủ sức xoay xở.
 
-Đi giao hàng ở khu đại học, kiểu gì cũng sẽ gặp phải vài người quen.
+Triệu Bác Lan lập tức giơ cả hai tay tán thành. Hiện tại cô chị họ này bắt đầu có niềm đam mê đặc biệt với tài sản cố định của công ty.
 
-Ví dụ như bạn học của Lớp Kế toán 1 và Lớp Kế toán 2.
+Nhìn thấy số lượng xe cộ của công ty ngày một nhiều lên, Triệu Bác Lan cảm thấy vô cùng hãnh diện. Nhớ lại chuỗi ngày chỉ có độc một chiếc xe ba gác tồi tàn trước kia, đúng là nghèo rớt mồng tơi.
 
-Họ nhìn thấy Triệu Kim An tự mình lái xe đi bốc vác, trong lòng không hiểu sao lại cảm thấy cân bằng hơn một chút.
+Điều quan trọng nhất là, công ty giờ đây đã bắt đầu nhìn thấy những khoản lợi nhuận rõ rệt.
 
-Việc hắn mới năm nhất đã làm người phụ trách Cúp Trăn Nhiên ít nhiều cũng khiến người ta ghen tị.
+Chu Sở Hân chỉ tay về phía một tiệm tạp hóa phía trước, rồi mở cuốn sổ tay ra xem: "Giao tiệm này nhé, 4 thùng nước khoáng, 3 thùng Khinh Dưỡng Tiểu Tạc Đạn."
 
-Nhưng kiểu làm thêm cực nhọc thế này, hắn có kiếm được tiền thì họ cũng chẳng thèm đỏ mắt hay đố kỵ làm gì.
+Triệu Kim An tấp xe vào lề, mở cốp sau, bắt đầu khuân hàng.
 
-Ngay cả Trần Trạch và Cốc Siêu Thừa cũng nghĩ như vậy.
+Chu Sở Hân cầm sổ, cũng xắn tay ôm lấy một thùng nước khoáng.
 
-Đúng là cái tâm lý thà sợ anh em chịu khổ, còn hơn sợ anh em đi xe sang.
+"Ông chủ ơi! Giao hàng tới đây ạ!!"
+
+Chu Sở Hân mặc chiếc áo gile đồng phục in logo Trăn Nhiên, giọng nói lanh lảnh vang dội: "Ông chủ, bác có muốn lấy thêm mấy thùng Tiểu Tạc Đạn nữa không? Đang bán chạy dữ dội khắp khu đại học đấy bác."
+
+"Lần sau bác gọi hàng, chưa chắc bọn cháu đã giao kịp nhanh thế này đâu nhé."
+
+Ông chủ tiệm tạp hóa có chút ngập ngừng do dự.
+
+Chu Sở Hân chỉ tay về chiếc xe van đậu trước cửa: "Cháu đâu có tiếp thị ép bác đâu, bác nhìn xem, cả thùng xe này chỉ cần giao cho vài tiệm quanh đây là hết veo rồi."
+
+Triệu Kim An vừa vác thùng nước khoáng vừa mỉm cười.
+
+Phong cách chào hàng của Chu Sở Hân và Giang Công Kỳ hoàn toàn khác nhau một trời một vực.
+
+Câu cửa miệng của Giang Công Kỳ hồi trước luôn là: "Ông chủ ơi, cháu cứ để tạm ở đây nhé, bác cứ bán thử đi, bán hết rồi hẵng trả tiền cho cháu!"
+
+Tất nhiên, thời điểm ban đầu đó nước uống thực sự rất khó bán.
+
+Chu Sở Hân tính tình tuy bộc trực xởi lởi nhưng khi bắt tay vào làm việc lại vô cùng nghiêm túc, chu đáo. Triệu Kim An chịu trách nhiệm lái xe khuân vác, còn Chu Sở Hân thì tính toán đối chiếu tiền hàng với các chủ tiệm. Cô bảo: "Kim An à, mấy đồng bạc lẻ tiền nước khoáng này cậu cứ để tớ lo, hơi đâu mà cậu phải đích thân mở miệng kỳ kèo."
+
+Đi giao hàng vòng quanh khu làng đại học, thế nào cũng đụng mặt vài người quen.
+
+Chẳng hạn như bạn học lớp Kế toán 1 và Kế toán 2.
+
+Thấy Triệu Kim An phải tự tay lái xe bốc vác hàng hóa cực nhọc, trong lòng bọn họ chẳng hiểu sao lại cảm thấy cân bằng đôi chút.
+
+Cùng là sinh viên năm nhất, thấy anh đứng ra làm người phụ trách chính cho Giải bóng rổ Cúp Trăn Nhiên hoành tráng, ít nhiều trong lòng ai nấy cũng nảy sinh vài phần ghen tị.
+
+Nhưng nếu là công việc làm thêm bốc vác đổ mồ hôi sôi nước mắt thế này, anh có kiếm được tiền thì bọn họ cũng chẳng thèm ghen ghét hay đỏ mắt làm gì.
+
+Ngay cả Trần Trạch và Cốc Siêu Thừa cũng mang tâm lý như thế.
+
+Đúng là cái tâm lý điển hình: vừa sợ anh em phải sống khổ sở, lại vừa sợ thấy anh em lái xe Land Rover sang chảnh.
 
 "Triệu Kim An!"
 
-Lần này gặp phải Khổng Triết Vũ, hắn ta lớn tiếng gọi một câu.
+Lần này tình cờ chạm mặt Khổng Triết Vũ, anh chàng cất tiếng gọi giật lại.
 
-Triệu Kim An đang cúi người bưng một thùng nước bọt khí, chỉ gật đầu "ừ" một tiếng với Khổng Triết Vũ.
+Triệu Kim An đang khom lưng bốc một thùng soda bọt khí, chỉ khẽ gật đầu "Ừ" một tiếng với Khổng Triết Vũ.
 
-Rồi hắn ôm hai thùng nước bước thẳng vào tiệm tạp hóa.
+Sau đó anh liền ôm hai thùng nước đi thẳng vào trong tiệm tạp hóa.
 
 "Triết Vũ, ai thế?"
 
-Khổng Triết Vũ cùng vài người bạn vừa đi đánh bida về, nhìn bóng lưng Triệu Kim An đang bốc hàng, hắn ta mỉm cười lắc đầu: "Không là ai cả, dù sao thì tớ cũng chẳng bao giờ uống nước bọt khí."
+Khổng Triết Vũ vừa cùng mấy người bạn đi đánh bi-a về, nhìn bóng lưng Triệu Kim An đang cặm cụi vác hàng vào tiệm, anh chàng nhếch mép cười lắc đầu: "Chẳng là ai cả. Dù sao thì tao cũng không bao giờ đụng vào ba cái thứ nước bọt khí vớ vẩn ấy."
 
-"Càng không uống nước khoáng của Trăn Nhiên."
+"Càng không bao giờ uống nước khoáng Trăn Nhiên."
 
-Gặp phải hạng người như Triệu Kim An, Khổng Triết Vũ có cảm giác như đấm vào bông, bao nhiêu sức lực đều vô dụng.
+Mỗi lần chạm trán một kẻ như Triệu Kim An, Khổng Triết Vũ lại có cảm giác như đấm một cú hết lực vào bông gòn, bức bối không chịu nổi.
 
-Triệu Kim An căn bản chẳng buồn "đối đầu" với hắn ta, chẳng lẽ hắn ta lại lao lên sỉ nhục người ta một trận?
+Triệu Kim An căn bản chẳng thèm đôi co hay so kè với anh ta. Chẳng lẽ anh ta lại hùng hổ xông tới buông lời chế giễu một trận?
 
-Khổng Triết Vũ đang treo chìa khóa xe Mercedes bên hông, mấy câu đại loại như "Tôi mới có thể đem lại hạnh phúc cho Mộc Dao" còn chưa có cơ hội thốt ra.
+Khổng Triết Vũ lúc nào cũng lủng lẳng chùm chìa khóa xe Mercedes bên hông, chuẩn bị sẵn câu thoại kinh điển kiểu "Tôi có thể mang lại hạnh phúc đủ đầy cho Mộc Dao", nhưng đến tận bây giờ vẫn chưa có lấy nửa cơ hội để thốt ra.
 
-Hắn ta đã diễn tập trong lòng rất nhiều lần rồi.
+Anh ta đã diễn tập trong đầu không biết bao nhiêu lần.
 
-Đó phải là một cuộc đối thoại lịch sự và đầy phong thái quý ông giữa những người đàn ông với nhau.
+Đó phải là một cuộc đối thoại lịch thiệp, phong độ chuẩn mực giữa những người đàn ông trưởng thành.
 
-Còn việc chế nhạo thẳng mặt chỉ là tình tiết của mấy gã phản diện trong phim cẩu huyết mà thôi.
+Còn việc buông lời châm chọc rẻ tiền, đó chỉ là kịch bản của mấy vai phản diện não tàn trong mấy bộ phim truyền hình cẩu huyết.
 
-Một lát sau, Chu Sở Hân và Triệu Kim An từ trong tiệm đi ra. Chu Sở Hân tươi cười hớn hở đếm xấp tiền lẻ trên tay, cười nói: "Kim An, xuất phát thôi, nhà tiếp theo!"
+Một lát sau, Chu Sở Hân cùng Triệu Kim An bước ra khỏi tiệm tạp hóa. Chu Sở Hân mặt mày hớn hở đếm đếm xấp tiền lẻ trong tay, cười tươi rói: "Kim An, xuất phát thôi, sang tiệm tiếp theo!"
 
-Triệu Kim An chẳng thèm liếc nhìn Khổng Triết Vũ lấy một cái, kéo cửa xe leo lên ghế lái.
+Triệu Kim An chẳng thèm liếc nhìn Khổng Triết Vũ lấy nửa cái, kéo cửa bước thẳng lên ghế lái.
 
 "Hừ."
 
-Nhìn xấp tiền trong tay Chu Sở Hân, Khổng Triết Vũ ước lượng chắc chỉ tầm hơn hai trăm tệ, hắn ta khẽ cười một tiếng.
+Nhìn xấp tiền lẻ trên tay Chu Sở Hân, Khổng Triết Vũ thầm ước tính trong đầu, chắc vỏn vẹn chừng hai trăm tệ là cùng. Anh ta khẽ cười khẩy một tiếng đầy vẻ khinh thường.
 
-"Đi thôi."
+"Đi thôi tụi mày."
 
-Khi biết Triệu Kim An là người phụ trách Cúp Trăn Nhiên, Khổng Triết Vũ cũng từng kinh ngạc một hồi.
+Khi nghe ngóng được Triệu Kim An là người đứng đầu phụ trách Cúp Trăn Nhiên, Khổng Triết Vũ từng có chút ngạc nhiên kinh ngạc.
 
-Nhưng hắn ta đã đi xem thử, phần lớn thời gian đều là Thẩm Tử Ngôn đứng ra tổ chức.
+Nhưng anh ta đã ra sân xem thử rồi, phần lớn thời gian toàn là Thẩm Tử Ngôn đứng ra quán xuyến tổ chức.
 
-Thẩm Tử Ngôn gọi điện về nhà.
+...
 
-"Bố, con muốn mua một chiếc xe."
+Cùng lúc đó, Thẩm Tử Ngôn bấm số gọi điện về nhà.
 
-Đầu dây bên kia hỏi con gái muốn mua loại xe gì.
+"Bố ơi, con muốn mua một chiếc xe ô tô."
 
-Thẩm Tử Ngôn ngẫm nghĩ, Trần Trạch đi BMW 3 Series, Khổng Triết Vũ đi Mercedes C-Class, liền đáp: "Chỉ cần đắt hơn chiếc Mercedes C-Class một chút là được ạ."
+Đầu dây bên kia hỏi con gái cưng muốn chọn dòng xe nào.
+
+Thẩm Tử Ngôn ngẫm nghĩ một lát. Trần Trạch lái BMW 3-Series, Khổng Triết Vũ chạy Mercedes C-Class, cô bèn thản nhiên đáp: "Dạ, chỉ cần đắt hơn chiếc Mercedes C-Class một chút là được ạ."

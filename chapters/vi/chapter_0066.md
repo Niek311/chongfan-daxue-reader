@@ -1,219 +1,225 @@
-# Chương 66: Tôi Từ Bỏ
+# Chương 66: Tôi xin rút!
 
-Ngày hôm sau, Đơn Vĩ lái xe đến đón người.
+> **Tiêu đề gốc**: 第66章 我放弃！
 
-Bà nội chuẩn bị một túi bao tải, bên trong đựng đầy củ đậu và hạt dẻ.
+Sáng hôm sau, Đan Vĩ lái xe tới đón người.
 
-Vương Kim Như và Doãn Hiểu Lan cũng ở đó, Triệu Duyệt Thiên còn khóc một trận.
+Bà nội chuẩn bị sẵn một chiếc bao tải dứa, bên trong đựng đầy củ đậu và hạt dẻ quê.
 
-Trở lại Quận Sa, Triệu Kim An lập tức lao vào công việc. Hắn đến căn cứ mà Lạc Cẩn Chi thiết lập tại Quận Sa trước, nơi này cách bến xe phía Nam khoảng một cây số.
+Vương Kim Như và Doãn Hiểu Lan cũng đứng tiễn, cô bé Triệu Duyệt Thiên còn quẹt nước mắt khóc một trận.
 
-Chỗ này cách khu đại học quá xa, lái xe mất tận một tiếng đồng hồ, không tiện cho công việc.
+Vừa trở lại Quận Sa, Triệu Kim An lập tức lao vào công việc. Cậu đến thẳng cứ điểm mà Lạc Cẩn Chi dựng lên ở Quận Sa, nằm sâu trong khu bến xe phía Nam chừng một cây số.
 
-Triệu Kim An phát hiện tầng hai căn nhà Đơn Vĩ thuê vẫn còn để trống, bèn bảo Đơn Vĩ liên hệ chủ nhà thuê lại luôn.
+Nơi này cách khu đô thị đại học quá xa, lái xe phải mất tròn một tiếng đồng hồ, cực kỳ bất tiện cho công việc hàng ngày.
 
-Đơn Vĩ đến chợ đồ cũ Cao Kiều sắm một bộ bàn làm việc và sofa. Đơn Na Tề vừa tan học là lên lầu dọn dẹp vệ sinh và bài trí, đối chiếu với hình mẫu trên mạng xem còn thiếu gì thì bảo cha đi chợ đồ cũ mua bổ sung.
+Triệu Kim An để ý thấy tầng hai căn nhà Đan Vĩ đang thuê vẫn còn bỏ trống, liền bảo Đan Vĩ liên hệ với chủ nhà để thuê lại trọn gói.
 
-Đơn Vĩ nói: "Na Tề, con mới học lớp mười một, có phải thư ký của ông chủ đâu."
+Đan Vĩ chạy ra chợ đồ cũ Cao Kiều săn lùng được một bộ bàn làm việc và ghế sô pha. Đan Na Tề hễ tan học là chạy tót lên tầng hai dọn dẹp vệ sinh, trang hoàng sắp xếp, còn lên mạng tham khảo các mẫu thiết kế phòng làm việc rồi bảo bố ra chợ đồ cũ mua thêm những thứ còn thiếu.
 
-Đơn Na Tề đáp: "Ba, lên đại học con muốn học quản trị kinh doanh."
+Đan Vĩ buột miệng: "Na Tề à, con mới học lớp mười một thôi mà, có phải thư ký của sếp đâu."
 
-Hai ngày sau, Hồ Thần đến, nhìn thấy Đơn Na Tề đang làm việc cũng trêu chọc: "Na Tề, Triệu tổng có trả lương cho em không đấy?"
+Đan Na Tề đáp rành rọt: "Bố ơi, lên đại học con tính học ngành Quản trị kinh doanh đấy."
 
-Đơn Na Tề mỉm cười, không nói gì.
+Hai ngày sau, Hồ Thần tới nơi. Nhìn thấy Đan Na Tề đang thoăn thoắt làm việc, anh ta cũng trêu: "Na Tề, Triệu tổng có trả lương cho em không đấy?"
 
-Triệu Kim An và Lạc Cẩn Chi nảy sinh bất đồng. Lạc Cẩn Chi muốn tiếp tục dùng thương hiệu "Đông Giang Ấn Tượng", nhưng Triệu Kim An nói nhất định phải đổi cái khác, còn "Đông Giang Ấn Tượng" có thể giữ lại làm thương hiệu phụ.
+Đan Na Tề chỉ mỉm cười, không đáp lời.
 
-Thứ hai chính là tủ trưng bày.
+Triệu Kim An và Lạc Cẩn Chi nảy sinh bất đồng quan điểm. Lạc Cẩn Chi muốn tiếp tục dùng lại thương hiệu "Đông Giang Ấn Tượng", nhưng Triệu Kim An kiên quyết bảo phải đổi tên khác, dù thương hiệu cũ vẫn có thể giữ lại làm dòng phụ trợ.
 
-Đây mới là trọng điểm của trọng điểm.
+Điểm bất đồng thứ hai chính là tủ trưng bày bảo quản lạnh.
 
-Hiện tại, tủ lạnh trong các siêu thị nhỏ đa phần đều do chủ tiệm tự bỏ tiền túi ra mua. Triệu Kim An nhớ lại trường hợp của Nông Phu Sơn Tuyền và Wahaha, tủ lạnh của ai thì chắc chắn chỉ được đặt sản phẩm của người đó.
+Đây mới là mấu chốt trọng điểm nhất.
 
-Triệu Kim An muốn "tặng" miễn phí, nhưng Lạc Cẩn Chi cảm thấy chi phí quá lớn.
+Vào thời điểm này, tủ bảo quản lạnh trong các tiệm tạp hóa, siêu thị mini phần lớn đều do chủ tiệm tự bỏ tiền túi ra mua. Triệu Kim An nhớ lại nước đi kinh điển của Nông Phu Sơn Tuyền và Oa Cáp Cáp năm xưa: Tủ mát của hãng nào thì chắc chắn phải ưu tiên bày kín sản phẩm của hãng đó.
 
-Nàng đề nghị "bán một nửa tặng một nửa", nhưng Triệu Kim An lại nói tốt nhất nên tặng mỗi cửa hàng hai cái.
+Triệu Kim An chủ trương "tặng miễn phí" tủ cho các tiệm, nhưng Lạc Cẩn Chi lại xót ruột vì chi phí đội lên quá lớn.
 
-Hai người cãi nhau một trận, Lạc Cẩn Chi gắt lên: "Cậu không định sống nữa à? Tiền trên sổ sách có đủ không? Cậu có biết ở Quận Sa có bao nhiêu cửa hàng tạp hóa không?"
+Chị đề xuất phương án "nửa bán nửa tặng", Triệu Kim An lại bảo nếu được thì tốt nhất tặng hẳn hai chiếc một tiệm.
 
-Triệu Kim An nói: "Tìm một nhà máy, trả trước một phần tiền cọc, rồi vẽ ra viễn cảnh tương lai cho họ, bảo rằng mô hình này sẽ mở rộng ra cả nước. Chỉ cần có ba thành tiền cọc, kiểu gì cũng có người chịu đánh cược."
+Thế là hai người cãi nhau một trận. Lạc Cẩn Chi tức tối: "Cậu có định làm ăn đàng hoàng không đấy? Tiền trên sổ sách liệu có đủ gánh không? Cậu có biết toàn thành phố Quận Sa này có bao nhiêu tiệm tạp hóa không hả?"
 
-Lạc Cẩn Chi hậm hực thốt ra một câu: "Nếu cậu cược thua, cả đời này coi như tiêu đời trong tay tôi!"
+Triệu Kim An bình thản: "Tìm một xưởng sản xuất, đặt cọc trước một phần, rồi vẽ cho họ một chiếc bánh vẽ thật to. Cứ bảo mô hình này sắp tới sẽ phủ sóng khắp toàn quốc. Cầm chắc ba mươi phần trăm tiền cọc trong tay, kiểu gì chả có xưởng chịu đánh cược."
 
-Chỉ có điều việc này không gấp, Triệu Kim An đang nghĩ xem nên đặt tên cho nước khoáng là gì, sau đó dùng cái giá nhỏ nhất để "vượt vòng". Không có tiền thì chắc chắn không thể quảng cáo rầm rộ khắp nơi được.
+Lạc Cẩn Chi bực dọc buông một câu: "Nếu cậu đánh cược thua, cả đời này cậu coi như chôn chân trong tay tôi đấy!"
 
-Sau khi về lại Quận Sa, Triệu Kim An đi sớm về trễ, Lưu Sấm Phong và Cốc Siêu Thừa muốn hỏi nhưng lại ngại.
+Có điều chuyện này chưa cần gấp gáp ngay. Triệu Kim An đang cân nhắc đặt tên cho dòng nước khoáng mới là gì, sau đó tìm cách "phá vòng vây" với chi phí thấp nhất. Trong tay chưa có nhiều vốn, đương nhiên không thể rải tiền quảng cáo ồ ạt ngập trời ngập đất được.
 
-Trần Trạch gửi cho Từ Mạn Mạn một tin nhắn, bảo rằng Triệu Kim An đã về rồi.
+Kể từ ngày quay lại Quận Sa, Triệu Kim An đi sớm về muộn. Lưu Sấm Phong và Cốc Siêu Thừa mấy lần muốn hỏi thăm nhưng lại ngại ngùng không dám mở lời.
 
-Thẩm Tử Ngôn cũng thầm thở phào nhẹ nhõm. Một bữa cơm ăn mất hai trăm tệ xong là Triệu Kim An biến mất luôn hai ngày, hai đêm liền không về ký túc xá, nghe nói ban ngày cũng chẳng đi học.
+Trần Trạch nhắn một tin cho Hứa Mạn Mạn, báo rằng Triệu Kim An đã về lại trường rồi.
 
-Hôm nay sau giờ học, giảng viên hướng dẫn Lưu Huy bất ngờ đến lớp.
+Thẩm Tử Ngôn ở bên kia cũng thở phào nhẹ nhõm một cách khó hiểu. Một bữa ăn mất toi hai trăm tệ, sau đó Triệu Kim An bặt vô âm tín suốt hai ngày liền, hai đêm không về ký túc xá, nghe đâu ban ngày cũng chẳng thấy bóng dáng trên lớp.
 
-Đầu tiên ông bảo lớp trưởng Vương Học Ân điểm danh một lượt, sau đó thông báo hai việc: một là đêm hội chào tân sinh viên, hai là kỷ niệm 70 năm thành lập trường.
+Hôm nay vừa hết giờ học, thầy trợ lý quản lý sinh viên Lưu Huy bỗng nhiên bước vào lớp.
 
-Quân sự vào tháng 9, nên đêm hội chào tân sinh viên của nhiều trường đại học thường được sắp xếp vào tháng 10 hoặc tháng 11. Lần này đúng lúc trùng với lễ kỷ niệm 70 năm nên gộp chung lại. Lưu Huy nói cả lớp ít nhất phải đăng ký hai tiết mục, quan trọng là tham gia cho vui.
+Thầy bảo lớp trưởng Vương Học Ân điểm danh một lượt, sau đó thông báo hai chuyện lớn: Một là đêm hội chào đón tân sinh viên, hai là lễ kỷ niệm bảy mươi năm ngày thành lập trường.
 
-Sư Đại có hơn 20 học viện, trong đó có Học viện Âm nhạc và Học viện Mỹ thuật, những tiết mục đinh đều nằm ở phía Âm nhạc.
+Sinh viên nhập học và quân sự vào tháng chín, nên đêm hội tân sinh viên của nhiều trường đại học thường được ấn định vào khoảng tháng mười hoặc tháng mười một. Lần này trùng đúng dịp đại lễ kỷ niệm bảy mươi năm thành lập trường nên nhà trường gộp chung làm một. Lưu Huy bảo lớp dù sao cũng phải đăng ký lấy một hai tiết mục văn nghệ, tinh thần giao lưu là chính.
 
-Các học viện khác đa phần chỉ làm nền.
+Đại học Sư phạm có hơn hai mươi khoa viện, có cả Học viện Âm nhạc lẫn Học viện Mỹ thuật, những tiết mục đinh chắc chắn đều nằm trọn bên Học viện Âm nhạc rồi.
 
-Các sinh viên đứng dậy chuẩn bị rời đi, Lưu Huy lại bảo đợi một chút, còn một việc cuối cùng.
+Các khoa viện khác đa phần chỉ đóng vai chân phụ họa mà thôi.
 
-"Đó là trợ cấp sinh viên nghèo."
+Cả lớp lục tục đứng dậy chuẩn bị ra về thì Lưu Huy vội xua tay: "Các em khoan đã, còn một việc cuối cùng nữa."
 
-Trên bục giảng, Lưu Huy nói: "Trường có khoản trợ cấp 800 đến 2000 tệ mỗi năm cho sinh viên nghèo. Bạn nào đủ điều kiện thì đến chỗ lớp trưởng và bí thư Đoàn để đăng ký thống kê."
+"Đó là xét duyệt trợ cấp sinh viên nghèo có hoàn cảnh khó khăn."
 
-"Sau đó nộp hồ sơ chứng minh bằng văn bản, Đoàn trường xét duyệt xong mới phát."
+Đứng trên bục giảng, Lưu Huy phổ biến: "Mỗi năm nhà trường có khoản trợ cấp từ tám trăm đến hai nghìn tệ dành cho sinh viên có hoàn cảnh khó khăn. Em nào đủ điều kiện thì chủ động liên hệ với lớp trưởng và bí thư chi đoàn để ghi danh thống kê."
 
-Lúc này có người giơ tay rụt rè hỏi: "Thưa thầy, cần giấy tờ chứng minh gì ạ?"
+"Sau đó phải nộp đầy đủ hồ sơ giấy tờ chứng minh hoàn cảnh, Đoàn trường xét duyệt xong xuôi mới tiến hành giải ngân."
 
-Lưu Huy bảo trước tiên phải đến ủy ban thôn xin đóng dấu, xin giấy xác nhận hoàn cảnh khó khăn. Có lẽ cảm thấy nói chuyện này trước mặt quá nhiều người không hay lắm, ông bèn bảo các sinh viên khác rời đi trước.
+Lúc này có bạn rụt rè giơ tay hỏi: "Thưa thầy, cần những giấy tờ chứng minh gì ạ?"
 
-Ông chỉ giữ lại lớp trưởng Vương Học Ân và bí thư Đoàn Lâm Thanh Tuyết, nghĩ ngợi một lát rồi giữ luôn cả lớp phó Lưu Sấm Phong ở lại.
+Lưu Huy đáp trước mắt phải xin dấu xác nhận của Ủy ban thôn xã tại địa phương, xin một giấy chứng nhận hộ nghèo hoặc hoàn cảnh khó khăn. Chắc thấy đông người bàn tán chuyện này tế nhị không hay lắm, thầy liền cho các sinh viên khác ra về trước.
 
-Triệu Kim An không định tranh giành suất trợ cấp này nên định bỏ đi, không ngờ Lưu Huy lật lật hồ sơ học bạ trong tay, đột nhiên gọi hắn lại.
+Trong phòng học chỉ giữ lại lớp trưởng Vương Học Ân và bí thư chi đoàn Lâm Thanh Tuyết, ngẫm nghĩ một lát thầy gọi thêm cả lớp phó Lưu Sấm Phong ở lại hỗ trợ.
 
-"Triệu Kim An, em đợi đã!"
+Triệu Kim An vốn chẳng có ý định tranh giành suất trợ cấp này với ai nên cũng toan cất bước ra về. Nào ngờ Lưu Huy lật lật tập hồ sơ sinh viên trong tay, chợt cất tiếng gọi giật lại:
 
-Thực ra Lưu Huy không mở lời thì Lưu Sấm Phong cũng định gọi hắn.
+"Triệu Kim An, em đợi một lát!"
 
-Ngay lập tức, tất cả mọi người đều dừng bước nhìn về phía Triệu Kim An.
+Thực ra dù Lưu Huy không lên tiếng thì Lưu Sấm Phong cũng định mở mồm gọi cậu rồi.
 
-Trừ một vài người biết chuyện, những người khác đều vô cùng kinh ngạc.
+Trong khoảnh khắc, tất cả sinh viên chưa kịp bước ra cửa đều khựng lại, đồng loạt quay đầu nhìn về phía Triệu Kim An.
+
+Ngoại trừ mấy người biết rõ ngọn ngành, những người khác đều tròn mắt kinh ngạc.
 
 Chuyện gì thế này!?
 
-Chẳng phải Triệu Kim An có một bà chị họ lái xe Range Rover sao? Hôm đó chúng ta còn thấy rồi mà.
+Chẳng phải Triệu Kim An có một bà chị họ lái chiếc Land Rover tiền tỷ hay sao? Hôm trước bọn này còn tận mắt thấy cơ mà.
 
 "Kim An..."
 
-Vương Duy Đào cũng rất ngạc nhiên, hắn đang định đi ăn cơm cùng Triệu Kim An.
+Vương Vĩ Đào đứng bên cạnh cũng ngơ ngác, vốn dĩ cậu đang định rủ Triệu Kim An cùng sang nhà ăn.
 
-Triệu Kim An cười nói: "Không sao đâu."
+Triệu Kim An mỉm cười nhẹ nhõm: "Không sao đâu."
 
-Vương Duy Đào bèn vỗ vai Triệu Kim An: "Kim An, tôi chờ cậu ở ngoài."
+Vương Vĩ Đào bèn vỗ vỗ vai Triệu Kim An, nói khẽ: "Kim An, tao đứng ngoài hành lang đợi mày nhé."
 
-Triệu Kim An thấy thật buồn cười.
+Triệu Kim An cảm thấy trong lòng vừa buồn cười vừa ấm áp.
 
-Kiếp trước, Vương Duy Đào thường xuyên tìm đủ mọi cách để bao hắn ăn cơm ở nhà ăn, không phải tranh quẹt thẻ cơm thì cũng là gọi thêm mấy món thức ăn mặn.
+Kiếp trước, Vương Vĩ Đào cũng thường xuyên tìm đủ mọi cách để bao Triệu Kim An ăn cơm ở nhà ăn, không tranh quẹt thẻ hộ thì cũng cố tình gọi thêm hai món ngon gắp sang bát cậu.
 
-Trong lớp còn lại khoảng mười người.
+Phòng học lúc này chỉ còn lại chừng mười người.
 
-Triệu Kim An nhìn thấy một gương mặt quen thuộc, Đường Hiểu Tình.
+Triệu Kim An bắt gặp một gương mặt vô cùng quen thuộc: Đường Hiểu Tình.
 
-Đường Hiểu Tình vẫn luôn ngồi ở hàng ghế đầu không nhúc nhích, nàng hướng về phía Triệu Kim An nở một nụ cười có chút bẽn lẽn.
+Đường Hiểu Tình vẫn ngồi ngay ngắn ở hàng ghế đầu từ nãy tới giờ, cô khẽ quay lại, nở một nụ cười có phần bẽn lẽn, rụt rè với Triệu Kim An.
 
-Triệu Kim An đứng ở cửa cũng mỉm cười đáp lại nàng.
+Đứng ở cửa lớp, Triệu Kim An cũng mỉm cười gật đầu đáp lại cô bạn.
 
-Lưu Huy vốn dĩ có chút đồng cảm với Triệu Kim An, nhưng khi biết hắn liên tiếp hai ngày không đi học, ấn tượng tốt đẹp trong lòng ông lập tức giảm sút đáng kể.
+Ban đầu thầy Lưu Huy cũng có chút đồng cảm với hoàn cảnh của Triệu Kim An, nhưng khi nghe báo cậu cúp học liền hai ngày, ấn tượng tốt đẹp trong mắt thầy lập tức tụt dốc không phanh.
 
-"Gia cảnh như vậy mà em còn không chịu học hành tử tế sao?"
+Hoàn cảnh gia đình như thế mà lại không lo chăm chỉ học hành?
 
 Ngoài hành lang.
 
-Trần Trạch cầm điện thoại nhắn tin "tạch tạch tạch", đại khái là đang kể việc này cho Từ Mạn Mạn, nói rằng Triệu Kim An thật sự bị giữ lại.
+Trần Trạch đang cầm điện thoại bấm phím "tách tách tách" nhắn tin lia lịa, chắc hẳn đang kể cho Hứa Mạn Mạn nghe chuyện Triệu Kim An thực sự bị giữ lại xét diện hộ nghèo.
 
-Vương Duy Đào và Cốc Siêu Thừa đang đợi Triệu Kim An và Lưu Sấm Phong.
+Vương Vĩ Đào và Cốc Siêu Thừa đứng dựa lan can chờ Triệu Kim An và Lưu Sấm Phong.
 
-Vương Học Ân đi tới đóng cửa lại.
+Vương Học Ân bước ra khép hờ cánh cửa lớp lại.
 
-Năm 2006 vẫn chưa thiết lập "Chế độ phân bậc trợ cấp quốc gia", ngay cả "Học bổng khuyến khích quốc gia" cũng chưa có, giải thưởng này phải đến năm 2007 mới chính thức được thành lập.
+Vào năm 2006, chế độ phân bậc học bổng trợ cấp sinh viên nghèo quốc gia vẫn chưa được chuẩn hóa, thậm chí ngay cả "Học bổng Khuyến học Quốc gia" cũng chưa ra đời (mãi đến năm 2007 mới chính thức được thiết lập).
 
-Nhưng các hạng mục tương tự trợ cấp xã hội thì vẫn tồn tại, số tiền khá thấp, thường là 800 - 2000 tệ/năm.
+Tuy nhiên trong các trường đại học vẫn có những chương trình học bổng trợ cấp tương tự, số tiền trợ cấp không cao, thường dao động trong khoảng 800 đến 2000 tệ mỗi năm.
 
-Cụ thể do trường phân bổ, cần phải thông qua xác nhận hoàn cảnh khó khăn.
+Chỉ tiêu cụ thể do từng trường tự cân đối phân bổ, sinh viên bắt buộc phải trải qua khâu thẩm định hoàn cảnh đặc biệt khó khăn.
 
-Và không phải cứ có "giấy xác nhận của thôn" là được, quy trình xét duyệt rất rườm rà.
+Hơn nữa, không phải cứ cầm được "giấy chứng nhận hộ nghèo xin ở thôn xã" nộp lên là xong, quy trình xét duyệt vô cùng rườm rà, nhiêu khê.
 
-Lại còn giới hạn chỉ tiêu, không thể ai cũng có phần.
+Suất trợ cấp lại có hạn mức nghiêm ngặt, tuyệt đối không thể chia đều cho tất cả mọi người.
 
-Nói trắng ra là so xem ai khổ hơn.
+Nói toẹt ra, đây chính là cuộc cạnh tranh xem ai có hoàn cảnh thảm thương hơn ai.
 
-Kiếp trước Triệu Kim An rất muốn lấy khoản trợ cấp này, nhưng lại bị kẹt ở khâu chuẩn bị giấy tờ chứng minh. Hắn từng tìm Lưu Huy để xin linh động, nhưng Lưu Huy cũng bảo không có cách nào.
+Kiếp trước, Triệu Kim An từng rất khát khao nhận được khoản tiền trợ cấp này, nhưng lại bị vướng mắc ở khâu hoàn thiện hồ sơ giấy tờ. Cậu từng tìm đến Lưu Huy xin thầy châm chước linh động giúp, nhưng Lưu Huy cũng chỉ biết lắc đầu bảo không có cách nào.
 
-Nói đây là quy trình.
+Thầy bảo đó là quy trình cứng của nhà trường.
 
-Cuối cùng do Đoàn trường và Đoàn viện xét duyệt, quyết định cho ai và không cho ai.
+Quyền quyết định cuối cùng thuộc về Đoàn trường và Đoàn khoa, họ mới là người duyệt cấp cho ai và gạt ai ra.
 
-Lưu Huy có giúp sinh viên của mình đi nói khó với Đoàn viện hay không thì không biết, nhưng Triệu Kim An đã tự mình tìm đến Đoàn viện.
+Không rõ Lưu Huy có từng mở lời đỡ hộ học trò của mình trước Đoàn khoa hay không, nhưng Triệu Kim An thì đã tự mình lặn lội lên văn phòng Đoàn khoa.
 
-Hai lần.
+Tận hai lần.
 
-Lần đầu tiên, người trong văn phòng chỉ bảo hắn cứ để hồ sơ ở đó.
+Lần thứ nhất, người trong văn phòng chỉ bảo Triệu Kim An cứ để tập hồ sơ lại trên bàn đó.
 
-Lần thứ hai, họ nói chỉ tiêu thật sự có hạn, ngoài mặt thì tỏ vẻ áy náy, nhưng lời nói ra toàn là giọng quan liêu.
+Lần thứ hai, người ta nở nụ cười áy náy đầy khách sáo, rồi tuôn ra một tràng những lời lẽ quan cách sáo rỗng, chốt lại một câu chỉ tiêu năm nay quá hạn hẹp.
 
-Triệu Kim An ôm hy vọng hỏi một câu: "Vậy sang năm thì sao, sang năm có thể cho em một suất không?", người của Đoàn viện ngay cả một lời hứa hẹn như vậy cũng không cho, chỉ dùng những lời lấp liếm mơ hồ để đuổi khéo.
+Triệu Kim An ôm chút hy vọng mong manh hỏi vớt vát: "Thế còn năm sau ạ, năm sau thầy cô có thể ưu tiên dành cho em một suất được không?" Người của Đoàn khoa đến cả một lời hứa hẹn cũng chẳng buồn cho, chỉ dùng những lời lẽ nước đôi mập mờ để thoái thác cho qua chuyện.
 
-Hỏi điều kiện của Triệu Kim An có phù hợp không?
+Hỏi xem điều kiện hoàn cảnh của Triệu Kim An có đạt chuẩn không?
 
-Chắc chắn phù hợp!
+Chắc chắn là quá chuẩn!
 
-Cha mất sớm, mẹ đi bước nữa, trong nhà chỉ còn một mình bà nội già yếu.
+Cha mất sớm, mẹ đi bước nữa, trong nhà chỉ còn trơ trọi một người bà nội tuổi cao sức yếu.
 
-Thậm chí hắn còn phù hợp hơn một số sinh viên nhận được trợ cấp khác.
+Xét về độ khó khăn, cậu còn khổ hơn khối sinh viên sau đó được ẵm trọn suất trợ cấp kia.
 
-Triệu Kim An đến tận bây giờ vẫn còn nhớ rõ bộ mặt của người đó.
+Cho đến tận bây giờ, Triệu Kim An vẫn nhớ như in bộ mặt của người đàn ông tiếp nhận hồ sơ năm đó.
 
-Họ Hà, Hà Minh Huy, một gã đàn ông ngoài bốn mươi, bụng phệ như mang bầu.
+Hắn họ Hà, tên Hà Minh Huy, một gã đàn ông trạc tứ tuần, bụng phệ núng nính mỡ.
 
-Cũng không hẳn là hận!
+Cũng chẳng đến mức hận thù gì ghê gớm!
 
-Chỉ là từ khi đó, Triệu Kim An đối với trường học đã bớt đi một phần tình cảm, cũng không còn khái niệm "trường cũ" thân thương nữa.
+Chỉ là kể từ giây phút ấy trở đi, trong lòng Triệu Kim An đã vơi cạn đi sợi dây tình cảm gắn bó với ngôi trường này, trong từ điển của cậu cũng không còn tồn tại hai chữ "mái trường thân yêu" nữa.
 
-Dĩ nhiên, trường học cũng chẳng quan tâm hắn có tình cảm hay không. 99.9% sinh viên sau khi ra ngoài xã hội đều là người bình thường, được mấy người làm rạng danh trường lớp?
+Dĩ nhiên, nhà trường cũng chẳng mảy may bận tâm một sinh viên như Triệu Kim An có tình cảm sâu nặng với trường hay không. 99,9% sinh viên sau khi bước chân ra ngoài xã hội cũng chỉ là những người bình thường dung dị, được mấy ai làm rạng danh bảng vàng của trường?
 
-Hay là có thể quyên góp những khoản tiền lớn cho trường cũ?
+Hoặc giả có ai đủ giàu sang để quyên tặng hàng triệu tệ cho trường cũ?
 
-Rời khỏi văn phòng, Triệu Kim An cảm thấy có chút hụt hẫng. Hắn kể chuyện này cho Mộc Dao, không ngờ nàng trái lại còn khuyên hắn từ bỏ, bảo đừng đến Đoàn viện tìm người ta nữa.
+Bước ra khỏi văn phòng Đoàn khoa năm ấy, Triệu Kim An cảm thấy vô cùng hụt hẫng. Khi cậu tâm sự chuyện này với Mộc Dao, không ngờ Mộc Dao lại khuyên cậu nên từ bỏ đi, đừng phí công chạy lên Đoàn khoa làm gì nữa cho mệt người.
 
-Ngay giờ phút này.
+Ngay tại thời khắc này.
 
-Triệu Kim An đứng ở cửa phòng học, không có ý định ngồi xuống.
+Triệu Kim An đứng sừng sững ngay cửa lớp học, không hề có ý định bước vào tìm chỗ ngồi.
 
-Nếu kiếp trước khi cần đến mức đó mà vẫn không lấy được số tiền này, thì kiếp này việc gì phải chạy ngược chạy xuôi chuẩn bị giấy tờ chứng minh làm chi?
+Đã là kiếp trước khi khốn khó đến cùng cực còn chẳng nhận được một đồng trợ cấp, thì cớ sao kiếp này lại phải nhọc công chạy vạy khắp nơi xin từng con dấu, chuẩn bị từng tờ giấy chứng minh làm gì?
 
-Nghĩ đến đây, trong lòng Triệu Kim An rốt cuộc dâng lên một tia bực dọc, thầm nghĩ cho dù trường có chủ động "tặng" cho mình, mình cũng chẳng cần nữa.
+Nghĩ đến những chuyện xưa cũ, trong lòng Triệu Kim An bỗng dâng lên một luồng bực dọc ngấm ngầm. Cậu thầm nghĩ: Dẫu nhà trường có đem dâng tận tay "tặng không" cho tôi, tôi cũng chẳng thèm nhận nữa.
 
 "Triệu Kim An..."
 
-Không ngờ tia bực dọc này rơi vào mắt Lâm Thanh Tuyết, nàng lại tưởng Triệu Kim An cảm thấy xấu hổ trước mặt mình. Là bị lộ tẩy hoàn toàn rồi sao? Sợ tôi biết cậu là sinh viên nghèo à?
+Nào ngờ thoáng bực dọc lộ ra trên nét mặt cậu lại lọt trọn vào tầm mắt Lâm Thanh Tuyết. Cô nàng cứ ngỡ Triệu Kim An đang cảm thấy ngượng ngùng, xấu hổ trước mặt mình, ngỡ cậu cảm thấy tự ti vì thân phận nghèo khó đã bị phơi bày hoàn toàn trước bàn dân thiên hạ.
 
-"Kim An, ngồi đi!"
+"Kim An, vào ngồi đi chứ!"
 
-Lưu Sấm Phong vỗ vỗ vào chiếc ghế bên cạnh gọi lớn.
+Lưu Sấm Phong đưa tay vỗ vỗ vào chiếc ghế trống bên cạnh, cất tiếng gọi.
 
-Trong lớp.
+Bên trong phòng học.
 
-Ngoài Lưu Huy và ba cán bộ lớp, còn có 5 người khác.
+Ngoại trừ thầy Lưu Huy và ba cán sự lớp, còn có năm bạn sinh viên khác.
 
-Họ ngồi ngay ngắn, đồng loạt nhìn về phía Triệu Kim An.
+Họ ngồi ngay ngắn trên ghế, đồng loạt quay đầu nhìn chằm chằm vào Triệu Kim An.
 
-Đường Hiểu Tình xê dịch vị trí, ra hiệu cho Triệu Kim An ngồi xuống đây.
+Đường Hiểu Tình khẽ nhích người sang ghế bên cạnh, ra hiệu chỉ chỗ trống cho Triệu Kim An vào ngồi.
 
-Lưu Huy nhìn Triệu Kim An nói: "Yên tâm, sẽ không làm mất của các em mấy phút đâu. Thầy chỉ nói qua về việc các em cần chuẩn bị giấy tờ chứng minh gì, tài liệu càng đầy đủ càng tốt..."
+Lưu Huy đưa mắt nhìn Triệu Kim An, ôn tồn bảo: "Em yên tâm, thầy không làm mất nhiều thời gian của các em đâu. Thầy chỉ dặn dò một số giấy tờ hồ sơ cần thiết phải chuẩn bị, tài liệu càng đầy đủ, minh bạch thì tỷ lệ xét duyệt càng cao..."
 
-Triệu Kim An nhìn lướt qua những người trong phòng, cắt lời: "Em từ bỏ."
+Triệu Kim An quét mắt nhìn một lượt những gương mặt đang ngồi trong phòng, dứt khoát cắt ngang:
 
-"Em từ..."
+"Thưa thầy, em xin rút ạ."
 
-Lưu Huy đang nói hăng say, nhất thời không phản ứng kịp.
+"Em xin..."
 
-Phòng học yên tĩnh trong giây lát.
+Lưu Huy đang thao thao bất tuyệt bỗng nghẹn lời, nhất thời chưa kịp hiểu chuyện gì vừa xảy ra.
+
+Cả phòng học bỗng chốc rơi vào im lặng như tờ.
 
 "Kim An!"
 
-Lưu Sấm Phong nháy mắt điên cuồng với Triệu Kim An, đại khái là ám chỉ chúng ta cùng một ký túc xá, tôi là lớp phó sẽ giúp cậu.
+Lưu Sấm Phong nháy mắt lia lịa với Triệu Kim An, ý muốn ngầm nhắc: Chúng ta là anh em cùng phòng, tao làm lớp phó nhất định sẽ tìm cách nâng đỡ giúp mày.
 
-Dù không biết Lưu Sấm Phong có giúp được hay không, nhưng cái tình này Triệu Kim An vẫn ghi nhận.
+Bất kể Lưu Sấm Phong có thực sự giúp được hay không, Triệu Kim An vẫn ghi nhận tấm lòng này của cậu bạn.
 
-Lưu Huy nhắc nhở: "Triệu Kim An, một năm tối đa được hai ngàn tệ đấy, em không nộp giấy tờ chứng minh là chẳng có cơ hội nào đâu."
+Lưu Huy vội lên tiếng nhắc nhở: "Triệu Kim An, khoản trợ cấp này mỗi năm tối đa lên tới hai nghìn tệ đấy. Nếu em không nộp hồ sơ chứng minh thì sẽ không có lấy một cơ hội nào đâu."
 
-Triệu Kim An nhìn thẳng vào Lưu Huy, nói: "Em có tiền, thầy cứ để dành cho những người thực sự cần đi."
+Triệu Kim An ngẩng đầu nhìn thẳng vào mắt Lưu Huy, giọng điệu bình thản mà dứt khoát:
 
-"Các em? Các em nào?"
+"Em có tiền rồi. Suất này các thầy hãy để lại cho những bạn thực sự cần đến đi ạ."
 
-Lưu Huy sững sờ, không hiểu từ "các em" này có ý nghĩa gì.
+"Các thầy? Các thầy nào cơ?"
 
-Hơn nữa, ánh mắt của Triệu Kim An... dường như có chút khác biệt so với lúc huấn luyện quân sự.
+Lưu Huy ngẩn người ra, hoàn toàn không hiểu hàm ý sâu xa đằng sau hai chữ "các thầy" mà Triệu Kim An vừa thốt ra.
+
+Hơn nữa, ánh mắt của Triệu Kim An lúc này... dường như đã khác hẳn so với một cậu sinh viên rụt rè thời kỳ huấn luyện quân sự.

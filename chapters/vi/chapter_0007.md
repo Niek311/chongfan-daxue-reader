@@ -1,227 +1,225 @@
-# Chương 7: Unless tốt hơn... Liền rời đi.
+# Chương 7: Nếu sống không êm ấm... thì ly hôn đi
 
-"Kim An, chúng ta hôm nay kiếm lời hai trăm!"
+> **Tiêu đề gốc**: 第7章 如果不好过...就离了吧。
 
-Mặt trời chiều ngã về tây, gió thổi lên tóc dài, Triệu Chí Dũng nghiền một cái chân ga.
+"Kim An, hôm nay tụi mình kiếm được tròn hai trăm tệ đấy!"
 
-Hắn là táng yêu gia tộc một thành viên.
+Bóng chiều tà ngả dần về phía tây, ngọn gió hoàng hôn thổi tung mái tóc dài bồng bềnh, Triệu Trí Dũng khoái chí vặn mạnh tay ga.
 
-Đầu tóc vàng, liếc tóc cắt ngang trán che khuất một con mắt, xem người chỉ nhìn nửa cái loại kia.
+Cậu ta đích thị là một thành viên cốt cán của "Gia tộc Sát Thủ Ái Tình" đang làm mưa làm gió trong giới trẻ thời bấy giờ.
 
-Không nỡ tiền đi tiệm uốn tóc nhuộm tóc, hắn liền tự mình mua nhuộm tóc tề, bản thân cảm giác phá lệ suất.
+Đầu nhuộm tóc vàng hoe, phần mái cắt xéo dài thượt che kín một bên mắt, cái kiểu nhìn đời chỉ bằng nửa con mắt trông vừa ngông nghênh vừa buồn cười.
 
-Còn có một cái rất phong cách của nickname, dũng thiếu.
+Tiếc tiền không nỡ ra tiệm cắt tóc gội đầu để nhuộm, cậu ta bèn tự mua thuốc nhuộm rẻ tiền về nhà tự bôi lên đầu, trong lòng tự thấy bản thân phong trần và lãng tử ngời ngời.
 
-Lại thêm hôm nay kiếm lời hai trăm, tâm tình phá lệ tốt.
+Đã thế lại còn đặt một cái biệt danh trên mạng vô cùng kêu: Dũng Thiếu.
 
-"ngươi ngày mai đi lấy mái tóc cắt."Triệu Kim An nói.
+Cộng thêm việc hôm nay bỏ túi hai trăm tệ tiền tươi thóc thật, tâm trạng cậu chàng càng thêm phần phơi phới.
 
-"vì cái gì?"
+"Mai mày đi cắt quả đầu này đi nhé." Triệu Kim An ngồi phía sau cất tiếng.
 
-"ngươi cảm thấy đẹp không?"
+"Ủa sao vậy?"
 
-Kỳ thực không có trùng sinh mà nói, Triệu Kim An cũng sẽ không cảm thấy có cái gì, một thời đại một thế hệ đi.
+"Mày thấy đẹp chỗ nào à?"
 
-"ta ban đêm đem bình điện nạp điện kỹ, ngày mai buổi sáng đi trong sông thả trúc hỗ, đúng, trong nhà của ta còn có mấy bộ lưới đánh cá!"
+Thực ra nếu không phải người sống lại từ tương lai, Triệu Kim An cũng chẳng thấy có vấn đề gì to tát, mỗi thời mỗi khác, mỗi thế hệ lại có một gu thẩm mỹ riêng.
 
-Triệu Chí Dũng lớn tiếng nói:"ngày mai 2 0 cân cá thỏa thỏa của!"
+"Tối nay tao về sạc đầy bình ắc quy, sáng mai ra khúc sông đầu làng cắm dàn bẫy tre đón cá. À suýt quên, ở nhà tao vẫn còn mấy tấm lưới đánh cá nữa đấy!"
 
-"đừng nghĩ của tốt đẹp như vậy, ngươi cho rằng mỗi ngày có giá cả như vậy? Còn có, lớp trưởng ngày mai sẽ không tới chiếu cố làm ăn."
+Triệu Trí Dũng oang oang giọng át cả tiếng gió: "Ngày mai kiểu gì cũng tóm gọn hai mươi cân cá là cái chắc!"
 
-Triệu Kim An ngồi ở phía sau có chút khẩn trương, để Triệu Chí Dũng cưỡi chậm một chút, đừng quẹo trái quẹo phải da rắn chạy trốn.
+"Đừng có mơ mộng hão huyền. Mày tưởng ngày nào cũng bán được cái giá trên trời như hôm nay đấy à? Vả lại, ngày mai làm gì có lớp trưởng nào đến ủng hộ nữa đâu."
 
-"ha ha ha, chết cười rồi, bất quá cũng không có việc gì, 2 0 cân cá chắc là có thể bán 1 trăm nhiều a."
+Triệu Kim An ngồi sau xe có chút thót tim, vội vỗ vai nhắc Triệu Trí Dũng chạy chậm lại, đừng có lạng lách đánh võng hình chữ S như làm xiếc giữa đường làng nữa.
 
-Xem ra Triệu Chí Dũng bán cá có chút ghiền rồi, một ngày thu vào 1 trăm nhiều, so trong rất nhiều thành của dân đi làm kiếm còn nhiều.
+"Hahaha, buồn cười chết mất! Mà thôi chẳng sao, hai mươi cân cá kiểu gì chẳng kiếm được hơn một trăm tệ."
 
-Hồi nhỏ tại trong sông dùng tảng đá ngăn đón thủy, đồng thời ở giữa thấp một chút của vị trí thả miếng trúc tới bắt cá trang bị liền kêu"trúc hỗ."
+Xem chừng Triệu Trí Dũng đã bắt đầu nghiện cái nghề bán cá này rồi. Một ngày kiếm hơn một trăm tệ, tính ra còn cao hơn đồng lương của khối nhân viên văn phòng trên thành phố ấy chứ.
 
-Bắt được fishy; piscine lớn nhỏ từ miếng trúc khe hở lớn nhỏ tới quyết định, nhỏ lọt mất, lớn lưu lại, đơn giản lại thực dụng.
+Cái thứ mà cậu ta gọi là "bẫy tre" thực chất là một cách đánh bắt truyền thống từ thuở nhỏ: dùng đá xếp thành bờ kè ngăn dòng nước trên sông suối, rồi chừa một khoảng trũng ở giữa để đặt một tấm phên đan bằng nứa hoặc tre vót mỏng.
 
-"Kim An, cho tẩu tử bao nhiêu tiền?"
+Cá to hay nhỏ lọt vào bẫy phụ thuộc vào khoảng cách giữa các nan tre: cá con lọt qua khe bơi tiếp, cá to mắc lại trên phên, cách bắt này vừa đơn giản lại cực kỳ hiệu quả.
 
-"3 0."
+"Kim An này, đưa chị dâu bao nhiêu tiền ớt thế?"
 
-"hảo."
+"Ba mươi tệ."
 
-"tiền còn lại ta cầm trước."
+"Được."
 
-"hảo."
+"Chỗ tiền còn lại cứ để tao giữ trước."
 
-Một túi quả ớt có thể bán bao nhiêu tiền không biết, bất quá 3 0 chỉ nhiều không ít, Triệu Chí Dũng không ngại, Triệu Kim An càng thêm không ngại.
+"Ừ, nhất trí."
 
-Nếu có thể, hắn 3 0 khối tiền cũng không muốn trước tiên cho Doãn Hiểu Lan, hắn bây giờ đầy trong đầu của cúp thế giới.
+Một túi ớt xanh hái ngoài vườn bán được bao nhiêu tiền thì hai đứa chẳng rõ, nhưng đưa ba mươi tệ chắc chắn chỉ có thừa chứ không thiếu. Triệu Trí Dũng chẳng câu nệ tính toán, mà Triệu Kim An lại càng không so đo.
 
-Đến Triệu gia thôn đã nhanh 7 điểm, không nghỉ mát heavenly 7 điểm, trời vẫn còn sáng choang, từ lớn đường cái rẽ một cái đi qua một cái lại dài lại đột ngột của sườn dốc đã đến Triệu gia thôn.
+Nếu có thể, ba mươi tệ này anh thậm chí còn chẳng muốn đưa ngay cho Doãn Hiểu Lan lúc này, bởi trong đầu anh bây giờ toàn là những toan tính về giải bóng đá World Cup.
 
-Tại cửa thôn đi qua một gia đình, hẳn là ăn xong cơm tối rồi, có cái nữ sinh chuyển cái ghế dựa ngồi ở phía trước bãi hóng mát, trong tay nâng điện thoại hẳn là tại gửi tin tức.
+Về đến thôn Triệu Gia thì trời đã ngót nghét bảy giờ tối. Nhưng mùa hè ngày dài đêm ngắn, bảy giờ trời vẫn còn sáng tỏ. Rẽ từ đường cái lớn vào, vượt qua một con dốc dài và khúc khuỷu là đã tiến vào địa phận thôn Triệu Gia.
 
-"Bác Lan tỷ, ăn cơm chưa?"
+Đi ngang qua một ngôi nhà ở đầu làng, có lẽ gia chủ đã dùng xong bữa tối. Một cô gái trẻ đang kéo chiếc ghế tựa ra ngồi hóng mát trước sân, tay chăm chú bấm bàn phím điện thoại nhắn tin.
 
-Triệu Chí Dũng chậm dần tốc độ xe lớn tiếng hỏi.
+"Chị Bác Lan, ăn cơm chưa chị?"
 
-Đây là nông thôn thường thấy nhất khách sáo gọi.
+Triệu Trí Dũng hãm ga đi chậm lại, cất giọng gọi to.
 
-"ăn rồi ~"
+Đó là câu chào hỏi cửa miệng quen thuộc nhất ở chốn thôn quê.
 
-"chờ chúng ta cơm nước xong lại tới tìm ngươi chơi."
+"Chị ăn rồi nhé~"
 
-"hảo."
+"Lát tụi em ăn xong chạy qua nhà chị chơi nha!"
 
-"Bác Lan tỷ, ta cùng Kim An cũng muốn đi quận trên cát đại học!"
+"Ừ, qua đi."
 
-"ta biết, chúc mừng các ngươi a."
+"Chị Bác Lan ơi, em với Kim An sắp lên Quận Sa học đại học rồi đấy!"
 
-Triệu Bác lan mặc một đầu quần trắng, hai chân rất không thục nữ đắp phía trước bãi tảng đá hàng rào, nàng để điện thoại di động xuống ngẩng đầu lười biếng lại ôn nhu trả lời.
+"Chị biết rồi, chúc mừng hai đứa nhé."
 
-Triệu gia thôn nói lớn không lớn, nói nhỏ không nhỏ, có 6 0 0 nhiều gia đình.
+Triệu Bác Lan vận một chiếc váy trắng tinh khôi, hai chân gác lên bờ lan can đá trước sân một cách hết sức tự nhiên, chẳng chút giữ kẽ. Cô đặt điện thoại xuống, ngẩng đầu mỉm cười đáp lại, giọng nói vừa lười biếng lại vừa dịu dàng.
 
-Triệu Bác lan so Triệu Kim An cùng Triệu Chí Dũng lớn hai tuổi, Triệu gia thôn chỉ có tiểu học, bên trên sơ trung liền muốn kết bạn đi bộ nửa giờ rồi.
+Thôn Triệu Gia nói lớn không lớn, nói nhỏ không nhỏ, quy tụ hơn sáu trăm hộ gia đình.
 
-Cho nên, hồi nhỏ mỗi ngày đều kết bạn trên dưới học, thẳng đến lên cấp ba mới có nam nữ khác biệt.
+Triệu Bác Lan lớn hơn Triệu Kim An và Triệu Trí Dũng hai tuổi. Làng Triệu Gia chỉ có trường tiểu học, lên cấp hai thì cả đám trẻ con trong xóm phải rủ nhau đi bộ ròng rã nửa tiếng đồng hồ mới tới trường.
 
-Triệu Chí Dũng nói Triệu Bác lan là trong thôn nữ hài xinh đẹp nhất.
+Bởi vậy, từ thuở ấu thơ ngày nào bọn họ cũng cùng nhau đi học cùng nhau về làng, mãi đến khi bước chân vào cấp ba mới bắt đầu có ý thức ngượng ngùng giữ khoảng cách nam nữ.
 
-Chân trời còn có một tia lưu lại ráng đỏ, một màn này rơi vào Triệu Kim An trong mắt, nhớ lại dần dần bổ khuyết, có một loại mây bên cạnh có cái quầy bán quà vặt của cảm giác.
+Triệu Trí Dũng luôn khẳng định chắc nịch rằng Triệu Bác Lan là cô gái xinh đẹp nhất của cả cái làng này.
 
-Cưỡi lên một cái dốc nhỏ, Triệu Chí Dũng xe gắn máy từ biệt, phóng tới bên cạnh Doãn Hiểu Lan nhà của phòng bếp.
+Nơi chân trời xa xa vẫn còn sót lại một vệt ráng chiều đỏ rực như lửa cháy. Cảnh tượng thanh bình ấy thu trọn vào đáy mắt Triệu Kim An, từng mảnh ký ức vụn vỡ dần được lấp đầy, mang lại một cảm giác bồi hồi như bước ra từ trang sách thanh xuân.
 
-"Kim An, các ngươi trở về!?"
+Chiếc xe máy leo lên một con dốc nhỏ rồi quẹo ngoắt một cái, lao thẳng về phía gian bếp nhà Doãn Hiểu Lan ở sát vách.
 
-Ngay sau đó lại nghe được Doãn Hiểu Lan khách khí nhún nhường của âm thanh.
+"Kim An, hai đứa về rồi đấy à?!"
 
-"chí dũng, ngươi như thế nào cho ta nhiều tiền như vậy, không cần, không cần, các ngươi cầm!"
+Ngay sau đó là tiếng chối từ đầy khách khí của Doãn Hiểu Lan vang lên:
 
-Có thể Doãn Hiểu Lan thật không có định thu tiền.
+"Trí Dũng, sao em lại đưa chị nhiều tiền thế này? Không lấy đâu, không lấy đâu, hai đứa cứ cầm lấy mà tiêu!"
 
-Dù sao mình trồng quả ớt ăn không hết nát vụn trong đất cũng là lãng phí.
+Có lẽ Doãn Hiểu Lan thực sự chưa từng nghĩ đến chuyện lấy tiền.
 
-Triệu Kim An cười cười, đi vào own nhà chính, vòng vào đi xoa đem nước lạnh khuôn mặt, nhìn xem trong gương chính mình.
+Dù sao ớt nhà trồng ăn không hết để chín rụng thối ngoài ruộng cũng thành lãng phí.
 
-1 8 tuổi khuôn mặt, giọt nước trượt xuống, sạch sẽ, sóng mũi cao, da thịt trắng noãn, thuần túy, liền trong đôi mắt đều lộ ra một loại sinh viên của ngu xuẩn hòa thanh triệt.
+Triệu Kim An mỉm cười, bước vào gian nhà chính của nhà mình. Anh vòng ra sau múc gáo nước lạnh rửa mặt cho tỉnh táo, rồi ngước nhìn hình bóng mình trong gương.
 
-"ngươi tốt nha, Triệu Kim An."
+Gương mặt tuổi mười tám tràn đầy sức sống, những giọt nước mát lạnh lăn dài trên làn da trắng trẻo, sống mũi cao thẳng, đường nét thanh tú và thuần khiết, ngay cả trong ánh mắt cũng toát lên vẻ ngây ngô, trong trẻo đặc trưng của lứa tuổi học sinh chuẩn bị bước vào giảng đường đại học.
 
-Triệu Kim An hướng về phía trong gương chính mình cười cười:"thật cao hứng gặp lại ngươi."
+"Chào cậu nhé, Triệu Kim An."
 
-"Kim An, ăn cơm đi!"
+Triệu Kim An nhìn bóng mình trong gương khẽ mỉm cười: "Rất vui được gặp lại cậu."
 
-Lúc này bên ngoài truyền đến hàm hàm hồ hồ âm thanh, Triệu Chí Dũng đã bưng lên bát đang cơm khô rồi.
+"Kim An ơi, ăn cơm thôi!"
 
-Triệu Kim An thu thập xong tâm tình đi ra, tại cửa chính gặp được rất lâu không gặp mặt của nãi nãi, hắn ngẩn ra một chút có chút hoảng hốt.
+Bên ngoài vọng vào tiếng gọi ồm ồm chẳng rõ lời, Triệu Trí Dũng đã sớm bưng bát cơm to tướng lên và cật lực và lấy và để.
 
-"nãi nãi ~"
+Triệu Kim An chỉnh đốn lại cảm xúc rồi bước ra ngoài. Ngay trước cửa lớn, anh bắt gặp bà nội đã lâu năm không gặp trong ký ức. Anh sững người, thoáng chốc rơi vào cảm giác ngỡ ngàng, hư ảo.
 
-"ài."
+"Bà nội..."
 
-Nãi nãi mắt nhìn cháu trai gật gật đầu:"đi tẩu tử ngươi nhà ăn cơm?"
+"Ơi."
 
-"ân — —"
+Bà nội nhìn đứa cháu trai yêu quý, khẽ gật đầu: "Sang nhà chị dâu cháu ăn cơm à?"
 
-Triệu Kim An cái mũi có chút chua, âm thanh buồn buồn.
+"Dạ..."
 
-Nãi nãi lại gật đầu một cái, tiếp đó khom người đi adjoining; septal phòng bếp.
+Sống mũi Triệu Kim An cay cay, giọng nói nghẹn lại nơi cổ họng.
 
-Nhìn xem nãi nãi bóng lưng, Triệu Kim An do dự một hồi, vượt qua một đầu khe nước, đi bên cạnh Doãn Hiểu Lan nhà.
+Bà nội gật đầu thêm một cái, rồi lưng còng còng chậm rãi bước về phía gian bếp nhỏ phía sau.
 
-"Kim An, các ngươi như thế nào cho ta 3 0 khối tiền?"
+Dõi mắt nhìn theo bóng lưng gầy guộc của bà, Triệu Kim An chần chừ trong giây lát, rồi bước qua con rãnh nước nhỏ ngăn cách, đi sang gian nhà bên của Doãn Hiểu Lan.
 
-"còn có, nghe chí dũng nói các ngươi bán 2 một trăm khối tiền?"
+"Kim An, sao tự nhiên lại đưa chị tận ba mươi tệ thế?"
 
-Doãn Hiểu Lan cho Triệu Kim An đựng rất lớn một bát cơm, là loại kia rất lớn bát, nhóm bếp chỉ có hai cái thái, một cái rau quả, một bát rất lớn quả ớt xào cá.
+"Mà này, nghe thằng Dũng bảo hai đứa bán được những hai trăm tệ cơ à?"
 
-Quả ớt xào cá, thả điểm hoa tiêu dầu, rất mỹ vị.
+Doãn Hiểu Lan xới cho Triệu Kim An một bát cơm đầy ắp — loại bát tô to đùng ở quê. Trên bệ bếp chỉ bày biện vỏn vẹn hai món: một đĩa rau luộc và một tô lớn cá sông xào ớt thơm lừng.
 
-Doãn Hiểu Lan tài nấu nướng rất tốt, kỳ thực cái niên đại này nông thôn nữ nhân trù nghệ đều có thể, không phải vậy có thể sẽ lọt vào bà bà của ghét bỏ.
+Món cá suối xào ớt chỉ cần rưới thêm chút dầu hoa tiêu là dậy mùi thơm ngào ngạt, vô cùng đưa cơm.
 
-Không giống hậu thế, xuống bếp hơn là nam nhân.
+Tay nghề nấu nướng của Doãn Hiểu Lan rất khéo léo. Thực ra phụ nữ thôn quê thời kỳ này ai nấy đều thạo việc bếp núc, nếu không khéo tay rất dễ bị mẹ chồng chê trách.
 
-"Kim An, nhiều kẹp gọi món ăn."
+Chẳng bù cho thời sau này, người đứng bếp trong nhà phần lớn lại là đàn ông.
 
-Doãn Hiểu Lan cũng bưng một cái chén lớn, tại bếp lò bên cạnh cho Triệu Kim An gắp thức ăn.
+"Kim An, gắp nhiều thức ăn vào nhé em."
 
-Tại nông thôn không có"công đũa"ý thức, không có cái gì vệ sinh không vệ sinh.
+Doãn Hiểu Lan cũng bưng một chiếc bát to, đứng bên cạnh bếp không ngừng gắp thức ăn bỏ vào bát cho Triệu Kim An.
 
-Gắp thức ăn là một loại bảo vệ của tình cảm biểu đạt.
+Ở nông thôn thời ấy người ta chẳng có thói quen dùng "đũa chung", cũng chẳng ai câu nệ chuyện vệ sinh hay không vệ sinh.
 
-Doãn Hiểu Lan gả tới hai năm rất bảo vệ bên cạnh cái này dáng dấp đẹp trai thành tích học tập lại tốt của đệ đệ, Triệu Kim An cao trung học dừng chân, một tháng mới về nhà một chuyến.
+Việc gắp thức ăn cho nhau chính là cách thể hiện tình cảm yêu thương, chăm sóc chân thành và mộc mạc nhất.
 
-Nghỉ đông, nghỉ hè muốn học bù, bất quá chỉ cần Triệu Kim An trở về Doãn Hiểu Lan đều sẽ gọi hắn tới dùng cơm.
+Doãn Hiểu Lan về làm dâu ở đây được hai năm, rất mực quý mến cậu em họ hàng sát vách vừa khôi ngô tuấn tú lại vừa học hành giỏi giang này. Thời cấp ba Triệu Kim An học nội trú trên huyện, cả tháng mới về nhà một lần.
 
-"tẩu tử, chúng ta ngày mai mua chút thịt trở về!"
+Những kỳ nghỉ đông, nghỉ hè dù phải đi học thêm bù đầu, nhưng hễ thấy Triệu Kim An về làng là Doãn Hiểu Lan lại đon đả gọi anh sang ăn cơm.
 
-Triệu Chí Dũng ngồi xổm ở bên ngoài dưới mái hiên miệng lớn lùa cơm.
+"Chị dâu ơi, ngày mai tụi em mua ít thịt ngon về nhé!"
 
-Đối với tương nam mà nói, ớt xanh xào thịt cũng là nhất tuyệt.
+Triệu Trí Dũng ngồi xổm dưới mái hiên ngoài sân, miệng ngồm ngoàm nhai cơm ngon lành.
 
-"tốt."
+Đối với người dân xứ Tương Nam, món thịt heo xào ớt hiểm xắt lát cũng là một tuyệt phẩm trần gian.
 
-Doãn Hiểu Lan không có cự tuyệt.
+"Được chứ." Doãn Hiểu Lan vui vẻ nhận lời ngay.
 
-"ngươi là dự định ở đây xác định vị trí ăn cơm không?"
+"Mày tính cắm chốt ăn chực ở đây luôn đấy à?"
 
-Triệu Kim An bưng bát đi ra, Triệu Chí Dũng da mặt dày:"a, tẩu tử tài nấu nướng giỏi, ngược lại cha mẹ ta cũng không để ý ta."
+Triệu Kim An bưng bát cơm bước ra hiên. Triệu Trí Dũng mặt dày cười hì hì: "Hề hề, tại chị dâu nấu ăn ngon quá mà, đằng nào bố mẹ tao ở nhà cũng có thèm quản tao đâu."
 
-"là biết đói cũng không đến phiên ngươi đi?"
+"Biết mày không chết đói được chứ gì?"
 
-"ha ha."
+"Chuẩn luôn!"
 
-Triệu Chí Dũng không có nuông chiều từ bé, về nhà chậm liền đồ ăn thừa cơm thừa đối phó một bữa, chính là nuôi rất qua loa.
+Triệu Trí Dũng từ bé đã không được nuông chiều, về nhà muộn thì cứ cơm nguội canh thừa mà giải quyết cho xong bữa, cách nuôi dạy con cái ở quê vốn dĩ xuề xòa, phong trần như thế.
 
-Triệu Kim An lưu ý một hồi không có phát giác đường ca, Triệu Chí Dũng hỏi đầy miệng, Doãn Hiểu Lan chỉ nói hắn vẫn chưa về, đại khái đã thành thói quen.
+Triệu Kim An để ý quan sát một hồi lâu nhưng không thấy bóng dáng người anh họ Triệu Vĩ đâu. Triệu Trí Dũng buột miệng hỏi một câu, Doãn Hiểu Lan chỉ nhẹ giọng bảo anh ấy vẫn chưa về, giọng điệu bình thản như thể chuyện này đã trở thành thói quen thường nhật.
 
-Cơm nước xong xuôi Triệu Chí Dũng liền cưỡi mô-tô trở về, Triệu Kim An cũng cầm cái ghế dựa đi ra ngồi ở phía trước bãi, hai chân khoác lên phía trước bãi của tảng đá trên hàng rào.
+Cơm nước xong xuôi, Triệu Trí Dũng nổ máy xe phóng về nhà. Triệu Kim An cũng kéo một chiếc ghế mây ra đặt trước sân, hai chân gác lên bờ lan can đá ngắm nhìn màn đêm buông xuống.
 
-Một lát sau Doãn Hiểu Lan rửa xong bát đĩa đi ra, đứng tại Triệu Kim An của bên cạnh.
+Một lát sau, Doãn Hiểu Lan rửa bát xong xuôi bước ra sân, đứng lặng bên cạnh chỗ Triệu Kim An ngồi.
 
-"Kim An...."
+"Kim An này..."
 
-"ân?"
+"Dạ?" Triệu Kim An ngước nhìn lên.
 
-Triệu Kim An ngẩng đầu.
+Doãn Hiểu Lan ngập ngừng xoa xoa hai bàn tay vào vạt áo, rồi móc từ trong túi ra một xấp tiền gồm đủ các mệnh giá lớn nhỏ gộp lại.
 
-Doãn Hiểu Lan xoa xoa đôi bàn tay, móc túi ra rất nhiều tiền, có lẻ có cả.
+"Cho em này."
 
-"cho ngươi."
+"Chuyện gì thế chị dâu?"
 
-"thế nào? Tẩu tử."
+"Ba trăm tệ."
 
-"3 trăm."
+Doãn Hiểu Lan vóc người nhỏ nhắn, chỉ cao tầm một mét năm mươi sáu, trông dáng vẻ rất đỗi mảnh mai, hiền thục. Tờ tiền nằm ngoài cùng của xấp tiền là một tờ năm mươi tệ đã cũ.
 
-Doãn Hiểu Lan 1 5 6 của kích thước, nhìn thật sự rất nhỏ nhắn xinh xắn, tiền trong tay phía ngoài cùng một trương là 5 0 của.
+Chị khẽ nói: "Kim An, em thi đại học xong rồi thì cầm lấy tiền này mà đi chơi bời với bạn bè cho thoải mái."
 
-Nàng nói:"Kim An, ngươi đã thi trường ĐH xong liền cùng các bạn học đi ra ngoài chơi một chút."
+Nhìn Triệu Kim An ngồi thừ người trước hiên nhà không có việc gì làm, tuổi tác hai người lại sàn sàn như nhau, Doãn Hiểu Lan đương nhiên thấu hiểu tâm lý của những người trẻ tuổi sau khi vừa trải qua kỳ thi đại học cam go.
 
-Nhìn thấy Triệu Kim An ngồi ở cửa không có việc gì, hai người tuổi tác không kém nhiều, Doãn Hiểu Lan tự nhiên hiểu người trẻ tuổi thi đại học sau là gì tình huống.
+Bà nội từ trong nhà bước ra nhìn một thoáng, rồi lại còng lưng lọ mọ quay vào gian bếp.
 
-Nãi nãi đi ra nhìn một hồi, lại khom người run run rẩy rẩy tiến vào phòng bếp.
+Doãn Hiểu Lan tuy mang danh là chị dâu, nhưng quan hệ họ hàng cũng chỉ bắn đại bác mới tới qua một đời cụ cố chung, xét theo lẽ thường chị chẳng có nghĩa vụ phải đối xử tốt và bao bọc Triệu Kim An đến nhường này.
 
-Doãn Hiểu Lan là tẩu tử, bất quá là một cái thái gia gia nhấc lên của quan hệ, theo lý thuyết nàng không có nghĩa vụ đối với Triệu Kim An tốt như vậy.
+Triệu Kim An không từ chối, bởi lúc này anh thực sự đang rất cần tiền mặt.
 
-Triệu Kim An không có cự tuyệt, hắn bây giờ đang cần tiền.
+Không có vốn liếng trong tay, dẫu có biết trước toàn bộ kết quả của World Cup thì cũng chỉ là vô nghĩa.
 
-Không có tiền, coi như biết cúp thế giới của kết quả cũng không có ý nghĩa.
+"Chị dâu, mấy hôm nữa em gửi lại chị nhé."
 
-"tẩu tử, ta qua mấy ngày trả lại cho ngươi."
+"Không cần đâu, nếu em muốn trả thì đợi sau này tốt nghiệp đại học, đi làm kiếm ra tiền rồi hẵng tính."
 
-"không cần, ngươi phải trả liền chờ ngươi tốt nghiệp đại học tìm được việc làm trả lại."
+Cả hai người bỗng rơi vào khoảng lặng im ắng. Một người ngồi tựa lưng vào ghế mây, một người đứng lặng bên lan can.
 
-Hai người rơi vào trầm mặc, một cái ngồi, một cái trạm.
+Vệt ráng đỏ cuối cùng nơi chân trời xa xăm cũng đã hoàn toàn lụi tàn.
 
-Chân trời cuối cùng một tia ráng đỏ cũng đã biến mất.
+Một làn gió đêm mát rượi thổi qua rặng cây, mang theo hương thơm ngai ngái của bùn đất và rơm rạ, dễ chịu đến lạ thường.
 
-Một trận gió phất qua, gió đêm phơ phất, rất mát mẻ.
+Ở vùng thôn quê nơi đây, mùa hè chẳng cần đến máy lạnh, ban đêm thậm chí quạt máy cũng chẳng phải bật.
 
-Ở chỗ này nông thôn, mùa hè không cần điều hoà không khí, ban đêm quạt đều không cần mở.
+Từ cánh đồng lúa xanh mướt phía trước vọng lại tiếng ếch nhái râm ran hòa tấu, từng đốm đèn vàng vọt trong các nếp nhà dần dần thắp sáng, sưởi ấm cả một góc thôn Triệu Gia.
 
-Trước mặt trong ruộng lúa còn có con ếch tiếng kêu truyền đến, từng chiếc từng chiếc hoàng hôn ánh đèn sáng lên, thắp sáng Triệu gia thôn.
+Người anh họ Triệu Vĩ đến giờ vẫn chưa thấy tăm hơi đâu. Triệu Kim An bỗng ngẩng đầu lên, cất tiếng gọi khẽ: "Chị dâu."
 
-Đường ca Triệu Vĩ vẫn chưa về, Triệu Kim An đột nhiên ngẩng đầu hô:"tẩu tử."
+"Ơi em?"
 
-"ân?"
+Doãn Hiểu Lan cúi đầu, nhìn xuống cậu em trai đang ngồi trên ghế mây, một gương mặt điển trai, thanh tú và dường như lúc nào cũng ngoan ngoãn, hiểu chuyện.
 
-Doãn Hiểu Lan cúi đầu, nhìn xem trên ghế đệ đệ, một trương sạch sẽ suất khí lại tựa hồ rất"nghe lời"của khuôn mặt.
+"Nếu cuộc sống không êm ấm... thì ly hôn đi chị."
 
-"unless tốt hơn..... Liền rời đi."
-
-Hắn burst out câu dạng này
+Anh bất chợt thốt ra một câu như thế.

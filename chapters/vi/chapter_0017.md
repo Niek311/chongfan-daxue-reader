@@ -1,225 +1,227 @@
-# Chương 17: Đòn Tâm Lý Từ Mẹ Vợ Tương Lai
+# Chương 17: Màn "thao túng tâm lý" của mẹ vợ tương lai (1)
+
+> **Tiêu đề gốc**: 第17章 来自“准岳母娘”的PUA，1
 
 Khách sạn Hùng Hưng.
 
-Phía dưới là một con sông rộng lớn, tại một phòng bao trên tầng hai.
+Phía dưới tòa khách sạn là một dòng sông rộng lớn, êm đềm trôi. Cuộc hẹn diễn ra tại một phòng bao riêng biệt trên tầng hai.
 
-Mộc Nhân Cường và Trương Tuệ, cùng một người đàn ông và một người phụ nữ trông có vẻ hơi trẻ, diện mạo có vài phần giống với Trương Tuệ.
+Bên trong có Mộc Nhân Cường, Trương Tuệ, cùng một người đàn ông trung niên và một người phụ nữ trông trẻ trung hơn, đường nét khuôn mặt có vài phần hao hao Trương Tuệ.
 
-Trương Vân Thiến, dì nhỏ của Mộc Dao.
+Người phụ nữ đó là Trương Vân Thiến, dì út của Mộc Dao.
 
-Người đàn ông trung niên là Mộc Nhân Quân, bác của Mộc Dao.
+Còn người đàn ông trung niên là Mộc Nhân Quân, bác ruột của cô.
 
-Kiếp trước, Trương Vân Thiến quay về Quận Sa vào đúng ngày này, lần này nghe nói cháu gái đã có bạn trai nên muốn gặp mặt một chút.
+Ở kiếp trước, đúng vào ngày hôm nay Trương Vân Thiến mới từ Quận Sa trở về. Lần này vừa nghe tin cháu gái cưng đã có bạn trai, bà liền nằng nặc đòi đi theo để xem mặt mũi cậu chàng thế nào.
 
-Mộc Dao nấp ở cửa gọi điện thoại xong, khi đi vào thì cúi đầu như một đứa trẻ làm sai chuyện.
+Mộc Dao nép ngoài hành lang gọi điện xong xuôi mới rụt rè bước vào phòng, đầu cúi gằm như một đứa trẻ vừa phạm phải lỗi lầm tày đình.
 
-"Mộc Dao à, bạn trai cháu sắp đến chưa?"
+"Mộc Dao này, bạn trai cháu sắp tới chưa đấy?"
 
-Trương Vân Thiến mở miệng hỏi.
+Trương Vân Thiến cất giọng hỏi trước.
 
-"Vâng."
+"Dạ rồi ạ."
 
-Mộc Dao khẽ đáp một tiếng, tìm một vị trí ngồi xuống.
+Mộc Dao lí nhí đáp một tiếng, rồi rụt rè tìm một chiếc ghế trống ngồi xuống.
 
-Trương Vân Thiến và Trương Tuệ liếc nhau một cái, việc Mộc Dao vẫn chưa cùng Triệu Kim An đi khách sạn là điều khiến bọn họ cảm thấy may mắn trong lòng.
+Trương Vân Thiến và Trương Tuệ liếc nhìn nhau một cái. Trong lòng hai người phụ nữ đều thầm thở phào nhẹ nhõm khi biết Mộc Dao vẫn chưa từng cùng Triệu Kim An đi khách sạn hay vượt quá giới hạn.
 
-Sau khi dò hỏi gia cảnh của Triệu Kim An, Trương Tuệ đã hạ một định nghĩa cho Mộc Dao: không có mắt nhìn!
+Sau khi dò la cặn kẽ về hoàn cảnh gia đình của Triệu Kim An, Trương Tuệ đã ngấm ngầm dán cho con gái mình một cái nhãn: Thiếu mắt nhìn người!
 
-Đây đều là cái gì với cái gì chứ.
+Thật chẳng ra làm sao cả.
 
-Trương Vân Thiến cũng hạ một định nghĩa cho Triệu Kim An: trai nhà nghèo vượt khó!
+Còn Trương Vân Thiến thì thẳng thừng gắn cho Triệu Kim An cái mác: Kẻ hám danh muốn đổi đời nhờ bám váy đàn bà!
 
-"Mộc Dao, hôm qua cháu đến nhà cậu ta, bà nội cậu ta lì xì cho cháu bao nhiêu?"
+"Mộc Dao, hôm qua cháu về bên nhà cậu ta, bà nội cậu ta mừng tuổi cho cháu bao nhiêu tiền bao đỏ thế?"
 
-Trương Vân Thiến cố ý hỏi.
+Trương Vân Thiến cố ý đá xoáy một câu.
 
-"Không có, chúng cháu chỉ lấy danh nghĩa bạn học thôi..."
+"Dạ không có... bọn cháu chỉ về chơi với danh nghĩa bạn cùng lớp thôi ạ..."
 
-Mộc Dao giải thích.
+Mộc Dao vội vàng thanh minh.
 
-"Cộc, cộc."
+"Cốc, cốc."
 
-Lúc này phục vụ gõ cửa đi vào hỏi có muốn gọi món không.
+Đúng lúc này, nhân viên phục vụ khẽ gõ cửa bước vào, lịch sự hỏi xem mọi người đã muốn gọi món hay chưa.
 
-Mộc Nhân Cường vừa giơ tay lên.
+Mộc Nhân Cường vừa toan giơ tay.
 
-Trương Vân Thiến đã ngăn lại, nói với phục vụ chờ một chút, đợi người đến đông đủ đã.
+Trương Vân Thiến đã nhanh chóng xua tay ngăn lại, bảo phục vụ lát nữa hãy quay lại, đợi người đến đông đủ rồi mới gọi.
 
-Một lúc sau, từ hành lang ngoài cửa truyền đến tiếng bước chân, Mộc Dao đứng dậy, nàng biết là Triệu Kim An đã tới.
+Một lát sau, ngoài hành lang vang lên tiếng bước chân vững chãi. Mộc Dao lập tức đứng bật dậy, cô biết người đến là Triệu Kim An.
 
-"Kim An, ở đây!"
+"Kim An, bên này!"
 
-Thấy Triệu Kim An không mặc quần đùi đi tông lảo, tâm trạng treo lơ lửng của Mộc Dao thả lỏng được một nửa. Triệu Kim An đứng ở cửa rất tự nhiên, hắn vốn quen biết Trương Vân Thiến ở Quận Sa.
+Nhìn thấy Triệu Kim An không mặc quần đùi xỏ dép tông lẹt quẹt, tảng đá đè nặng trong lòng Mộc Dao mới vơi đi được một nửa. Triệu Kim An thản nhiên đứng ở cửa phòng bao, cậu vốn dĩ đã quen biết người dì Trương Vân Thiến đang làm ăn ở Quận Sa từ kiếp trước.
 
-Chỉ có Mộc Nhân Quân là lần đầu gặp mặt.
+Chỉ có Mộc Nhân Quân là cậu mới giáp mặt lần đầu tiên.
 
-Người phụ nữ Trương Vân Thiến này nói thế nào nhỉ?
+Nói về người phụ nữ Trương Vân Thiến này, phải nhận xét thế nào đây?
 
-Một người phụ nữ có ngoại hình khá ổn, rất biết cách ăn diện, làm kinh doanh mỹ phẩm ở Quận Sa, cũng gọi là có chút tiền.
+Một người đàn bà nhan sắc bậc trung nhưng cực kỳ sành sỏi trong khoản ăn diện chải chuốt, buôn bán mỹ phẩm ở Quận Sa, nói chung cũng có chút tiền của dắt lưng.
 
-Ngay tại cửa, Triệu Kim An đã phát hiện ra chiếc túi LV trên bàn, đặt ở đó với cơ man là logo, muốn không phát hiện cũng khó.
+Ngay từ ngoài cửa, Triệu Kim An đã tinh mắt nhận ra chiếc túi xách Louis Vuitton đặt chình ình trên mặt bàn ăn. Cố tình phơi ra giữa bàn, chi chít hoa văn logo đặc trưng, muốn không để ý cũng khó.
 
-Còn có một chiếc chìa khóa xe, BMW.
+Bên cạnh chiếc túi là một chiếc chìa khóa xe hơi mang biểu tượng BMW.
 
-Nên nói là hai chiếc mới đúng, trước mặt Mộc Nhân Cường cũng bày một chiếc chìa khóa xe, Volkswagen.
+Đúng hơn là có tới hai chiếc chìa khóa. Trước mặt Mộc Nhân Cường cũng đặt một chiếc chìa khóa xe mang logo Volkswagen.
 
-Vào năm 2006, xe hơi cá nhân vẫn chưa phổ biến, đó là thứ đáng để khoe khoang.
+Vào năm 2006, xe hơi cá nhân vẫn chưa hề phổ biến rộng rãi, đó quả thực là một món tài sản vô cùng đáng giá để người ta đem ra phô trương, khoe mẽ.
 
-Bọn họ đương nhiên không chỉ đơn thuần là muốn khoe khoang nông cạn như vậy, Triệu Kim An cười thầm trong lòng, rất lễ phép đi theo Mộc Dao chào hỏi mọi người.
+Tất nhiên, mục đích của họ đâu chỉ nông cạn dừng lại ở việc khoe khoang đơn thuần. Triệu Kim An thầm cười nhạt trong lòng, vô cùng lễ phép theo Mộc Dao cất tiếng chào hỏi từng người một.
 
-"Kim An, đây là bố mẹ mình..."
+"Kim An, đây là bố mẹ tớ..."
 
-"Cháu chào chú dì, chào bác, chào dì ạ."
+"Cháu chào chú, chào dì ạ. Cháu chào bác, chào dì út."
 
-Mộc Dao khuấy động bầu không khí, kéo chiếc ghế bên cạnh mình ra để Triệu Kim An ngồi xuống.
+Mộc Dao muốn khuấy động bầu không khí bớt phần căng thẳng, vội vàng kéo chiếc ghế trống bên cạnh ra cho Triệu Kim An ngồi.
 
-Triệu Kim An liếc mắt thấy chiếc túi đặt trên ghế bên cạnh Trương Tuệ, Gucci, đột nhiên rất muốn cười.
+Triệu Kim An liếc mắt qua, lập tức bắt gặp chiếc túi Gucci đặt trên chiếc ghế bên cạnh Trương Tuệ, suýt chút nữa bật cười thành tiếng.
 
-Kiếp trước, Triệu Kim An mười tám tuổi không biết Gucci là gì, tại quán cà phê Bonte, Trương Tuệ đặt túi trên bàn hắn cũng không biết mặt hàng.
+Ở kiếp trước, Triệu Kim An năm mười tám tuổi làm sao biết được Gucci là cái giống gì. Tại quán cà phê Bonte năm ấy, dẫu Trương Tuệ có cố tình đặt chiếc túi lên bàn thì cậu cũng chẳng tài nào nhận biết được món hàng hiệu đắt đỏ ấy.
 
-Chuyện này thực sự không trách Triệu Kim An được, một người chưa từng rời khỏi Sâm Châu, chưa từng tiếp xúc với hàng xa xỉ, bạn có thể trông đợi hắn có "kiến thức" gì chứ?
+Chuyện này thực sự chẳng thể trách Triệu Kim An được. Một đứa trẻ nghèo chưa từng bước chân ra khỏi ranh giới thành phố Sâm Châu, cả đời chưa từng tiếp xúc với khái niệm đồ xa xỉ, thì trông mong gì cậu có được thứ "kiến thức thượng lưu" ấy cơ chứ?
 
-Biết LV là vì thương hiệu này quá đại trà rồi.
+Cậu nhận ra nhãn hiệu LV, âu cũng chỉ vì cái thương hiệu này quá đỗi phổ biến và đại chúng mà thôi.
 
-Thấy Triệu Kim An không có lấy một tia căng thẳng, ngồi xuống một cách hào phóng và tự nhiên, bốn vị "trưởng bối" nhất thời thế mà lại quên mất việc phải lên tiếng.
+Nhìn thấy Triệu Kim An không hề lộ ra một tia căng thẳng hay khép nép nào, trái lại còn ngồi xuống vô cùng đàng hoàng, tự nhiên và phóng khoáng, bốn vị "trưởng bối" trong phòng nhất thời ngơ ngác, quên cả việc phải mở miệng nói chuyện.
 
-"Lạ thật."
+"Kỳ lạ thật."
 
-"Hắn, hắn thế mà lại có một sự ung dung như vậy?"
+"Cậu ta... cậu ta lại có được cái phong thái thong dong, ung dung đến thế ư?"
 
-"Đúng, chính là sự ung dung!"
+"Đúng vậy, chính là cái cảm giác thư thái, ung dung tự tại đó!"
 
-"Hắn lấy đâu ra sự ung dung đó chứ!?"
+"Một đứa nhà quê nghèo rớt mồng tơi như nó, lấy đâu ra cái khí chất thong dong đĩnh đạc ấy chứ?!"
 
-Bốn vị "trưởng bối" đưa mắt nhìn nhau.
+Bốn vị "tiền bối" đưa mắt nhìn nhau đầy kinh ngạc.
 
-Cảm nhận của Trương Tuệ là sâu sắc nhất, nàng từng nói chuyện điện thoại với Triệu Kim An, chính là cái cảm giác này!
+Người cảm nhận sâu sắc nhất chính là Trương Tuệ. Lúc nói chuyện qua điện thoại với Triệu Kim An, bà cũng đã cảm nhận được cái phong thái này!
 
-Một loại cảm giác không nói thành lời.
+Một cảm giác quái lạ, không sao diễn tả thành lời.
 
-Thực ra kiếp trước Mộc Dao nói Triệu Kim An "quá trầm lặng" cũng không sai, trên người hắn dường như không có sự "nóng nảy".
+Thực ra, ở kiếp trước Mộc Dao từng nhận xét Triệu Kim An "quá trầm lặng" cũng chẳng hề sai. Trên người chàng trai này dường như hoàn toàn vắng bóng sự xốc nổi, nông nổi hay "tính khí nóng nảy" của tuổi trẻ.
 
-Mộc Nhân Cường và Trương Tuệ liếc nhau, dường như đã hiểu tại sao con gái lại thích chàng trai này.
+Mộc Nhân Cường và Trương Tuệ nhìn nhau, dường như đã lờ mờ hiểu ra lý do vì sao con gái cưng lại mê mẩn cậu bạn này đến vậy.
 
-Diện mạo của chàng trai này đúng là rất đẹp trai.
+Tướng mạo của cậu thanh niên này quả thực vô cùng khôi ngô, tuấn tú.
 
-"Phục vụ, gọi món!"
+"Phục vụ đâu, gọi món!"
 
-Trương Vân Thiến gọi phục vụ đến, lại đặt thực đơn lên bàn xoay đến trước mặt Triệu Kim An.
+Trương Vân Thiến cao giọng gọi nhân viên phục vụ, rồi cầm cuốn thực đơn đặt lên bàn xoay, xoay một vòng đẩy sang trước mặt Triệu Kim An.
 
-"Kim An phải không, cháu gọi món đi."
+"Kim An phải không cháu, cháu gọi món đi."
 
-Trương Vân Thiến cười nói.
+Trương Vân Thiến cười tươi rói nói.
 
 "Cậu gọi đi."
 
-Triệu Kim An đưa thực đơn cho Mộc Dao bên cạnh, không hề lật quyển thực đơn ra.
+Triệu Kim An chuyển ngay cuốn thực đơn sang cho Mộc Dao ngồi bên cạnh, bản thân không hề chạm tay lật giở lấy một trang.
 
-Mộc Dao chẳng nghĩ ngợi gì, lật thực đơn bắt đầu gọi món.
+Mộc Dao vô tư chẳng nghĩ ngợi gì nhiều, liền mở thực đơn ra bắt đầu gọi món.
 
-Triệu Kim An mắt không nhìn nghiêng, nhìn cũng không thèm nhìn thực đơn lấy một cái.
+Triệu Kim An ngồi thẳng lưng, ánh mắt nhìn thẳng về phía trước, không thèm liếc mắt nhìn vào cuốn thực đơn lấy nửa lần.
 
-Trương Vân Thiến lại cười nói: "Kim An, cháu cũng xem đi, muốn ăn gì thì cứ tùy ý gọi."
+Trương Vân Thiến lại giả lả cười: "Kim An, cháu cũng xem qua đi chứ, thích ăn món gì thì cứ thoải mái gọi tự nhiên nhé."
 
-Lời này thoạt nghe thì rất nhiệt tình, nhưng đó là đối với người không hiểu Trương Vân Thiến, hoặc giả là người chưa trải đời, Mộc Dao mười tám tuổi đã không nghe ra ẩn ý.
+Lời này thoạt nghe thì có vẻ vô cùng niềm nở, mến khách, nhưng đó là với những ai chưa hiểu rõ con người Trương Vân Thiến, hoặc giả là những kẻ chưa từng trải sự đời. Mộc Dao mười tám tuổi ngây thơ dĩ nhiên chẳng thể nghe ra hàm ý sâu xa bên trong.
 
-Nàng cúi đầu hỏi: "Kim An, cậu muốn ăn món gì?"
+Cô cúi đầu khẽ hỏi: "Kim An, cậu muốn ăn món gì nào?"
 
-"Tôi sao cũng được, món gì cũng ăn."
+"Tớ sao cũng được, món gì cũng ăn được hết."
 
-Quả nhiên, sau khi Mộc Dao gọi hai món, Trương Vân Thiến trực tiếp mở miệng hỏi phục vụ món nào là món đặc sản, món nào là cá hồi.
+Quả nhiên, sau khi Mộc Dao gọi xong hai món thanh đạm, Trương Vân Thiến liền trực tiếp quay sang hỏi dồn dập nhân viên phục vụ, nào là món đặc trưng đắt nhất của quán, nào là cá hồi tươi sống cao cấp.
 
-Dì ta còn đặc biệt hỏi phục vụ giá cả của những món này.
+Bà ta còn cố tình cao giọng hỏi cặn kẽ giá tiền của từng món một trước mặt mọi người.
 
-Thực ra cá hồi cũng không phải đặc biệt đắt, Trương Vân Thiến một hơi gọi bảy món mặn, một món canh, tính ra một bàn này cũng gần ba nghìn tệ rồi.
+Thực ra cá hồi cũng chẳng phải thứ gì quá đắt đỏ đến mức trên trời. Trương Vân Thiến một hơi gọi liền tù tì bảy món ăn kèm một món canh, tính sơ sơ mâm cơm này cũng ngót nghét ngốn đứt ba nghìn tệ.
 
-Sau khi phục vụ rời đi, Trương Tuệ mới mở lời.
+Sau khi người phục vụ ghi chép xong xuôi và rời khỏi phòng, Trương Tuệ mới hắng giọng mở lời.
 
-"Kim An, nghe nói bố cháu... Vậy học phí của cháu?"
+"Kim An này, dì nghe nói bố cháu mất sớm... Vậy tiền học phí đại học của cháu tính sao?"
 
-"Học phí cháu..."
+"Dạ, tiền học phí thì cháu..."
 
-Triệu Kim An đang định mở miệng, Mộc Dao ở dưới bàn đã kéo kéo vạt áo hắn, vội vàng tiếp lời: "Mẹ, Kim An thi đỗ đại học, trong thôn bọn họ có phần thưởng."
+Triệu Kim An vừa định cất lời thì Mộc Dao đã lén thò tay xuống dưới gầm bàn kéo mạnh vạt áo cậu, vội vàng cướp lời đỡ hộ: "Mẹ à, Kim An thi đỗ đại học điểm cao, bên ủy ban thôn họ có tiền thưởng đấy mẹ."
 
-Nếu không phải Vương Kim Như, Mộc Dao còn chưa nghĩ ra cái cớ này.
+Nếu không nhờ có màn bù lu bù loa của Vương Kim Như ban nãy thì Mộc Dao cũng chẳng tài nào nghĩ ra được cái cớ này.
 
-Nàng sợ nhất là Triệu Kim An nói mình đi bán cá ở chợ, Triệu Kim An cũng hiểu ý của Mộc Dao.
+Cô sợ chết khiếp nếu Triệu Kim An lỡ miệng khai thật ra chuyện mình phải đi bán cá ngoài chợ đầu mối. Triệu Kim An dĩ nhiên thừa hiểu được nỗi lo sợ và toan tính giấu giếm ấy của Mộc Dao.
 
-"Vậy sau này thì sao? Trong thôn đâu thể năm nào cũng thưởng chứ?"
+"Thế còn những năm sau thì sao? Chẳng lẽ thôn làng năm nào cũng phát tiền thưởng cho cháu mãi được à?"
 
-Trương Tuệ lại hỏi.
+Trương Tuệ lại truy vấn tiếp.
 
-Cảm nhận được vạt áo bị lôi kéo, Triệu Kim An cười nói: "Bà nội và thím sẽ lo liệu ạ, vả lại, lên đại học cháu sẽ đi làm thêm."
+Cảm nhận được vạt áo mình vẫn đang bị kéo giật liên hồi, Triệu Kim An mỉm cười điềm đạm đáp: "Bà nội và thím cháu sẽ lo liệu phần nào ạ, vả lại sau khi lên đại học, cháu cũng sẽ tự đi làm thêm."
 
-Nói xong, hắn nghe thấy Mộc Dao bên cạnh thở phào một hơi nhẹ nhõm.
+Dứt lời, cậu nghe thấy tiếng thở phào nhẹ nhõm như trút được gánh nặng của Mộc Dao ngồi bên cạnh.
 
-"Làm thêm? Gia sư hay là đi phát tờ rơi?"
+"Làm thêm à? Đi làm gia sư hay là đi phát tờ rơi ngoài đường?"
 
-"Gia sư ạ!"
+"Làm gia sư ạ!"
 
-Mộc Dao vội vàng đáp, đại khái trong lòng nàng, bán cá và phát tờ rơi đều là những việc không mấy vẻ vang.
+Mộc Dao vội vàng giành trả lời trước. Có lẽ trong suy nghĩ của cô tiểu thư đài các, việc đi bán cá hay phát tờ rơi dạo ngoài đường đều là những công việc quá đỗi thấp kém, không thể đem ra khoe với thiên hạ được.
 
-Cùng là làm thêm kiếm tiền, nhưng gia sư nghe qua thì thể diện hơn nhiều.
+Cùng là đi làm thêm kiếm tiền, nhưng hai chữ "gia sư" nghe qua dẫu sao cũng sang trọng, trí thức và giữ được thể diện hơn nhiều.
 
-"Kim An phải không, trường cháu trúng tuyển là Sư Đại?"
+"Kim An này, cháu thi đỗ vào Đại học Sư phạm đúng không?"
 
-Mộc Nhân Cường lên tiếng, nếu không phải vì điều kiện gia đình như vậy, hắn và Trương Tuệ vẫn khá hài lòng với Triệu Kim An, chàng trai này trông rất bảnh bao lại có chí tiến thủ.
+Lần này đến lượt Mộc Nhân Cường lên tiếng. Nếu gạt bỏ hoàn cảnh gia đình nghèo túng kia sang một bên, thì ông và Trương Tuệ thực lòng khá ưng ý chàng trai này, tướng mạo đàng hoàng đĩnh đạc lại có chí tiến thủ.
 
-"Vâng thưa chú."
+"Dạ vâng, thưa chú."
 
-Triệu Kim An lễ phép đáp.
+Triệu Kim An lễ phép đáp lời.
 
-"Sư Đại là trường thuộc dự án 211 phải không?"
+"Đại học Sư phạm thuộc diện trường trọng điểm 211 đúng không nhỉ?"
 
-Mộc Nhân Cường nhìn về phía người anh trai bên cạnh.
+Mộc Nhân Cường quay sang nhìn người anh trai ngồi cạnh.
 
-Mộc Nhân Quân gật đầu "ừm" một tiếng.
+Mộc Nhân Quân gật đầu, "ừm" một tiếng ra chiều am hiểu.
 
-"Trung Nam Công Đại là 985?"
+"Còn Đại học Công nghiệp Trung Nam của Mộc Dao là trường 985?"
 
-"Ừm."
+"Ừ, đúng chuẩn 985 đấy."
 
-Mộc Nhân Quân gật đầu ra vẻ hiểu biết sâu rộng.
+Mộc Nhân Quân gật gù ra vẻ đạo mạo.
 
-Hai người nói đến đây thì dừng lại.
+Hai anh em kẻ xướng người họa, điểm trúng chỗ hiểm rồi dừng lại đúng lúc.
 
-"Cháu có dự định gì cho tương lai không?"
+"Cháu đã có dự định gì cho tương lai sau này chưa?"
 
 "Dự định ạ?"
 
-Triệu Kim An tỏ vẻ không rõ ý tứ.
+Triệu Kim An vờ như không hiểu ẩn ý.
 
-Mộc Nhân Cường nhìn hắn nói: "Chú và dì chỉ có một đứa con gái duy nhất, từ nhỏ đã được nuông chiều từ bé..."
+Mộc Nhân Cường nhìn thẳng vào cậu, chậm rãi nói: "Chú và dì của cháu chỉ có duy nhất một mụn con gái này thôi, từ nhỏ đến lớn con bé luôn được cả nhà nuông chiều, nâng như nâng trứng hứng như hứng hoa..."
 
-"Rồi sau đó thì sao ạ?"
+"Dạ, rồi sao nữa ạ?"
 
-Triệu Kim An hỏi.
+Triệu Kim An thản nhiên hỏi ngược lại.
 
-"Sau đó?"
+"Rồi sao nữa à?"
 
-Mộc Nhân Cường nhất thời cũng không biết trả lời thế nào.
+Mộc Nhân Cường nhất thời bị chặn họng, chẳng biết phải tiếp lời ra sao cho xuôi.
 
-Hắn bắt đầu giới thiệu và tự giới thiệu.
+Ông bắt đầu màn giới thiệu lai lịch và chức tước của gia đình mình để thị uy.
 
-"Chú và dì làm việc ở Cục Thuế, bác của con bé ở Cục Địa chính, dì nhỏ thì kinh doanh ở Quận Sa, anh họ của Mộc Dao năm ngoái vừa thi đỗ công chức, cũng ở Cục Địa chính."
+"Chú và dì cháu hiện đều đang công tác tại Cục Thuế. Bác của Mộc Dao thì làm bên Cục Đất đai. Dì út thì làm ăn kinh doanh lớn trên Quận Sa. Còn anh họ của con bé năm ngoái vừa thi đỗ công chức, hiện cũng đang công tác tại Cục Đất đai."
 
-Triệu Kim An gật đầu, không hề lên tiếng.
+Triệu Kim An khẽ gật đầu tỏ vẻ đã nghe rõ, tuyệt nhiên không hé răng thêm một lời nào.
 
-Quan trọng là vẻ mặt hắn thản nhiên, không thấy một tia tức giận, đỏ mặt hay xấu hổ?
+Điều mấu chốt là gương mặt cậu vẫn thản nhiên như không, chẳng hề để lộ một chút tức giận, đỏ mặt tía tai hay xấu hổ tự ti nào!
 
-Thật không khoa học.
+Thật phi lý.
 
-Đây không phải là tâm tính mà một người trẻ tuổi nên có!
+Đây tuyệt đối không phải là tâm tính mà một chàng thiếu niên mười tám tuổi bình thường có thể sở hữu được!
 
-"Triệu Gia Thôn của các cháu... Chúng ta cũng có tìm hiểu qua."
+"Về hoàn cảnh Triệu gia thôn của các cháu... thực ra gia đình chú cũng đã có tìm hiểu qua đôi chút."
 
-Mộc Nhân Cường muốn nói lại thôi, hắn tưởng Triệu Kim An nghe không hiểu.
+Mộc Nhân Cường ngập ngừng toan nói lại thôi, cứ ngỡ Triệu Kim An đầu óc chậm tiêu chưa hiểu hết hàm ý răn đe của mình.
 
-"Chú à, chú có lời gì thì cứ nói thẳng ra đi."
+"Chú à, mọi người có điều gì muốn dạy bảo thì cứ nói thẳng ra đi ạ."
 
-Trong lòng Triệu Kim An đã nhìn thấu tất cả, hắn chỉ chờ bọn họ chủ động nói ra mà thôi.
+Trong lòng Triệu Kim An sáng như gương soi, cậu chỉ đang ung dung chờ đợi bọn họ tự mình vạch trần bộ mặt thật mà thôi.
 
-Mộc Nhân Cường: . . . . . .
+Mộc Nhân Cường: "..."
 
-Chẳng lẽ mình nói vẫn còn chưa đủ thẳng thắn sao?
+Chẳng lẽ những lời ta vừa nói còn chưa đủ thẳng thắn, rõ ràng hay sao?!

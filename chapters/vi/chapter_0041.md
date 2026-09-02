@@ -1,221 +1,213 @@
 # Chương 41: Phòng 303
 
-Trở lại trường học, Triệu Kim An mua một chiếc chiếu trúc rồi đến chỗ quản lý ký túc xá nhận một bộ chăn nệm màu xanh quân đội. Một tay hắn xách chăn nệm, tay kia kẹp chiếu leo lên tầng ba, lúc này thời gian đã điểm chín giờ rưỡi.
+> **Tiêu đề gốc**: 第41章 303.
 
-Tầm giờ này thường không còn phụ huynh nào ở lại ký túc xá dọn dẹp giường chiếu cho con trai nữa.
+Quay trở lại trường, Triệu Kim An ghé tiệm tạp hóa mua một chiếc chiếu trúc rồi sang phòng quản lý ký túc xá nhận bộ chăn đệm màu xanh quân đội. Một tay xách bọc chăn nệm, tay kia cắp chiếc chiếu trúc, anh rảo bước lên tầng ba, lúc này đồng hồ đã chỉ chín giờ rưỡi tối.
 
-Họ hoặc là đã ra về ngay trong ngày, hoặc là thuê phòng ở các khách sạn, nhà nghỉ gần đó.
+Tầm giờ này trong ký túc xá hầu như chẳng còn phụ huynh nào nán lại dọn dẹp giường chiếu cho con cái nữa. Hoặc là họ đã bắt chuyến xe trong ngày trở về quê, hoặc đã tìm một nhà nghỉ, khách sạn gần trường thuê phòng ngủ lại qua đêm.
 
-Vừa lên đến tầng ba, hành lang đã chen chúc rất đông người.
+Vừa bước chân lên hành lang tầng ba, đập vào mắt anh là cảnh tượng chen chúc đông đúc, kèm theo tiếng cãi vã gay gắt vang lên:
 
-Hắn còn nghe thấy cả tiếng cãi vã.
+"Mấy người muốn giở trò gì đấy hả?!"
 
-"Mày muốn cái gì hả!?"
+Một nam sinh miệng nhai trầu cau bỏm bẻm, ngón tay chỉ thẳng vào mấy gã mặc đồ bóng rổ: "Bóng đập trúng người ông đây, ông chưa bắt các người đền tiền là may lắm rồi, còn dám bảo ông xuống nhặt bóng à?!"
 
-Một nam sinh miệng đang nhai trầu cau, chỉ tay vào mấy nam sinh mặc đồ bóng rổ: "Bóng đập trúng lão tử rồi, lão tử không bắt các người đền tiền đã là may lắm rồi, còn dám bảo lão tử xuống lầu nhặt bóng cho các người sao!?"
+"Mẹ kiếp, tưởng sinh viên khóa trên là ngon chắc!"
 
-"Mẹ kiếp, năm trên thì ngon lắm à!"
+Mấy gã mặc áo đấu bóng rổ kia rõ ràng là sinh viên khóa trên, bởi tân sinh viên năm nhất hôm nay mới tới nhập học. Bọn họ vừa đi dọc hành lang vừa dẫn bóng, chuyền qua chuyền lại, chẳng may đập trúng người trước mặt khiến quả bóng văng tuốt xuống dưới lầu. Cứ ngỡ tân sinh viên chân ướt chân ráo dễ bắt nạt, nào ngờ lại đụng phải gai cứng. Nhìn điệu bộ nhai trầu cau điêu luyện, lại thêm câu chửi thề sặc mùi bản địa vừa thốt ra, ai nấy đều thừa biết đây đích thị là dân Quận Sa gốc.
 
-Mấy nam sinh mặc đồ bóng rổ rõ ràng là sinh viên khóa trên, còn tân sinh viên năm nhất hôm nay mới tới báo danh.
+Hiện tại hai bên đang giằng co ngay giữa hành lang, một tân sinh viên độc chiến bốn đàn anh khóa trên.
 
-Họ vừa đi dọc hành lang vừa dẫn bóng, chuyền bóng, kết quả đập trúng người trước mắt này, quả bóng theo đó bay xuống dưới lầu.
+Bao nhiêu tân sinh viên đứng xung quanh trố mắt nhìn, bầu không khí không khỏi có chút ngượng ngùng, căng thẳng.
 
-Tân sinh viên mà, dễ bắt nạt.
+Triệu Kim An cũng đứng nhìn. Người kia anh biết mặt, tên là Trần Trạch.
 
-Không ngờ lại đụng phải thứ dữ, thấy gã nhai trầu cau, vừa mở miệng đã tuôn ra một câu "Mày muốn cái gì hả" đặc sệt giọng địa phương, là biết ngay người bản xứ Quận Sa chính gốc rồi.
+Hai người đứng lấp ló ở cửa phòng 303, Triệu Kim An cũng chẳng xa lạ gì: Lưu Sấm Phong và Cốc Siêu Thừa.
 
-Hiện tại đôi bên đang giằng co ngoài hành lang, tân sinh viên một mình đối đầu với bốn người.
+Hai người họ chỉ đứng tựa cửa ngó ra, tuyệt nhiên không hề có ý định bước tới chống lưng cho Trần Trạch.
 
-Bao nhiêu tân sinh viên đang đứng xem, cảnh tượng có chút gượng gạo.
+Trần Trạch liếc mắt nhìn họ một cái, hai người mới rụt rè nhích thêm được nửa bước chân.
 
-Triệu Kim An cũng đứng nhìn, người này hắn biết, Trần Trạch.
+Bản tính Triệu Kim An xưa nay vốn không phải kiểu người thích "chường mặt ra trước mũi giáo". Anh cũng chẳng rảnh rỗi như mấy nam chính trong tiểu thuyết, vác cái EQ của người đàn ông ngoài ba mươi tuổi ra để hóa giải ân oán giang hồ làm gì. Từ nhỏ bà nội đã dạy anh: nhà mình nghèo, không gánh nổi mấy chuyện thị phi rắc rối như thế này đâu.
 
-Hai người đứng ở cửa phòng 303, Triệu Kim An cũng biết, là Lưu Sấm Phong và Cốc Siêu Thừa.
+Có thể đưa tay giúp đỡ người khác, nhưng tuyệt đối không phải là đi đánh nhau hộ.
 
-Lưu Sấm Phong và Cốc Siêu Thừa chỉ đứng ngay cửa, không hề đứng ra chống lưng cho Trần Trạch.
+"Phiền mọi người nhường đường một chút."
 
-Trần Trạch liếc nhìn họ một cái, họ mới miễn cưỡng bước ra ngoài một bước nhỏ.
-
-Triệu Kim An không phải tính cách thích "nổi bật", cũng không giống như nam chính trong tiểu thuyết dùng cái gọi là "EQ cao" của tuổi ba mươi để đi hóa giải chuyện gì, bà nội từng dạy hắn rằng, nhà mình không gánh nổi những rắc rối như thế này.
-
-Hắn có thể giúp người, nhưng không phải giúp đánh nhau.
-
-"Phiền mọi người nhường đường chút."
-
-Triệu Kim An xách đồ đi vào ký túc xá, không thèm xem náo nhiệt, nhưng hành động của hắn lại vô tình tạo bậc thang cho đôi bên xuống đài. Chiếu trúc lướt qua, mọi người đều nghiêng người nhường lối.
+Triệu Kim An xách đồ lách người bước vào phòng, chẳng mảy may đứng lại xem trò vui. Thế nhưng, hành động dửng dưng của anh lại vô tình tạo ra bậc thang cho cả hai bên cùng xuống nước. Chiếc chiếu trúc quét qua, mọi người liền tự giác nghiêng người né sang hai bên nhường lối.
 
 "Xì!"
 
-Trần Trạch vung tay, ném lại một ánh mắt khinh bỉ rồi bước theo vào phòng 303.
+Trần Trạch phẩy tay một cái, quẳng lại ánh nhìn khinh khỉnh rồi xoay người bước thẳng vào phòng 303.
 
-Lưu Sấm Phong và Cốc Siêu Thừa nhìn Trần Trạch một cái, cũng cười hì hì đi vào theo.
+Lưu Sấm Phong và Cốc Siêu Thừa nhìn Trần Trạch, cũng cười xòa bước theo vào trong.
 
-Trong lòng họ có chút áy náy vì vừa rồi không đứng ra, dù sao mọi người sau này cũng là bạn cùng phòng suốt bốn năm, nhưng tân sinh viên năm nhất vừa chân ướt chân ráo đến đã đối đầu với khóa trên, họ không dám.
+Trong lòng hai người ít nhiều có chút áy náy vì ban nãy không dám đứng ra bênh vực bạn cùng phòng. Dẫu sao sau này cũng phải ở chung dưới một mái nhà suốt bốn năm trời, nhưng tân sinh viên năm nhất vừa chân ướt chân ráo đến trường đã phải đối đầu với ma cũ khóa trên, ai mà chẳng sợ.
 
-Huống hồ, mọi người mới chỉ quen biết ngày đầu tiên.
+Huống hồ, họ mới chỉ quen biết nhau ngày đầu tiên.
 
-"He he, anh em người ở đâu thế?"
+"Hì hì, người anh em quê ở đâu thế?"
 
-Lưu Sấm Phong khơi mào chủ đề, cố gắng phá vỡ sự ngượng ngùng.
+Lưu Sấm Phong chủ động khơi mào câu chuyện hòng phá vỡ bầu không khí gượng gạo.
 
-Chỉ là hai chữ "anh em" vừa thốt ra, Trần Trạch lại nhẹ nhàng "hừ" một tiếng, rất khẽ, nhưng vẫn có thể nghe thấy.
+Chỉ là hai chữ "anh em" vừa thốt ra, Trần Trạch đã hừ khẽ một tiếng qua sống mũi. Âm thanh rất nhỏ, nhưng trong phòng ai cũng nghe thấy mồn một.
 
-"Sâm Châu."
+"Sâm Thành."
 
-Triệu Kim An không để ý đến sắc mặt của Lưu Sấm Phong và Cốc Siêu Thừa phía sau, không cần nhìn cũng biết mặt bọn họ không được tự nhiên cho lắm. Ký túc xá được thiết kế kiểu giường trên bàn dưới.
+Triệu Kim An chẳng mấy bận tâm đến sắc mặt của Lưu Sấm Phong và Cốc Siêu Thừa ở phía sau. Không cần quay lại nhìn anh cũng đoán được mặt mũi hai người kia đang sượng sùng đến mức nào. Giường trong ký túc xá được thiết kế theo kiểu trên giường dưới bàn học.
 
-Hắn leo lên giường để trải nệm.
+Anh leo lên thang, bắt đầu trải chiếu dọn dẹp giường ngủ.
 
-"Trạch ca, hì hì, lần sau nhé, vừa rồi cậu làm tụi này không kịp trở tay."
+"Anh Trạch, hề hề, lần sau nhất định bọn em sẽ... ban nãy anh làm bọn em trở tay không kịp quá."
 
-Lưu Sấm Phong vội vàng nháy mắt với Cốc Siêu Thừa.
+Lưu Sấm Phong vội vàng nháy mắt ra hiệu với Cốc Siêu Thừa.
 
-Cốc Siêu Thừa cũng "đúng đúng" phụ họa vài câu.
+Cốc Siêu Thừa liền phụ họa: "Đúng đúng, chuẩn đấy ạ."
 
-Chẳng biết từ lúc nào, Trần Trạch đã trở thành Trạch ca của phòng 303, có lẽ ở tầng ba này gã cũng đã có chút danh tiếng rồi.
+Chẳng biết tự bao giờ, Trần Trạch đã nghiễm nhiên trở thành "anh Trạch" của phòng 303, e rằng trên cả tầng ba này cũng đã bắt đầu có chút danh tiếng.
 
-"Kim An, cậu nói có đúng không?"
+"Kim An, cậu thấy có phải không?"
 
-Lưu Sấm Phong lại cố ý lôi kéo Triệu Kim An, anh ta cho rằng Triệu Kim An xuất hiện rất đúng lúc, hơn nữa cũng trực tiếp đi vào phòng, không hề đứng ra chống lưng cho Trần Trạch.
+Lưu Sấm Phong lại cố tình kéo Triệu Kim An vào cuộc. Gã đinh ninh Triệu Kim An xuất hiện đúng lúc như vậy, lại còn đi thẳng vào phòng mà không đứng ra bênh Trần Trạch, chắc chắn cũng cùng một giuộc nhát gan như mình.
 
 "Ừ."
 
-Triệu Kim An không quay đầu lại, ậm ừ đáp một tiếng.
+Triệu Kim An không quay đầu lại, chỉ nhàn nhạt đáp một tiếng.
 
-"Các cậu đừng có nhát gan như thế, có tôi bảo kê các cậu rồi!"
+"Mấy người các cậu nhát gan vừa thôi, sau này có tôi bảo kê rồi!"
 
-Trần Trạch bất mãn nói.
+Trần Trạch cất giọng vẻ không mấy hài lòng.
 
-"A, đúng đúng đúng."
+"Dạ, đúng đúng đúng."
 
-"Phải đó, Trạch ca."
+"Chuẩn luôn anh Trạch ơi."
 
-Lưu Sấm Phong và Cốc Siêu Thừa lại một hồi nịnh nọt phụ họa.
+Lưu Sấm Phong và Cốc Siêu Thừa lại rối rít nịnh nọt hùa theo.
 
-Lúc này sắc mặt Trần Trạch mới khá lên đôi chút.
+Lúc này sắc mặt Trần Trạch mới dịu bớt đôi phần.
 
-Với sự trở lại của Triệu Kim An, bốn người phòng 303 coi như đã tụ tập đông đủ.
+Với sự có mặt của Triệu Kim An, bốn thành viên của phòng 303 coi như đã tề tựu đông đủ.
 
-Trần Trạch bắt đầu mời thuốc, Lưu Sấm Phong nhìn thấy hộp thuốc tinh xảo, liền hỏi thuốc này chắc đắt lắm nhỉ?
+Trần Trạch bắt đầu rút bao thuốc lá ra mời. Lưu Sấm Phong nhìn thấy vỏ bao tinh xảo, liền tròn mắt hỏi thuốc này đắt lắm phải không?
 
-Thực ra anh ta và Cốc Siêu Thừa đã sớm nhìn thấy chìa khóa xe BMW trên bàn của Trần Trạch.
+Thực ra gã và Cốc Siêu Thừa sớm đã để mắt tới chiếc chìa khóa xe BMW nằm chễm chệ trên mặt bàn của Trần Trạch từ lâu.
 
-Triệu Kim An cũng phát hiện ra, kiếp trước hắn không tiếp xúc nhiều với Trần Trạch, hình như nhà gã khá có điều kiện, năm nhất đã lái BMW đi học, nghe đâu còn có một cô bạn gái rất xinh đẹp.
+Triệu Kim An cũng đã nhìn thấy. Kiếp trước anh không tiếp xúc nhiều với Trần Trạch. Nhà cậu ta dường như khá có điều kiện, năm nhất đại học đã lái BMW đi học, hình như còn có một cô bạn gái thanh mai trúc mã vô cùng xinh đẹp.
 
-Hai người là thanh mai trúc mã.
+Kiếp trước, Triệu Kim An ngoài giờ lên lớp thì chỉ cắm đầu đi làm thêm, thời gian ở ký túc xá chẳng được bao lăm, sau này trên giảng đường cũng hiếm khi thấy bóng dáng Trần Trạch.
 
-Kiếp trước Triệu Kim An ngoài giờ lên lớp là đi làm thêm, thời gian ở ký túc xá không nhiều, sau này trên giảng đường cũng rất ít khi thấy bóng dáng Trần Trạch.
+Những người thuộc tầng lớp như cậu ta thường có một vòng tròn bạn bè riêng trong trường — giới phú nhị đại.
 
-Những người như gã có vòng tròn quan hệ riêng trong trường, hội phú nhị đại.
+Tất nhiên, Đại học Sư phạm không phải trường đại học hàng đầu, hàm lượng vàng trong cái gọi là "vòng tròn phú nhị đại" này vẫn cần phải xem xét lại, bằng không cha mẹ họ đã tống con cái vào các trường danh giá bậc nhất rồi.
 
-Dĩ nhiên, Sư Đại không phải là học phủ hàng đầu, hàm lượng vàng của cái hội "phú nhị đại" này còn cần xem xét lại, nếu không cha mẹ họ chắc chắn đã tống họ vào những ngôi trường danh giá hơn rồi.
+Thấy Lưu Sấm Phong nhiệt tình hưởng ứng như vậy, Trần Trạch xoay tròn bao thuốc trong tay, cười cười nói: "Cũng tàm tạm thôi, Hòa Thiên Hạ, một trăm tệ một bao."
 
-Thấy Lưu Sấm Phong hưởng ứng nhiệt tình như vậy, Trần Trạch mân mê hộp thuốc cười nói: "Cũng tàm tạm, Hòa Thiên Hạ, một trăm tệ một bao."
+"Trời đất ơi, một trăm một bao, tính ra một điếu đã mười tệ rồi, thế mà cậu bảo là tàm tạm á?"
 
-"Trời ạ, một trăm một bao, một điếu đã mười tệ rồi, thế mà cậu bảo là tàm tạm sao?"
+Lưu Sấm Phong cầm điếu thuốc săm soi ngắm nghía mãi, quả thực rất biết cách tạo cảm xúc làm vừa lòng người khác.
 
-Lưu Sấm Phong cầm điếu thuốc ngắm đi ngắm lại, rất biết cách cung cấp giá trị cảm xúc.
+"Haha, trầu cau này, ăn không?"
 
-"Hì hì, trầu cau, ăn không?"
+Nói đến trầu cau thì chẳng có gì đáng để khoe khoang. Thời điểm này trầu cau đóng gói chỉ bán với giá một hai tệ một gói, chứ chưa có loại giá năm mươi hay một trăm tệ như sau này.
 
-Trầu cau thì chẳng có gì để nói, trầu cau bây giờ chỉ bán một hai tệ một bao, chưa có loại bán năm mươi hay một trăm tệ.
+"Thế thì... nếm thử xem sao?"
 
-"Vậy thì... nếm thử xem?"
+Lưu Sấm Phong thuộc tuýp ai cho gì nhận nấy.
 
-Lưu Sấm Phong không từ chối thứ gì.
+Cốc Siêu Thừa xua tay bảo mình không biết hút thuốc, nhưng để "nhập gia tùy tục" cũng bốc lấy một miếng trầu cau.
 
-Cốc Siêu Thừa ra hiệu mình không hút thuốc, nhưng cũng "nhập gia tùy tục" lấy một miếng trầu.
+Trần Trạch cầm bao thuốc vỗ vỗ vào thành giường của Triệu Kim An, giơ cả thuốc lẫn trầu lên hỏi: "Làm điếu không?"
 
-Trần Trạch lại cầm bao thuốc vỗ vỗ vào thành giường Triệu Kim An, giơ thuốc và trầu lên hỏi: "Làm điếu không?"
+Triệu Kim An rút một điếu thuốc, không lấy trầu cau.
 
-Triệu Kim An lấy một điếu thuốc, không lấy trầu.
+"Ọe!"
 
-"Oẹ!"
+Cốc Siêu Thừa bỗng dưng mặt đỏ tía tai, cuống cuồng tìm thùng rác nhổ bã trầu ra.
 
-Cốc Siêu Thừa đột nhiên mặt đỏ gay, vội tìm thùng rác nhổ miếng trầu ra.
+Lưu Sấm Phong thấy thế cười phá lên, bảo chính mình đây cũng là lần đầu tiên ăn trầu cau.
 
-Lưu Sấm Phong cười lớn, bảo anh ta cũng là lần đầu ăn trầu cau.
+"Cậu giỏi rồi, được chưa!"
 
-"Cậu giỏi rồi được chưa!"
+Cốc Siêu Thừa gắt lại một câu, lồng ngực vẫn còn cảm giác cay xè, tức nghẹn khó chịu.
 
-Cốc Siêu Thừa lườm anh ta một cái, lồng ngực vẫn còn thấy nóng rát.
+Người lần đầu ăn trầu đa phần đều có phản ứng như vậy.
 
-Nhiều người lần đầu ăn trầu cau đều bị như vậy.
+Lúc này Lưu Sấm Phong mới nhận ra mình lỡ lời, bèn bước tới vỗ vai Cốc Siêu Thừa làm lành: "Người anh em đừng để bụng nhé."
 
-Lưu Sấm Phong mới nhận ra mình lỡ lời, đi tới vỗ vai Cốc Siêu Thừa nói: "Anh em đừng để bụng nhé."
+Môi trường đại học không giống cấp ba. Bạn bè tụ họp từ khắp bốn phương trời, giọng nói và phong tục tập quán mỗi vùng mỗi khác.
 
-Đại học không giống cấp ba, người đến từ khắp mọi miền, phương ngôn và tập quán mỗi nơi mỗi khác.
+Bước chân vào cổng trường đại học là đã thực sự bước sang tuổi trưởng thành. Rời xa quê hương, mỗi người đều phải tự chịu trách nhiệm cho từng lời ăn tiếng nói và hành vi của mình. Cha mẹ có muốn quản cũng xa tầm với, còn thầy cô giảng viên thì chẳng ai rảnh rỗi lo mấy chuyện vụn vặt này nữa.
 
-Lên đại học là chính thức trưởng thành rồi, rời xa quê hương, mỗi người đều phải tự chịu trách nhiệm cho lời nói và hành động của mình, cha mẹ xa xôi không với tới được, thầy cô cũng chẳng rảnh rỗi mà lo mấy việc vặt vãnh này.
+Lần gặp mặt đầu tiên của phòng 303 diễn ra chẳng mấy êm đẹp. Cốc Siêu Thừa lẳng lặng cầm đồ dùng vệ sinh cá nhân đi thẳng vào phòng tắm.
 
-Buổi "tụ họp" đầu tiên của phòng 303 diễn ra không mấy thân thiện, Cốc Siêu Thừa cầm đồ dùng vệ sinh đi vào phòng tắm.
+Lưu Sấm Phong lẩm bẩm một câu rất nhỏ: "Gì mà hẹp hòi thế không biết?"
 
-Lưu Sấm Phong nhỏ giọng lẩm bẩm một câu: "Thế này thì hẹp hòi quá nhỉ?"
+Chẳng ai thèm tiếp lời, cũng chẳng ai buồn đứng ra làm người hòa giải.
 
-Không ai đáp lời, cũng chẳng ai nhảy ra làm người hòa giải.
+Trần Trạch đứng dựa vào cạnh bàn, rít một hơi thuốc, ngón trỏ móc vào khoen chìa khóa xe xoay tròn từng vòng điệu nghệ.
 
-Trần Trạch dựa vào bàn, hút thuốc, tay mân mê chìa khóa xe, xỏ vào ngón trỏ xoay vòng vòng.
+Triệu Kim An dọn dẹp xong giường chiếu, thong thả trèo xuống, trên vành tai vẫn kẹp điếu thuốc Hòa Thiên Hạ ban nãy.
 
-Triệu Kim An dọn dẹp xong giường chiếu, thong thả leo xuống, trên tai vẫn còn cài điếu Hòa Thiên Hạ kia.
+Lưu Sấm Phong lại cười hì hì tìm chuyện để nói: "Kim An, cậu không hút thuốc à? Thế thì phòng mình chỉ có tôi với anh Trạch hút thôi à?"
 
-Lưu Sấm Phong lại cười tìm chuyện để nói: "Kim An, cậu không hút thuốc à? Vậy là trong phòng chỉ có tôi với Trạch ca hút thôi sao?"
+Triệu Kim An thản nhiên đáp rằng trên giường không tiện hút thuốc.
 
-Triệu Kim An bảo trên giường không tiện hút thuốc.
+Lưu Sấm Phong ngẩn người ra một chút, chớp chớp mắt nhìn Triệu Kim An rồi bảo: "Kim An trông cậu nho nhã thư sinh thật đấy, còn nhã nhặn hơn cả đám con gái ở quê tôi."
 
-Lưu Sấm Phong ngẩn người, chớp mắt nhìn Triệu Kim An nói: "Kim An, cậu thư sinh quá, còn thư sinh hơn cả mấy đứa con gái chỗ tôi nữa."
+"Chậc chậc, cái cậu này ăn nói khéo léo ghê cơ."
 
-"Chậc chậc, gã này thật biết cách nói chuyện đấy."
+Trần Trạch không nhịn được bật cười một tiếng, đưa mắt quan sát kỹ Triệu Kim An.
 
-Trần Trạch nhịn không được bật cười một tiếng, quan sát kỹ Triệu Kim An.
+Triệu Kim An sững lại vài giây, khẽ mỉm cười, không đáp lời.
 
-Triệu Kim An ngẩn ra vài giây, mỉm cười, không nói gì.
-
-Thực ra Trần Trạch rất công nhận nhan sắc của Triệu Kim An, nhưng Lưu Sấm Phong lại thấy Triệu Kim An quá "thanh tú", chẳng ra dáng đàn ông chút nào, anh ta lại vội vàng giải thích với Triệu Kim An rằng mình không có ý đó.
+Thực lòng mà nói, Trần Trạch rất ưng ngoại hình và khí chất của Triệu Kim An. Trong khi đó, Lưu Sấm Phong lại cảm thấy Triệu Kim An trông quá "thanh tú", chẳng có tí chất đàn ông nào, đoạn gã vội vàng giải thích với Triệu Kim An rằng mình không có ý xúc phạm.
 
 Triệu Kim An bảo không sao.
 
-Không ngờ Lưu Sấm Phong lại được đà, anh ta liếc nhìn phòng tắm rồi nói: "Hì hì, vẫn là Kim An lượng thứ lớn."
+Không ngờ Lưu Sấm Phong lại được đà lấn tới, gã liếc nhìn về phía phòng tắm rồi cười nói: "Hì hì, vẫn là Kim An rộng lượng, độ lượng hơn khối người."
 
-Triệu Kim An không đáp lời nữa, hắn dọn dẹp bàn học của mình.
+Triệu Kim An không buồn tiếp lời gã nữa, anh bắt đầu quay sang dọn dẹp chiếc bàn học của mình.
 
-Trong cả phòng, Triệu Kim An là người đến muộn nhất, trên giường và bàn học đều có đồ đạc "di sản" của đàn anh khóa trước để lại cần dọn dẹp, những thứ khác thì không sao, chỉ sợ nhất trên giường có mấy cái "vò giấy" khả nghi.
+Trong cả phòng, Triệu Kim An là người đến muộn nhất. Trên giường và mặt bàn học vẫn còn vương lại không ít đồ đạc của các tiền bối khóa trước để lại cần phải dọn dẹp sạch sẽ. Mọi thứ khác thì còn đỡ, ngán nhất là trên giường sót lại mấy "cục giấy vo tròn" đầy khả nghi.
 
-Con trai tắm rất nhanh, Cốc Siêu Thừa lau tóc, ôm dầu gội, sữa tắm, sữa rửa mặt đi ra mở một cái tủ, cất đồ vào trong.
+Con trai tắm rửa rất nhanh. Cốc Siêu Thừa vừa dùng khăn lau tóc vừa ôm đống chai lọ dầu gội, sữa tắm, sữa rửa mặt bước ra, mở chiếc tủ cá nhân rồi cất hết đồ vào trong.
 
-"... Còn khóa lại nữa?"
+"... Lại còn khóa lại cơ à?"
 
-Lưu Sấm Phong đột nhiên thốt ra một câu, rồi lại gãi đầu: "Cái đó, tôi quên mua mất rồi, có thể cho tôi mượn dùng chút không?"
+Lưu Sấm Phong buột miệng thốt ra một câu, rồi gãi gãi đầu: "À ừm, tôi quên chưa kịp mua, cậu cho tôi mượn dùng nhờ chút được không?"
 
-Lần này Cốc Siêu Thừa khó xử thật sự.
+Lần này đến lượt Cốc Siêu Thừa rơi vào thế khó xử.
 
-Cho mượn cũng không được, mà không cho cũng không xong, anh ta nhìn ba người bạn cùng phòng.
+Cho mượn cũng dở mà không cho mượn cũng chẳng xong, cậu ta ngước mắt nhìn ba người bạn cùng phòng.
 
-"Không sao, dùng của tôi đi."
+"Không sao đâu, cứ dùng đồ của tôi này."
 
-Lúc này Trần Trạch lên tiếng, bảo dùng xong cứ để trong phòng tắm, có lẽ gã cũng thấy Cốc Siêu Thừa hơi quá chi li tính toán.
+Đúng lúc này Trần Trạch lên tiếng, bảo cứ dùng xong thì để luôn trong phòng tắm. Có lẽ cậu ta cũng cảm thấy Cốc Siêu Thừa có phần quá đỗi chi li tính toán.
 
-"Hì hì, vẫn là Trạch ca rộng rãi."
+"Hì hì, vẫn là anh Trạch hào sảng phóng khoáng nhất."
 
-Lưu Sấm Phong nịnh nọt một câu.
+Lưu Sấm Phong lập tức tâng bốc một câu.
 
-Cốc Siêu Thừa đặt mạnh đồ lên bàn, ngồi xuống ghế không thèm nói năng gì nữa.
+Cốc Siêu Thừa đặt mạnh mấy món đồ lên bàn, ngồi phịch xuống ghế không nói thêm lời nào nữa.
 
-Ôi, mối quan hệ ngày đầu tiên của mấy ông bạn phòng 303 này... có lẽ bắt đầu từ chuyện Lưu Sấm Phong và Cốc Siêu Thừa không đứng ra chống lưng cho Trần Trạch nên mọi thứ mới trở nên nhạy cảm như vậy.
+Ôi chao, mối quan hệ ngày đầu tiên giữa các bạn cùng phòng 303... Có lẽ bắt nguồn từ vụ của Trần Trạch, việc Lưu Sấm Phong và Cốc Siêu Thừa không dám đứng ra chống lưng đã vô tình khiến sợi dây liên kết trở nên vô cùng nhạy cảm và gượng gạo.
 
-Nhưng Triệu Kim An không hề bị ảnh hưởng chút nào, dọn dẹp xong bàn học, hắn liền đi ra ngoài bảo là đi mua ít đồ.
+Tuy nhiên, Triệu Kim An chẳng hề bị ảnh hưởng mảy may. Dọn dẹp xong bàn học, anh liền đứng dậy cất tiếng bảo mình muốn ra ngoài mua chút đồ.
 
-"Kim An, cứ dùng của tôi trước đi, không sao đâu."
+"Kim An, cứ lấy đồ của tôi mà dùng trước, không phải ngại đâu."
 
-Trần Trạch hào phóng ra vẻ, chìa khóa xe trên ngón trỏ vẫn đang xoay vòng.
+Trần Trạch xởi lởi lên tiếng, chiếc chìa khóa xe trên ngón trỏ vẫn xoay đều.
 
-Triệu Kim An bảo mình không dùng sữa tắm và sữa rửa mặt, hắn đi mua kem đánh răng, bàn chải mấy thứ đó thôi.
+Triệu Kim An cười bảo mình không dùng sữa tắm và sữa rửa mặt, anh chỉ ra ngoài mua kem đánh răng, bàn chải cùng vài thứ linh tinh thôi.
 
-"Sữa tắm cậu ta cũng không dùng luôn!?"
+"Đến cả sữa tắm cậu ấy cũng không dùng luôn à?!"
 
-Sau khi Triệu Kim An rời đi, họ mới phát hiện Triệu Kim An chỉ đeo một cái ba lô, không xách theo vali, cũng chẳng mang theo xô chậu gì vào cả.
+Sau khi Triệu Kim An rời khỏi phòng, hai người kia mới chợt nhận ra anh chỉ khoác mỗi một chiếc ba lô, chẳng hề kéo theo vali hay xách theo xô chậu gì khi bước vào phòng.
 
-Thực ra Lưu Sấm Phong cũng chưa bao giờ dùng sữa rửa mặt, chỉ là thấy bạn cùng phòng ai nấy đều cầu kỳ như thế, chẳng lẽ mình lại để mình giống hệt một gã nhà quê sao?
+Thực ra bản thân Lưu Sấm Phong trước giờ cũng chưa từng dùng sữa rửa mặt bao giờ, chỉ là thấy các bạn cùng phòng đều có vẻ sành điệu, kỹ tính như vậy, gã cũng không muốn để mình trông quê mùa như một kẻ nhà quê.
 
-Trần Trạch nhìn hai người bạn cùng phòng còn lại, trong cả cái phòng này, gã chỉ có chút hứng thú với Triệu Kim An.
+Trần Trạch đưa mắt nhìn hai người bạn cùng phòng còn lại. Trong cả cái phòng ký túc xá này, cậu ta chỉ có chút hứng thú với mỗi Triệu Kim An.
 
-Mặc dù Triệu Kim An ăn mặc bình thường nhất, Cốc Siêu Thừa mặc một bộ đồ cũng tạm được, còn Lưu Sấm Phong thì thích chiếm chút lợi nhỏ, anh ta không biết chiếc áo Adidas của mình in sai mất một chữ cái sao?
+Mặc dù Triệu Kim An ăn mặc giản dị nhất, Cốc Siêu Thừa mặc một bộ quần áo nhìn tạm được, còn Lưu Sấm Phong thì suốt ngày nhăm nhe chiếm chút món hời vặt vãnh. Chẳng lẽ gã không nhận ra chiếc áo Adidas gã đang mặc trên người bị in sai mất một chữ cái hay sao?
+
+...

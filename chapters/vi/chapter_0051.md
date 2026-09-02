@@ -1,215 +1,217 @@
-# Chương 51: Không Sao Đâu, Anh Ấy Say Rồi
+# Chương 51: Không sao đâu, anh ấy say rồi
 
-Chờ ba người Từ Mạn Mạn xuống lầu, Trần Trạch đã đỗ xe ngay dưới ký túc xá nữ.
+> **Tiêu đề gốc**: 第51章 没关系，他喝醉了。
 
-"Mạn Mạn, Trần Trạch ngoan thật đấy nha."
+Đợi đến khi ba người nhóm Từ Mạn Mạn bước xuống lầu, Trần Trạch đã lái chiếc BMW đỗ ngay dưới chân khu ký túc xá nữ.
 
-Diêu Tân nhỏ giọng trêu chọc.
+"Mạn Mạn, Trần Trạch ngoan ghê nha."
 
-Từ Mạn Mạn mặc một chiếc quần jean cùng áo thun đơn giản, nàng mỉm cười, không đáp lời.
+Diêu Tân ghé sát tai cô bạn, khẽ khàng trêu chọc.
 
-Thẩm Tử Ngôn nhận ra rằng, khi Từ Mạn Mạn và Trần Trạch ở bên nhau, Từ Mạn Mạn giống như một người chị lớn hơn. Trần Trạch ở trước mặt người khác thì rất tăng động, nhưng lại cực kỳ nghe lời Từ Mạn Mạn.
+Từ Mạn Mạn diện một chiếc quần bò đơn giản kết hợp cùng áo phông năng động. Nghe bạn nói, cô chỉ khẽ mỉm cười, không đáp lời.
 
-Ở phòng 406, Mộc Dao và Diêu Tân mới là những cô nàng ra dáng thiếu nữ nhất.
+Thẩm Tử Ngôn đã sớm nhận ra điều này. Trong cách ứng xử giữa Từ Mạn Mạn và Trần Trạch, Mạn Mạn luôn mang phong thái của một người chị lớn; Trần Trạch ở trước mặt người khác thì lông bông, ngông nghênh là thế, nhưng lại răm rắp nghe lời Từ Mạn Mạn.
 
-Thẩm Tử Ngôn và Diêu Tân tự nhiên ngồi vào hàng ghế sau. Diêu Tân sờ soạn nội thất chiếc BMW, liếc nhìn Từ Mạn Mạn đang ngồi ở ghế phụ với dáng vẻ đoan trang hào phóng, trong lòng càng thêm tích cực đẩy thuyền cho cặp đôi này.
+Ở phòng 406, chỉ có Mộc Dao và Diêu Tân là giống mấy cô nữ sinh mới lớn nhất.
 
-Giống như Mộc Dao từng nghĩ, Từ Mạn Mạn dường như đã chiếm hết mọi ưu thế. Mẹ chồng tương lai yêu quý, nhà chồng lại giàu có, bạn trai thì nghe lời. Ngược lại, Từ Mạn Mạn xinh đẹp, dịu dàng phóng khoáng cũng rất xứng đôi với Trần Trạch.
+Thẩm Tử Ngôn và Diêu Tân tự nhiên ngồi vào hàng ghế sau. Diêu Tân vừa sờ tay lên lớp nội thất da sang trọng của chiếc BMW, vừa ngước nhìn Từ Mạn Mạn ngồi đoan trang, nhã nhặn ở ghế phụ, trong lòng lại càng thêm ngưỡng mộ cặp đôi này.
 
-"Nhanh lên, Trạch ca và các bạn ấy đến rồi!"
+Đúng như những gì Mộc Dao từng nghĩ, Từ Mạn Mạn dường như có được tất cả mọi điều hoàn hảo nhất: được mẹ chồng tương lai hết mực yêu quý, nhà mẹ chồng lại giàu nứt đố đổ vách, bạn trai thì phục tùng nghe lời. Mà ngược lại, Từ Mạn Mạn xinh đẹp, dịu dàng, đoan trang cũng hoàn toàn xứng đôi vừa lứa với Trần Trạch.
 
-Lưu Sấm Phong lại mặc chiếc áo Adidas kia vào, không thể chờ đợi thêm để được gặp Thẩm Tử Ngôn.
+"Nhanh chân lên, bọn anh Trạch tới rồi kìa!"
 
-Chuyện kiểu này chẳng ai nỡ vạch trần. Loại người như Lưu Sấm Phong chỉ cần tiếp xúc là biết ngay tính cách thế nào, nếu bạn tốt bụng nhắc nhở, hắn có khi còn nghĩ bạn đang xem trò cười của hắn, khinh thường hắn không chừng.
+Lưu Sấm Phong lại khoác lên mình chiếc áo phông Adidas quen thuộc, nôn nóng không chờ nổi để được gặp Thẩm Tử Ngôn.
 
-Triệu Kim An đi phía sau, ném một điếu thuốc cho Lưu Sấm Phong ở phía trước.
+Chuyện kiểu này chẳng ai nỡ vạch trần. Người như Lưu Sấm Phong chỉ cần tiếp xúc qua là biết ngay tính nết, nếu có lòng tốt nhắc nhở, khéo hắn lại tưởng người ta đang cười nhạo, coi thường mình.
 
-Lưu Sấm Phong cầm bao Phù Dung Vương ngắm nghía: "Hì hì, Kim An, cuối cùng cậu cũng chịu hết khiêm tốn rồi à. Cậu nên học tập Trạch ca từ sớm mới phải, nếu không hào quang bị Trạch ca cướp sạch mất."
+Triệu Kim An đi phía sau, tiện tay rút một điếu thuốc ném sang cho Lưu Sấm Phong.
 
-"Lớp phó, trầu cau thì đừng ăn nữa thì hơn."
+Lưu Sấm Phong cầm điếu Hoàng Phù Dung ngắm nghía rồi cười hề hề: "Hê hê, Kim An, cuối cùng cậu cũng chịu phô trương một tí rồi đấy. Đáng ra cậu phải học hỏi anh Trạch từ sớm mới phải, không thì hào quang bị anh Trạch giật hết mất."
+
+"Xá trưởng này, món trầu cau thuốc lá kia tốt nhất là bớt ăn lại đi."
 
 Triệu Kim An có lòng tốt nhắc nhở một câu.
 
-Lưu Sấm Phong nói: "Tôi chỉ ăn mấy miếng lúc Trạch ca mua thôi."
+Lưu Sấm Phong xua tay: "Tớ cũng chỉ thỉnh thoảng ăn vài miếng lúc anh Trạch mua về thôi mà."
 
-Triệu Kim An không khuyên nữa.
+Nghe vậy, Triệu Kim An không khuyên thêm nữa.
 
-Khuyên một câu này cũng là vì chút tình cảm bạn cùng phòng.
+Nhắc một câu ấy cũng là trọn nghĩa tình bạn cùng phòng rồi.
 
-Thuốc lá thì Trần Trạch sẽ cầm đi, nhưng trầu cau lại thường xuyên bị bỏ lại trong ký túc xá. Ngoài Lưu Sấm Phong ra, mấy cậu bạn cùng lớp Kế toán 1 quê ở vùng Trường Châu, Tương Đàm cũng thường xuyên ghé phòng 303 lấy một miếng.
+Trần Trạch mỗi lần hút xong thường mang bao thuốc đi, nhưng trầu cau thì hay bỏ quên lại ký túc xá. Ngoài Lưu Sấm Phong ra, mấy cậu bạn cùng lớp Kế toán 1 quê ở mạn Trường Sa, Tương Đàm, Châu Châu cũng thường xuyên tạt qua phòng 303 nhót một miếng ăn thử.
 
-Bây giờ trầu cau còn rẻ, một hai tệ một gói, ăn vào là nghiện ngay.
+Bây giờ một gói trầu cau còn rẻ, chỉ một hai tệ một bao, ăn riết rồi đâm nghiện.
 
-Sau này bán tới 50, 100 tệ một gói, nói thật, khoản chi này còn lớn hơn cả hút thuốc, là một gánh nặng chi tiêu không hề nhỏ.
+Mãi sau này, khi giá vọt lên năm mươi, một trăm tệ một gói, nói thật lòng thì chi phí nhai trầu cau còn tốn kém hơn cả hút thuốc lá, trở thành một khoản chi tiêu không hề nhỏ.
 
-Trước cổng nhà ăn.
+...
 
-Diêu Tân chỉ vào Triệu Kim An đang đi tụt lại vài bước, hỏi: "Ai vậy? Là anh ta sao? Trần Trạch, anh nói anh ta có con trai thích là anh ta hả?"
+Trước cửa nhà ăn.
 
-Trần Trạch cười gật đầu.
+Diêu Tân chỉ tay về phía Triệu Kim An đang đi tụt lại vài bước phía sau, tò mò hỏi: "Ai thế? Là cậu ấy hả? Trần Trạch, ý cậu bảo cậu ta là người có cả con trai theo đuổi đó sao?"
 
-Từ Mạn Mạn liếc mắt một cái đã nhận ra Triệu Kim An.
+Trần Trạch mỉm cười gật đầu.
 
-Tấm ảnh Trần Trạch gửi cho nàng, nàng đã lồng qua mấy lớp thư mục để ẩn đi rồi.
+Từ Mạn Mạn vừa nhìn đã nhận ra ngay Triệu Kim An.
 
-Thẩm Tử Ngôn rất tò mò, kiểu con trai thế nào mà lại khiến con trai cũng phải thích? Tuy thành phần đùa giỡn chiếm đa số, nhưng nàng thật sự tò mò, bởi Từ Mạn Mạn vốn rất hiểu lòng người.
+Tấm ảnh mà Trần Trạch gửi cho cô dạo nọ, cô đã cất kỹ vào mấy tầng thư mục ẩn trong máy tính.
 
-Thế nên khi nãy Thẩm Tử Ngôn và Diêu Tân mới không nói hai lời mà đi theo ngay.
+Thẩm Tử Ngôn cũng vô cùng hiếu kỳ, rốt cuộc là kiểu con trai thế nào mà đến cả bạn cùng giới cũng phải động lòng? Dù biết phần nhiều chỉ là chuyện đùa vui, nhưng Thẩm Tử Ngôn quả thực thấy tò mò. Từ Mạn Mạn rất hiểu tâm lý người khác, thế nên khi Mạn Mạn rủ đi, cả Thẩm Tử Ngôn lẫn Diêu Tân đều chẳng mảy may do dự mà đi theo liền.
 
-Đợi khi đến gần hơn một chút, mắt Diêu Tân sáng lên: "Đẹp trai thật đấy!"
+Đợi khi bước lại gần hơn một chút, hai mắt Diêu Tân chợt sáng rực lên: "Đẹp trai thật đấy chứ!"
 
-Thẩm Tử Ngôn liếc nàng một cái, cười nói: "Mê trai rồi à?"
+Thẩm Tử Ngôn liếc nhìn cô bạn một cái, trêu: "Lại mê trai rồi đấy à?"
 
 Từ Mạn Mạn mím môi cười khẽ.
 
-Trần Trạch cũng cười, hắn nghĩ ngợi rồi buông một câu không đầu không đuôi: "Hợp với mấy bà cô giàu có."
+Trần Trạch cũng cười theo, rồi chẳng hiểu sao lại bồi thêm một câu đầy ẩn ý: "Rất hợp làm phi công cho phú bà."
 
-"Ý gì vậy?"
+"Ý cậu là sao?"
 
-Ba cô gái đồng loạt quay sang nhìn Trần Trạch, cả Từ Mạn Mạn cũng nhìn hắn. Trần Trạch nói: "Lát nữa các em sẽ biết."
+Cả ba cô gái đồng loạt quay lại nhìn Trần Trạch, ngay cả Từ Mạn Mạn cũng nhìn anh đầy thắc mắc. Trần Trạch cười bí hiểm: "Lát nữa mấy người sẽ biết ngay thôi."
 
-Chẳng phải anh nói chị họ anh ta lái Land Rover sao? Sao lại nói người ta như vậy?
+Chẳng phải cậu bảo chị họ cậu ấy lái xe Range Rover sao? Sao lại nói người ta như thế?
 
-Ba cô gái đầy vẻ nghi hoặc.
+Ba cô gái nhìn nhau, mặt đầy vẻ ngờ vực.
 
 "Thẩm Tử Ngôn!"
 
-Lưu Sấm Phong sải bước đi tới, cùng Cốc Siêu Thừa chào hỏi Từ Mạn Mạn. Lưu Sấm Phong cười hì hì gọi Từ Mạn Mạn là em dâu, Cốc Siêu Thừa thì chào một tiếng chị dâu.
+Lưu Sấm Phong bước nhanh tới, rồi cùng Cốc Siêu Thừa cất tiếng chào Từ Mạn Mạn. Lưu Sấm Phong cười tít mắt gọi Từ Mạn Mạn là "em dâu", còn Cốc Siêu Thừa thì lễ phép chào một tiếng "chị dâu".
 
-Không thấy Mộc Dao đâu, Cốc Siêu Thừa có chút thất vọng.
+Không thấy Mộc Dao đâu, đáy mắt Cốc Siêu Thừa thoáng qua nét hụt hẫng.
 
-Mộc Dao chưa từng trả lời tin nhắn "Có đó không?" của hắn.
+Mộc Dao chưa từng trả lời bất kỳ tin nhắn "Cậu có đó không?" nào của Cốc Siêu Thừa.
 
-Cốc Siêu Thừa cũng biết Mộc Dao đã có bạn trai, nhưng dù sao nhìn một cái cũng tốt mà.
+Dù biết thừa Mộc Dao đã có bạn trai, nhưng chỉ cần được nhìn thấy bóng dáng cô thôi cũng đủ khiến cậu ta vui rồi.
 
-Triệu Kim An đi đến gần mới nhận ra Từ Mạn Mạn. Vợ của Trần Trạch ở kiếp trước, Triệu Kim An từng gặp qua hai lần, một người phụ nữ dịu dàng phóng khoáng. Tại sao lại nói là phóng khoáng?
+Triệu Kim An bước lại gần mới nhận ra Từ Mạn Mạn. Người phụ nữ kiếp trước từng là vợ của Trần Trạch, anh từng có dịp gặp mặt hai lần. Đó là một người phụ nữ vô cùng dịu dàng và độ lượng. Vì sao lại nói là độ lượng?
 
-Có lần Trần Trạch gọi hơn mười cuộc điện thoại rủ Triệu Kim An đến bar ở đường Giải Phóng Tây chơi, Triệu Kim An đến nơi thì thấy Từ Mạn Mạn đang ngồi ở một đầu bàn rượu.
+Có một lần, Trần Trạch gọi hơn mười cuộc điện thoại giục giã Triệu Kim An đến quán bar ở đường Giải Phóng Tây tụ tập. Triệu Kim An đến nơi thì thấy Từ Mạn Mạn đang ngồi ngay ngắn ở một đầu bàn góc VIP.
 
-Nàng mặc bộ đồ công sở, hai tay đặt chồng lên gối, tư thế ngồi rất đoan chính.
+Cô mặc một bộ âu phục công sở chỉn chu, hai tay đặt ngay ngắn trên đầu gối, dáng ngồi thẳng thắn, đoan trang.
 
-Bàn rượu khi đó có rất đông nam nữ, chắc là tính chất nửa công việc nửa chơi bời, dĩ nhiên không thiếu những cô nàng tiếp rượu giá 800 tệ một người.
+Bàn VIP khi ấy có rất nhiều nam thanh nữ tú, tính chất bữa tiệc nửa là tiếp khách làm ăn, nửa là ăn chơi đàng điếm, đương nhiên không thể thiếu những cô nàng tiếp bia với mức giá tám trăm tệ một lượt.
 
-800 tệ là giá thị trường ở Quận Sa.
+Tám trăm tệ là giá chung trên thị trường quận Sa khi đó.
 
-Dẫn ra ngoài thì phải bàn giá khác, nhảy múa thì thêm 200 - 300 tệ.
+Nếu muốn dẫn ra ngoài thì phải thương lượng giá riêng, muốn các cô nàng nhảy múa góp vui thì phải boa thêm hai, ba trăm tệ nữa.
 
-Trần Trạch thấy Triệu Kim An đến, liền lấy điện thoại ra quét mã, yêu cầu những cô gái đó từng người một đứng lên quầy bar nhảy múa. Ai chi tiền người đó là kim chủ, những cô gái kia đương nhiên sà vào lòng Trần Trạch.
+Trần Trạch vừa thấy Triệu Kim An đến liền rút điện thoại ra quét mã, bảo mấy cô đào phục vụ lần lượt trèo lên mặt bàn quầy bar mà uốn éo. Ai vung tiền thì người đó là kim chủ, đám đào rượu đương nhiên lập tức xúm xít vây quanh Trần Trạch.
 
-Chỉ cần đứng lên quầy bar uốn éo vài cái là có ngay hai ba trăm tệ, những cô nhảy xong rồi hay chưa nhảy đều vây quanh hắn.
+Chỉ cần đứng lên bàn lắc lư vài cái là kiếm gọn hai ba trăm tệ, những cô đã nhảy xong lẫn những cô chưa nhảy đều chen chúc nhào về phía Trần Trạch.
 
-Người chưa nhảy thì muốn nhảy, người uốn éo xong rồi vẫn muốn uốn éo tiếp.
+Cô chưa nhảy thì háo hức muốn nhảy, cô vừa lắc xong lại muốn uốn éo thêm lần nữa.
 
-Từng người một lấy điện thoại ra, mở mã nhận tiền, số tiền này kiếm được quá dễ dàng!
+Từng người rút vội điện thoại, mở sẵn mã nhận tiền, mối làm ăn này kiếm tiền quá đỗi dễ dàng!
 
-Triệu Kim An đi tới kéo Trần Trạch lại, nhỏ giọng nói: "Vợ cậu đang ở đây đấy, tém tém lại chút đi!"
+Triệu Kim An khi ấy vội vàng kéo tay Trần Trạch, hạ thấp giọng nhắc nhở: "Vợ cậu đang ngồi lù lù ở kia kìa, tém tém lại chút đi!"
 
-Không ngờ Từ Mạn Mạn lại vỗ vỗ vai Triệu Kim An, nói: "Không sao đâu, anh ấy say rồi."
+Ai ngờ Từ Mạn Mạn lại nhẹ nhàng vỗ vai Triệu Kim An, điềm đạm nói: "Không sao đâu, anh ấy say rồi."
 
-Trong quán bar rất ồn ào.
+Quán bar khi ấy vô cùng ồn ào, hỗn loạn.
 
-Từ Mạn Mạn biết Triệu Kim An nói gì với Trần Trạch. Lúc đó họ đã kết hôn rồi, nàng cứ thế chứng kiến từ đầu đến cuối, không hề đuổi những người đàn bà kia đi, không trách Trần Trạch tiêu tiền bừa bãi, cũng không hề tức giận xách túi bỏ về...
+Từ Mạn Mạn thừa biết Triệu Kim An vừa nói gì với Trần Trạch. Thời điểm đó hai người họ đã kết hôn, thế nhưng Từ Mạn Mạn cứ ngồi lặng lẽ chứng kiến từ đầu đến cuối, không hề xua đuổi những người phụ nữ kia, không trách mắng Trần Trạch tiêu tiền bừa bãi, cũng chẳng hề giận dỗi xách túi bỏ về...
 
-Cuối cùng, 3 giờ sáng rời khỏi quán bar, chính Từ Mạn Mạn là người lái xe chở Trần Trạch về nhà.
+Cuối cùng, mãi đến ba giờ sáng rời khỏi quán bar, Từ Mạn Mạn vẫn bình thản lái xe đưa Trần Trạch về nhà.
 
-3 giờ sáng...
+Ba giờ sáng...
 
-Nghĩ lại những chuyện cũ này, Triệu Kim An nhìn Từ Mạn Mạn thêm một cái. Từ Mạn Mạn hiện tại gương mặt còn chút thanh thuần, nhưng... đúng là người phụ nữ đó, khí chất đã bắt đầu thành hình.
+Nghĩ lại những chuyện cũ của kiếp trước, Triệu Kim An không kìm được liếc nhìn Từ Mạn Mạn thêm một cái. Từ Mạn Mạn của hiện tại gương mặt vẫn còn đôi nét non nớt, ngây thơ, nhưng... đúng là người phụ nữ ấy rồi, khí chất điềm đạm, bao dung kia đã sớm thành hình.
 
 "Chào mọi người."
 
-Triệu Kim An kẹp điếu thuốc trong tay, mỉm cười gật đầu.
+Triệu Kim An kẹp điếu thuốc giữa hai ngón tay, mỉm cười gật đầu chào hỏi.
 
-"Chào anh."
+"Chào cậu."
 
-Đám sinh viên đại học chào hỏi kiểu này có chút không quen, nhưng Thẩm Tử Ngôn và Từ Mạn Mạn là những người phản ứng lại đầu tiên.
+Cách chào hỏi có phần chững chạc này khiến đám sinh viên năm nhất hơi gượng gạo, nhưng Thẩm Tử Ngôn và Từ Mạn Mạn là những người đầu tiên lên tiếng đáp lại.
 
-Triệu Kim An lại mỉm cười nhạt với họ.
+Triệu Kim An lại khẽ mỉm cười với hai người họ.
 
-Diêu Tân kéo kéo Từ Mạn Mạn, thì thầm: "Anh ấy cười lên thật sự rất đẹp nha, còn cả dáng vẻ lúc hút thuốc nữa..."
+Diêu Tân túm chặt lấy tay áo Từ Mạn Mạn, thì thầm to nhỏ: "Cậu ấy cười lên trông cuốn hút dã man, cả cái dáng vẻ kẹp điếu thuốc kia nữa chứ..."
 
-" hèn gì có con trai thích..."
+"Hẳn nào mà có cả con trai thích..."
 
-Từ Mạn Mạn vỗ vỗ tay Diêu Tân, cười nói: "Vào trong trước đi."
+Từ Mạn Mạn khẽ vỗ nhẹ lên mu bàn tay Diêu Tân, cười nói: "Thôi, chúng ta vào trong trước đã."
 
-Thức ăn trong nhà ăn không đắt, Trần Trạch gọi hơn mười món mà chưa tới một trăm tệ. Triệu Kim An không thích nợ ân tình, liền chủ động đi sang gian hàng nhỏ mua đồ uống.
+Đồ ăn trong nhà ăn sinh viên không đắt, Trần Trạch gọi hơn mười món mà tính ra chưa tới một trăm tệ. Triệu Kim An vốn không thích nợ nần ân tình của ai, liền chủ động đi sang quầy bách hóa nhỏ bên cạnh để mua đồ uống.
 
-Thẩm Tử Ngôn cũng nghĩ như vậy, Trần Trạch đã trả tiền thức ăn thì mình nên mua đồ uống.
+Thẩm Tử Ngôn cũng có cùng suy nghĩ đó, Trần Trạch đã trả tiền cơm thì mình sẽ nhận phần mua nước.
 
-Tiệm tạp hóa nhỏ bên trong nhà ăn diện tích tuy hẹp nhưng buôn bán rất chạy. Triệu Kim An tiện tay lấy vài chai nước, theo bản năng nhìn xem có nước khoáng Đông Giang Ấn Tượng hay không.
+Quầy bách hóa bên trong nhà ăn diện tích khá chật hẹp nhưng buôn bán rất đắt hàng. Triệu Kim An tiện tay lấy mấy chai nước ngọt, theo thói quen liếc mắt tìm xem có nước khoáng nhãn hiệu Đông Giang Ấn Tượng hay không.
 
-Rõ ràng Lạc Cẩn Chi vẫn chưa phủ sóng được thị trường, hắn đang định trả tiền.
+Rõ ràng là Lạc Cẩn Chi vẫn chưa kịp mở rộng mạng lưới phân phối đến đây. Anh vừa định rút tiền trả thì Thẩm Tử Ngôn đã bước tới:
 
-Thẩm Tử Ngôn nói: "Để tôi."
+"Để tớ trả cho."
 
-Triệu Kim An cúi đầu nhìn thoáng qua, thấy mình toàn lấy đồ lạnh, liền hỏi: "Các cô muốn uống gì, tôi đi lấy loại nhiệt độ thường."
+Triệu Kim An nhìn lại số nước trên tay, thấy toàn là đồ ướp lạnh, liền nói: "Các cậu muốn uống gì, để tớ đi lấy loại để ở nhiệt độ thường."
 
-Thẩm Tử Ngôn mỉm cười, lại nhìn ra ngoài một cái rồi nói: "Chắc là đều uống được đồ lạnh."
+Thẩm Tử Ngôn mỉm cười, nhìn ra ngoài cửa một cái rồi bảo: "Chắc mọi người đều uống được đồ lạnh cả đấy."
 
-Triệu Kim An hỏi: "Chuyện này mà cô cũng biết sao?"
+Triệu Kim An buột miệng: "Chuyện này mà cậu cũng biết chắc chắn thế à?"
 
-Thẩm Tử Ngôn ngẩn ra, vấn đề này mà anh cũng hỏi tới cùng à?
+Thẩm Tử Ngôn ngẩn người, chuyện tế nhị thế này mà cậu cũng gặng hỏi tới cùng sao?
 
-Nàng đi lấy 3 lon nước dừa, kề sát Triệu Kim An nhỏ giọng đáp: "Con gái chúng tôi đến ngày đó thì trong thùng rác nhà vệ sinh sẽ có..."
+Cô bèn với tay lấy ba lon nước dừa, ghé sát lại gần Triệu Kim An, khẽ thì thầm: "Con gái bọn tớ đến ngày thì trong thùng rác nhà vệ sinh sẽ có..."
 
-Nước dừa giá 5 tệ một lon, Thẩm Tử Ngôn giành trả tiền, cộng thêm 3 chai Coca và một chai nước khoáng, tổng cộng hết 24.5 tệ.
+Nước dừa có giá năm tệ một lon, Thẩm Tử Ngôn nhanh tay tranh trả tiền trước. Thêm ba chai Coca và một chai nước khoáng, tổng cộng hết hai mươi tư tệ rưỡi.
 
-Đừng coi thường 24.5 tệ, thời điểm này rất nhiều sinh viên đại học một tháng chỉ có 300 tệ tiền sinh hoạt phí.
+Đừng xem thường hai mươi tư tệ rưỡi vào thời điểm này, rất nhiều sinh viên đại học khi ấy tiền sinh hoạt cả tháng cũng chỉ vỏn vẹn ba trăm tệ.
 
-Lưu Sấm Phong nói: "Sao cũng phải uống chút rượu chứ? Hôm nay vừa hay kết thúc quân huấn rồi."
+Lưu Sấm Phong hăng hái góp vui: "Hôm nay dù sao cũng vừa kết thúc đợt huấn luyện quân sự, hay là làm tí bia đi?"
 
-Trần Trạch vừa đứng dậy, Từ Mạn Mạn đã lên tiếng: "Lát nữa anh còn phải lái xe."
+Trần Trạch vừa định đứng dậy đi lấy bia thì Từ Mạn Mạn đã cất giọng nhẹ nhàng: "Lát nữa anh còn phải lái xe đấy."
 
-"À, đúng rồi, rượu để lần sau uống."
+"À, ừ nhỉ, thế để lần sau uống vậy."
 
-Trần Trạch lại ngồi xuống, dường như bị Từ Mạn Mạn quản lý chặt chẽ. Lưu Sấm Phong liền cười nhạo Trần Trạch, bảo rằng Trạch ca sau này chắc chắn là người sợ vợ.
+Trần Trạch ngoan ngoãn ngồi thụp xuống ghế, bộ dạng hệt như bị Từ Mạn Mạn nắm thóp hoàn toàn. Lưu Sấm Phong thấy thế liền cười cợt Trần Trạch, bảo anh Trạch sau này chắc chắn là chúa sợ vợ.
 
-Hắn còn nháy mắt ra hiệu với Trần Trạch, ý tứ quá rõ ràng.
+Hắn vừa nói vừa nháy mắt ra hiệu với Trần Trạch, ý tứ trêu chọc rõ mười mươi.
 
-Diêu Tân nói: "Sợ vợ không tốt sao?"
+Diêu Tân tiếp lời: "Sợ vợ thì có gì không tốt đâu chứ?"
 
-Cặp đôi như Trần Trạch và Từ Mạn Mạn, nếu không có biến cố gì, xác suất lớn là tốt nghiệp đại học sẽ kết hôn. Đám phòng 303 và 406 từ lâu đã xem họ như một cặp vợ chồng rồi.
+Cặp đôi Trần Trạch và Từ Mạn Mạn này, nếu không có biến cố gì quá lớn thì khả năng cao tốt nghiệp đại học xong là cưới liền. Cả phòng 303 lẫn 406 từ lâu đã ngầm coi hai người như vợ chồng son.
 
-Đối với danh xưng "vợ", Từ Mạn Mạn không đáp lời, cũng không phản đối.
+Đối với danh xưng "vợ", Từ Mạn Mạn không hùa theo, nhưng cũng chẳng buồn lên tiếng phản bác.
 
-Triệu Kim An liếc nhìn Từ Mạn Mạn, có chút ngạc nhiên, nàng không cho Trần Trạch uống rượu là vì nàng vẫn chưa thi bằng lái xe sao?
+Triệu Kim An liếc nhìn Từ Mạn Mạn, trong lòng có chút ngạc nhiên. Không cho Trần Trạch uống rượu, chẳng lẽ là vì cô nàng vẫn chưa thi lấy bằng lái xe sao?
 
-Từ Mạn Mạn ngồi cạnh Trần Trạch, Diêu Tân lại chớp chớp mắt hỏi Triệu Kim An: "Triệu Kim An, cậu cũng nghĩ sợ vợ là không tốt sao?"
+Từ Mạn Mạn ngồi cạnh Trần Trạch, Diêu Tân lại chớp chớp mắt quay sang hỏi Triệu Kim An: "Triệu Kim An, cậu cũng nghĩ sợ vợ là chuyện không tốt à?"
 
-Triệu Kim An đáp: "Chủ đề này thảo luận bây giờ có hơi sớm quá không?"
+Triệu Kim An thong thả đáp: "Bây giờ bàn chuyện này có phải là hơi sớm quá rồi không?"
 
-"Nói chút đi mà."
+"Thì cứ nói thử xem nào."
 
-Họ chưa thấy Triệu Kim An có điểm nào giống như lời Trần Trạch nói là "hợp với mấy bà cô giàu có" cả.
+Các cô nàng vẫn chưa nhìn ra Triệu Kim An có điểm nào giống như lời Trần Trạch nói là "hợp với phú bà".
 
-Điểm duy nhất là nết ăn của Triệu Kim An rất tốt.
+Điểm duy nhất gây ấn tượng chính là tướng ăn của Triệu Kim An cực kỳ nhã nhặn, gia giáo.
 
-Hắn chưa bao giờ xoay mâm thức ăn, bưng bát, chỉ gắp những món ở ngay trước mặt mình, hơn nữa chỉ gắp ở phần rìa đĩa, không dùng đũa bới móc lung tung ở giữa.
+Suốt bữa ăn, anh chưa từng xoay đĩa thức ăn, tay luôn bưng bát cơm, chỉ gắp những món ở gần tầm với của mình. Hơn nữa, anh chỉ gắp thức ăn ở rìa ngoài của đĩa, tuyệt đối không dùng đũa xới lộn hay lựa chọn miếng ngon ở giữa đĩa.
 
-Đây là do bà nội dạy, bảo rằng đi làm khách nhà người khác thì không được dùng đũa gõ bát, đũa không được cắm thẳng vào bát cơm trắng, vân vân.
+Đây là phép tắc mà bà nội đã dạy anh từ thuở bé. Bà bảo khi đi làm khách nhà người khác, không được dùng đũa gõ vào bát, không được cắm thẳng đũa vào bát cơm trắng, và càng không được bới móc đồ ăn.
 
-Dưới sự chú ý của Thẩm Tử Ngôn và Diêu Tân, Từ Mạn Mạn cũng quay đầu nhìn Triệu Kim An. Hắn suy nghĩ một chút rồi nói: "Sợ vợ cũng chẳng có gì không tốt, miễn là vợ biết điều, biết quán xuyến gia đình..."
+Trước ánh mắt chăm chú của Thẩm Tử Ngôn và Diêu Tân, Từ Mạn Mạn cũng khẽ quay đầu sang nhìn Triệu Kim An. Triệu Kim An ngẫm nghĩ một thoáng rồi nói: "Sợ vợ thật ra chẳng có gì là xấu cả, miễn là người vợ đó biết thấu tình đạt lý, khéo léo lo toan việc nhà..."
 
-Trần Trạch cầm đồ uống lên, nói: "Kim An, lại đây chạm một cái."
+Trần Trạch nghe thế liền nâng lon nước ngọt lên: "Kim An, cụng ly cái nào!"
 
-Từ Mạn Mạn nhìn Triệu Kim An một lúc rồi chậm rãi quay đầu đi.
+Từ Mạn Mạn nhìn Triệu Kim An thêm một lúc, rồi mới từ từ thu lại ánh mắt.
 
-Thẩm Tử Ngôn cũng gật đầu tỏ vẻ tán đồng.
+Thẩm Tử Ngôn cũng khẽ gật đầu, bày tỏ sự đồng tình với quan điểm đó.
 
-"Cái tên mặt trắng nhỏ này..."
+"Cái thằng mặt trắng này..."
 
-Lưu Sấm Phong thấy tình hình không ổn, đột nhiên cười hì hì nói: "Kim An, hèn gì Lý Lộ và Đường Hiểu Tình lớp mình lại thích cậu."
+Lưu Sấm Phong thấy tình thế có vẻ không ổn, liền đột ngột cười ha hả chen vào: "Kim An, hèn gì Lý Lộ với Đường Hiểu Tình lớp mình lại mê cậu như điếu đổ."
 
-"Lý Lộ và Đường Hiểu Tình là ai?" Diêu Tân hỏi.
+"Lý Lộ với Đường Hiểu Tình là ai thế?" Diêu Tân tò mò hỏi.
 
-Lưu Sấm Phong liền thao thao bất tuyệt, kể lể Lý Lộ và Đường Hiểu Tình tốt thế nào, còn nói lúc quân huấn họ đã chụp ảnh chung với nhau, mắt thì thỉnh thoảng lại liếc về phía Thẩm Tử Ngôn.
+Lưu Sấm Phong như vớ được cờ, lập tức thao thao bất tuyệt, kể lể hai cô bạn kia tốt đẹp nhường nào, lại còn khoe hôm tổng kết quân sự hai cô ấy đã chủ động chụp ảnh chung với Kim An ra sao, trong lúc nói mắt cứ liếc trộm sang Thẩm Tử Ngôn.
 
-Triệu Kim An hiểu rồi.
+Triệu Kim An hiểu ngay tỏng tòng tong.
 
-Hắn cũng có cùng suy nghĩ với Trần Trạch, loại con gái như Thẩm Tử Ngôn, Lưu Sấm Phong muốn theo đuổi thì ngay cả tư cách làm lốp dự phòng cũng chẳng có.
+Anh có cùng suy nghĩ với Trần Trạch: người như Lưu Sấm Phong mà muốn theo đuổi một cô gái như Thẩm Tử Ngôn, thì e rằng đến tư cách làm "kẻ bám đuôi" hèn mọn cũng chẳng có cửa.
 
-Thẩm Tử Ngôn và Từ Mạn Mạn nhìn Triệu Kim An, thấy hắn chẳng buồn tranh luận với Lưu Sấm Phong lấy một câu. Từ Mạn Mạn thầm nghĩ mình đã hiểu rồi, nàng có quen biết Lý Lộ.
+Thẩm Tử Ngôn và Từ Mạn Mạn cùng đưa mắt nhìn Triệu Kim An, thấy anh chẳng buồn cất lời tranh biện lấy nửa câu với Lưu Sấm Phong. Từ Mạn Mạn thầm nghĩ mình đã hiểu ra vấn đề, cô vốn biết Lý Lộ là người như thế nào.
 
-"Anh ấy vốn dĩ không coi trọng loại con gái như Lý Lộ, căn bản là không để tâm, đã không để tâm thì cần gì phải tranh luận?"
+"Cậu ấy căn bản không thèm để mắt tới kiểu con gái như Lý Lộ, hoàn toàn không để tâm trong lòng. Mà một khi đã không để tâm, thì hà cớ gì phải tốn công tranh cãi?"
 
-Từ Mạn Mạn thầm nghĩ trong lòng.
+Từ Mạn Mạn thầm nhủ trong lòng.

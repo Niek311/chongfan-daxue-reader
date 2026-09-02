@@ -1,211 +1,209 @@
-# Chương 187: Minh bạch lại hình như không biết.
+# Chương 187: Tưởng đã hiểu mà như chưa hiểu
 
-Triệu Kim An lại biết, không có đơn giản như vậy.
+> **Tiêu đề gốc**: 第187章 明白了又好像没明白。
 
-Hắn tiếp xúc qua Dương thù đẹp hai lần, biết Dương thù đẹp đối với Từ Mạn Mạn khá hài lòng.
+Triệu Kim An lại biết rõ, mọi chuyện đâu có đơn giản như vậy.
 
-Đương nhiên, Từ Mạn Mạn nói đơn giản cũng đơn giản, ai cũng không thể cưỡng cầu.
+Cậu từng tiếp xúc với Dương Thù Mỹ hai lần, thừa hiểu bà hài lòng và ưng ý Từ Mạn Mạn đến mức nào.
 
-Không đơn giản là Lâm Thanh Tuyết, lấy Triệu Kim An đối với Dương thù aesthetic; esthetic hiểu rõ, Lâm Thanh Tuyết nghĩ ra được Dương thù aesthetic; esthetic tiếp nhận có chút khó khăn.
+Tất nhiên, với Từ Mạn Mạn mà nói thì buông tay là xong, chẳng ai có thể ép buộc được cô.
 
-Kỳ thực Lâm Thanh Tuyết còn tốt, ngươi không thể nói Lâm Thanh Tuyết là trà xanh, như thế quá chủ quan rồi.
+Cái không đơn giản ở đây chính là Lâm Thanh Tuyết. Dựa trên những hiểu biết của Triệu Kim An về Dương Thù Mỹ, Lâm Thanh Tuyết muốn được người phụ nữ này chấp nhận là chuyện khó như lên trời.
 
-Khách quan tới nói, Lâm Thanh Tuyết tướng mạo xinh đẹp, lại là 2 1 1 trọng điểm đại học.
+Thực ra bản thân Lâm Thanh Tuyết cũng chẳng đến nỗi tệ, không thể chụp mũ nói cô là loại con gái trà xanh thực dụng, nói thế thì quá chủ quan.
 
-Chỗ khó hẳn là Dương thù đẹp chính mình, cùng với không tốt hướng Từ Mạn Mạn của phụ mẫu dặn dò.
+Nhìn nhận một cách khách quan, Lâm Thanh Tuyết vừa xinh đẹp, lại đỗ vào trường đại học trọng điểm thuộc đề án 211.
 
-Bên trong nam, 4 0 6.
+Nút thắt nan giải nằm ở chính bản thân Dương Thù Mỹ, và cả việc bà biết ăn nói làm sao với cha mẹ của Từ Mạn Mạn.
 
-Quả nhiên, không đầy một lát Từ Mạn Mạn của điện thoại liền vang lên.
+Đại học Trung Nam, phòng 406.
 
-Trần trạch cùng lưu xông phong tiến vào đồn công an, song phương phụ mẫu nhất định sẽ nhận được điện thoại.
+Quả nhiên, chỉ một lát sau chuông điện thoại của Từ Mạn Mạn đã vang lên dồn dập.
 
-Từ Mạn Mạn nhận điện thoại nghe xong sẽ, bình tĩnh nói:"cha, ngươi trước tiên đem đầu đuôi sự tình toàn bộ làm rõ ràng lại cho ta gọi điện thoại, người kia vì sao lại đánh trần trạch?"
+Trần Trạch và Lưu Sấm Phong bị đưa vào đồn công an, phụ huynh hai bên chắc chắn sẽ nhận được cuộc gọi thông báo.
 
-Nói xong, Từ Mạn Mạn điện thoại tắt máy.
+Từ Mạn Mạn bắt máy, lắng nghe một hồi rồi bình thản cất lời: "Bố à, bố cứ tìm hiểu cho rõ ngọn ngành đầu đuôi câu chuyện đi đã rồi hẵng gọi lại cho con. Rốt cuộc vì sao người ta lại đánh Trần Trạch?"
 
-Nàng biết cái tiếp theo chính là Dương thù đẹp.
+Nói dứt lời, Từ Mạn Mạn liền tắt nguồn điện thoại.
 
-Nhìn xem"tút tút tút"của điện thoại, từ tắc thì tòa nhà mắt nhìn dựa vào đầu giường lão bà:"ta đi ra ngoài hút điếu thuốc."
+Cô biết người gọi đến tiếp theo chắc chắn sẽ là Dương Thù Mỹ.
 
-Đi tới bên ngoài phòng khách mặt ban công, thổi gió lạnh, từ tắc thì tòa nhà nhóm lửa một điếu thuốc lá, hắn nhớ tới năm trước đêm đó lái xe đưa nữ nhi về nhà Audi A 6.
+Nhìn chiếc điện thoại đã phát ra những tiếng tút tút kéo dài, Từ Tắc Đống liếc mắt nhìn người vợ đang ngồi tựa ở đầu giường: "Tôi ra ngoài hút điếu thuốc."
 
-Từ tắc thì tòa nhà không cùng lão bà giảng chuyện này, cũng thấy không rõ trong xe người nào.
+Bước ra ban công phòng khách, đón những cơn gió lạnh phả vào mặt, Từ Tắc Đống châm một điếu thuốc lá. Ông chợt nhớ lại đêm trước Tết, chiếc xe Audi A6 đã chở con gái mình về tận cổng nhà.
 
-Đêm nay, Từ Mạn Mạn chưa giặt tắm, nằm thẳng ở trên giường.
+Từ Tắc Đống chưa từng kể chuyện này cho vợ nghe, và đêm đó ông cũng không nhìn rõ người ngồi trong xe là ai.
 
-Nàng biết mình điện thoại mở máy một cái khẳng định có mười mấy cái miss call.
+Tối hôm ấy, Từ Mạn Mạn không đi tắm mà cứ thế nằm thẳng người trên giường.
 
-Đêm nay, lưu xông phong cùng trần trạch liền phóng ra tới.
+Cô thừa hiểu, chỉ cần mình vừa bật nguồn máy lên, màn hình chắc chắn sẽ hiện ra hàng chục cuộc gọi nhỡ.
 
-Trần trạch không biết đi nơi nào, đại khái không mặt mũi trở về ký túc xá.
+Đêm đó, Lưu Sấm Phong và Trần Trạch cũng được thả ra ngoài.
 
-Lưu xông phong tên chó chết này cũng còn được ra, hắn không có giải tán 3 0 3 cùng 4 0 6 của Q Q nhóm, mà là bằng vào chủ nhóm của quyền lợi đem trần trạch đá ra cái này Q Q nhóm.
+Chẳng biết Trần Trạch đã đi đâu, có lẽ cậu ta cũng chẳng còn mặt mũi nào để quay về phòng ký túc xá nữa.
 
-Quá cẩu rồi!
+Lưu Sấm Phong cái thằng này cũng làm ra được cái trò bỉ ổi: Cậu ta không giải tán nhóm chat QQ chung của phòng 303 và 406, mà lại dùng quyền hạn trưởng nhóm để thẳng tay đá Trần Trạch ra khỏi nhóm.
 
-Ngươi hoặc là liền giải tán; hoặc là coi như cái gì đều không phát sinh.
+Đúng là chó thật!
 
-Ngược lại không có người ở trong bầy nói chuyện.
+Một là giải tán luôn đi; hai là cứ vờ như chưa từng có chuyện gì xảy ra.
 
-Lâm Thanh Tuyết người không việc gì một dạng, như cũ nên lên lớp lên lớp, không sợ bất luận kẻ nào ánh mắt khác thường.
+Dù sao thì trong nhóm cũng đâu có ai mở miệng nói câu nào.
 
-Trần trạch người không tại, nàng còn đem phòng bi da thu thập xong.
+Lâm Thanh Tuyết thì cứ như người vô can, đến giờ đi học vẫn thản nhiên lên lớp, chẳng hề e sợ bất kỳ ánh mắt xoi mói, dị nghị nào của người xung quanh.
 
-Nàng hỏi trần trạch, trần trạch nói cùng Từ Mạn Mạn cái gì đều không phát sinh, Lâm Thanh Tuyết hạ quyết tâm, trần trạch muốn vứt bỏ chính mình không có khả năng, trên đời này không có chuyện dễ dàng như vậy.
+Trần Trạch vắng mặt, cô thậm chí còn đến dọn dẹp quán bi-a sạch sẽ, ngăn nắp.
 
-Có một chút là xác định, Lâm Thanh Tuyết lần đầu tiên là cho trần trạch.
+Cô đã gặng hỏi Trần Trạch, Trần Trạch thề thốt giữa cậu ta và Từ Mạn Mạn chưa từng xảy ra chuyện gì vượt quá giới hạn. Lâm Thanh Tuyết đã hạ quyết tâm, Trần Trạch muốn rũ bỏ cô là chuyện không tưởng, trên đời này làm gì có chuyện ngon ăn rẻ rúng đến thế.
+
+Có một điều chắc chắn, lần đầu tiên của Lâm Thanh Tuyết quả thực đã trao trọn cho Trần Trạch.
 
 "Kim An!"
 
-Vương duy đào chạy tới báo tin, một mặt hưng phấn:"Lâm Thanh Tuyết trở thành phòng bi da lão bản nương, chúng ta đi chơi là nàng tại lấy tiền, nhưng không thu tiền của chúng ta, ha ha."
+Vương Duy Đào hớt hải chạy tới báo tin, mặt mày hớn hở: "Lâm Thanh Tuyết thành bà chủ quán bi-a rồi nhé! Tụi mình qua đó chơi là cô ấy đứng quầy thu tiền đấy, nhưng mà không lấy tiền của bọn mình đâu, ha ha."
 
-"....."
+"..."
 
-Triệu Kim An cười một tiếng:"vương duy đào, ngươi có thể đàm luận cái bạn gái sao?"
+Triệu Kim An bật cười một tiếng: "Vương Duy Đào, mày có thể kiếm một cô bạn gái nghiêm túc mà yêu đương được không?"
 
-"a?"
+"Hả?"
 
-"ngươi đi truy cái nữ sinh, đeo đuổi nữ sinh của tiền ta ra."
+"Mày đi tán một cô nào đi, toàn bộ chi phí tán gái tao bao hết."
 
-Không nghĩ tới vương duy đào còn không vui vẻ:"không phải, Kim An, ngươi đem ta làm người nào?"
+Ai ngờ Vương Duy Đào lại xụ mặt xuống: "Kìa Kim An, mày coi tao là cái loại người gì thế hả?"
 
-"đào tử, các ngươi liền cần phải đi trần trạch phòng bi da chơi sao?"
+"Này Đào tử, bọn mày cứ nhất thiết phải sang quán bi-a của Trần Trạch chơi mới chịu được à?"
 
-Trần trạch không tại ký túc xá, lưu xông phong tức giận nói.
+Trần Trạch không có ở phòng, Lưu Sấm Phong liền bực bội lên tiếng cằn nhằn.
 
-"các ngươi đánh nhau, vì cái gì chúng ta không thể đi?"
+"Hai đứa mày đánh nhau, liên quan gì mà bọn tao không được sang chơi?" Vương Duy Đào lý lẽ hùng hồn vặn lại.
 
-Vương duy đào có lý có cứ phản bác.
+"Hơn nữa người ta Lâm Thanh Tuyết vẫn có phong thái của bà chủ lắm nhé, bạn cùng lớp bọn mình qua là không thu một đồng nào hết."
 
-"lại nói, Lâm Thanh Tuyết vẫn có chút lão bản nương khí độ của, đồng học của lớp chúng ta đều không lấy tiền."
+"... Ái chà, suỵt."
 
-"..... Ôi, tê."
+Lưu Sấm Phong định mở miệng chửi đổng nhưng lại vô tình làm khóe miệng đau nhói. Cậu ta nhận ra mình chẳng có cách nào trị được hai cái thằng Triệu Kim An và Vương Duy Đào này. Hèn chi hai đứa nó thân nhau đến thế, mở mồm ra câu nào là tức chết người ta câu đó.
 
-Lưu xông phong muốn mắng người lại kéo đau khóe miệng, hắn phát hiện mình cầm Triệu Kim An cùng vương duy đào không có điểm biện pháp, khó trách hai người quan hệ tốt như vậy, nói chuyện là chân khí người.
+Cốc Siêu Thừa bên cạnh gật đầu phụ họa: "Lão Lưu à, Lâm Thanh Tuyết đối nhân xử thế cũng được lắm đấy, tao cũng vừa từ quán bi-a về..."
 
-Đáy vực siêu nhận gật đầu phụ hoạ:"lão Lưu, Lâm Thanh Tuyết cách đối nhân xử thế là còn có thể, ta cũng đi phòng bi da...."
+Lưu Sấm Phong: "..."
 
-Lưu xông phong:......
+"Cô ta không lấy tiền của bọn mày, lý do tại sao bộ bọn mày không biết à?"
 
-"nàng vì cái gì không thu tiền của các ngươi, các ngươi không biết sao?"
+Cốc Siêu Thừa chẳng buồn đôi co, móc từ trong túi ra một chiếc điện thoại nát bét: "Lão Lưu, mày nhìn cái máy của tao này, bị mày giẫm nát bấy rồi."
 
-Đáy vực siêu nhận không có lý tới, lấy ra một đài nát vụn điện thoại:"lão Lưu, ngươi nhìn điện thoại di động của ta, ngươi đạp nát của."
+"Mày đi mà tìm Trần Trạch bắt đền!"
 
-"ngươi tìm trần trạch bồi!"
+"Là mày giẫm nát mà."
 
-"là ngươi đạp nát của."
+"Tao làm gì có tiền! Mọi chuyện là do nó gây ra, mày cứ tìm nó mà đòi."
 
-"ta lại không tiền, việc này là hắn đưa tới, ngươi tìm hắn bồi chính là."
+Lưu Sấm Phong phủi sạch trơn trách nhiệm. Chiếc điện thoại mà Cốc Siêu Thừa mua là dòng máy Bird, giá lúc mua tận 1.600 tệ. Lưu Sấm Phong đời nào chịu nhận phần thiệt về mình, cậu ta biết đào đâu ra 1.600 tệ bây giờ.
 
-Lưu xông phong bỏ rơi không còn một mảnh, đáy vực siêu nhận mua là một cái dẫn sóng điện thoại, giá bán 1 ngàn 6, lưu xông phong chắc chắn sẽ không nhận xuống, chính mình đi nơi nào kiếm lời cái này 1 ngàn 6.
+Cốc Siêu Thừa tức đến nghẹn họng, bản thân có lòng tốt lao vào can ngăn lại chẳng được cái tích sự gì, rước họa vào thân...
 
-Đáy vực siêu nhận có chút nha, chính mình hảo tâm khuyên can không có chiếm được hảo....
+Lưu Sấm Phong vừa ôm khóe miệng vừa thở dài cảm thán: "Kim An à, tao nhận ra rồi, vẫn là kiểu con gái như Đường Hiểu Tình tốt hơn."
 
-Lưu xông phong che mép cảm khái nói:"Kim An, ta phát giác a, vẫn là Đường Hiểu tinh cái này nữ sinh hảo."
+"Không sao đâu, phòng trưởng."
 
-"không có việc gì, bỏ dài."
+Triệu Kim An cười cười: "Sau này mày vẫn sẽ là cái gã đạp xe đạp đi quẩy bar mà thôi."
 
-Triệu Kim An cười cười:"ngươi về sau vẫn là cái kia cưỡi xe đạp đi đi bar của người."
+Lưu Sấm Phong: "..."
 
-Lưu xông phong:.....
+"Kim An, rốt cuộc câu này của mày có ý gì thế?"
 
-"Kim An, ngươi câu nói này đến cùng có ý tứ gì?"
+Vương Duy Đào vỗ vỗ vai Lưu Sấm Phong, ra vẻ cụ non từng trải: "Lớp phó à, non sông dễ đổi bản tính khó dời, chó thì làm sao bỏ được thói ăn phân."
 
-Vương duy đào vỗ vỗ lưu xông phong bả vai, ông cụ non:"lớp phó, cẩu là không đổi được đớp cứt của."
+"Mẹ kiếp, Đào tử, mày bảo ai là chó hả?"
 
-"cmn, đào tử, ngươi nói ai là cẩu?"
+Lưu Sấm Phong không dám đụng vào Triệu Kim An, chỉ có thể quay sang bắt nạt Vương Duy Đào.
 
-Lưu xông phong không dám đối với Triệu Kim An động thủ, chỉ có thể khi dễ vương duy đào.
+Có lẽ vì đánh thắng trận nên Lưu Sấm Phong cũng không cảm thấy quá mất mặt. Vả lại Lâm Thanh Tuyết cũng chẳng phải bạn gái chính thức của cậu ta, tính ra cũng không hẳn là bị cắm sừng trọn vẹn, nếu có thì chắc chỉ là cắm sừng... màu xanh nhạt?
 
-Đại khái đánh thắng đỡ, lưu xông phong không cảm thấy như vậy mất mặt đi, lại nói Lâm Thanh Tuyết không phải mình bạn gái, cũng không hoàn toàn tính toán đội nón xanh, coi là, là xanh nhạt?
+Cốc Siêu Thừa bấm số gọi cho Trần Trạch, nhắc đến chuyện chiếc điện thoại.
 
-Đáy vực siêu nhận gọi điện thoại cho trần trạch, nhấc lên điện thoại di động chuyện.
+Đầu dây bên kia truyền đến giọng nói lạnh lùng của Trần Trạch: "Ai giẫm nát thì tìm người đó mà đòi!"
 
-Đầu bên kia điện thoại truyền đến trần trạch của âm thanh:"ai đạp nát của ngươi tìm ai!"
+Triệu Kim An nhìn đồng hồ, chuẩn bị ra ngoài đến công ty.
 
-Triệu Kim An nhìn xem thời gian, chuẩn bị đi ra ngoài, hắn muốn đi công ty.
+Cốc Siêu Thừa mặt mày buồn rười rượi: "Kim An, mày bảo xem chiếc điện thoại này... ai đền đây?"
 
-Đáy vực siêu nhận một mặt phiền muộn:"Kim An, ngươi nói điện thoại... Ai bồi?"
+Triệu Kim An tựa lưng vào cửa, ngẫm nghĩ một lát: "Dù sao thì cũng không phải tao."
 
-Triệu Kim An dựa vào môn nghĩ nghĩ:"ngược lại không phải ta."
+Cốc Siêu Thừa lại đảo mắt nhìn sang Vương Duy Đào đang ngồi trong phòng.
 
-Đáy vực siêu nhận lại nhìn về phía túc xá vương duy đào.
+"Đào tử?"
 
-"đào tử?"
+Vương Duy Đào đâu có ngốc, nói ai đền thì cũng đắc tội với người đó, bảo chia đôi thì đắc tội cả hai bên. Thấy Lưu Sấm Phong đang nháy mắt ra hiệu với mình, cậu ta liền học theo điệu bộ của Triệu Kim An: "Cũng chẳng phải tao."
 
-Vương duy đào lại không ngốc, giảng ai cũng đắc tội với người, giảng một người một nửa hai người đều đắc tội, không thấy lưu xông phong đang hướng chính mình chớp mắt sao, hắn học nói chuyện:"cũng không phải ta."
+Cốc Siêu Thừa: "..."
 
-Đáy vực siêu nhận:.....
+"Vãi thật, lão Lưu, mày với Trần Trạch kiểu gì cũng phải có một đứa đứng ra đền chứ!"
 
-"ta dựa vào, lão Lưu, ngươi cùng trần trạch cũng nên có người bồi đi!"
+Triệu Kim An thừa biết kết cục sẽ như thế này. Khi mọi chuyện đã vỡ lở toang hoang, Trần Trạch đời nào chịu bỏ tiền túi ra đền thay cho Lưu Sấm Phong? Thậm chí Trần Trạch chỉ muốn nhìn thấy cảnh Lưu Sấm Phong phải móc tiền túi ra bồi thường cho hả dạ.
 
-Triệu Kim An liền biết lại là kết quả như vậy, sự tình toàn bộ bộc quang, trần trạch còn có thể thay lưu xông phong bồi thường tiền? Trần trạch đại khái liền muốn nhìn lưu xông phong bồi thường tiền.
+Đó chính là điểm yếu chí mạng của Lưu Sấm Phong.
 
-Đây là lưu xông phong của nhược điểm.
+Nếu như Từ Mạn Mạn vẫn chưa hay biết chuyện này, đảm bảo Trần Trạch sẽ lập tức đền ngay một chiếc điện thoại mới toanh.
 
-Nếu như Từ Mạn Mạn còn không biết, trần trạch bảo quản sẽ lập tức đưa di động bồi thường.
+Chỉ mong sao chuyện không ầm ĩ đến tai Từ Mạn Mạn là được.
 
-Chỉ cầu đừng đem sự tình nháo đến Từ Mạn Mạn nơi nào đây.
+Thực tế, Triệu Kim An cũng có đôi chút tò mò xem Lâm Thanh Tuyết thể hiện vai trò bà chủ quán bi-a như thế nào mà cả Vương Duy Đào lẫn Cốc Siêu Thừa đều mở miệng khen ngợi. Không biết sau khi xảy ra chuyện tày đình như thế này, Dương Thù Mỹ đã quay về Quận Sa hay chưa?
 
-Trên thực tế Triệu Kim An có chút hiếu kì Lâm Thanh Tuyết tại phòng bi da làm sao làm lão bản nương của, vương duy đào cùng đáy vực siêu nhận đều đúng nàng biểu thị tán thành, còn có xảy ra chuyện như vậy Dương thù đẹp trở về quận cát sao?
+Lâm Thanh Tuyết nhập vai cũng nhanh thật đấy... vừa đó đã bắt đầu làm bà chủ quán bi-a rồi.
 
-Lâm Thanh Tuyết ngược lại là tiến vào vai rất nhanh... Coi như lên phòng bi da lão bản nương.
-
-Đến văn phòng, sông công việc kỳ cũng tại hành lang chờ.
+Đến văn phòng công ty, Giang Công Kỳ đã đứng đợi sẵn ngoài hành lang.
 
 "Triệu tổng."
 
-Triệu Kim An mùa đông không thích thổi điều hoà không khí, hắn đánh mở điều hòa vấn đạo:"thuận tiện thường trú nơi khác sao?"
+Triệu Kim An vào mùa đông không thích bật điều hòa ấm, cậu với tay bật máy lên rồi hỏi: "Anh có tiện đi công tác thường trú ở ngoại tỉnh không?"
 
-Sông công việc kỳ một chút sống động:"Triệu tổng, thuận tiện, lão bà của ta rất ủng hộ ta công việc!"
+Giang Công Kỳ lập tức hào hứng hẳn lên: "Triệu tổng, tiện chứ ạ! Vợ em rất ủng hộ công việc của em!"
 
-Triệu Kim An gật đầu:"nếu để cho ngươi đi nhanh bớt, ngươi cảm thấy mình có thể quản bao lớn thị trường?"
+Triệu Kim An gật đầu: "Nếu để anh sang tỉnh Thiểm Tây, anh tự tin mình có thể quản lý được thị trường lớn chừng nào?"
 
-Sông công việc kỳ minh bạch, chính mình từ lưu dương đến Chu Châu, nội tâm ẩn ẩn kích động lên.
+Giang Công Kỳ hiểu ngay vấn đề, từ Lưu Dương cho đến Chu Châu, trong lòng anh ta không khỏi dâng lên niềm xúc động ngấm ngầm.
 
-Vừa mới ở hành lang, Triệu Bác lan liền ám hiệu câu"chúc mừng a, Giang quản lý."
+Vừa nãy ngoài hành lang, Triệu Bác Lan đã bóng gió chúc mừng một câu: "Chúc mừng nhé, Giám đốc Giang."
 
-"Triệu tổng, ta có tự tin có thể quản tốt toàn bộ tiết kiệm thị trường tiêu thụ!"
+"Triệu tổng, em tự tin mình có thể quản lý tốt thị trường tiêu thụ của toàn bộ tỉnh Thiểm Tây!"
 
-Sông công việc kỳ biết nếu như mình nói chỉ có thể quản tốt 3 cái thành phố, cái kia nhanh bớt cái khác thành phố liền sẽ giao cho bán ra thương, chính mình cũng chỉ có thể làm 3 cái thành phố quản lí tiêu thụ.
+Giang Công Kỳ hiểu rất rõ, nếu mình chỉ dám nhận quản lý 3 thành phố, thì các thành phố khác ở Thiểm Tây công ty sẽ giao cho các nhà phân phối đại lý, bản thân anh ta cũng sẽ mãi chỉ là giám đốc kinh doanh phụ trách 3 thành phố mà thôi.
 
-"biết Tưởng gia thung lũng sao?"
+"Anh biết Tưởng Gia Ao chứ?" Triệu Kim An lại hỏi.
 
-Triệu Kim An lại hỏi.
+"Em biết ạ, đó là nhà máy nước thứ hai của công ty mình. Triệu tổng, ngài phái em sang Thiểm Tây là vì địa lý gần đó, muốn công ty tự mình đứng ra làm thị trường trực tiếp, như vậy lợi nhuận của công ty sẽ cao hơn rất nhiều."
 
-"biết, công ty cái thứ hai nhà máy nước, Triệu tổng, ngươi để cho ta đi nhanh bớt, cũng là cách gần đó muốn công ty mình làm thị trường, dạng này công ty lợi nhuận cao rất nhiều."
+Giang Công Kỳ thầm cảm thấy mình đã theo đúng người.
 
-Sông công việc kỳ cảm thấy mình cùng đúng người.
+Triệu Kim An không tỏ vẻ gì, chỉ khẽ gật đầu: "Vậy còn xưởng đồ hộp thì sao?"
 
-Triệu Kim An từ chối cho ý kiến gật gật đầu:"cái kia xưởng đóng hộp nhỉ?"
+"Xưởng đồ hộp ạ?"
 
-"xưởng đóng hộp?"
+Giang Công Kỳ suy nghĩ một lát: "Em biết, coi như là hàng gia công dán nhãn thương hiệu của công ty mình. Phân chia sổ sách thế nào thì em không rõ, chỉ biết bên họ có một dòng sản phẩm mới là giấm táo cũng dán nhãn Trăn Nhiên của chúng ta."
 
-Sông công việc kỳ tưởng rồi muốn:"biết, xem như công ty của chúng ta của dán bài, sổ sách làm sao chia ta không có tinh tường, chỉ biết là các nàng có kiểu sản phẩm mới quả táo dấm cũng dán chúng ta đạt đến nhiên."
+"Sang bên đó rồi... trong các tủ mát trưng bày, hãy dành cho họ một chút vị trí."
 
-"đi bên kia.... Lãnh tàng quỹ cho các nàng điểm vị trí."
+Triệu Kim An trầm ngâm dặn dò: "Các anh tiện chuyến xe thì làm luôn, hai xưởng nằm cạnh nhau, chở chung một chuyến xe phân phối cũng chẳng tốn thêm bao nhiêu công sức."
 
-Triệu Kim An suy nghĩ đạo:"các ngươi thuận đường hand chuyện, hai cái nhà máy cùng một chỗ liền một xe chạy cũng không khó khăn."
+"Tốn công thì không tốn công đâu ạ, sản lượng của họ có ngần ấy, mỗi chuyến xe tiện thể nhét thêm một ít vào là giao xong hết một thể."
 
-"khó khăn là không khó khăn, các nàng điểm này sản lượng tùy tiện mỗi lội trong xe nhét điểm liền một đạo đưa xong."
+Giang Công Kỳ dường như đã hiểu ra, nhưng lại như chưa thực sự hiểu hết.
 
-Sông công việc kỳ hảo giống minh bạch, lại hình như không biết.
+Làm như vậy chẳng phải là xưởng đồ hộp bên kia khỏi cần tuyển nhân viên bán hàng luôn sao?
 
-Đây không phải là xưởng đóng hộp nhân viên bán hàng đều không cần chiêu?
+Cũng chẳng cần tìm nhà phân phối đại lý nữa, bên họ chỉ việc cắm đầu vào sản xuất là xong.
 
-Cũng không cần bán ra nhà buôn, các nàng chỉ cần sinh sản liền tốt.
+Thậm chí đến xe tải chở hàng cũng khỏi cần phải bỏ tiền ra mua luôn!!!
 
-Thậm chí xe hàng đều không cần mua sắm!!!
+"..."
 
-"....."
+Giang Công Kỳ nghĩ bụng chắc mình đã hiểu thấu tâm ý của sếp: "Triệu tổng, hay là ngài gọi điện thoại cho Giám đốc Tưởng một tiếng để báo cho cô ấy biết?"
 
-Sông công việc quan tâm muốn mình là minh bạch:"Triệu tổng, nếu không thì ngươi cho Tưởng xưởng trưởng gọi điện thoại nói một tiếng?"
+"Không cần, anh cứ tự gọi điện cho cô ấy, lúc sang bên đó thì ghé qua gặp cô ấy một chuyến cũng được."
 
-"không có việc gì, chính ngươi gọi điện thoại cho nàng, đi tìm nàng một chuyến cũng được."
+Triệu Kim An và Tưởng Chỉ Tình chỉ liên lạc với nhau đúng vào đêm giao thừa và rằm tháng Giêng. Đêm Tết Nguyên Tiêu hôm đó, Tưởng Chỉ Tình đã chủ động gửi cho Triệu Kim An một tin nhắn ngắn ngủi gồm bảy chữ: *Kim An, Tết Nguyên Tiêu vui vẻ.*
 
-Triệu Kim An cùng đem chỉ tinh chỉ đêm 30 cùng tết nguyên tiêu liên lạc, tết nguyên tiêu đêm đó đem chỉ tinh chủ động cho Triệu Kim An phát cái tin nhắn ngắn, 7 cái chữ: Kim An, tết nguyên tiêu khoái hoạt.
+"Vâng, thưa Triệu tổng."
 
-"tốt, Triệu tổng."
-
-Sông công việc kỳ lại có chút không rõ, dễ dỗ dành như vậy nữ nhân giành công cơ hội...
+Giang Công Kỳ lại thấy có chút khó hiểu. Một cơ hội tuyệt vời để lấy lòng, ghi điểm với người đẹp thế này, sao sếp lại dửng dưng bỏ qua chứ...

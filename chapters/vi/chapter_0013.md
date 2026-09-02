@@ -1,187 +1,179 @@
-# Chương 13: Vòng Tròn Không Hợp Đừng Cố Chen Vào
+# Chương 13: Không cùng một hội thì đừng cố chen vào
 
-Những ngày tiếp theo, Triệu Kim An nghe lời, cùng Triệu Chí Dũng ngày ngày ra sông đánh cá, buổi chiều lại chạy xe máy ra chợ rau.
+> **Tiêu đề gốc**: 第13章 融进去的圈子别硬融。
 
-World Cup đang diễn ra vô cùng sôi nổi, đã đến vòng bán kết và trận tranh hạng ba tư.
+Những ngày tiếp theo, Triệu Kim An ngoan ngoãn cùng Triệu Trí Dũng ngày ngày lội sông bắt cá, đến chiều lại cưỡi xe máy ra chợ rau bày bán.
 
-Cái nóng hầm hập của mùa hè cộng với World Cup và đồ nhắm đêm khuya luôn mang lại cho đàn ông những thú vui "giải tỏa" khó cưỡng. Ngay cả các quán ăn đêm ở một thành phố nhỏ tuyến 18 như thành phố Tư Tinh, công việc kinh doanh cũng tốt đến lạ lùng.
+Không khí World Cup đang diễn ra vô cùng sôi nổi và cuồng nhiệt, từ các trận bán kết đến trận tranh hạng ba tư.
 
-Kiếp trước, sau kỳ thi đại học, trận nào Triệu Kim An cũng xem, hôm sau còn có thể vào nhóm lớp bàn luận vài câu với bạn học, nhưng kiếp này hắn chẳng còn chút hứng thú nào.
+Mùa hè oi ả kết hợp với World Cup và những chầu ăn đêm luôn mang lại cho cánh đàn ông một sự giải tỏa đầy phấn khích. Ngay cả các quán ăn đêm tại một thành phố cấp mười tám nhỏ bé như Tư Hưng cũng buôn bán đắt hàng chưa từng thấy.
 
-Phim truyền hình hay tiểu thuyết có thể xem đi xem lại lần hai, lần ba.
+Kiếp trước, sau kỳ thi tốt nghiệp đại học, Triệu Kim An cũng là một tín đồ cuồng nhiệt không bỏ sót trận nào, để rồi ngày hôm sau lại cùng các bạn học rôm rả bàn luận trên nhóm chat. Thế nhưng ở kiếp này, hắn chẳng còn mảy may chút hứng thú nào nữa.
 
-Nhưng còn bóng đá...
+Phim ảnh hay tiểu thuyết có thể cày lại lần hai, lần ba.
 
-Dù có cố tình "vờ như không biết" kết quả để xem lại băng ghi hình vào ngày hôm sau, cảm giác kích động như khi xem trực tiếp cũng đã vơi đi quá nửa.
+Thế nhưng những trận cầu đỉnh cao...
 
-Còn về kết quả trận đấu.
+Dù có cố tình tỏ ra "không biết trước" kết quả để xem lại băng ghi hình ngày hôm sau, thì cảm giác bùng nổ, nghẹt thở khi theo dõi trực tiếp cũng đã vơi đi sạch sẽ.
 
-Chẳng cần Triệu Kim An phải đi dò hỏi, trong nhóm chat của lớp 12 (209) đã có vô số nam sinh bàn tán xôn xao.
+Còn về kết quả các trận đấu...
 
-"Chỉ còn cách 5 triệu tệ đúng một trận chung kết nữa thôi."
+Triệu Kim An chẳng cần cất công đi dò la, trên nhóm QQ của lớp 12 chuyên ban (Lớp 209) đã có vô số nam sinh sôi nổi bàn tán rôm rả suốt ngày đêm.
 
-Ngày hôm đó, sau khi bán cá xong, Triệu Kim An cầm 135 tệ đi đến trạm xổ số. Kết quả của trận đấu cuối cùng là điều hắn nắm chắc nhất.
+"Chỉ còn cách năm triệu tệ đúng một trận chung kết cuối cùng nữa thôi."
 
-Đã có thể khiến số vốn trong tay tăng gấp đôi thì chẳng có lý do gì để bỏ lỡ.
+Chiều hôm đó sau khi bán hết cá, Triệu Kim An cầm một trăm ba mươi lăm tệ bước thẳng vào đại lý xổ số thể thao. Kết quả của trận chung kết lịch sử này là điều hắn nắm chắc mười mươi trong lòng bàn tay.
 
-"Kim An, mày cũng muốn mua bóng à?"
+Một khi đã có cơ hội nhân đôi số vốn ít ỏi trong tay, chẳng có lý do gì để hắn bỏ lỡ.
 
-Triệu Chí Dũng đeo giỏ cá sau lưng, lủi thủi đi theo vào trạm xổ số.
+"Kim An, mày cũng định cá độ bóng đá à?"
 
-Trong nhóm QQ của lớp 12 (209), dẫn đầu là Âu Cường cùng vài nam sinh khác cũng đã mua bóng.
+Triệu Trí Dũng đeo chiếc giỏ đựng cá lẵng đẵng theo sau bước vào tiệm xổ số.
 
-Người mua nhiều nhất là Âu Cường, 500 tệ.
+Trên nhóm chat QQ của lớp 12 (ban 209), do Âu Cường cầm đầu đã có vài cậu con trai tham gia đặt cược bóng đá. Người cược nhiều nhất chính là Âu Cường, đặt hẳn năm trăm tệ.
 
-Chẳng biết là tâm lý gì, thua mất 500 tệ mà mấy cậu chàng vẫn còn tán dóc rôm rả trong nhóm.
+Chẳng biết là tâm lý gì, cược thua mất năm trăm tệ mà mấy cậu chàng vẫn trò chuyện rôm rả, hào hứng trên nhóm. Giống như thể năm trăm tệ đối với họ chỉ là chuyện cỏn con như móng tay, toát lên một vẻ làm màu, khoe mẽ kín đáo.
 
-Cứ như thể 500 tệ đối với họ chỉ là chuyện nhỏ, phảng phất một mùi vị "làm màu" nhàn nhạt.
+Triệu Trí Dũng thực lòng cũng rất muốn mua, muốn được hòa mình vào những câu chuyện phiếm của đám con trai thành phố trong nhóm, nhưng bảo cậu ta bỏ ra năm trăm tệ thì chẳng khác nào giết chết cậu ta.
 
-Thực ra Triệu Chí Dũng cũng muốn mua, cũng muốn gia nhập vào cuộc trò chuyện của đám nam sinh kia, nhưng bảo cậu ta bỏ ra 500 tệ thì thà giết cậu ta đi còn hơn.
+"Ông chủ, trận Ý gặp Pháp, bắt tỷ số một đều."
 
-"Ông chủ, Ý với Pháp, 1 đều."
+Triệu Kim An lại móc thêm tám mươi tệ trong túi quần ra, gom lại đưa hết cho ông chủ tiệm.
 
-Triệu Kim An lại móc thêm 80 tệ trong túi quần ra, đưa tất cả cho ông chủ.
+"Kim An, mày cược thẳng tỷ số luôn á!?"
 
-"Kim An, mày mua tỉ số luôn à?!"
+Triệu Trí Dũng thảng thốt kêu lên. Người ta chơi cá độ chỉ dám đoán đội thắng đội thua, cậu ta không ngờ thằng bạn nối khố của mình lại gan cùng mình như vậy, dám chơi hẳn kèo bắt chính xác tỷ số, lại còn chọn một kết quả hòa. Làm sao thế hả, mày chê tiền nhiều quá hay sao?
 
-Triệu Chí Dũng kêu lên thảng thốt. Người ta mua là mua thắng thua, cậu ta không ngờ thằng bạn nối khố của mình lại "liều" thế, trực tiếp mua tỉ số, lại còn mua cửa hòa. Sao thế, mày chê tiền nhiều quá à?
+"Tiền của mày đâu?" Triệu Kim An chìa tay ra hỏi.
 
-"Tiền của mày đâu?" Triệu Kim An đưa tay ra hỏi.
+"Tao không chơi đâu!"
 
-"Tao không mua!"
+Triệu Trí Dũng ôm chặt lấy túi quần, ngẫm nghĩ một hồi rồi lại móc tiền ra, tổng cộng hai trăm bốn mươi tám tệ.
 
-Triệu Chí Dũng bịt chặt túi tiền, nghĩ đoạn lại móc tiền ra, 248 tệ.
+"Hì hì, tao không theo mày đâu, tao bắt Pháp thắng. Đội tuyển Pháp có thần tượng Zidane của tao cơ mà."
 
-"Hì hì, tao không mua giống mày đâu, tao mua Pháp thắng, Pháp có Zidane."
+"Đánh theo tao đi."
 
-"Mua giống tao đi."
+"Nhưng thần tượng của tao là Zidane mà!"
 
-"Thần tượng của tao là Zidane."
+"Chọn thần tượng hay chọn ăn sung mặc sướng, mày tự quyết định đi."
 
-"Thần tượng hay là miếng ăn, mày chọn đi."
-
-"Dựa vào cái gì mà mày khẳng định thế?"
+"Lấy cái gì đảm bảo mà mày dám chắc chắn như đinh đóng cột thế?"
 
 Triệu Kim An: "..."
 
-Trong lòng Triệu Chí Dũng, việc Triệu Kim An mua tỉ số thuần túy là đem tiền đi biếu người ta, cậu ta còn có lý do của riêng mình.
+Trong suy nghĩ của Triệu Trí Dũng, việc Triệu Kim An bỏ tiền cược tỷ số chính xác chẳng khác nào ném tiền qua cửa sổ. Cậu ta còn tự đưa ra lý lẽ rất hùng hồn:
 
-"Kim An, chúng ta mà mua giống nhau, thua là trắng tay đấy, cái này gọi là đầu tư phân tán."
+"Kim An à, hai đứa mình mà cược giống hệt nhau, lỡ thua một cái là sạch túi. Cái này người ta gọi là phân tán rủi ro đầu tư."
 
-Nói đoạn, cậu ta còn rút lại một tờ 20 tệ từ tay ông chủ, bảo là để đổ xăng xe máy.
+Nói đoạn, cậu ta còn nhanh tay rút lại tờ hai mươi tệ trên tay ông chủ, bảo là để dành tiền đổ xăng cho chiếc xe máy.
 
-Triệu Kim An cũng chẳng biết nói gì thêm, dù sao cũng chỉ có hơn hai trăm tệ. Hắn cầm tờ phôi vé lên xem, tỉ lệ cược cho trận hòa 1-1 chỉ có 4.4, nếu trúng cũng chỉ được khoảng 900 tệ.
+Triệu Kim An cũng chẳng buồn nói thêm gì nữa, dù sao cũng chỉ là hơn hai trăm tệ lẻ. Cầm tờ vé cược lên xem, tỷ lệ ăn của tỷ số 1:1 chỉ có 4.4, nếu trúng thì cũng chỉ thu về được khoảng chín trăm tệ.
 
-Thực ra tính cách này của Triệu Chí Dũng cũng khá tốt, cậu ta luôn biết để lại cho mình một đường lui.
+Thực ra tính cách này của Triệu Trí Dũng cũng rất tốt, cậu ta luôn biết cách chừa lại cho mình một con đường lui.
 
-Dù là đầu tư phân tán hay đổ xăng xe, đều là tâm lý chừa đường rút cho bản thân.
+Dù là phân tán đầu tư hay giữ lại tiền đổ xăng xe, tất cả đều phản ánh tâm lý biết lo xa, phòng hờ bất trắc.
 
-Đây cũng là lý do tại sao kiếp trước lương của Triệu Chí Dũng không cao nhưng vẫn có thể mua nhà mua xe, lấy vợ sinh con ở Quận Sa.
+Đó cũng là lý do vì sao ở kiếp trước, dù lương bổng của Triệu Trí Dũng không quá cao nhưng cậu ta vẫn có thể tự mình mua nhà, tậu xe, cưới vợ sinh con đàng hoàng tại Quận Sa.
 
-Bán cá thực sự chẳng kiếm được bao nhiêu, nhưng hai người chia nhau, bán xong lại mua đồ ăn thức uống, coi như một nửa kiếm tiền một nửa đi chơi.
+Nghề bắt cá quả thực chẳng kiếm được bao nhiêu tiền, nhưng hai đứa chia đôi, bán được cá xong lại mua chút đồ ngon ăn lót dạ, xem như vừa kiếm tiền vừa vui chơi giải trí suốt mùa hè.
 
-Ra khỏi trạm xổ số, Triệu Chí Dũng cầm một xấp phiếu, cười đến mức không khép nổi miệng.
+Bước ra khỏi tiệm xổ số, Triệu Trí Dũng cầm một xấp vé cược trên tay, cười toe toét không khép nổi miệng.
 
-"Kim An, mấy ngày tới mày cứ đi theo tao mà hưởng sái nhé."
+"Kim An, mấy ngày tới mày chuẩn bị đi theo tao mà ăn chực đi nhé."
 
-Cậu ta đinh ninh tiền của Triệu Kim An đã đổ sông đổ biển, còn hy vọng của mình thì rất lớn.
+Cậu ta đinh ninh rằng tiền của Triệu Kim An chắc chắn đã trôi theo dòng nước, còn cơ hội thắng của mình thì rộng mở thênh thang.
 
-Đây chưa phải là điều quan trọng nhất, cậu ta sốt sắng móc điện thoại ra, khoe trong nhóm lớp rằng mình cũng đã mua World Cup.
+Đó vẫn chưa phải là điều quan trọng nhất. Cậu ta sốt sắng móc ngay chiếc điện thoại ra, nhắn tin lên nhóm lớp khoe rằng mình cũng vừa tham gia cá cược World Cup:
 
-Pháp thắng, 300 tệ.
+*Đội tuyển Pháp thắng, ba trăm tệ.*
 
-Hơn 200 tệ, làm tròn lên chẳng phải là 300 sao?
+Hơn hai trăm tệ, làm tròn lên một chút, tính thêm chút đỉnh chẳng phải là ba trăm tệ rồi sao?
 
-Cảm thấy thế vẫn chưa đủ oai, cậu ta lại nói thêm Triệu Kim An mua tỉ số 1:1, 200 tệ.
+Có lẽ cảm thấy thế vẫn chưa đủ ngầu, cậu ta bồi thêm một tin nhắn bảo rằng Triệu Kim An bắt tỷ số 1:1, cược hai trăm tệ. Lần này thì đúng là làm tròn theo nghĩa đen.
 
-Lần này đúng là làm tròn thật.
+Thế nhưng, Triệu Trí Dũng chẳng những không nhận được những lời tán thưởng, ngưỡng mộ từ các bạn học, mà ngược lại, một bạn nữ trong lớp đã buông một câu như tạt gáo nước lạnh:
 
-Kết quả, Triệu Chí Dũng không nhận được sự "tâng bốc" của các bạn cùng lớp, ngược lại còn có một bạn nữ nói một câu thế này:
+*Triệu Trí Dũng, hai cậu cũng học đòi đám Âu Cường đi cá độ bóng đá đấy à?*
 
-"Triệu Chí Dũng, các cậu cũng học theo bọn Âu Cường cá độ bóng đá à?"
+Câu nói thoạt nghe có vẻ bình thường, nhưng mức độ sát thương lại cực kỳ khủng khiếp.
 
-Câu nói này thoạt nghe thì chẳng có vấn đề gì, nhưng tính sát thương lại cực mạnh.
+Chẳng biết từ đâu truyền ra, nhưng đa số các bạn học trong lớp 12 (ban 209) đều đinh ninh rằng Triệu Kim An và Triệu Trí Dũng hiện đang phải lăn lộn ở chợ rau bán cá để chắt bóp từng đồng gom tiền đóng học phí.
 
-Chẳng biết là ai đồn ra, nhưng các bạn lớp 12 (209) đều mặc định rằng Triệu Kim An và Triệu Chí Dũng hiện đang phải ra chợ bán cá để gom tiền học phí.
+Gia cảnh các cậu đã chật vật như thế rồi, mà còn học đòi người ta đi cá cược bóng đá sao!?
 
-Các cậu đã đến nước này rồi mà còn học đòi người ta cá độ?!
+Bạn nữ kia thực ra chẳng có ác ý gì, nhưng Triệu Trí Dũng thì mặt mày đỏ bừng bừng vì ngượng ngùng và tự ái.
 
-Bạn nữ kia không có ý xấu, nhưng Triệu Chí Dũng thì đỏ bừng cả mặt.
+Cùng là bỏ tiền chơi cá cược thể thao, cớ sao sự đối xử và cách nhìn nhận của mọi người lại cách biệt một trời một vực đến thế?
 
-Cùng là mua bóng, tại sao sự đối đãi lại khác biệt lớn đến vậy?
+Triệu Kim An liếc nhìn bạn một cái. Có một câu nói rất thấm thía: Vòng tròn không thuộc về mình thì đừng cố chen chân vào làm gì.
 
-Triệu Kim An liếc nhìn cậu ta một cái, có câu nói rằng: Vòng tròn không hợp thì đừng cố chen vào.
+"Kim An..." Triệu Trí Dũng ấp úng muốn nói lại thôi.
 
-"Kim An..."
+Triệu Kim An khẽ cười một tiếng: "Gọi một tiếng chú đi rồi tao khai sáng cho."
 
-Triệu Chí Dũng ngập ngừng định nói gì đó.
+"Kim An, tại sao bọn họ ai cũng nói đỡ, bênh vực cho thằng Âu Cường thế?"
 
-Triệu Kim An cười một tiếng: "Gọi chú đi."
+"Chẳng ai bênh vực nó cả."
 
-"Kim An, tại sao bọn họ đều nói đỡ cho Âu Cường vậy?"
+"Kim An, trong lòng tao thấy khó chịu quá. Chỉ vì bố nó làm ở Ủy ban Phát triển và Cải cách, còn chúng mình thì..."
 
-"Không phải họ nói đỡ cho hắn đâu."
+"Đừng có tự ti coi thường bản thân. Mày cao lớn vạm vỡ hơn nó nhiều, nếu cắt phăng cái mái tóc xéo xơ xác kia đi thì mày đẹp trai ăn đứt nó."
 
-"Kim An, trong lòng tao thấy hơi khó chịu. Chỉ vì bố nó làm ở Ủy ban Cải cách và Phát triển mà chúng ta..."
+"Kim An, mày không thấy tủi thân chút nào sao?"
 
-"Đừng có tự ti, mày cao ráo hơn hắn nhiều. Nếu cắt phăng cái mái xéo kia đi, mày còn đẹp trai hơn hắn đấy."
+"Tao đẹp trai hơn tất cả bọn chúng nó."
 
-"Kim An, mày không thấy khó chịu sao?"
+"Đẹp trai thì mài ra mà ăn được chắc?"
 
-"Tao đẹp trai hơn tất cả bọn mày."
+"Đẹp trai là có thể kiếm cơm được đấy chứ. Sau này tao có thể tìm một cô bạn gái có bố làm bên Ủy ban Phát triển và Cải cách mà."
 
-"Đẹp trai thì có tác dụng gì?"
+Triệu Trí Dũng: "..."
 
-"Đẹp trai có thể mài ra mà ăn được, tao có thể tìm một cô bạn gái có bố làm ở Ủy ban Cải cách."
+Dù sao đi nữa, sau vài câu bông đùa chọc ghẹo, tâm trạng của Triệu Trí Dũng đã khá hơn rất nhiều. Chỉ có điều cậu ta chợt nhận ra một điểm lạ lùng: Triệu Kim An dường như đã thay đổi. Trước đây cậu ấy không bao giờ nói ra những lời như thế này.
 
-Triệu Chí Dũng: "..."
+Trước kia khi gặp phải những vấn đề tương tự, Triệu Kim An sẽ bắt đầu giảng giải những đạo lý lớn lao, đại loại như cố gắng học hành chăm chỉ, thi đỗ công chức, rồi chúng mình cũng sẽ được vào làm ở Ủy ban Phát triển và Cải cách. Tóm lại, lúc nào cũng tràn trề năng lượng tích cực của một thanh niên chuẩn mực.
 
-Dù sao đi nữa, sau vài câu đùa cợt, tâm trạng của Triệu Chí Dũng cũng khá hơn. Cậu ta chỉ nhận ra một vấn đề, dường như Triệu Kim An đã thay đổi, trước đây hắn không bao giờ nói ra những lời như vậy.
+Trong nhóm chat lúc này bỗng trở nên vô cùng nhộn nhịp. Vào năm 2006, số tiền năm trăm tệ đối với lứa tuổi học sinh quả thực là một con số không hề nhỏ.
 
-Ngày trước gặp phải vấn đề thế này, hắn sẽ giảng giải đạo lý lớn lao, đại loại như nỗ lực học tập, thi công chức, chúng ta cũng có thể vào được Ủy ban Cải cách.
+Âu Cường: *Đừng có chơi cá độ, khó trúng lắm. Nhìn tao đây này, chơi mấy trận thua đứt bốn nghìn tệ, bay tong toi một con điện thoại xịn rồi.*
 
-Nói chung là tràn đầy năng lượng tích cực.
+Bởi thế mới nói, không phải ngẫu nhiên mà ai cũng làm được lớp trưởng.
 
-Nhóm lớp đột nhiên trở nên náo nhiệt hẳn lên, vào năm 2006, 500 tệ đối với họ thực sự không phải là con số nhỏ.
+Chỉ bằng một câu nói ngắn gọn, vừa khuyên nhủ bạn bè đầy vẻ đàn anh, lại vừa khéo léo khoe mẽ độ chịu chơi và giàu có của mình một cách kín kẽ.
 
-Âu Cường: "Đừng có mua bóng, khó trúng lắm. Nhìn tôi đây này, mua mấy trận rồi, thua mất 4 nghìn tệ, bay đứt một cái điện thoại luôn."
+Trớ trêu thay, bên dưới lại có vài bạn học ngây thơ lập tức hùa theo làm chân gỗ tung hứng, tíu tít hỏi xem cậu ta đã thua bốn nghìn tệ trong những trận đấu nào.
 
-Thế nên mới nói, không phải ai cũng làm lớp trưởng được.
+Điền Vũ Hạo: *Triệu Trí Dũng, cậu với Triệu Kim An bán cá kiếm được nhiều tiền thế cơ à?*
 
-Một câu nói, vừa khuyên nhủ xong lại vừa tranh thủ "làm màu" một cách tài tình.
+Âu Cường: *Bắt tỷ số chính xác lại càng khó trúng hơn, đến tao cũng chỉ dám bỏ một trăm tệ ra thử vận may thôi.*
 
-Khổ nỗi vẫn còn vài người bạn chẳng hiểu mô tê gì vào tung hứng, hỏi hắn làm sao mà thua mất 4 nghìn.
+Điền Vũ Hạo: *Triệu Trí Dũng, hai người mua thật hay mua giả đấy? Đừng có ở trong nhóm nổ bậy nổ bạ nhé, chụp ảnh vé cược quăng lên đây cho mọi người mở rộng tầm mắt xem nào.*
 
-Điền Vũ Hạo: "Triệu Chí Dũng, mày với Triệu Kim An bán cá kiếm được thế cơ à?"
+Triệu Trí Dũng: *Tại sao tao phải cho mày xem? Cho mày xem thì tao được cái tích sự gì?*
 
-Âu Cường: "Mua tỉ số càng khó trúng hơn, tôi cũng chỉ dám mua thử 100 tệ thôi."
+Nói xong, cậu ta vẫn chụp một bức ảnh vé cược ném thẳng vào nhóm, rồi quay sang hỏi: "Kim An, làm vậy được chưa?"
 
-Điền Vũ Hạo: "Triệu Chí Dũng, bọn mày mua thật hay mua giả đấy? Đừng có mà bốc phét trong nhóm, chụp cái phiếu lên cho bọn tao xem nào."
+"Ừ, thế là đủ rồi, không cần bận tâm để ý đến bọn họ nữa."
 
-Triệu Chí Dũng: "Tại sao phải cho mày xem, xem thì có ích lợi gì?"
+Triệu Kim An không thèm nhắn lấy một câu nào trong nhóm. Nếu không phải vì thấy thằng bạn nối khố uất ức nuốt không trôi cục tức này, hắn thậm chí còn lười chẳng buồn liếc mắt nhìn thông báo nhóm lấy một lần.
 
-Nói xong, cậu ta vẫn ném một tấm ảnh vào nhóm, rồi hỏi: "Kim An, thế này được chưa?"
+Thế nhưng trong nhóm cũng có người tinh tế, sâu sắc. Du Phi theo dõi màn đối đáp suốt hồi lâu liền lên tiếng trong nhóm: *Chẳng qua chỉ là mua chút vé cổ vũ World Cup thôi mà, lát nữa tớ cũng đi mua, đánh y hệt như Triệu Kim An, mua hẳn một trăm tệ luôn!*
 
-"Ừ, được rồi, đừng thèm để ý đến bọn họ."
+"Không biết Kim An có phải mượn tiền của mình để đi chơi cá cược World Cup không nhỉ?"
 
-Triệu Kim An không nói một lời nào trong nhóm. Nếu không phải thấy Triệu Chí Dũng uất ức quá, hắn đến tin nhắn nhóm cũng chẳng buồn liếc mắt xem lấy một cái.
+Du Phi thầm lo lắng Triệu Kim An sẽ sa chân lỡ bước vào con đường lầm lạc.
 
-Tuy nhiên cũng có người tâm tư tinh tế, Du Phỉ quan sát hồi lâu rồi nhắn trong nhóm: "Chẳng phải chỉ là mua World Cup thôi sao, lát nữa tớ cũng đi mua, mua giống Triệu Kim An, mua 100 tệ!"
+Cô vội vàng gửi tin nhắn riêng cho Mộc Dao: *Mộc Dao ơi, mấy ngày nay Triệu Kim An không tìm cậu à?*
 
-"Kim An không phải mượn tiền mình để đi mua World Cup đấy chứ?"
+Mộc Dao lúc này đang bực bội đến phát điên. Kể từ hôm chạm mặt Triệu Kim An ở chợ rau đến nay, Triệu Kim An chẳng những không thèm hẹn gặp cô, mà ngay cả tin nhắn cũng chẳng buồn hồi đáp lấy một dòng.
 
-Du Phỉ lo lắng Triệu Kim An đi vào con đường lầm lạc.
+"Đúng là đồ hẹp hòi, người ta có chê bai cậu bao giờ đâu chứ!"
 
-Nàng gửi tin nhắn cho Mộc Dao: "Mộc Dao, mấy ngày nay Triệu Kim An không tìm cậu à?"
+Mộc Dao nhắn lại: *Du Phi, tớ muốn về quê tìm Kim An.*
 
-Mộc Dao cũng đang phiền lòng chết đi được. Kể từ hôm chạm mặt Triệu Kim An ở chợ rau, đừng nói là hẹn nàng, đến tin nhắn hắn cũng chẳng buồn trả lời.
+Du Phi: *Về tận nhà cậu ấy á?*
 
-"Đúng là đồ hẹp hòi, mình có chê cậu đâu cơ chứ!"
+Mộc Dao: *Ừ.*
 
-Mộc Dao: "Du Phỉ, tớ muốn đi tìm Kim An."
-
-Du Phỉ: "Đến nhà cậu ấy à?"
-
-Mộc Dao: "Ừ."
-
-Du Phỉ: "Được, tớ đi cùng cậu, tớ cũng chưa đến đó bao giờ."
+Du Phi: *Được, tớ đi cùng cậu! Tớ cũng chưa từng về quê cậu ấy lần nào cả.*

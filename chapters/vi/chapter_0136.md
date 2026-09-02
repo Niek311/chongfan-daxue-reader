@@ -1,197 +1,199 @@
-# Chương 136: Có Chút Ghen Tuông
+# Chương 136: Có chút ghen tuông
 
-"Mau ăn cơm đi, gắp thêm thức ăn vào."
+> **Tiêu đề gốc**: 第136章 有点吃醋。
 
-Bà nội thúc giục.
+"Mau ăn cơm đi, gắp nhiều thức ăn vào."
 
-Bà biết Triệu Kim An Có Tài làm việc nặng nên sức ăn lớn, bèn xới cho một bát cơm đầy.
+Bà nội giục giã.
 
-Bây giờ ở Triệu Kim An Gia thôn chẳng ai thiếu cơm ăn, chỉ là Triệu Kim An Có Tài sống một mình, chẳng biết sẽ xào nấu được món gì.
+Bà biết Triệu Hữu Tài làm việc tay chân nặng nhọc nên ăn khỏe, bèn xới cho một bát cơm đầy có ngọn.
 
-Triệu Kim An Có Tài gật đầu, bưng bát lên ăn ngon lành.
+Thời buổi này ở Triệu gia thôn chẳng còn ai thiếu cơm ăn, chỉ là một người đàn ông độc thân như Triệu Hữu Tài thì biết xào nấu món gì ra hồn đâu.
 
-Có người nói Triệu Kim An Có Tài thật thà chăm chỉ như vậy, tại sao vợ đi làm thuê rồi lại không trở về nữa?
+Triệu Hữu Tài gật đầu, bưng bát cơm và lấy và để.
 
-Thời đại này, những ví dụ như thế có lẽ rất nhiều.
+Có người từng bảo Triệu Hữu Tài thật thà, chăm chỉ như thế, cớ sao vợ đi làm thuê rồi một đi không trở lại?
 
-Một số phụ nữ đơn giản là không thích đàn ông quá thật thà.
+Ở cái thời đại này, những câu chuyện như vậy chẳng hề hiếm gặp.
 
-Bà nội còn gắp thức ăn cho Triệu Kim An Có Tài, hắn cứ bưng bát bảo đủ rồi, đủ rồi.
+Đời thuở có những người đàn bà vốn dĩ chẳng thích đàn ông thật thà, an phận.
 
-Tính ra hắn phải gọi bà nội là tổ mẫu rồi.
+Bà nội vẫn liên tục gắp thức ăn cho Triệu Hữu Tài, anh vội bưng bát đỡ lấy, miệng xua lia lịa bảo đủ rồi, đủ rồi.
 
-Doãn Hiểu Lan đứng dậy đi bổ dưa hấu, Lưu Đồng Hoa cũng đi vào theo.
+Xét theo vai vế trong dòng họ, anh còn phải gọi bà nội là cụ.
 
-Có lẽ vì tính cách của bà nội và thím tốt, vai vế lại cao, nên họ ở đây đều không quá khách sáo, có chút tự nhiên như ở nhà mình.
+Doãn Hiểu Lan đứng dậy đi bổ dưa hấu, Lưu Đồng Hoa cũng bước theo vào bếp.
 
-Doãn Hiểu Lan cắt dưa thành từng miếng.
+Có lẽ vì tính tình hiền hậu, thơm thảo của bà nội và thím hai, lại thêm vai vế trong họ rất cao, nên mấy chị em dâu họ hàng ở đây đều chẳng câu nệ khách sáo, tự nhiên như ở chính nhà mình.
 
-Lưu Đồng Hoa nói: "Tô Miền ăn như vậy không tiện đâu, nước dưa rớt ra mất, con gái thành phố thích sạch sẽ."
+Doãn Hiểu Lan cắt dưa hấu thành từng miếng dài.
 
-Doãn Hiểu Lan gật đầu, không nói gì, lại lấy một chiếc bát khác cắt dưa thành từng miếng nhỏ.
+Lưu Đồng Hoa liền bảo: "Cắt thế này Tô Miến khó ăn lắm, nước dưa chảy ròng ròng, con gái thành phố người ta ưa sạch sẽ."
 
-Suy nghĩ trong lòng nàng cũng giống như Du Phỉ.
+Doãn Hiểu Lan gật đầu, không nói gì, lấy thêm một chiếc bát sứ rồi tỉ mỉ gọt vỏ, xắt dưa thành từng miếng vuông nhỏ vừa miệng.
 
-Doãn Hiểu Lan chưa từng nghĩ đến chuyện "kết hôn" với Triệu Kim An, không phải chưa từng nghĩ, mà là không dám nghĩ.
+Trong lòng cô cũng có chung suy nghĩ như Du Phi.
 
-Khi ngủ trong căn phòng ở nhà Triệu Kim An, nàng sẽ nghĩ, nghĩ đến việc gả cho hắn... chỉ là có chút quá xa vời.
+Doãn Hiểu Lan chưa từng dám nghĩ đến chuyện "kết hôn" với Triệu Kim An. Không phải là chưa từng nghĩ tới, mà là không dám mơ tưởng.
 
-Triệu Kim An cắn một hạt dẻ sống cho Tô Miền, lại tìm một quả kiwi hơi mềm tự mình ăn một quả, nói: "Có Tài, anh hái ở đâu thế? Đúng là ngon hơn mua bên ngoài nhiều."
+Mỗi đêm nằm trong căn phòng nhỏ ở nhà Triệu Kim An, cô vẫn thường nghĩ ngợi miên man... Nghĩ đến chuyện được gả cho Triệu Kim An, quả thực là một điều quá đỗi xa vời và xa xỉ.
 
-Tô Miền nói: "Kim An, cho em ăn một miếng."
+Triệu Kim An cắn vỡ một hạt dẻ sống đưa cho Tô Miến, lại tìm một quả kiwi rừng đã hơi mềm tự bóc ăn, bảo: "Hữu Tài, anh hái ở đâu thế? Đúng là ngon hơn hẳn đồ mua ngoài chợ."
 
-Triệu Kim An Có Tài ngồi trên chiếc ghế đẩu thấp, nói: "Cô tìm không thấy đâu, nếu mọi người thích, ngày mai tôi lại lên núi tìm tiếp."
+Tô Miến nghiêng đầu: "Kim An, cho em một quả đi."
 
-Triệu Chí Dũng vừa lùa cơm vừa nói: "Tao biết chỗ nào có đấy, chỉ là không biết năm nay đã ra quả chưa thôi."
+Triệu Hữu Tài ngồi trên chiếc ghế đẩu thấp, đáp: "Mấy chỗ đó chú không tìm ra đâu. Mọi người mà thích, ngày mai cháu lại lên núi tìm tiếp."
 
-Hắn còn hỏi Triệu Kim An Có Tài có phải hái trên cái cây đó không.
+Triệu Trí Dũng vừa và cơm vừa góp chuyện: "Tao biết chỗ nào có đấy, chỉ là không biết năm nay có sai quả không thôi."
 
-Triệu Quốc Hoa và Triệu Việt Tiến đều nói bây giờ những thứ này càng ngày càng ít, ngày xưa đầy núi, nào là bát nguyệt tạc, cửu nguyệt hoàng.
+Cậu còn hỏi Triệu Hữu Tài có phải hái ở cái cây quen thuộc năm ngoái không.
 
-Ở Triệu Kim An Gia thôn gọi cửu nguyệt hoàng là "ngưu nhuyễn đà".
+Triệu Quốc Hoa và Triệu Dược Tiến đều chép miệng bảo dạo này mấy thứ hoa quả rừng này ngày càng hiếm. Ngày xưa trên núi mọc đầy, nào là quả bát nguyệt trát, nào là cửu nguyệt hoàng.
+
+Ở Triệu gia thôn, người ta gọi quả cửu nguyệt hoàng là "ngưu nhuyễn đà".
 
 "Dưa hấu đến rồi đây!"
 
-Lưu Đồng Hoa bưng một chiếc bát lớn ra, trên dưa hấu có cắm tăm, cười nói: "Tô Miền, đây chính là hoa quả sau bữa ăn của người thành phố các cháu."
+Lưu Đồng Hoa bưng một bát lớn ra, bên trên cắm sẵn mấy que tăm, cười xởi lởi: "Tô Miến, đây chính là món hoa quả tráng miệng sau bữa ăn kiểu người thành phố của cháu nhé."
 
-Doãn Hiểu Lan bưng một chiếc chậu lớn đi phía sau, bảo mọi người ăn dưa.
+Doãn Hiểu Lan bưng một chậu dưa lớn đi phía sau, đon đả mời mọi người ăn dưa.
 
-Nhìn Triệu Kim An hầu hạ Tô Miền, mẹ cũng đối xử tốt với Tô Miền như vậy, Triệu Chí Dũng nhất thời có chút thẫn thờ, thầm nghĩ nếu mẹ cũng đối xử tốt với Trịnh Như như vậy, còn cả Triệu Niệm Khả nữa...
+Nhìn cảnh Triệu Kim An ân cần chăm sóc Tô Miến, mẹ mình cũng đối xử với Tô Miến tốt như vậy, Triệu Trí Dũng thoáng ngẩn người. Trong lòng cậu thầm nghĩ, giá như mẹ mình cũng đối xử tốt với Trịnh Như và bé Triệu Niệm Khả như thế thì hay biết mấy...
 
-Tô Miền dường như rất thích bầu không khí này, nàng cúi người nói nhỏ: "Kim An, người ở đây tốt thật đấy..."
+Tô Miến dường như rất thích bầu không khí ấm cúng này. Cô khẽ khom người, ghé sát tai Triệu Kim An thì thầm: "Kim An, người ở quê anh tốt bụng thật đấy..."
 
-Triệu Kim An không muốn lên tiếng.
+Triệu Kim An chẳng buồn đáp lời.
 
-Nàng "vung tiền" như thế... người ta chắc chắn phải tốt rồi.
+Cô cứ "rải tiền" hào phóng như thế... người ta không tốt với cô mới là chuyện lạ.
 
-Tô Miền mỉm cười, nàng thông minh như vậy, sao không biết ý của Triệu Kim An.
+Tô Miến khẽ mỉm cười. Cô thông minh như vậy, sao lại không hiểu ẩn ý của Triệu Kim An.
 
-Thực sự mà nói, Triệu Kim An dù trùng sinh thì tuổi tâm lý cũng chỉ hơn ba mươi, Tô Miền lớn lên trong gia đình như thế, chẳng lẽ lại không biết cách xử lý quan hệ nhân mạch?
+Thực lòng mà nói, Triệu Kim An dẫu là người trọng sinh thì tuổi tâm lý cũng chỉ ngoài ba mươi. Còn Tô Miến lớn lên trong một gia tộc quyền quý bề thế như vậy, lẽ nào lại không biết cách đối nhân xử thế?
 
-Chẳng lẽ không hiểu nhân tính?
+Lẽ nào cô lại không hiểu thấu lòng người?
 
-Chẳng lẽ không biết nhân tính có mặt xấu xí hay sao?
+Lẽ nào cô không biết bản chất con người luôn có những mặt xấu xí, toan tính?
 
-Luôn có người cho rằng những phú nhị đại, con em thế gia này được nuông chiều từ bé, chẳng qua là đầu thai tốt.
+Người đời vẫn thường nghĩ những cậu ấm cô chiêu, con cháu thế gia sống trong nhung lụa từ bé chẳng qua chỉ là nhờ may mắn đầu thai vào nhà giàu.
 
-Thực tế, giáo dục họ nhận được từ nhỏ có lẽ còn nghiêm khắc hơn, chưa kể đến những gì họ thấy, họ nghe, cùng với trải nghiệm và tầm mắt...
+Thế nhưng thực tế, nền giáo dục họ được tiếp nhận từ thuở ấu thơ có khi còn nghiêm khắc, khắt khe hơn người thường gấp bội, chưa kể đến những gì họ được tai nghe mắt thấy, cùng từng trải và tầm nhìn sâu rộng vượt bậc...
 
-Thỉnh thoảng lại có người lượn qua một vòng, đến là được hai bao thuốc.
+Thỉnh thoảng lại có người trong làng lượn qua chơi, hễ ghé chân là được nhận ngay hai bao thuốc lá ngon.
 
-Có những người đã lấy rồi, Triệu Chí Dũng liền không đưa nữa, hắn đều ghi nhớ trong lòng.
+Có những người đã nhận rồi quay lại lượn lờ tiếp, Triệu Trí Dũng dứt khoát không đưa nữa, cậu đều ghi nhớ rõ mồn một trong đầu.
 
-Bà nội và thím bắt đầu thấy tê liệt rồi, mắt không thấy tâm không phiền.
+Bà nội và thím hai nhìn riết cũng đâm quen, mắt không thấy thì tim không xót.
 
-Dù sao Tô Miền cũng nói núi vàng nhà nàng phá không hết.
+Dù sao thì Tô Miến cũng đã bảo, núi vàng trong nhà cô tiêu cả đời cũng chẳng cạn.
 
-Triệu Việt Tiến và Lưu Đồng Hoa ở bên cạnh nhìn mà thấy xót tiền thay.
+Ngược lại, Triệu Dược Tiến và Lưu Đồng Hoa đứng một bên nhìn cảnh phát thuốc lá xịn như rác mà trong lòng không khỏi xót của giùm.
 
-Tô Miền nói: "Chú Việt Tiến, vừa nãy chú không có ở đây, Chí Dũng, em lấy cho bố hai cây thuốc đi, còn cả anh Có Tài nữa, anh cũng lấy hai cây, cả của em trai anh nữa."
+Tô Miến cất lời: "Bác Dược Tiến, lúc nãy bác không có ở đây. Trí Dũng, mày lấy cho bố mày hai cây thuốc lá đi. Cả anh Hữu Tài nữa, anh cũng cầm hai cây, với hai cây nữa mang về cho em trai anh."
 
-"Cái đó, tôi thôi vậy."
+"Ấy, tôi... tôi xin kiếu, nhận thế ngại chết."
 
-Triệu Việt Tiến có chút ngại ngùng, ông không phải vãn bối của Tô Miền, lại không giống anh em Triệu Kim An Có Tài vẫn còn trong vòng năm đời.
+Triệu Dược Tiến có chút ngượng ngùng. Ông không phải là bậc vãn bối của Tô Miến, lại chẳng thân thích ruột thịt gần gũi trong vòng năm đời như hai anh em Triệu Hữu Tài.
 
-"Bố, bố cũng thật là, khách sáo hờ làm gì?"
+"Bố này, bố cứ khách sáo giả vờ làm gì không biết!"
 
-Triệu Chí Dũng cầm một cây Trung Hoa, một cây Phù Dung Xanh nhét cho bố mình, lại nhét hai cây Trung Hoa và hai cây Phù Dung Xanh cho Triệu Kim An Có Tài.
+Triệu Trí Dũng nhanh tay cầm ngay một cây Trung Hoa và một cây Lam Phù Dung nhét thẳng vào lòng bố, rồi lại lấy thêm hai cây Trung Hoa cùng hai cây Lam Phù Dung dúi vào tay Triệu Hữu Tài.
 
-Dù sao thuốc lá từ cấp độ Hoàng Phù trở lên trong tiệm tạp hóa, Triệu Chí Dũng đều ôm về hết rồi.
+Dù sao thì toàn bộ số thuốc lá từ loại Hoàng Phù Dung trở lên ở tiệm tạp hóa trong làng, Triệu Trí Dũng đều đã ôm sạch về đây rồi.
 
-Học theo cách làm cũ, hắn cứ phát loại rẻ tiền trước.
+Nãy giờ đi phát ngoài đường, cậu toàn lựa loại rẻ tiền phát trước.
 
-Bây giờ có cơ hội chắc chắn phải nhét loại đắt tiền cho bố và Triệu Kim An Có Tài.
+Bây giờ có cơ hội danh chính ngôn thuận, dĩ nhiên cậu phải nhét những cây thuốc lá đắt tiền nhất cho bố đẻ và Triệu Hữu Tài.
 
-Nếu đến chút khôn lỏi này cũng không có thì đúng là đồ ngốc.
+Nếu đến chút khôn lanh này mà cũng không có thì đúng là đồ ngốc nghếch.
 
 "..."
 
-Triệu Việt Tiến nhìn hai cây thuốc trong lòng, thằng ranh này đảo lộn cương thường, bao nhiêu người ở đây... không giữ cho lão tử chút thể diện nào à.
+Triệu Dược Tiến cúi nhìn hai cây thuốc lá xịn nằm gọn trong lòng mình, thằng ranh con này đúng là đảo lộn tôn ti trật tự, bao nhiêu người đang ngồi đây... chẳng chừa cho ông già này chút thể diện nào cả.
 
-Triệu Kim An bật cười một tiếng.
+Triệu Kim An bật cười khẽ một tiếng.
 
-Hắn cảm thấy Triệu Chí Dũng thuần túy là ngứa đòn, ngày biết chuyện của Trịnh Như, tốt nhất là Triệu Việt Tiến nên ra tay nặng một chút.
+Anh thầm nghĩ thằng nhóc Triệu Trí Dũng này thuần túy là ngứa đòn, đợi đến hôm chuyện của Trịnh Như vỡ lở, Triệu Dược Tiến tốt nhất là nên ra tay thật nặng mới bõ tức.
 
-Những người khác cũng cười theo vài tiếng.
+Mọi người xung quanh cũng bật cười rôm rả.
 
-Lưu Đồng Hoa cười nói: "Được rồi, cho ông thì ông cứ cầm lấy."
+Lưu Đồng Hoa cười nói: "Thôi đi ông, người ta đã có lòng cho thì cứ cầm lấy."
 
-Tô Miền lại nói với Vương Kim Như: "Thím, cháu mang theo rất nhiều rượu, thím đi lấy cho mọi người một ít đi."
+Tô Miến lại quay sang bảo Vương Kim Như: "Thím ơi, cháu có mang theo nhiều rượu ngon lắm, thím vào lấy ra chia cho mọi người đi ạ."
 
-"Được."
+"Được rồi."
 
-Vương Kim Như đứng dậy đi vào phòng ngủ mới phản ứng lại, cái nhà này rốt cuộc là ai làm chủ? Sao cảm thấy như Tô Miền đang đương gia thế này?
+Vương Kim Như đứng dậy đi vào phòng ngủ, bước được nửa đường mới sực nhận ra: Rốt cuộc cái nhà này ai mới là chủ hộ thế này? Sao cảm giác như Tô Miến mới là người làm chủ gia đình vậy?
 
-Giống như sắm Tết vậy, Tô Miền đến, Vương Kim Như và Triệu Quốc Hoa tự nhiên chuyển đồ vào phòng ngủ nhà mình, chẳng thèm suy nghĩ, cũng chẳng ai có khái niệm phân gia.
+Như thể đi sắm Tết về, Tô Miến vừa mang đồ đến là Vương Kim Như và Triệu Quốc Hoa đã tự nhiên ôm hết vào phòng ngủ của mình, chẳng cần nghĩ ngợi gì, trong đầu chẳng ai có khái niệm phân chia nhà cửa rạch ròi.
 
-Thực tế khi Triệu Quốc Khánh còn sống, gia đình đã phân chia rồi.
+Thực tế thì từ hồi Triệu Quốc Khánh còn sống, hai nhà đã sớm chia riêng rồi.
 
-Triệu Duyệt Thiên thích tựa vào người Tô Miền, Doãn Hiểu Lan có chút ghen tuông.
+Triệu Duyệt Thiên rất thích nép sát vào người Tô Miến, khiến Doãn Hiểu Lan đứng bên cạnh có chút chạnh lòng, ghen tị.
 
-Khi Tô Miền chưa đến, Triệu Duyệt Thiên thích bám lấy Doãn Hiểu Lan nhất.
+Lúc Tô Miến chưa về làng, Triệu Duyệt Thiên lúc nào cũng quấn quýt lấy Doãn Hiểu Lan.
 
-Có lẽ cô bé Triệu Duyệt Thiên đang học lớp một cũng hiểu rõ trong lòng, Tô Miền là chị dâu của mình, là người một nhà thực thụ.
+Có lẽ một đứa trẻ học lớp một như Triệu Duyệt Thiên trong lòng cũng hiểu rõ, Tô Miến mới chính là chị dâu tương lai của mình, là người nhà ruột thịt thực sự.
 
-Tán gẫu một lát, Triệu Hữu Hằng đeo bình ắc quy xuống sông, Triệu Chí Dũng cầm xô sắt và kẹp sắt nói đi ra mương kẹp chạch và lươn, bảo Tô Miền cái này chơi vui lắm.
+Trò chuyện thêm một lát, Triệu Hữu Hằng đã đeo bình ắc quy kích điện ra sông, Triệu Trí Dũng liền xách xô sắt và kẹp sắt rủ rê đi soi mương kẹp chạch, bắt lươn, còn quay sang hào hứng bảo Tô Miến trò này vui lắm.
 
-Triệu Kim An xem thời gian rồi hỏi Tô Miền: "Em có muốn đi xem không?"
+Triệu Kim An nhìn đồng hồ rồi hỏi Tô Miến: "Em có muốn ra xem không?"
 
-"Ừm."
+"Có chứ."
 
-Tô Miền gật đầu, vẻ mặt đầy hứng thú.
+Tô Miến gật đầu lia lịa, vẻ mặt đầy hào hứng, tò mò.
 
-Triệu Kim An Có Tài xách rượu thuốc chuẩn bị về nhà, bà nội gọi nhỏ bảo hắn ngày mai đến phụ giúp gặt lúa.
+Triệu Hữu Tài xách thuốc lá và rượu chuẩn bị ra về, bà nội liền nhỏ giọng dặn ngày mai nhà gặt lúa nhớ sang ăn cơm và giúp một tay.
 
-Triệu Kim An Có Tài gật đầu.
+Triệu Hữu Tài gật đầu nhận lời.
 
-Hắn biết bà nội gọi mình đến để ăn cơm, chỉ còn lại một mảnh ruộng nuôi cá hoa kiểng thôi.
+Anh hiểu rõ bà nội gọi sang ăn cơm là chính, vì nhà chỉ còn trơ trọi đúng một sào ruộng có thả cá hoa sen thôi.
 
-Triệu Quốc Hoa đi tìm chiếc đèn pin đội lên đầu Triệu Kim An, Triệu Kim An bèn bế Tô Miền đi ra ngoài.
+Triệu Quốc Hoa đi tìm chiếc đèn pin đeo đầu đeo lên trán cho Triệu Kim An, Triệu Kim An liền bế bổng Tô Miến sải bước ra cửa.
 
-"Có lạnh không?"
+"Lạnh không?"
 
-Sắp sang tháng mười rồi, Triệu Kim An Gia thôn ban đêm rất mát mẻ, còn có thể nghe thấy tiếng ếch kêu.
+Sắp sang tháng mười, Triệu gia thôn về đêm trời mát lạnh, tiếng ếch nhái râm ran khắp bờ bãi.
 
-Tô Miền lắc đầu nói: "Không lạnh."
+Tô Miến lắc đầu: "Không lạnh."
 
-Nàng vòng hai tay ôm cổ Triệu Kim An, nhìn một hồi, đột nhiên hôn lên mặt hắn.
+Cô vòng hai tay ôm lấy cổ Triệu Kim An, ngước mắt ngắm nhìn anh một lúc, rồi bất chợt rướn người hôn chụt lên má anh một cái.
 
-Triệu Kim An ngẩn người.
+Triệu Kim An thoáng sững sờ.
 
-Hắn và Tô Miền đã từng ngủ chung một giường, nhưng đây là lần đầu tiên hôn nhau.
+Anh và Tô Miến đã từng ngủ chung một giường, nhưng đây lại là lần đầu tiên hai người trao nhau nụ hôn.
 
-Nói thật, Triệu Kim An là một người đàn ông bình thường, hắn muốn phụ nữ rồi, bèn ôm chặt Tô Miền hơn một chút, hôn lên đôi môi của nàng.
+Thực lòng mà nói, Triệu Kim An là một người đàn ông hoàn toàn bình thường, những khao khát bản năng trỗi dậy, anh liền ôm siết Tô Miến vào lòng hơn một chút, cúi đầu đặt lên đôi môi mềm mại của cô một nụ hôn sâu.
 
-Tô Miền nhắm mắt phối hợp, nhưng lại tỏ ra rất vụng về.
+Tô Miến khẽ nhắm mắt phối hợp, nhưng từng cử chỉ đều toát lên vẻ vụng về, bỡ ngỡ.
 
-"Cái đệt, hai người chú ý ảnh hưởng chút đi, đây là ở trong thôn đấy!"
+"Vãi chưởng, hai người giữ ý tứ chút đi, đây là giữa đường làng đấy nhé!"
 
-Triệu Chí Dũng đội đèn pin đi phía trước, hắn không biết Triệu Kim An kiếp này vẫn còn là trai tân.
+Triệu Trí Dũng đeo đèn pin đi phía trước bất thình lình quay đầu lại càu nhàu. Cậu đâu có biết ở kiếp này Triệu Kim An vẫn còn là một "trai tân" chính hiệu.
 
-Doãn Hiểu Lan cũng chưa từng nghĩ tới, Triệu Kim An và Tô Miền đều ngủ với nhau rồi, sao có thể chứ.
+Doãn Hiểu Lan cũng chưa từng ngờ tới, Triệu Kim An và Tô Miến đã ngủ chung một phòng rồi, làm sao có chuyện còn trong trắng cho được.
 
-Dù sao thì Triệu Chí Dũng và Trịnh Như đã mở khóa đủ chín chín tám mươi mốt tư thế, có vài lần còn làm Triệu Niệm Khả tỉnh giấc.
+Dù sao thì Triệu Trí Dũng và Trịnh Như đã sớm mở khóa đủ "tám mốt tư thế", có mấy lần còn làm kinh động khiến bé Triệu Niệm Khả thức giấc.
 
-Hai người tách ra, Tô Miền nhìn Triệu Kim An, nói: "Kim An, em là lần đầu tiên."
+Hai người tách nhau ra, Tô Miến ngước đôi mắt long lanh nhìn Triệu Kim An, thỏ thẻ: "Kim An, đây là lần đầu tiên của em."
 
-Triệu Kim An rất bình thản nói: "Anh cũng thế."
+Triệu Kim An giữ vẻ mặt vô cùng bình thản đáp: "Anh cũng thế."
 
-Tô Miền: ???
+Tô Miến: "???"
 
-Anh nói dối mà nhịp tim cũng không tăng nhanh chút nào sao?
+Anh nói dối mà tim không đập nhanh lấy một nhịp nào sao?
 
-"Suỵt! Thím nhỏ, mau lại đây xem!"
+"Suỵt! Thím nhỏ, mau qua đây xem này!"
 
-Triệu Chí Dũng đột ngột hạ thấp giọng, Triệu Kim An bế Tô Miền sải bước đi tới.
+Triệu Trí Dũng đột ngột hạ thấp giọng gọi. Triệu Kim An liền bế Tô Miến rảo bước bước tới.
 
-"Thấy chưa, cá chạch!"
+"Thấy chưa, trạch đấy!"
 
-Triệu Chí Dũng nhanh tay lẹ mắt kẹp lấy con chạch ném vào xô sắt.
+Triệu Trí Dũng nhanh tay lẹ mắt đưa kẹp sắt kẹp gọn con trạch quăng tõm vào thùng sắt.
 
-Tô Miền rướn người hỏi: "Đơn giản vậy sao?"
+Tô Miến nhoài người nhìn vào, thốt lên: "Đơn giản thế thôi á?"
 
 "..."
 
-Triệu Kim An thành thật thú nhận: "Cái đó.... anh không thạo lắm."
+Triệu Kim An đành thú thật: "Món này... anh không rành lắm đâu."
 
-Tô Miền bật cười, gật đầu nói: "Nhìn ra được."
+Tô Miến bật cười khúc khích, gật đầu trêu: "Nhìn là biết ngay rồi!"

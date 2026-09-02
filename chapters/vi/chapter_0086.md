@@ -1,235 +1,237 @@
-# Chương 86: Tôi Là Người Phụ Nữ Của Hắn Sao
+# Chương 86: Mình có phải là người phụ nữ của cậu ấy không?
 
-Chiếc Audi dừng lại ở sân trước.
+> **Tiêu đề gốc**: 第86章 我是他的女人吗？
 
-Trước khi về, Đơn Vĩ đã rửa xe sạch sẽ, đến tận vành bánh xe cũng được lau chùi sáng loáng.
+Chiếc Audi đỗ ngay ngắn giữa khoảng sân trước nhà.
 
-Triệu Kim An không đóng cửa xe.
+Trước khi về, Đan Vĩ đã chu đáo mang xe đi rửa sạch bong, ngay cả vành bánh xe cũng được lau chùi sáng loáng không dính một hạt bụi.
 
-Vương Kim Như ngồi thử vào trong, động tác cẩn thận từng chút một, cứ sợ làm hỏng xe.
+Triệu Kim An để mở cửa xe.
 
-Một người phụ nữ như thế mà lại nhát gan đến vậy, Triệu Kim An mỉm cười bảo: "Thím, cháu đưa thím đi hóng gió nhé."
+Vương Kim Như rón rén trèo lên ngồi thử, động tác cẩn trọng từng li từng tí, cứ như chỉ sợ mình lỡ mạnh tay làm hỏng mất chiếc xe tiền tỷ.
 
-"Làm gì có chuyện đưa thím đi hóng gió?"
+Thấy một người phụ nữ ngày thường đanh đá là thế mà lúc này lại nhát gan đến lạ, Triệu Kim An bật cười bảo: "Thím, hay là cháu chở thím đi hóng gió một vòng nhé?"
 
-Người vừa lên tiếng là Khâu Xuân Cúc, bà thấy Triệu Bác Lan mãi chưa về nhà ăn cơm nên mới tìm tới.
+"Làm gì có chuyện cháu trai lại chở thím đi hóng gió chứ?"
 
-Triệu Chí Dũng cũng không về, bữa cơm đầu tiên khi về nghỉ đông đều tập trung hết ở nhà Triệu Kim An.
+Người vừa lên tiếng là Khâu Xuân Cúc. Thấy Triệu Bác Lan mãi chẳng chịu về nhà ăn cơm, bà liền sốt ruột lần sang tận đây.
 
-Vương Kim Như đáp: "Sao lại không thể đưa tôi đi hóng gió? Tôi với Kim An thân thiết lắm đấy."
+Triệu Trí Dũng cũng chưa chịu về, bữa cơm đầu tiên của kỳ nghỉ đông về quê, cả bọn đều tụ tập đông đủ ở nhà Triệu Kim An.
 
-Lúc này, bà nội gọi mọi người vào ăn cơm.
+Vương Kim Như bĩu môi đáp: "Sao lại không được chở tôi đi hóng gió chứ? Tình cảm giữa tôi với Kim An nhà tôi tốt lắm đấy nhé."
 
-Nghe tin cháu trai về, bà nội đã bận rộn từ chiều, Doãn Hiểu Lan bưng thức ăn, Triệu Bác Lan bày bát đũa, còn Triệu Chí Dũng thì đã không đợi được nữa, nói là đã lâu rồi không được ăn món bà nội nấu.
+Đúng lúc này, bà nội cất tiếng gọi cả nhà vào ăn cơm.
 
-Khâu Xuân Cúc oán trách Triệu Bác Lan một câu: "Về rồi mà cũng không chịu về nhà ăn cơm!"
+Nghe tin cháu đích tôn về, bà nội đã tất bật chuẩn bị từ tận đầu giờ chiều. Doãn Hiểu Lan lăng xăng bưng bê từng đĩa thức ăn nóng hổi, Triệu Bác Lan xếp bát đũa ra bàn, còn Triệu Trí Dũng thì sốt ruột xoa tay, miệng tấm tắc bảo đã lâu lắm rồi chưa được ăn lại cơm bà nấu.
 
-Bà nội cười hì hì bảo không sao cả.
+Khâu Xuân Cúc khẽ cằn nhằn Triệu Bác Lan một câu: "Về đến nơi rồi mà cũng chẳng thèm bước chân về nhà ăn một bữa cơm!"
 
-Chẳng nói đến chuyện ngày khai giảng bà nội và Vương Kim Như đã làm phiền Triệu Bác Lan, vốn dĩ bà nội đối đãi với người ta rất nhiệt tình, vai vế trong thôn lại cao, nên dù có ăn một bữa cơm thì ngay cả Vương Kim Như cũng chẳng nói gì.
+Bà nội cười hiền từ bảo không sao, càng đông càng vui.
 
-"Thiên Thiên, anh trai vừa về là em không thèm ăn cơm nữa đúng không!"
+Chưa kể hôm tựu trường bà nội và Vương Kim Như đã làm phiền gia đình Triệu Bác Lan rất nhiều, bà cụ vốn tính hiếu khách, lại là bậc cao niên đức cao vọng trọng trong làng, chỉ là thêm một bữa cơm thì ngay cả người khó tính như Vương Kim Như cũng chẳng hề hé răng nửa lời.
 
-Triệu Duyệt Thiên đang ôm một đống đồ KFC, mua quá nhiều, Triệu Bác Lan mỗi loại đều mua một ít.
+"Thiến Thiến, anh trai vừa về là em quên luôn cả chuyện ăn cơm đúng không hả!"
 
-Triệu Kim An vừa về, không khí trong nhà lập tức trở nên náo nhiệt hẳn lên.
+Triệu Duyệt Thiến đang ôm khư khư túi gà rán KFC trong lòng. Đồ ăn mua về nhiều quá, Triệu Bác Lan mỗi thứ lại mua một ít cho con bé.
 
-Vương Kim Như kéo tay Triệu Kim An: "Lại mua nhiều thế này, lãng phí tiền quá, cháu xem Thiên Thiên còn bụng dạ nào ăn cơm nữa không."
+Triệu Kim An vừa về đến nhà, không khí trong gia đình lập tức trở nên náo nhiệt, rộn rã hẳn lên.
 
-Bà nội cứ tủm tỉm cười nhìn cháu trai, nhìn mãi không chán, nhưng tay vẫn không quên gắp thức ăn cho Triệu Bác Lan.
+Vương Kim Như túm lấy tay Triệu Kim An cằn nhằn: "Lại mua lắm đồ thế này, lãng phí tiền bạc quá. Cháu xem con bé Thiến Thiến có chịu ăn cơm nữa không cơ chứ."
 
-Chẳng ai thèm đoái hoài đến Triệu Chí Dũng, vì hắn đến đây quá nhiều lần rồi.
+Bà nội vẫn luôn mỉm cười nhìn cháu trai, ánh mắt dịu dàng như ngắm mãi chẳng thấy đủ, nhưng miệng vẫn không quên đon đả mời Triệu Bác Lan gắp thêm thức ăn.
 
-Doãn Hiểu Lan gắp một chiếc đùi vịt bỏ vào bát Triệu Kim An, ngay cả Vương Kim Như cũng gắp thức ăn cho hắn, xót xa bảo chắc là đói lả rồi, lái xe cả một ngày trời mà.
+Triệu Trí Dũng thì chẳng ai buồn để ý, bởi cậu ta sang đây ăn chực nhiều đến mức nhẵn mặt rồi.
 
-Triệu Bác Lan nhận ra Vương Kim Như – một người đàn bà đanh đá có tiếng trong thôn – vậy mà lại khá quan tâm đến Triệu Kim An.
+Doãn Hiểu Lan gắp một chiếc đùi vịt béo ngậy bỏ vào bát Triệu Kim An, ngay cả Vương Kim Như cũng liên tục gắp thức ăn cho cháu, miệng xót xa bảo lái xe cả ngày đường chắc đói lả rồi đúng không.
 
-Nhìn qua ánh mắt có thể thấy, Vương Kim Như thực sự thương yêu Triệu Kim An từ tận đáy lòng, chứ không phải làm màu cho khách khứa xem.
+Triệu Bác Lan nhìn thấy cảnh này thì không khỏi ngạc nhiên, một người phụ nữ chua ngoa, đanh đá khét tiếng trong làng như Vương Kim Như, hóa ra lại biết quan tâm Triệu Kim An đến thế.
 
-Ở nông thôn, trong hoàn cảnh này, nếu Vương Kim Như đối xử tệ bạc với Triệu Kim An thì sẽ bị người ta đàm tiếu ngay.
+Nhìn ánh mắt là có thể nhận ra ngay, Vương Kim Như thật lòng thật dạ thương xót Triệu Kim An, chứ hoàn toàn không phải loại người làm màu làm mè trước mặt khách khứa.
 
-Chưa kể Triệu Kim An có vai vế cao trong thôn, có lẽ sẽ có người chướng mắt mà đi tìm Triệu Quốc Hoa hỏi rằng: "Ông cưới cái loại vợ gì về thế này?"
+Ở chốn làng quê thôn dã, trong hoàn cảnh mẹ kế con chồng hay thím cháu thế này, nếu Vương Kim Như mà đối xử hà khắc với Triệu Kim An thì chắc chắn sẽ bị miệng lưỡi thế gian đàm tiếu đến ngẩng đầu không nổi.
 
-Tệ bạc với Triệu Kim An chẳng phải là tệ bạc với chú, với ông chú của chúng tôi sao!
+Huống chi vai vế của Triệu Kim An trong làng lại rất cao, nếu ai chướng tai gai mắt, khéo họ lại tìm đến tận mặt Triệu Quốc Hoa mà mắng thẳng thừng: "Mày rước thứ đàn bà gì về nhà thế hả!?"
 
-Ông không quản được vợ thì chúng tôi đuổi vợ ông ra khỏi Triệu Kim An Gia thôn!
+Đối xử tệ bạc với Triệu Kim An chẳng khác nào khinh thường cả bậc cha chú, ông chú trong họ tộc này hay sao!
 
-Chuyện tương tự thế này từng xảy ra một lần, có người con dâu gả về hơn 20 năm không phụng dưỡng mẹ chồng, thậm chí đến cơm cũng không cho ăn, thế là có người đứng ra hô hào người họ Triệu Kim An trong thôn đuổi người đàn bà đó đi.
+Nếu mày không dạy bảo được vợ mày, cả cái làng họ Triệu này sẽ chung tay đuổi cổ mụ đàn bà ấy ra khỏi làng!
 
-Chồng cô ta nói gì cũng không có tác dụng, còn bị chỉ tận mặt mà mắng chửi té tát.
+Chuyện tương tự thế này từng xảy ra một lần trong quá khứ. Có một người con dâu gả về làng hơn hai mươi năm trời nhưng không chịu phụng dưỡng mẹ chồng, thậm chí đến bữa cơm cũng chẳng buồn nấu cho bà cụ ăn. Thế là người trong làng đứng ra hô hào, tập hợp cả dòng họ Triệu đuổi thẳng cổ người đàn bà đó ra khỏi làng.
 
-Thậm chí chuyện còn kinh động đến tận đồn cảnh sát.
+Chồng bà ta có mở miệng van xin cũng chẳng ăn thua, ngược lại còn bị người trong họ chỉ thẳng vào mặt mắng cho vuốt mặt không kịp.
 
-Ăn cơm xong, Triệu Bác Lan và Khâu Xuân Cúc ra về, mang theo hành lý và hai thùng nước giải khát.
+Vụ việc năm đó ầm ĩ đến mức kinh động cả đồn công an.
 
-Triệu Chí Dũng cũng về theo, bố mẹ hắn nghe tin hắn ở nhà Triệu Kim An nên cũng chẳng buồn quản, một mình hắn xách hành lý và hai thùng nước giải khát lững thững đi về.
+Ăn cơm xong xuôi, Triệu Bác Lan cùng Khâu Xuân Cúc xách hành lý và hai thùng nước ngọt xách tay ra về.
 
-Triệu Kim An đưa hai vạn tệ cho Vương Kim Như.
+Triệu Trí Dũng cũng chào mọi người rồi về nhà, bố mẹ cậu ta nghe tin con trai đang ăn cơm bên nhà Kim An thì cũng lười chẳng buồn quản, một mình cậu xách hành lý cùng hai thùng nước ngọt hớn hở rảo bước trong đêm.
 
-Mắt Vương Kim Như sáng rực lên: "Kim An, tiền của cháu... lại đưa thím giữ à?"
+Triệu Kim An kín đáo rút hai vạn tệ tiền mặt dúi vào tay Vương Kim Như.
 
-Triệu Kim An cười gật đầu: "Vâng, thím muốn tiêu gì thì tiêu."
+Mắt Vương Kim Như sáng rực lên: "Kim An, tiền này... cháu lại đưa cho thím giữ hộ à?"
 
-Vương Kim Như cầm tiền cười không khép được miệng, bà vốn thích quản tiền, đặc biệt là giữ tiền hộ Triệu Kim An, cảm giác này giống như cướp được con trai của Đoạn Thu Bình vậy, vô cùng thành tựu.
+Triệu Kim An cười gật đầu: "Vâng, thím muốn tiêu gì thì cứ tiêu."
 
-"Kim An, cháu... cháu ngoan quá..."
+Vương Kim Như cầm xấp tiền dày cộp trong tay, cười đến mức không khép nổi miệng. Bà vốn là người mê giữ tiền, đặc biệt là giữ tiền thay cho Triệu Kim An, trong lòng luôn dâng lên cảm giác thành tựu như vừa cướp được đứa con trai từ tay Đoạn Thu Bình vậy.
 
-Triệu Kim An: "..."
-
-"Yên tâm đi, thím không tiêu của cháu đâu, để dành sau này cho cháu cưới vợ."
-
-Hai người đối mặt nhau như đang nói chuyện thì thầm.
-
-Rõ ràng không có người ngoài, nhưng vẫn sợ người khác nghe thấy chuyện nhà mình có tiền.
-
-À thì, cũng có một người ngoài, Doãn Hiểu Lan lại đang ở trong bếp giúp bà nội rửa bát.
-
-"Để dành nhiều tiền thế này, sau này phải cưới cô vợ xinh đẹp cỡ nào đây?"
-
-Nghe thấy câu này, động tác rửa bát của Doãn Hiểu Lan bỗng khựng lại một nhịp.
-
-Bà nội liếc xéo Vương Kim Như một cái: "Kim An mới học năm nhất đại học thôi."
+"Kim An, cháu... cháu ngoan quá chừng..."
 
 Triệu Kim An: "..."
 
-Bà nội đang nói đỡ cho Doãn Hiểu Lan sao?
+"Cháu cứ yên tâm, thím không thèm tiêu lẹm vào tiền của cháu đâu, thím để dành hết lại sau này cưới vợ cho cháu."
 
-Doãn Hiểu Lan đúng là tướng người dễ sinh nở, eo thon mông lớn, trong mắt Triệu Kim An thì gọi là "cong", chứ thế hệ trước không cảm thụ nổi cái kiểu đẹp "mình hạc xương mai" gầy như que củi.
+Hai thím cháu đứng đối diện nhau, thì thào to nhỏ như đang bàn chuyện cơ mật.
 
-Triệu Kim An bước lại gần, lén lút nhét hai nghìn tệ vào túi quần Doãn Hiểu Lan.
+Rõ ràng trong nhà chẳng có người ngoài, vậy mà vẫn nơm nớp sợ người khác nghe thấy rồi biết nhà mình có nhiều tiền.
 
-"Kim An... lần trước anh cho tôi vẫn chưa tiêu hết."
+À thì, nói là không có người ngoài nhưng thực ra vẫn còn Doãn Hiểu Lan đang cặm cụi rửa bát giúp bà nội ở trong bếp.
+
+"Gom góp nhiều tiền thế này, sau này phải cưới một cô vợ xinh đẹp cỡ nào mới xứng đây?"
+
+Nghe thấy câu nói ấy của Vương Kim Như, động tác rửa bát của Doãn Hiểu Lan bỗng khựng lại trong giây lát.
+
+Bà nội khẽ lườm Vương Kim Như một cái: "Kim An nó mới học năm nhất đại học thôi mà."
+
+Triệu Kim An: "..."
+
+Chẳng lẽ bà nội đang cố ý nói đỡ cho Doãn Hiểu Lan sao?
+
+Doãn Hiểu Lan quả thực là dáng người mắn đẻ, eo thon hông nở nang, trong mắt Triệu Kim An thì đó là nét đẹp nảy nở, quyến rũ, còn thế hệ các cụ ngày xưa thì tuyệt đối không tài nào thẩm thấu nổi kiểu người đẹp "mình hạc xương mai" gầy trơ xương như que củi.
+
+Triệu Kim An bước lại gần, len lén nhét hai nghìn tệ vào túi quần của Doãn Hiểu Lan.
+
+"Kim An... Lần trước số tiền cậu cho tôi vẫn còn chưa tiêu hết đâu."
 
 Triệu Kim An khẽ lắc đầu.
 
-Bà nội nhìn thấy nhưng không nói gì.
+Bà nội đứng bên cạnh nhìn thấy tất cả, nhưng bà chỉ im lặng không nói nửa lời.
 
-Thực tế Doãn Hiểu Lan đã thưa với bà nội rằng Kim An về có đưa cho cháu hai nghìn tệ, bà nội bảo hắn cho thì cứ giữ lấy, đừng nói với bất kỳ ai, nhất là đừng nói với Vương Kim Như.
+Thực ra lần trước Doãn Hiểu Lan đã thật thà kể hết với bà, bảo rằng Kim An về quê có đưa cho cháu hai nghìn tệ. Khi đó bà nội đã dặn: "Nó cho thì cháu cứ cầm lấy, đừng kể với bất kỳ ai, nhất là đừng hé răng với thím Kim Như."
 
-Triệu Kim An nói rất nhỏ: "Sắp Tết rồi, chị cứ giữ ít tiền bên người."
+Triệu Kim An hạ thấp giọng: "Sắp Tết rồi, trong người chị cứ giữ lấy một ít tiền phòng thân."
 
-Doãn Hiểu Lan do dự một hồi rồi gật đầu.
+Doãn Hiểu Lan ngập ngừng một thoáng rồi khẽ gật đầu.
 
-Cô hiểu ý của Triệu Kim An, số tiền này không phải để cô sắm sửa Tết nhất, đó là việc của Triệu Kim An Vĩ. Nhưng việc Kim An đưa tiền riêng cho mình thế này... tôi là người phụ nữ của hắn sao?
+Cô hiểu thấu tâm ý của Triệu Kim An. Số tiền này không phải đưa để cô sắm sửa đồ Tết cho gia đình, chuyện sắm Tết là trách nhiệm của Triệu Vĩ. Nhưng việc Kim An lén lút cho cô tiền thế này... liệu mình có phải là người phụ nữ của cậu ấy không?
 
-Nếu không phải người phụ nữ của hắn, tôi có tư cách gì mà nhận tiền của hắn?
+Nếu không phải là người đàn bà của cậu ấy, thì mình lấy tư cách gì để nhận số tiền này chứ?
 
-Hơn nữa, bà nội cũng đối xử với tôi tốt như vậy.
+Hơn nữa, bà nội cũng đối xử với mình tốt đến vậy.
 
-Nhìn Triệu Kim An đang ra ngoài trêu chọc Triệu Duyệt Thiên, suy nghĩ của Doãn Hiểu Lan không giống với Lâm Thanh Tuyết, không phải cứ không phải là người phụ nữ của người ta thì không được nhận tiền!
+Doãn Hiểu Lan nhìn theo bóng lưng Triệu Kim An đang bước ra ngoài sân trêu đùa cô bé Triệu Duyệt Thiến. Suy nghĩ của cô hoàn toàn khác với Lâm Thanh Tuyết, nếu không phải là người phụ nữ của người ta thì tuyệt đối không thể tùy tiện nhận tiền!
 
-Ở Triệu Kim An Gia thôn, nếu không đi làm thuê bên ngoài thì thực sự chẳng có nguồn thu nhập nào, phụ nữ chỉ có thể "dựa dẫm" vào đàn ông thôi.
+Ở cái làng họ Triệu này, nếu phụ nữ không chịu ra ngoài đi làm thuê thì thực sự chẳng có bất kỳ nguồn thu nhập nào, phận đàn bà chỉ biết nương tựa vào đàn ông mà sống.
 
-"Đừng ăn nữa, bụng sắp nứt ra rồi kìa."
+"Đừng ăn nữa, bụng sắp nổ tung ra rồi kìa."
 
-Triệu Kim An vỗ vỗ cái bụng nhỏ của Triệu Duyệt Thiên: "Đi lấy cái cánh gà cho bà nội ăn đi."
+Triệu Kim An vỗ nhẹ vào cái bụng tròn xoe của Triệu Duyệt Thiến: "Mau mang một cái cánh gà vào cho bà nội ăn đi em."
 
-"Chẳng phải tại anh mua nhiều thế này về sao!"
+"Cũng tại cháu mua về lắm thế không biết!"
 
-Vương Kim Như miệng thì chê bai nhưng lòng lại vui như mở hội. Lại giống như lần trước, hễ rảnh rỗi là Vương Kim Như và Doãn Hiểu Lan lại vây quanh Triệu Kim An, chỉ có điều có Vương Kim Như ở đó nên Doãn Hiểu Lan không dám kéo ống quần hắn nữa.
+Vương Kim Như ngoài miệng thì chê bai lãng phí nhưng trong lòng thì sướng rơn. Lại giống như lần trước, hễ rảnh rỗi là Vương Kim Như và Doãn Hiểu Lan lại xúm xít ngồi cạnh Triệu Kim An. Chỉ có điều vì có mặt Vương Kim Như ở đây nên Doãn Hiểu Lan không dám bạo gan nắm lấy ống quần Triệu Kim An như dạo nọ nữa.
 
-Đại khái cũng bởi trong nhà không có đàn ông, Triệu Kim An về chính là trụ cột duy nhất.
+Có lẽ cũng bởi trong nhà thiếu vắng bóng dáng đàn ông, Triệu Kim An vừa trở về liền nghiễm nhiên trở thành trụ cột duy nhất trong gia đình.
 
-Vương Kim Như kể Triệu Kim An Vĩ lại một tuần rồi không về nhà, sắp Tết rồi mà vẫn không đưa tiền về, trong nhà bao nhiêu thứ phải sắm sửa, rồi còn Hiểu Lan nữa, chẳng lẽ Tết nhất lại về nhà ngoại tay không?
+Vương Kim Như chép miệng kể lể, bảo thằng Triệu Vĩ lại cả tuần nay không thèm bén mảng về nhà, sắp Tết đến nơi rồi mà chẳng mang nổi một đồng bạc về phụ giúp gia đình. Tết nhất đến nơi trong nhà bao nhiêu thứ phải lo toan sắm sửa, chưa kể con bé Hiểu Lan lấy chồng rồi chẳng lẽ ngày Tết lại về nhà mẹ đẻ với hai bàn tay trắng hay sao?
 
-Doãn Hiểu Lan không lên tiếng.
+Doãn Hiểu Lan cúi đầu im lặng, không đáp lời.
 
-Triệu Kim An chuyển chủ đề: "Chú khi nào thì về ạ?"
+Triệu Kim An khéo léo đổi chủ đề: "Chú con bao giờ thì được nghỉ về quê hả thím?"
 
-Vương Kim Như bảo còn vài ngày nữa, xưởng mới cho nghỉ.
+Vương Kim Như bảo chắc phải vài hôm nữa xưởng mới cho công nhân nghỉ Tết.
 
-Cả nhà trò chuyện đến tận 11 giờ đêm, Doãn Hiểu Lan mới đi về ngủ. Nếu Triệu Kim An đã về mà cô vẫn ngủ lại đây thì chắc chắn sẽ có lời ra tiếng vào.
+Cả nhà ngồi quây quần trò chuyện rôm rả mãi đến tận mười một giờ đêm, Doãn Hiểu Lan mới lặng lẽ trở về nhà mình ngủ. Nếu Triệu Kim An đã về mà cô vẫn ngủ lại bên này thì chắc chắn trong làng sẽ có kẻ lắm mồm đặt điều dị nghị.
 
-Triệu Kim An nằm trên giường, hít hà mùi chăn đệm thơm mùi nắng.
+Triệu Kim An nằm trên chiếc giường quen thuộc, khẽ hít hà mùi thơm dìu dịu của chăn màn vừa được phơi no nắng ấm.
 
-Điện thoại bỗng "ting" một tiếng.
+Chiếc điện thoại đặt đầu giường bỗng vang lên tiếng "ting" khe khẽ.
 
-Thời gian: 23:45.
+Đồng hồ điểm đúng 23:45.
 
-Doãn Hiểu Lan: "Đã ba tháng rồi tôi không ngủ với anh ta."
+Tin nhắn từ Doãn Hiểu Lan: [Đã 3 tháng rồi tôi không ngủ cùng anh ấy.]
 
-***
+...
 
-Ngày hôm sau.
+Sáng hôm sau.
 
-Triệu Kim An lái xe đến nhà máy nước, đi cùng còn có Triệu Bác Lan.
+Triệu Kim An lái xe chở Triệu Bác Lan cùng đến nhà máy nước.
 
-Hắn gặp được giám đốc nhà máy, Bành Trung Ngạn.
+Họ gặp giám đốc nhà máy, Bành Trung Ngạn.
 
-Một người đàn ông ngoài 40 tuổi, trông có vẻ thật thà chất phác. Đây là lần thứ hai ông gặp Triệu Kim An, không ngờ chàng trai này lại trở thành ông chủ lớn của mình.
+Đó là một người đàn ông trạc ngoài bốn mươi tuổi, dáng vẻ thật thà, chất phác. Đây là lần thứ hai ông ta gặp Triệu Kim An, thật không ngờ chàng trai trẻ măng này giờ đây lại trở thành ông chủ lớn nắm quyền sinh sát của mình.
 
-Lạc Cẩn Chi đứng bên cạnh giới thiệu, bảo Triệu Bác Lan là kế toán mới của công ty.
+Lạc Cẩn Chi đứng bên cạnh giới thiệu, bảo Triệu Bác Lan là kế toán mới được bổ nhiệm của công ty.
 
-Đây cũng là lần đầu tiên Triệu Bác Lan đến nhà máy nước. Nếu chỉ ở Quận Sa với mấy căn phòng dân làm văn phòng thì công ty trông chẳng có chút thực lực nào, giống như một công ty ma.
+Đây cũng là lần đầu tiên Triệu Bác Lan đặt chân đến nhà máy nước. Nếu chỉ nhìn mấy gian phòng làm việc thuê tạm ở thành phố Quận Sa thì quả thật công ty trông chẳng có chút thực lực nào, chẳng khác gì mấy công ty ma lừa đảo.
 
-Nhưng nhà máy nước là tài sản cố định, còn có cả dây chuyền sản xuất.
+Nhưng nhà máy nước này lại là tài sản cố định bằng xương bằng thịt, lại có cả dây chuyền sản xuất hoàn chỉnh đang hoạt động.
 
-Triệu Kim An hỏi Bành Trung Ngạn: "Năng suất có vấn đề gì không?"
+Triệu Kim An quay sang hỏi Bành Trung Ngạn xem năng lực sản xuất hiện tại có gặp vấn đề gì không.
 
-Đây là câu hỏi kiểu gì vậy?
+Bành Trung Ngạn ngớ người một thoáng, câu hỏi này là có ý gì chứ?
 
-Bành Trung Ngạn khựng lại một chút: "Triệu tổng, năng suất chỉ có thừa chứ không thiếu."
+Ông ta ngập ngừng giây lát rồi đáp: "Thưa Triệu tổng, công suất sản xuất của chúng ta chỉ có thừa chứ không bao giờ thiếu."
 
-Ý ngoài lời là sản phẩm tiêu thụ không nhanh. Triệu Kim An gật đầu: "Hãy kiểm soát tốt khâu chất lượng."
+Ý ngoài lời chính là hàng sản xuất ra tiêu thụ không kịp, ứ đọng lại nhiều. Triệu Kim An gật đầu dặn dò: "Phải kiểm soát thật chặt chẽ khâu chất lượng."
 
-Đã có tiền lệ từ Wahaha, Triệu Kim An hiểu rằng uy tín là điều tối quan trọng.
+Đã có bài học nhãn tiền từ các thương hiệu lớn như Wahaha, Triệu Kim An hiểu rất rõ uy tín chất lượng quan trọng đến nhường nào.
 
-Lạc Cẩn Chi hỏi có cần mua thêm mấy chiếc xe tải nhỏ không.
+Lạc Cẩn Chi hỏi xem có nên chi tiền mua thêm mấy chiếc xe tải nhỏ để chở hàng hay không.
 
 "Không có tiền."
 
-Triệu Kim An lại thốt ra câu đó, tiền của hắn phải đổ vào marketing.
+Triệu Kim An lại thốt ra câu cửa miệng quen thuộc. Tiền của cậu lúc này bắt buộc phải dồn toàn lực cho chiến dịch tiếp thị và quảng bá.
 
-"Vậy còn việc giao hàng? Giám đốc Lưu bảo sau Tết sẽ vận chuyển tủ đông đến, xe ba gác nhỏ không chở nổi đâu."
+"Thế việc giao hàng thì tính sao? Giám đốc Lưu bảo tủ mát qua Tết là bắt đầu chở đến rồi, xe ba gác máy làm sao chở xuể được."
 
-Lạc Cẩn Chi bĩu môi: "Sao cậu lại keo kiệt như lão giữ của thế."
+Lạc Cẩn Chi bĩu môi hờn dỗi: "Sao cậu lại keo kiệt, giữ của như lão nhà giàu thế hả."
 
-Triệu Kim An bảo: "Vậy thì mua tạm chiếc xe cũ vậy."
+Triệu Kim An thản nhiên bảo: "Vậy thì trước mắt cứ mua tạm một chiếc xe cũ đã qua sử dụng đi."
 
 Lạc Cẩn Chi: "..."
 
-"Cậu đúng là biết cách sống thật đấy."
+"Cậu đúng là biết tính toán chi li, khéo vun vén thật đấy."
 
-Triệu Kim An mỉm cười: "Giống thím của tôi."
+Triệu Kim An cười đáp: "Gen di truyền giống thím tôi mà lị."
 
-"Vậy bắt đầu từ đâu trước? Tư Tinh hay Quận Sa?"
+"Thế chúng ta bắt đầu triển khai từ đâu trước? Tư Tinh hay Quận Sa?"
 
-"Chị thấy sao?"
+"Chị thấy thế nào?"
 
-"Tư Tinh đi, cho chắc chắn."
+"Tư Tinh đi, cho ăn chắc mặc bền."
 
-Lạc Cẩn Chi suy nghĩ rồi nói: "Dù sao ở Tư Tinh cũng có thị trường nhất định. Đúng rồi, bài hát quảng cáo cậu viết tôi vẫn chưa được nghe."
+Lạc Cẩn Chi suy nghĩ một lát rồi nói tiếp: "Dù sao ở Tư Tinh chúng ta cũng đã có sẵn một thị phần nhất định. À đúng rồi, bài hát quảng cáo cậu sáng tác tôi vẫn còn chưa được nghe thử đâu đấy nhé."
 
-"Không có tiền mà."
+"Chưa có tiền thu âm đâu."
 
-Triệu Kim An thở dài: "1 vạn 5 nghìn chiếc tủ đông, chỉ riêng một Quận Sa thôi đã không đủ rồi."
+Triệu Kim An thở dài một hơi: "Mười lăm nghìn chiếc tủ mát, rải riêng cho một thành phố Quận Sa thôi cũng đã chẳng thấm vào đâu rồi."
 
-Lạc Cẩn Chi cười bảo: "Một khi đã bắt đầu, Giám đốc Lưu chỉ còn cách đâm lao phải theo lao, đánh cược với chúng ta đến cùng thôi. Nếu không công ty mình sập, số tiền còn lại ông ấy biết đòi ai."
+Lạc Cẩn Chi bật cười: "Một khi đã bắt đầu đâm lao thì Giám đốc Lưu chỉ còn nước cắn răng mà theo chúng ta đánh cược đến cùng thôi. Chứ nếu công ty chúng ta sập tiệm thì số tiền thanh toán đợt cuối ông ta biết tìm ai mà đòi."
 
 Triệu Bác Lan: "..."
 
-Quả nhiên là thế, làm ông chủ ai cũng bụng dạ đen tối.
+Quả nhiên là vậy, phàm là người làm ông chủ thì tâm cơ ai nấy đều thâm sâu khó lường.
 
-Triệu Bác Lan mặc niệm cho Lưu Xuyên ba giây, cô biết nói là kỳ hạn thanh toán 4 tháng, nhưng ước chừng nửa năm mà nhận được tiền đã là may lắm rồi.
+Triệu Bác Lan thầm mặc niệm ba giây cho giám đốc Lưu Xuyên. Cô thừa hiểu trên danh nghĩa là thời hạn thanh toán 4 tháng, nhưng thực tế nếu trong vòng nửa năm mà đòi được hết tiền nợ cuối cùng thì đã là may mắn lắm rồi.
 
-Lạc Cẩn Chi không hiểu tại sao Triệu Kim An lại kiên quyết đổ nhiều tiền vào tủ đông như vậy.
+Lạc Cẩn Chi thực lòng không thể hiểu nổi vì sao Triệu Kim An lại kiên quyết đổ một đống tiền khủng khiếp vào mấy cái tủ mát làm gì.
 
-Bán rẻ hay tặng kèm đều không được.
+Bán nửa tặng nửa cũng chẳng thèm nghe.
 
-Nhưng Triệu Kim An biết, sau khi Tông lão qua đời, Wahaha cuối cùng vẫn phải đi con đường này.
+Thế nhưng Triệu Kim An lại là người nhìn thấy trước tương lai. Sau khi Tông lão của Wahaha qua đời, tập đoàn này cuối cùng vẫn phải đi theo con đường đó.
 
-Nông Phu Sơn Tuyền của Chung tổng có thể vượt mặt ở khúc cua, marketing là một phần, nhưng tủ đông cũng đóng vai trò rất lớn.
+Sở dĩ Nông Phu Sơn Tuyền của Chung Thiểm Thiểm có thể vượt mặt ngoạn mục trên đường đua nước đóng chai, tiếp thị là một phần, nhưng hệ thống tủ mát độc quyền đặt ở khắp các tiệm tạp hóa mới đóng vai trò then chốt cực kỳ to lớn.
 
-Lạc Cẩn Chi cầm một chai nước bọt khí lên: "Này, đây chính là nước bọt khí cậu muốn, 'Tiểu Tạc Đạn Oxy Nhẹ', cái tên này cậu đặt có phải hơi... hơi trẻ con quá không?"
+Lạc Cẩn Chi cầm một chai nước ngọt có ga lên: "Này, đây là nước có ga sủi bọt mà cậu yêu cầu đấy, 'Bong Bóng Oxy Nhẹ', cái tên này cậu đặt nghe có vẻ... có vẻ quá đỗi con nít không vậy?"
 
-"Bài hát đó chủ yếu là để quảng bá cho nó đấy."
+"Bài hát chủ đề lần này là để lăng xê riêng cho nó đấy."
 
-"Nghe đậm mùi hóa học quá."
+"Nghe đậm mùi học sinh, sinh viên quá."
 
-"Người uống nước bọt khí vốn dĩ là giới trẻ mà."
+"Người uống nước có ga vốn dĩ toàn là giới trẻ mà."
 
-Triệu Kim An cầm lên xem xét: "Nếu có thể, sau này chúng ta còn phải tổ chức các hoạt động thi đấu trong các trường đại học nữa."
+Triệu Kim An cầm chai nước lên ngắm nghía: "Nếu điều kiện cho phép, sau này chúng ta còn phải tài trợ, tổ chức đủ các loại giải thi đấu phong trào ở các trường đại học nữa."
 
-"Bắt chước Hồng Trà Băng à?"
+"Học theo cách làm của Trà Đen Đá à?"
 
 Triệu Kim An gật đầu.

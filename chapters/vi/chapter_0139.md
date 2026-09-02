@@ -1,231 +1,233 @@
-# Chương 139: A di, ngươi tốt.
+# Chương 139: Chào dì
 
-Ngày kế tiếp, buổi sáng.
+> **Tiêu đề gốc**: 第139章 阿姨，你好。
 
-Đoạn thu bình cùng tống đẹp lúa cưỡi xe tuyến đi tới Triệu gia thôn.
+Sáng hôm sau.
 
-Tại hạ sườn dốc chỗ, đoạn thu bình cước bộ chần chừ một lúc, thả xuống trong ngực của tống gia nguyệt.
+Đoạn Thu Bình cùng Tống Uyển Hòa bắt chuyến xe khách liên tỉnh về đến Triệu gia thôn.
 
-"tiểu nguyệt, ngoan a, đi một chút lộ liền tỉnh ngủ."
+Đến khúc dốc thoai thoải dẫn vào làng, bước chân Đoạn Thu Bình bỗng khựng lại một nhịp, bà liền đặt bé Tống Gia Nguyệt đang bế trong lòng xuống đất.
 
-Tống gia nguyệt tại xe tuyến bên trên ngủ thiếp đi.
+"Tiểu Nguyệt ngoan nào, tự đi bộ một đoạn cho tỉnh ngủ nhé con."
 
-Nơi này là Triệu Quốc Khánh cưỡi motor lao xuống của chỗ, không biết xuất từ tâm lý gì, đoạn thu bình đánh thức tống gia nguyệt, đại khái không tốt ôm người khác hài tử.
+Tống Gia Nguyệt ngủ thiếp đi suốt dọc đường trên xe khách.
 
-Đúng vậy, đối với Triệu Quốc Khánh tới nói, tống gia nguyệt là của người khác hài tử.
+Nơi này chính là khúc cua định mệnh năm xưa Triệu Quốc Khánh lao xe máy xuống vực tử nạn. Chẳng rõ xuất phát từ tâm lý gì, Đoạn Thu Bình lại đánh thức Tống Gia Nguyệt dậy, có lẽ trong tiềm thức bà cảm thấy không tiện bế đứa con của người đàn ông khác bước qua chốn này.
 
-Nếu như nói Triệu Kim An cùng tống gia nguyệt còn có liên hệ máu mủ, đó cùng Triệu Quốc Khánh là nửa xu quan hệ cũng không có.
+Đúng vậy, đối với Triệu Quốc Khánh dưới suối vàng, Tống Gia Nguyệt thuần túy là con của người đàn ông khác.
 
-Tống gia nguyệt nhập nhèm mở mắt ra, nàng là lần đầu tiên tới Triệu gia thôn.
+Nếu bảo Triệu Kim An và Tống Gia Nguyệt ít ra vẫn còn chung một nửa dòng máu cùng mẹ khác cha, thì với Triệu Quốc Khánh lại chẳng có lấy nửa sợi quan hệ nào.
 
-Tống đẹp lúa cũng là lần đầu tiên tới.
+Tống Gia Nguyệt dụi đôi mắt ngái ngủ mơ màng, đây là lần đầu tiên cô bé đến Triệu gia thôn.
 
-Nàng hôm nay tận lực ăn mặc một phen, đổi lại tự nhận là đẹp mắt nhất y phục, lau son môi trang điểm nhẹ.
+Tống Uyển Hòa cũng là lần đầu tiên đặt chân tới nơi này.
 
-Không phải nghe nói tô xa rất xinh đẹp, tới tranh so cái gì của.
+Hôm nay cô ta đã cất công chải chuốt, diện bộ trang phục mà bản thân cho là đẹp nhất, thoa son điểm chút phấn nhẹ nhàng.
 
-Lần đầu tiên lên môn, lần đầu tiên tới Triệu gia thôn, đều sẽ cách ăn mặc đẹp một chút.
+Không hẳn là vì nghe đồn Tô Miến xinh đẹp tuyệt trần mà đến đây để ganh đua sắc đẹp.
 
-Đại khái cũng có chút đi.
+Lần đầu tiên đến nhà người ta, lại là lần đầu về Triệu gia thôn, con gái ai chẳng muốn ăn mặc xinh đẹp, tươm tất một chút.
 
-Tâm lý nữ nhân rất kỳ quái, tống đẹp lúa sáng sớm hóa 1 giờ trang, nói thế nào chính mình cũng là người trong thành, tới Triệu gia thôn khẳng định muốn cách ăn mặc đẹp một chút.
+Nhưng có lẽ trong thâm tâm cũng có chút tâm lý so bì ấy thật.
 
-"a di, là cái nào một ngôi nhà a?"
+Tâm lý phụ nữ vốn dĩ rất phức tạp, Tống Uyển Hòa sáng sớm đã dậy sớm mất cả tiếng đồng hồ để trang điểm. Dù sao mình cũng là người thành phố, về chốn thôn quê hẻo lánh này đương nhiên phải ăn vận cho thật bắt mắt.
 
-Đoạn thu bình ngẩng đầu nhìn một cái:"ở đây còn không nhìn thấy."
+"Dì ơi, nhà anh Kim An là căn nào thế ạ?"
 
-Tống đẹp lúa cùng đoạn thu bình dắt 4 tuổi tống gia nguyệt chậm rãi từng bước đi xuống sườn dốc.
+Đoạn Thu Bình ngước mắt nhìn về phía trước: "Đứng ở đây chưa nhìn thấy đâu."
 
-Dọc theo đường có người nhận ra đoạn thu bình.
+Tống Uyển Hòa cùng Đoạn Thu Bình mỗi người dắt một tay bé Tống Gia Nguyệt mới bốn tuổi, bước thấp bước cao men theo con đường dốc đi xuống.
 
-"thu bình, ngươi đã đến a?"
+Dọc đường đi, không ít người làng đã nhận ra Đoạn Thu Bình.
 
-"ài, cúc tây trung hoa, ngươi không thay đổi gì, còn trở nên đẹp."
+"Thu Bình, cô về đấy à?"
 
-Đoạn thu bình gả tới nhiều năm như vậy, chỉ cần phía trên một chút tuổi cơ hồ đều biết, liền một đường thuận miệng ứng với.
+"Vâng, chị Thúy Cúc! Dạo này nhìn chị chẳng già đi tí nào, khéo lại còn trẻ đẹp ra ấy chứ."
 
-"đó là nữ nhi của nàng đi?"
+Đoạn Thu Bình làm dâu ở làng này bao nhiêu năm, hầu như người có tuổi một chút ai cũng quen mặt, nên bà cứ vừa đi vừa niềm nở chào hỏi xã giao.
 
-"ân."
+"Đứa bé kia là con gái của cô ấy đấy à?"
 
-"lớn bao nhiêu?"
+"Ừ."
 
-"4 tuổi khoảng chừng đi, nghe nói cái kia lớn tại sâm thành của một cái hiệu thuốc đi làm."
+"Mấy tuổi rồi nhỉ?"
 
-Dọc theo đường thôn dân nghị luận ầm ĩ.
+"Chắc tầm bốn tuổi. Nghe bảo đứa con gái lớn thì đang đi làm ở tiệm thuốc tây dưới Sầm Thành."
 
-Đoạn thu bình hàng năm đều sẽ tới một hai lội, các nàng càng tò mò hơn là tống đẹp lúa.
+Dân làng dọc đường xì xào bàn tán không ngớt.
 
-"đến xem tô xa của."
+Đoạn Thu Bình năm nào cũng về thăm quê một hai lần, điều khiến họ tò mò hơn cả chính là Tống Uyển Hòa.
 
-"Kim An không mang tô xa đi đoạn thu bình nhà."
+"Về xem mặt Tô Miến đấy."
 
-"đoạn thu bình thật tốt một đứa con trai..... Cho vương kim như nhặt được tiện nghi."
+"Thằng Kim An có thèm dẫn Tô Miến về nhà Đoạn Thu Bình đâu."
 
-Triệu kiên nhẫn hừ một tiếng:"lúc kia Kim An mới lên sơ trung, các ngươi có thể tính đến? Đừng mở miệng một tiếng vương kim như nhặt được tiện nghi, các ngươi không có chất tử sao? Bây giờ đi dưỡng một cái a!"
+"Bà Đoạn Thu Bình này có đứa con trai quý như vàng... rốt cuộc để cho mụ Vương Kim Như hốt trọn món hời."
 
-Không một người nói chuyện rồi.
+Triệu Hữu Hằng đi ngang qua hừ lạnh một tiếng: "Hồi đó thằng Kim An mới học lớp sáu lớp bảy, các người có giỏi thì đoán trước được tương lai đi? Đừng có mở mồm ra là bảo thím Kim Như nhặt được món hời. Mấy người không có cháu trai chắc? Giờ ngon thì đi mà nhận một đứa về nuôi xem nào!"
 
-Triệu kiên nhẫn do dự sẽ, cũng đi theo Triệu Kim An nhà.
+Đám người lập tức im bặt, chẳng ai dám ho he thêm lời nào.
 
-Ở phía dưới trên đường, đoạn thu bình nghe được phía trên phía trước bãi tiểu hài tử vui cười truy đánh âm thanh.
+Triệu Hữu Hằng ngập ngừng một thoáng, rồi cũng lẳng lặng rảo bước đi theo hướng nhà Triệu Kim An.
 
-Cái nhà này thật không có náo nhiệt như vậy qua!
+Ở phía dưới con dốc, Đoạn Thu Bình đã nghe thấy tiếng cười đùa, đuổi bắt rộn rã của lũ trẻ con vang lên từ trên khoảng sân trước nhà họ Triệu.
 
-Có chút gì chuyện, người đều là hướng về Triệu Quốc Hoa nhà đi.
+Căn nhà này xưa nay chưa bao giờ náo nhiệt, rộn ràng đến thế!
 
-"liền ở đây sao?"
+Trước kia hễ có việc gì, người ta toàn kéo sang tụ tập ở nhà Triệu Quốc Hoa.
 
-Tống đẹp lúa ngẩng đầu dò xét một tòa tầng hai cục gạch phòng, dọc theo đường đi tới có chút không hợp nhau, liền nhà này lầu nhỏ hai tầng tường ngoài không có dán gạch men sứ.
+"Căn nhà này đấy hả dì?"
 
-"ân."
+Tống Uyển Hòa ngẩng đầu ngắm nhìn ngôi nhà hai tầng xây bằng gạch đỏ, dọc đường đi vào thấy nó có chút lạc lõng, bởi trong xóm chỉ có mỗi căn nhà hai tầng này là tường ngoài chưa được ốp gạch men.
 
-Đoạn thu bình nghe xong một hồi, dắt tống gia nguyệt đi lên sườn dốc.
+"Ừ."
 
-Đập vào mắt là một chiếc màu trắng đại bôn xe Alphard, một đám tiểu hài ở phía trước bãi truy truy đánh đánh.
+Đoạn Thu Bình đứng lắng tai nghe một lát, rồi dắt tay Tống Gia Nguyệt bước lên con dốc nhỏ.
 
-Có của tiểu hài cầm trong tay đùi gà, có của tiểu hài cầm trong tay Hamburger, còn có cọng khoai tây.
+Đập vào mắt họ là một chiếc xe bảo mẫu Mercedes màu trắng sang trọng, đắt tiền đỗ ngay ngắn một góc sân, lũ trẻ con trong làng đang chạy nhảy, đuổi bắt rôm rả khắp khoảng sân rộng.
 
-Một cái nữ nhân rất xinh đẹp ngồi ở nhà chính cửa ra vào của trên xe lăn, ghim đầu tròn, cổ điển tinh xảo của mặt trái xoan mang theo nhàn nhạt cười.
+Đứa thì cầm đùi gà rán vàng ươm trên tay, đứa thì gặm bánh hamburger, đứa lại xách túi khoai tây chiên giòn rụm.
 
-Nửa người dưới màu đen váy dài, che khuất mắt cá chân.
+Một cô gái vô cùng xinh đẹp đang ngồi trên chiếc xe lăn đặt ngay trước thềm cửa gian nhà chính. Mái tóc đen nhánh búi củ tỏi gọn gàng, khuôn mặt trái xoan thanh tú mang nét đẹp cổ điển, quý phái, trên môi phảng phất nụ cười dịu dàng, trang nhã.
 
-Nửa người trên cũng là màu đen, thả lỏng áo có từng điểm từng điểm kim sắc thêu thùa.
+Nửa thân dưới của cô mặc chiếc váy dài màu đen chấm gót, che kín đôi mắt cá chân.
 
-"um tùm!"
+Phần thân trên cũng là chiếc áo rộng màu đen quý phái, điểm xuyết những đường thêu chỉ vàng tinh xảo, nền nã.
 
-Đoạn thu bình hô một tiếng.
+"Thiên Thiên!"
 
-Triệu Duyệt Thiên thắng gấp, nhìn xem đoạn thu bình hô một tiếng:"đại nương."
+Đoạn Thu Bình cất tiếng gọi.
 
-Tô xa nhìn về phía đoạn thu bình, đoạn thu bình cũng nhìn xem tô xa.
+Triệu Duyệt Thiên đang chạy phanh gấp lại, nhìn thấy Đoạn Thu Bình liền cất tiếng chào: "Bác cả."
 
-Trong lúc nhất thời hai người không nói chuyện.
+Tô Miến đưa mắt nhìn về phía Đoạn Thu Bình, Đoạn Thu Bình cũng chăm chú nhìn lại Tô Miến.
 
-Vẫn là tô xa mở miệng trước:"ngồi a."
+Trong thoáng chốc, cả hai người đều không lên tiếng.
 
-Đoạn thu bình:......
+Cuối cùng vẫn là Tô Miến mở lời trước: "Mời dì ngồi."
 
-Nàng và tống đẹp lúa cảm giác tô xa giống như là cái nhà này chủ nhân.
+Đoạn Thu Bình: "..."
 
-Tống đẹp lúa bình tĩnh nhìn xem tô xa, rõ ràng đối phương ngồi xe lăn, lại cảm giác mình ở trước mặt nàng có điểm giống vịt con xấu xí.
+Cả bà và Tống Uyển Hòa đều có chung một cảm giác: Tô Miến mới thực sự là nữ chủ nhân quyền uy của ngôi nhà này.
 
-Không nói tướng mạo khí chất, cũng là trên váy dài áo, tống đẹp lúa kim thiên mặc đắt tiền nhất tới, hơn ba trăm, nàng không biết tô xa của quần áo toàn bộ là tư nhân đặt làm.
+Tống Uyển Hòa đứng chôn chân nhìn chăm chăm vào Tô Miến. Dù đối phương đang ngồi trên xe lăn, nhưng cô ta lại có cảm giác bản thân đứng trước mặt người ta chẳng khác nào một con vịt con xấu xí, quê mùa.
 
-Lúc này nãi nãi từ bên cạnh phòng bếp đi ra, mắt nhìn đoạn thu bình, lại nhìn vài lần tống gia nguyệt.
+Chưa bàn đến nhan sắc và khí chất ngút ngàn, dù cùng mặc váy dài và áo kiểu, bộ đồ hôm nay Tống Uyển Hòa mặc là bộ đắt tiền nhất mà cô ta mua với giá hơn ba trăm tệ, thế nhưng cô ta đâu có biết toàn bộ y phục trên người Tô Miến đều là hàng thủ công may đo riêng cao cấp của các nhà mốt danh tiếng hàng đầu thế giới.
 
-"chờ sau đó liền ăn cơm đi."
+Đúng lúc này, bà nội từ gian bếp bên cạnh bước ra, liếc nhìn Đoạn Thu Bình một cái, rồi lại nhìn sang bé Tống Gia Nguyệt vài lần.
 
-"mẹ!"
+"Lát nữa là ăn cơm rồi đấy."
 
-Đoạn thu bình hô một tiếng.
+"Mẹ!"
 
-"ân."
+Đoạn Thu Bình cất tiếng chào.
 
-Nãi nãi so dĩ vãng thiếu một chút nhiệt huyết, tiến vào phòng bếp.
+"Ừ."
 
-"....."
+Bà nội đáp lại với vẻ ít nhiệt tình hơn hẳn mọi khi, rồi xoay người quay trở vào bếp.
 
-Tống đẹp lúa cảm giác mình hoàn toàn bị không nhìn rồi, nàng không muốn đối phương có nhiều nhiệt huyết, nhưng lần đầu tiên lên môn giảng lời nói khách sáo...... Không phải lễ tiết sao?
+"..."
 
-Triệu kiên nhẫn cùng lên đến mắt nhìn liền tiến vào phòng bếp tìm nãi nãi.
+Tống Uyển Hòa cảm thấy mình hoàn toàn bị ngó lơ, xem như không khí. Cô ta vốn chẳng mong người nhà quê phải niềm nở, vồ vập, nhưng lần đầu tiên khách đến chơi nhà, nói lấy một câu khách sáo lịch sự... chẳng lẽ không phải là phép tắc tối thiểu hay sao?
 
-Tống gia nguyệt cắn ngón tay, nhìn xem phía trước bãi truy truy đánh đánh của bạn nhỏ.
+Triệu Hữu Hằng theo sau bước lên sân, liếc nhìn bọn họ một cái rồi cũng đi thẳng vào bếp tìm bà nội.
 
-"um tùm!"
+Bé Tống Gia Nguyệt mút ngón tay, mắt tròn xoe nhìn đám bạn nhỏ đang ríu rít đuổi bắt ngoài sân.
 
-Triệu Duyệt Thiên chạy tới, tô xa cúi đầu nói vài câu.
+"Thiên Thiên!"
 
-Triệu Duyệt Thiên cầm lấy một cái Hamburger chạy về phía tống gia nguyệt.
+Tô Miến vẫy tay gọi, Triệu Duyệt Thiên liền lon ton chạy lại. Tô Miến ghé tai cô bé dặn dò vài câu.
 
-"cho ngươi."
+Triệu Duyệt Thiên liền chạy vào bàn cầm một chiếc bánh hamburger chạy tót lại đưa cho Tống Gia Nguyệt.
 
-Tống gia nguyệt ngẩng đầu nhìn mụ mụ, mới nhận lấy Hamburger.
+"Cho em này."
 
-Triệu Duyệt Thiên không hiểu nhiều tống gia nguyệt là ai, chỉ vào nhà chính:"còn có đùi gà, đồ uống cọng khoai tây, ngươi có thể tự mình cầm."
+Tống Gia Nguyệt ngước mắt nhìn mẹ, thấy mẹ gật đầu mới dám rụt rè đưa hai tay nhận lấy chiếc bánh.
 
-Tống đẹp lúa nhìn về phía gian nhà chính cái bàn, chất đầy KFC của hộp, trên mặt đất có rất nhiều KFC của cái túi.
+Triệu Duyệt Thiên cũng chẳng hiểu rõ Tống Gia Nguyệt là ai, chỉ tay vào trong nhà chính bảo: "Trong kia còn nhiều đùi gà, nước ngọt với khoai tây chiên lắm, em thích ăn gì cứ tự vào mà lấy."
 
-"là thực sự có tiền, là thực sự hào phóng."
+Tống Uyển Hòa đưa mắt nhìn vào chiếc bàn lớn trong nhà chính, bên trên chất đống những hộp giấy KFC, dưới sàn cũng ngập tràn các túi đựng đồ ăn nhanh.
 
-Tống đẹp lúa tin, tin có người tiếng la trưởng bối, tô xa liền phát tiền.
+"Đúng là giàu thật, mà cũng phóng khoáng thật."
 
-"tiểu nguyệt, ngươi muốn cùng các nàng chơi sao?"
+Tống Uyển Hòa bấy giờ mới hoàn toàn tin. Cô ta tin chuyện người ta đồn rằng chỉ cần có người trong làng cất tiếng gọi bề trên, Tô Miến liền sẵn sàng vung tiền phát thưởng.
 
-Tống gia nguyệt do dự sẽ, ánh mắt có hướng tới, vẫn lắc đầu.
+"Tiểu Nguyệt, con có muốn ra chơi cùng các bạn không?"
 
-Đoạn thu bình liền dắt tống gia nguyệt hướng tô xa đi qua.
+Tống Gia Nguyệt ngập ngừng một lúc, trong ánh mắt lộ rõ vẻ háo hức, nhưng cuối cùng vẫn rụt rè lắc đầu.
 
-Triệu Duyệt Thiên dựa vào tô xa, nàng ưa thích dựa vào tô xa, tô xa nhéo nhéo Triệu Duyệt Thiên khuôn mặt, một màn này rơi vào đoạn thu bình trong mắt, mang ý nghĩa các nàng ở chung rất tốt.
+Đoạn Thu Bình liền dắt tay Tống Gia Nguyệt bước lại gần chỗ Tô Miến.
 
-"a di, ngươi tốt."
+Triệu Duyệt Thiên nép sát vào người Tô Miến, cô bé rất thích quấn quýt bên chị dâu. Tô Miến đưa tay khẽ véo nhẹ hai má phúng phính của Triệu Duyệt Thiên, cảnh tượng thân thiết này lọt vào mắt Đoạn Thu Bình, chứng tỏ mối quan hệ giữa hai người vô cùng gắn bó.
 
-Tô xa hô nãi nãi, hô thẩm thẩm, nhưng người nào cũng sẽ không bây giờ liền hô mẹ.
+"Chào dì ạ."
 
-Lại nhìn về phía một bên tống đẹp lúa, mỉm cười gật đầu.
+Tô Miến đã gọi bà nội, gọi thím hai, nhưng dĩ nhiên vào lúc này chẳng ai lại vội vàng cất tiếng gọi mẹ.
 
-Không có tiếng la tỷ.
+Cô lại đưa mắt nhìn sang Tống Uyển Hòa đứng bên cạnh, mỉm cười khẽ gật đầu chào hỏi.
 
-"ngươi tốt."
+Tuyệt nhiên không gọi một tiếng "chị".
 
-Đoạn thu bình nhìn xem xe lăn cái khác cái bàn gỗ.
+"Chào cháu."
 
-Phía trên có dưa hấu, nho, quả sổ, hạt dẻ, còn có nửa chén nhỏ canh cá.
+Đoạn Thu Bình đưa mắt nhìn chiếc bàn gỗ nhỏ đặt bên cạnh xe lăn.
 
-"hô — —"
+Bên trên bày biện đủ thứ: dưa hấu, nho, kiwi rừng, hạt dẻ, và cả một nửa bát canh cá thơm lừng.
 
-Đoạn thu bình hít thở sâu một hơi, không phải nãi nãi tốt như vậy, là tô xa không thể bước đi, cái gì cũng phải có người phục dịch, những chuyện này có phải hay không về sau cũng là con trai mình muốn làm?
+"Phù..."
 
-Tô xa phát giác ra, cúi đầu sờ Triệu Duyệt Thiên của khuôn mặt.
+Đoạn Thu Bình hít sâu một hơi. Không phải là bà nội chăm sóc quá tốt, mà là vì Tô Miến không thể tự đi lại được, việc gì cũng phải có người bên cạnh hầu hạ từng li từng tí. Thế thì sau này những gánh nặng phục dịch này, chẳng lẽ đều đè nặng lên vai đứa con trai duy nhất của bà hay sao?
 
-Đoạn thu bình đi lên sườn dốc, tô xa lần đầu tiên liền phát giác ra.
+Tô Miến vô cùng nhạy cảm nên đã nhận ra ngay nét mặt ấy, cô liền cúi đầu vuốt ve má bé Triệu Duyệt Thiên.
 
-Lúc này nãi nãi lại từ phòng bếp bưng tới một bát canh gà, một mặt sủng ái:"canh cá uống không ngon sao? Lạnh liền tanh rồi."
+Ngay từ khoảnh khắc Đoạn Thu Bình bước chân lên dốc, Tô Miến đã sớm nhìn thấu tâm tư của bà.
 
-Tô xa hờn dỗi:"nãi nãi, ta thật ăn no rồi."
+Đúng lúc này, bà nội lại từ trong bếp bưng ra một bát canh gà bốc khói nghi ngút, vẻ mặt tràn đầy vẻ cưng chiều: "Canh cá không vừa miệng cháu à? Để nguội là tanh đấy."
 
-"nha, tẩu tử tới!"
+Tô Miến nũng nịu: "Bà nội ơi, cháu ăn no thật rồi mà."
 
-Vương kim như từ bên cạnh nhà mình tới, trên dưới dò xét tống đẹp lúa vài lần, lập tức đổi phó sắc mặt khom lưng nhỏ giọng hỏi tô xa, tô xa lắc đầu nói:"không có."
+"Ô kìa, chị dâu đã về đấy à!"
 
-Đoạn thu bình biết vương kim như hỏi cái gì, ăn canh lại ăn dưa hấu, khẳng định phải lên toilet.
+Vương Kim Như từ nhà bên cạnh bước sang, đưa mắt săm soi đánh giá Tống Uyển Hòa từ đầu đến chân vài cái, rồi lập tức đổi ngay nét mặt, đon đả cúi người ghé sát tai nhỏ giọng hỏi Tô Miến. Tô Miến liền khẽ lắc đầu: "Dạ chưa ạ."
 
-Nhìn xem trên bàn của canh gà, tống đẹp lúa có chút tê dại.
+Đoạn Thu Bình thừa hiểu Vương Kim Như đang hỏi chuyện gì. Vừa uống canh lại vừa ăn dưa hấu, chắc chắn là sắp có nhu cầu đi vệ sinh.
 
-Chính mình cùng tống gia nguyệt nói thế nào cũng là lần đầu tiên lên môn..... Tô xa liền uống canh gà rồi?
+Nhìn bát canh gà thơm phức đặt trên bàn, Tống Uyển Hòa cảm thấy nghẹn ứ trong họng.
 
-Đoạn thu bình nhìn tô xa một hồi, đi theo phòng bếp.
+Dù sao mình và bé Tống Gia Nguyệt cũng là lần đầu tiên đến thăm nhà... vậy mà Tô Miến đã được người ta bưng canh gà phục vụ tận miệng trước rồi?
 
-Một lát sau lại từ phòng bếp đi ra, đi đường có chút nhanh:"um tùm, ca ca nhỉ?"
+Đoạn Thu Bình nhìn Tô Miến thêm một lát, rồi quay người bước theo vào gian bếp.
 
-Đúng lúc này, Triệu Kim An cùng Triệu Chí Dũng từ vườn rau trở về, năm ngoái trồng quả thụ sống, thì nhìn sang năm kết quả như thế nào.
+Một lát sau bà lại từ trong bếp đi ra, bước chân có phần vội vã: "Thiên Thiên ơi, anh Kim An của cháu đâu rồi?"
 
-"tới?"
+Đúng lúc này, Triệu Kim An và Triệu Trí Dũng từ ngoài vườn rau bước về. Mấy cây ăn quả trồng từ năm ngoái đều đã bén rễ tươi tốt, chỉ chờ xem năm tới ra bói thế nào.
 
-Triệu Kim An cùng đoạn thu bình lên tiếng chào hỏi, không thấy tống gia nguyệt cùng tống đẹp lúa, ngồi xổm xuống sờ lên tô xa của tay.
+"Mẹ về rồi à?"
 
-Hai người nhỏ giọng giao lưu một câu.
+Triệu Kim An cất tiếng chào Đoạn Thu Bình một câu, tuyệt nhiên không đưa mắt nhìn sang Tống Gia Nguyệt hay Tống Uyển Hòa lấy một lần. Anh liền ngồi xổm xuống, nắm lấy bàn tay mềm mại của Tô Miến.
 
-Tô xa gật đầu, Triệu Kim An liền ôm lấy nàng đi toilet.
+Hai người khẽ thì thầm to nhỏ với nhau một câu.
 
-Vương kim như nhếch miệng, còn phân người a, cái này còn phải đợi Kim An.
+Tô Miến khẽ gật đầu, Triệu Kim An liền nhẹ nhàng bế bổng cô lên, sải bước đi về phía nhà vệ sinh.
 
-Nhìn xem nhi tử ôm tô xa đi phòng vệ sinh, đoạn thu bình muốn nói lại thôi.
+Vương Kim Như bĩu môi lẩm bẩm trong bụng: Lại còn kén chọn người nữa cơ đấy, chuyện này mà cũng phải chờ bằng được thằng Kim An về mới chịu cơ.
 
-Tống đẹp lúa con mắt tỏa ánh sáng.
+Nhìn cảnh con trai bế cô gái khác đi vệ sinh thuần thục như vậy, Đoạn Thu Bình mấp máy môi, muốn nói lại thôi.
 
-Nàng không nghĩ tới lấy trước kia cái ngây ngô thiếu niên.... Trưởng thành nhà khác của đệ đệ!
+Đôi mắt Tống Uyển Hòa bỗng sáng rực lên.
 
-Không phải nữ lớn 1 8 biến sao? Nam sinh biến hóa cũng lớn như vậy?
+Cô ta không thể ngờ rằng cậu thiếu niên gầy gò, ngây ngô năm nào... nay lại trổ mã thành một chàng trai cao lớn, tuấn tú, chững chạc và cuốn hút đến nhường này!
 
-Chờ Triệu Kim An ôm tô xa trở về, đoạn thu bình mở miệng:"Kim An....."
+Người ta thường bảo con gái mười tám tuổi đổi thay, chẳng lẽ con trai lớn lên cũng thay đổi đến kinh ngạc như vậy sao?
 
-Triệu Kim An đánh gãy:"ăn cơm đi."
+Đợi Triệu Kim An bế Tô Miến trở lại chiếc xe lăn, Đoạn Thu Bình mới cất lời: "Kim An..."
 
-Triệu Chí Dũng nghe vậy đi phòng bếp bưng thức ăn, Doãn Hiểu Lan yên lặng bày lên bát đũa.
+Triệu Kim An liền dứt khoát cắt ngang: "Vào ăn cơm thôi."
 
-Nàng biết đoạn thu bình đối với tô xa có chút bất mãn, cũng coi như nhân chi thường tình.
+Triệu Trí Dũng nghe vậy liền nhanh nhảu chạy vào bếp bưng thức ăn ra, Doãn Hiểu Lan lặng lẽ bày biện bát đũa lên bàn.
 
-"tô xa, muốn xới cơm sao?"
+Cô hiểu rõ trong lòng Đoạn Thu Bình có chút bất mãn với Tô Miến, âu cũng là tâm lý thường tình của người làm mẹ.
 
-Tô xa cười lắc đầu:"tẩu tử, không muốn, ta thật ăn no rồi
+"Tô Miến, chị xới cơm cho em nhé?"
+
+Tô Miến mỉm cười lắc đầu: "Chị dâu ơi, em không ăn đâu ạ, em thực sự ăn no lắm rồi."

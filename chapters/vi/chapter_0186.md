@@ -1,223 +1,223 @@
-# Chương 186: Lựa chọn liền đi xuống đi.
+# Chương 186: Đã chọn rồi thì đi tiếp thôi
+
+> **Tiêu đề gốc**: 第186章 选择了就走下去。
 
 "Từ Mạn Mạn!"
 
-Lưu xông phong không muốn buông ra trần trạch.
+Lưu Sấm Phong không muốn buông Trần Trạch ra.
 
-Trong lòng hắn, chính mình cùng Từ Mạn Mạn cũng là người bị hại.
+Trong lòng cậu ta, bản thân mình và Từ Mạn Mạn đều là những kẻ bị hại.
 
-Thậm chí Từ Mạn Mạn so với mình còn thảm.
+Thậm chí Từ Mạn Mạn còn thảm hơn cậu ta nhiều.
 
-Thảm gấp một vạn lần.
+Thảm hơn gấp vạn lần.
 
-Trần trạch không vùng vẫy, không muốn giãy dụa.
+Trần Trạch không giãy giụa nữa, cũng chẳng còn thiết tha giãy giụa.
 
-Làm một nam sinh cần bạn gái giúp mình cầu tình, cầu người khác để buông tha mình.....
+Là một thằng con trai mà lại để bạn gái phải thay mình cầu xin, van nài người khác buông tha cho mình...
 
-Hắn không biết ở kiếp trước Từ Mạn Mạn giúp mình"chà xát bao nhiêu cái mông", trần trạch đại nhất khai giảng liền dám bằng vào quận cát người địa phương cùng phú nhị đại thân phận cùng cấp cao 4 cái nam sinh kêu gào.
+Cậu ta không hề hay biết kiếp trước Từ Mạn Mạn đã phải dọn bao nhiêu “bãi chiến trường” cho mình. Ngay từ năm nhất đại học, cậy vào cái mác người bản xứ Quận Sa và thân phận công tử nhà giàu, Trần Trạch đã dám lớn tiếng gào thét, thách thức bốn đàn anh khóa trên.
 
-Có cái như vậy hiểu chuyện bạn gái cùng như vậy có năng lực mụ mụ trông nom.....
+Có một cô bạn gái hiểu chuyện đến nhường ấy, lại có một người mẹ bản lĩnh chở che từ đầu đến chân...
 
-Trần trạch có điều kiện bất cần đời, lúc này mới bình thường.
+Trần Trạch có đủ điều kiện để sống ngông nghênh, cợt nhả với đời, âu cũng là chuyện thường tình.
 
-Ngươi muốn Triệu Kim An cùng lưu xông phong gia đình như vậy điều kiện cũng học trần trạch, gây chuyện ai tới cho ngươi lật tẩy?
+Thử hỏi nếu điều kiện gia đình như Triệu Kim An hay Lưu Sấm Phong mà cũng học đòi thói ăn chơi của Trần Trạch, một khi gây ra họa lớn, lấy ai ra chống đỡ cho?
 
-Lưu xông phong vẫn là buông ra trần trạch, từ dưới đất đứng dậy, con mắt gắt gao nhìn chằm chằm trần trạch.
+Cuối cùng Lưu Sấm Phong vẫn buông tay, từ dưới đất lồm cồm bò dậy, đôi mắt vẫn trừng trừng găm chặt vào người Trần Trạch.
 
-Không có người để ý bọn hắn.
+Chẳng ai thèm bận tâm đến hai người bọn họ nữa.
 
-Đánh nhau thiên về một bên của thế cục.
+Cục diện cuộc ẩu đả lúc này đã hoàn toàn nghiêng về một phía.
 
-Trước mắt bao người, Lâm Thanh Tuyết không có lùi bước, không thể lùi bước.
+Dưới bao ánh mắt săm soi của đám đông, Lâm Thanh Tuyết không lùi bước, mà cô cũng chẳng thể lùi bước được nữa.
 
-Có chút nam sinh thật hâm mộ trần trạch của, Từ Mạn Mạn cùng Lâm Thanh Tuyết đều xinh đẹp như vậy, hai nữ giành chồng? Là kiện đáng giá kiêu ngạo chuyện.
+Xung quanh có mấy nam sinh không khỏi thầm ghen tị với Trần Trạch. Cả Từ Mạn Mạn lẫn Lâm Thanh Tuyết đều xinh đẹp ngời ngời như thế, cảnh hai nàng tranh một chàng này quả thực là chuyện đáng để đem ra phổng mũi tự hào.
 
-Triệu Kim An trong tay sờ lấy một khỏa bi-a, nhìn xa xa Từ Mạn Mạn.
+Triệu Kim An đứng cách đó một quãng, tay mân mê quả bóng bi-a, ánh mắt từ xa lặng lẽ dõi theo Từ Mạn Mạn.
 
-Không nghĩ tới diêu tân bao che khuyết điểm trước tiên nhảy ra:"Lâm Thanh Tuyết đúng không!?"
+Chẳng ai ngờ Diêu Thần tính tình bênh bạn chằm chặp lại là người nhảy bổ ra trước tiên: "Lâm Thanh Tuyết đúng không!?"
 
-Bá một cái.
+Xoạt một cái.
 
-Kế toán ban một mấy nữ sinh đều lên phía trước, con mắt nhìn chằm chằm 4 0 6 của 4 cái nữ sinh.
+Mấy cô gái lớp Kế toán 1 lập tức tiến lên một bước, ánh mắt cảnh giác nhìn chằm chằm bốn cô gái phòng 406.
 
-Có người ngoài (ngoại địch) xuất hiện.
+Khi kẻ địch bên ngoài xuất hiện.
 
-Lúc này không có người giảng"ai đúng ai sai"đi, tất cả mọi người là"bênh người thân không cần đạo lý", nếu như lúc này còn giảng"ai đúng ai sai", vậy thì thật sự không có bằng hữu.
+Vào những lúc thế này, chẳng còn ai phân bua chuyện "ai đúng ai sai" nữa. Người ta chỉ "bênh người nhà chứ không bênh lẽ phải". Nếu lúc này còn đứng đó giảng giải đạo lý đúng sai, thì coi như chẳng còn người bạn nào trên đời nữa rồi.
 
-Cũng không tất yếu kết giao bằng hữu.
+Mà như thế thì cũng chẳng cần phải kết bạn làm gì.
 
-Bằng hữu chính là thời điểm then chốt phải đứng ở chính mình một phe này.
+Bạn bè, chính là người sẵn sàng đứng về phía mình vào những thời khắc then chốt nhất.
 
-"....."
+"..."
 
-Vương duy đào rất hưng phấn nhỏ giọng nói:"Kim An, nữ sinh so với chúng ta nam sinh mãnh liệt nhiều a, đúng không?"
+Vương Duy Đào đứng cạnh vô cùng phấn khích, thì thầm to nhỏ: "Kim An, con gái đánh nhau còn máu lửa hơn cánh đàn ông tụi mình nhiều, mày thấy đúng không?"
 
-"....."
+"..."
 
-Triệu Kim An vỗ vỗ cánh tay cười một tiếng, đi ra điểm:"một mét có hơn."
+Triệu Kim An phủi phủi cánh tay, bật cười một tiếng rồi lùi ra xa một chút: "Đứng cách xa một mét ra."
 
-Vương học ân cũng ra khỏi chiến cuộc, gãi đầu, con mắt không buông tha bất kỳ chi tiết nào:"tại sao ta cảm giác nữ sinh so với chúng ta nam sinh đoàn kết, ngươi nhìn các nàng.... Đây là muốn kéo bè kéo lũ đánh nhau sao?"
+Vương Học Ân cũng chủ động rút lui khỏi chiến trường, vừa gãi đầu vừa không bỏ sót bất kỳ chi tiết nào: "Sao tao cứ thấy con gái họ đoàn kết hơn bọn mình nhỉ, mày nhìn kìa... Bộ dạng này là tính lao vào đánh hội đồng đấy à?"
 
-Vương duy đào một mặt hưng phấn:"dễ nhìn."
+Gương mặt Vương Duy Đào tràn đầy vẻ hưng phấn: "Hay ho ra phết đấy chứ."
 
-"vương duy đào ngươi...."
+"Vương Duy Đào, cái thằng này..."
 
-"không dễ nhìn sao? Ngươi xem qua nữ sinh kéo bè kéo lũ đánh nhau?"
+"Không hay à? Bộ mày từng thấy con gái đánh nhau hội đồng bao giờ chưa?" Vương Duy Đào vặn lại.
 
-Vương duy đào hỏi ngược lại.
+"..."
 
-"....."
+Vương Học Ân nhìn Vương Duy Đào một lúc, rồi tự giác lùi xa thêm vài bước.
 
-Vương học ân nhìn vương duy đào một hồi, tự giác đứng xa một chút.
+Ở phía bên kia.
 
-Một bên khác.
+"Cậu muốn làm gì?"
 
-"ngươi muốn làm gì?"
+Phương Khiết nhìn chằm chằm Diêu Thần rồi lên tiếng trước: "Đây là chuyện riêng giữa hai người họ, các cậu đừng có xen vào."
 
-Phương Khiết nhìn chằm chằm diêu tân mở miệng trước:"đây là hai người bọn họ sự việc, các ngươi không nên nhúng tay."
+Lý Ngải Lan ưỡn thẳng lưng, kiên định đứng cạnh Lâm Thanh Tuyết.
 
-Lý Airam đứng nghiêm đứng Lâm Thanh Tuyết bên cạnh.
+"Bên này bọn tôi đông người hơn đấy."
 
-"người chúng ta so với các ngươi nhiều."
+Thẩm Tử Ngôn đứng nhìn Lý Ngải Lan rồi mỉm cười. Quả nhiên cô nàng này rất thú vị, hệt như những gì Kim An suốt ngày nhắc bên tai.
 
-Thẩm tử nói liền nhiền lấy lý Airam cười, là thật thú vị, khó trách Kim An bên miệng cả ngày mang theo nàng.
-
-Từ Mạn Mạn lôi kéo diêu tân, lắc đầu nói khẽ:"không quan hệ."
+Từ Mạn Mạn khẽ kéo tay Diêu Thần, lắc đầu nhẹ giọng nói: "Không sao đâu."
 
 "Mạn Mạn!!!"
 
-Diêu tân là thực sự thay Từ Mạn Mạn không đáng, nàng xem thấy Phương Khiết lớn tiếng nói:"ta không phải là muốn đánh nhau, ta liền nói vài câu!"
+Diêu Thần thực sự cảm thấy uất ức thay cho bạn mình. Cô nhìn Phương Khiết, cất giọng thật lớn: "Tôi không đến đây để đánh nhau, tôi chỉ muốn nói vài câu thôi!"
 
-"trần trạch, ngươi thật không phải là người!"
+"Trần Trạch, anh thật sự không bằng cầm thú!"
 
-Đây là câu đầu tiên.
+Đó là câu đầu tiên.
 
-"ngươi mang nàng về nhà, nàng biết rõ là Mạn Mạn của dép lê, nàng hỏi ngươi, ngươi thật sự đồng ý nàng mặc rồi?"
+"Anh dẫn cô ta về nhà, cô ta thừa biết đôi dép lê đó là của Mạn Mạn. Cô ta hỏi anh, vậy mà anh cũng dám để cho cô ta xỏ vào à?"
 
-Diêu tân chỉ vào Lâm Thanh Tuyết quay người hỏi sưng mặt sưng mũi trần trạch.
+Diêu Thần chỉ tay thẳng vào mặt Lâm Thanh Tuyết, rồi quay sang chất vấn Trần Trạch lúc này đang mặt mũi bầm dập, tím tái.
 
-Trần trạch đứng lên, cúi đầu sờ lấy khóe miệng, cưỡng ép nhỏ giọng giải thích:"trong nhà không có khác nữ sĩ dép lê."
+Trần Trạch gượng gạo đứng dậy, cúi gằm mặt xoa khóe môi, cố chấp lý nhí biện bạch: "Trong nhà không còn đôi dép nữ nào khác..."
 
-Đây là dép lê vấn đề sao?
+Đây có phải là chuyện của một đôi dép lê đâu chứ?
 
-Người ở chỗ này đều hiểu diêu tân là chỉ cái gì.
+Tất cả những người có mặt tại hiện trường đều hiểu rõ ngụ ý trong lời nói của Diêu Thần là gì.
 
-"trần trạch, ngươi thật sự không có chút nào tôn trọng Mạn Mạn."
+"Trần Trạch, anh thực sự không dành một chút tôn trọng tối thiểu nào cho Mạn Mạn cả."
 
-Diêu tân đều không nhắc trần trạch bổ chân của chuyện, một mặt tức giận nói:"ngươi biết Mạn Mạn trước học kỳ vì nhà ngươi chuyện của hảng thiếu chút nữa thì bị trường học khai trừ sao?"
+Diêu Thần thậm chí còn chẳng buồn nhắc tới chuyện Trần Trạch bắt cá hai tay nữa, khuôn mặt ngập tràn phẫn nộ: "Anh có biết học kỳ trước, vì lo chuyện nhà xưởng cho gia đình anh mà Mạn Mạn suýt chút nữa bị nhà trường đuổi học không?"
 
-"mỗi ngày ban đêm nâng máy tính lo lắng nhà ngươi chuyện của hảng!!"
+"Đêm nào cậu ấy cũng ôm khư khư cái máy tính, hao tâm tổn trí vì công xưởng nhà anh!!"
 
-"ngươi đang làm gì?"
+"Còn anh thì làm cái gì?"
 
-"ngươi tại cùng nàng lăn ga giường!!!"
+"Anh ở bên ngoài lăn lộn trên giường với ả ta!!!"
 
-Từ Mạn Mạn lôi kéo diêu tân, hướng nàng khẽ lắc đầu.
+Từ Mạn Mạn kéo chặt lấy Diêu Thần, khẽ lắc đầu với cô.
 
-Diêu tân mới tức giận thả xuống chỉ vào Lâm Thanh Tuyết của tay.
+Lúc này Diêu Thần mới tức tối hạ cánh tay đang chỉ trỏ vào Lâm Thanh Tuyết xuống.
 
-Lần này không một người nói chuyện rồi.
+Cả không gian bỗng chốc rơi vào im lặng như tờ, không một ai thốt nên lời.
 
-"tê — —"
+"Suỵt ——"
 
-Lưu xông phong sờ lấy khóe miệng, đột nhiên cảm giác mình không có chút nào thảm rồi.
+Lưu Sấm Phong xuýt xoa đưa tay chạm vào khóe miệng sưng vù, bỗng nhiên cảm thấy bản thân mình hóa ra chẳng còn thảm hại chút nào nữa.
 
-Triệu Kim An mắt nhìn một bên nghe trợn mắt hốc mồm vương duy đào, nghĩ thầm đại khái ở kiếp trước vương duy đào cũng hâm mộ trần trạch có cái Từ Mạn Mạn lão bà như vậy đi.
+Triệu Kim An liếc nhìn sang Vương Duy Đào đang đứng há hốc mồm kinh ngạc bên cạnh. Cậu thầm nghĩ, có lẽ ở kiếp trước, Vương Duy Đào cũng từng vô cùng ngưỡng mộ Trần Trạch vì cưới được một người vợ tuyệt vời như Từ Mạn Mạn.
 
-"Lâm Thanh Tuyết đúng không?"
+"Cậu là Lâm Thanh Tuyết đúng không?"
 
-Từ Mạn Mạn không có biểu hiện ra lực công kích, nhìn xem Lâm Thanh Tuyết:"ta đã sớm nghe nói qua ngươi, huấn luyện quân sự cho trần trạch đổ nước."
+Từ Mạn Mạn không hề để lộ ra bất kỳ sự công kích nào, bình thản nhìn Lâm Thanh Tuyết: "Tôi đã nghe người ta nhắc về cậu từ lâu rồi, chuyện hồi đợt huấn luyện quân sự cậu đi rót nước cho Trần Trạch."
 
-Dừng lại một chút, Từ Mạn Mạn lại nói:"ngươi ưa thích trần trạch liền hảo hảo ưa thích xuống."
+Ngừng một nhịp, Từ Mạn Mạn nói tiếp: "Nếu cậu đã thích Trần Trạch, vậy thì hãy cứ tiếp tục thích cậu ấy cho đàng hoàng."
 
-Gì?
+Hả?
 
-Liền cái này!?
+Chỉ có thế thôi ư!?
 
-Từ Mạn Mạn đây là chủ động thối lui ra khỏi?
+Từ Mạn Mạn cứ thế chủ động rút lui thật sao?
 
-Ta muốn xem xé bức vở kịch nhỉ?
+Màn kịch xé xác, đánh ghen nảy lửa mà mọi người mong chờ đâu rồi?
 
-Lâm Thanh Tuyết có chút mộng, đơn giản như vậy!?
+Đến cả Lâm Thanh Tuyết cũng có phần ngơ ngác, mọi chuyện lại đơn giản đến thế này sao!?
 
-Nàng hướng Lý Lộ nghe qua Từ Mạn Mạn gia cảnh, Từ Mạn Mạn cứ thế từ bỏ?
+Cô từng nhờ Lý Lộ dò hỏi về hoàn cảnh gia đình của Từ Mạn Mạn, không ngờ Từ Mạn Mạn lại dễ dàng buông tay như vậy?
 
-"Mạn Mạn....."
+"Mạn Mạn..."
 
-Trần trạch muốn nói lại thôi.
+Trần Trạch ngập ngừng, muốn nói lại thôi.
 
-Từ Mạn Mạn hướng trần trạch mỉm cười lắc đầu:"trần trạch, ngươi năm nay đều 2 0 tuổi, đã sớm trưởng thành, lựa chọn liền đi xuống đi."
+Từ Mạn Mạn nhìn Trần Trạch, khẽ mỉm cười rồi lắc đầu: "Trần Trạch, năm nay cậu đã hai mươi tuổi rồi, đã là người trưởng thành từ lâu. Đã chọn con đường nào thì cứ tiếp tục bước đi trên con đường đó thôi."
 
-Lựa chọn liền đi xuống đi!
+Đã chọn rồi thì đi tiếp thôi!
 
-Câu nói này giống như là đối với Từ Mạn Mạn ở kiếp trước của giải thích.
+Câu nói này, giống như một lời đúc kết trọn vẹn cho cả kiếp trước của Từ Mạn Mạn vậy.
 
-Diêu tân trên dưới dò xét Lâm Thanh Tuyết, một mặt khinh bỉ:"nhìn ngươi khả năng giúp đỡ trần trạch nhà làm cái gì?"
+Diêu Thần liếc nhìn Lâm Thanh Tuyết từ đầu đến chân, buông một tiếng khinh miệt: "Để xem cô có thể giúp được gì cho cái nhà họ Trần kia!"
 
-"đi thôi."
+"Chúng ta đi thôi."
 
-Từ Mạn Mạn cái gì cũng hiểu, hướng Lâm Thanh Tuyết mỉm cười gật đầu, không thấy Triệu Kim An liền chuẩn bị rời đi.
+Từ Mạn Mạn hiểu thấu mọi điều. Cô khẽ mỉm cười gật đầu chào Lâm Thanh Tuyết, không hề nhìn về phía Triệu Kim An mà quay lưng cất bước rời đi.
 
-Đúng lúc này phụ cận phái ra tất cả mấy cái cảnh sát nhân dân tới.
+Đúng lúc này, mấy viên cảnh sát từ đồn công an gần đó vội vã chạy tới.
 
-"ai đánh nhau ẩu đả?"
+"Ai đánh nhau gây rối ở đây?"
 
-"đi ra đi ra, chính mình đi ra theo chúng ta đi một chuyến."
+"Bước ra, tự giác bước ra đi theo chúng tôi một chuyến."
 
-Kỳ thực phụ cận đồn công an cảnh sát nhân dân rất nhức đầu của, đại học thành nhiều như vậy sinh viên, người người trẻ tuổi nóng tính, bọn hắn một ngày muốn tiếp hảo mấy cái dạng này điện thoại.
+Thực ra mấy đồng chí công an ở khu vực này cũng đau đầu lắm. Làng đại học tập trung đông đảo sinh viên như vậy, ai nấy đều đang ở độ tuổi bồng bột, hăng máu, một ngày họ phải nhận đến mấy cuộc gọi báo án kiểu này.
 
-Không có trải qua người của cái niên đại này không biết.
+Những người không trải qua giai đoạn này sẽ chẳng thể nào hiểu nổi.
 
-Cho là trị an cũng giống như 1 0 sau tốt như vậy, đại gia học xong"ngươi động thủ ta ngược lại mà"muốn phát tài một bộ này.
+Đừng tưởng trật tự trị an thời đó cũng được như những năm 2010 trở về sau, khi mà mọi người đã học được cái trò “mày dám động tay là tao lăn ra ăn vạ kiếm tiền bồi thường”.
 
-Phải biết cái thời đại này sinh viên là nhìn   xã hội đen   series phim lớn lên, có thể sơ trung cao trung thần tượng là Trần Hạo Nam, gà rừng loại này.
+Phải biết rằng sinh viên thế hệ này lớn lên cùng những bộ phim kinh điển như 《Người Trong Giang Hồ》, thần tượng thời cấp hai, cấp ba của nhiều người có khi chính là Trần Hạo Nam hay Gà Rừng.
 
-Trần trạch cùng lưu xông phong bị mang đi.
+Trần Trạch và Lưu Sấm Phong bị giải đi.
 
-Đại khái sau khi ra ngoài phải hướng trường học viết kiểm điểm, tiến vào đồn công an một cái ghi lại xử phạt không thể thiếu.
+Có lẽ sau khi rời khỏi đồn, hai người họ sẽ phải viết bản kiểm điểm nộp cho nhà trường, đã vào đồn công an thì một án phạt cảnh cáo trong học bạ là điều khó tránh khỏi.
 
-Không có người lo lắng bọn hắn.
+Chẳng có ai lo lắng cho hai người họ cả.
 
-Ở bên ngoài, thẩm tử nói tìm được lý Airam, lễ phép đưa tay ra:"ngươi tốt, lý Airam, ta gọi thẩm tử nói."
+Ở bên ngoài, Thẩm Tử Ngôn bước tới trước mặt Lý Ngải Lan, lịch sự đưa tay ra: "Chào cậu, Lý Ngải Lan, mình là Thẩm Tử Ngôn."
 
-Lý Airam không hiểu ra sao:"xin hỏi có chuyện gì không?"
+Lý Ngải Lan ngơ ngác không hiểu gì: "Xin hỏi cậu có chuyện gì sao?"
 
-"không có gì, chính là rất hân hạnh được biết ngươi."
+"Không có gì đâu, chỉ là rất vui được làm quen với cậu."
 
-Thẩm tử nói mắt nhìn đi xa cùng phòng, cười nói:"ta đi, bái bai."
+Thẩm Tử Ngôn liếc nhìn bóng lưng các bạn cùng phòng đã đi xa, mỉm cười: "Mình đi trước nhé, tạm biệt."
 
-"......"
+"..."
 
-Lý Airam trương nửa ngày miệng:"các nàng túc xá nhiều người ít có điểm khuyết điểm."
+Lý Ngải Lan há hốc mồm hồi lâu: "Cái phòng ký túc xá của bọn họ đúng là có vấn đề thật rồi."
 
-Lâm Thanh Tuyết nhớ tới diêu tân vừa mới nói lời còn có chút không phục:"Từ Mạn Mạn chẳng phải thi đại học nhiều hơn ta địa điểm thi phân sao? Chẳng lẽ năng lực làm việc cùng thi đại học điểm số họa ngang bằng?"
+Lâm Thanh Tuyết nhớ lại những lời Diêu Thần vừa nói lúc nãy, trong lòng vẫn có phần không phục: "Từ Mạn Mạn chẳng qua chỉ thi đại học điểm cao hơn tôi một chút thôi sao? Lẽ nào năng lực làm việc lại đồng nghĩa với điểm thi đại học à?"
 
-Bên trong nam là so sư lớn điểm chuẩn trúng tuyển người cao cấp bậc.
+Điểm chuẩn đầu vào của Đại học Trung Nam quả thực cao hơn Sư Đại hẳn một bậc.
 
-Lâm Thanh Tuyết không biết trần trạch nhà trước học kỳ đã trải qua cái gì, lại hoặc là nói đang tại kinh lịch cái gì.
+Lâm Thanh Tuyết không hề biết học kỳ trước gia đình Trần Trạch đã phải trải qua những sóng gió gì, hoặc có thể nói là đang phải đối mặt với những khó khăn ra sao.
 
-Cùng với sẽ phải gặp phải cái gì.
+Và sắp tới sẽ còn phải gánh chịu những gì nữa.
 
-Mấy nhà nhà máy mà thôi, Lâm Thanh Tuyết có tự tin có thể quản lý tốt, sinh viên không có người sẽ cảm thấy chính mình không bằng ai, tất cả mọi người là hai cái bả vai khiêng một cái đầu.
+Chỉ là vài ba cái xưởng sản xuất thôi mà, Lâm Thanh Tuyết tự tin mình hoàn toàn có thể quản lý tốt. Đã là sinh viên đại học, chẳng ai tự thấy mình thua kém người khác, ai cũng hai vai gánh một cái đầu như nhau cả.
 
-Ngươi có thể nói Lâm Thanh Tuyết trà xanh.
+Bạn có thể nói Lâm Thanh Tuyết là dạng con gái thực dụng, tâm cơ.
 
-Nhưng Lâm Thanh Tuyết không phải muốn kiếm tiền, nàng là muốn cùng trần trạch qua ngày tốt lành của.
+Thế nhưng Lâm Thanh Tuyết không hề có ý định bòn rút tiền của Trần Trạch rồi bỏ chạy, cô thực lòng muốn cùng Trần Trạch xây dựng một cuộc sống sung túc, tốt đẹp.
 
-Thực sự cầu thị, điểm ấy so với cái kia vớt nữ cường rất rất nhiều rồi.
+Nói một cách công bằng, điểm này của cô đã ăn đứt những kẻ chỉ chăm chăm đào mỏ ngoài kia rồi.
 
-Một bên khác.
+Ở phía bên kia.
 
-Một đường không nói chuyện.
+Suốt dọc đường trở về, không ai nói với ai lời nào.
 
-Trở lại ký túc xá, Từ Mạn Mạn mở ra laptop, ấn mở cặp văn kiện, bên trong lít nha lít nhít đủ loại bày tỏ.
+Về đến phòng ký túc, Từ Mạn Mạn mở chiếc máy tính xách tay lên, nhấp chuột vào một thư mục. Bên trong chứa la liệt vô số các tệp bảng biểu, số liệu dày đặc.
 
-4 0 6 của 3 cái nữ sinh nhìn xem Từ Mạn Mạn.
+Ba cô gái phòng 406 đều lặng lẽ đứng nhìn Từ Mạn Mạn.
 
-Diêu tân cũng không mắng chửi người.
+Diêu Thần cũng không còn buông lời chửi bới nữa.
 
-Do dự sẽ, Từ Mạn Mạn đem những này văn kiện từng cái kéo vào"vựa ve chai", lại điểm xóa bỏ.
+Sau thoáng ngập ngừng, Từ Mạn Mạn kéo từng tập tin thả vào "Thùng rác", rồi dứt khoát nhấn nút xóa vĩnh viễn.
 
-Các nàng biết Từ Mạn Mạn cùng trần trạch kết thúc.
+Họ đều hiểu rằng, Từ Mạn Mạn và Trần Trạch đã thực sự kết thúc rồi.
 
-Từ Mạn Mạn lại ấn mở hòm thư, tất cả đều là công việc loại văn kiện, có tiếng Trung, có tiếng Anh của, nàng từng cái một điểm xóa bỏ, giống như là xóa bỏ own 2 0 năm như vậy
+Từ Mạn Mạn lại mở hòm thư điện tử, bên trong toàn là các văn bản công việc, có bản bằng tiếng Trung, có bản bằng tiếng Anh. Cô nhấp chuột xóa từng cái một, cảm giác như đang xóa đi toàn bộ hai mươi năm thanh xuân vừa qua của chính mình vậy.

@@ -1,199 +1,187 @@
-# Chương 107: Cậu Đã Chọn Con Đường Khó Đi Nhất
+# Chương 107: Cậu đã chọn con đường chông gai nhất
 
-Lưu Huy sau một hồi mới sực tỉnh, hỏi Triệu Kim An: "Cúp Trăn Nhiên ở khu đại học kia là do em phụ trách à?"
+> **Tiêu đề gốc**: 第107章 你挑了条最难的路。
 
-Hắn cũng chẳng nói gì thêm, chỉ là có chút kinh ngạc.
+Lưu Huy nhận ra sự việc có phần muộn màng, bèn cất tiếng hỏi Triệu Kim An rằng giải đấu Cúp Trăn Nhiên đang rầm rộ khắp khu Đại học Thành kia có phải do cậu phụ trách hay không.
 
-Lưu Huy bắt đầu thấy hơi đồng cảm với Triệu Kim An. Trước đây, vì chuyện xin trợ cấp hộ nghèo mà Triệu Kim An đã công khai bật lại hắn ngay trước mặt cả lớp, khiến ấn tượng của Lưu Huy về cậu học trò này vốn chẳng tốt đẹp gì.
+Thầy cũng chẳng nói thêm điều gì đao to búa lớn, chỉ lộ rõ vẻ ngỡ ngàng, kinh ngạc.
 
-Nhưng giờ đây, Lưu Huy lại cảm thấy bùi ngùi.
+Ban đầu, Lưu Huy từng có đôi chút cảm thông với hoàn cảnh của Triệu Kim An. Nhưng rồi vì chuyện xin học bổng trợ cấp khó khăn, Triệu Kim An đã đứng giữa lớp, trước mặt đông đảo bạn bè mà thẳng thừng phản bác lại thầy, khiến ấn tượng của Lưu Huy đối với cậu sinh viên này trở nên vô cùng tồi tệ.
 
-Một cuộc thi do chính sinh viên của mình phụ trách mà tiền thưởng đã lên tới 200.000 tệ, trong khi lương giảng viên hướng dẫn như Lưu Huy được bao nhiêu?
+Giờ đây, trong lòng Lưu Huy chỉ còn lại muôn vàn nỗi niềm thổn thức.
 
-Nhìn Triệu Kim An, rồi nhìn sang Đường Hiểu Tình — hai sinh viên nghèo trong lớp không nhận được trợ cấp — Lưu Huy chẳng biết phải hỏi Triệu Kim An thế nào. Tính tình cậu ta vốn thẳng thắn, không biết chừng lại thốt ra câu gì khó nghe.
+Một giải đấu thể thao do chính cậu học trò của mình đứng ra gánh vác trách nhiệm, tiền thưởng trao tay đã lên tới con số 20 vạn tệ. Trong khi một cố vấn học tập như Lưu Huy, tháng lương còm cõi được mấy đồng bạc?
 
-Mà nếu nghe phải mấy câu chướng tai (nhưng thực tế), e là hắn cũng chẳng nuốt trôi nổi cơn giận này.
+Đưa mắt nhìn Triệu Kim An, rồi lại nhìn sang Đường Hiểu Tình — hai sinh viên nghèo có hoàn cảnh thực sự khó khăn trong lớp từng bị gạt ra khỏi danh sách trợ cấp. Lưu Huy ngại ngùng không dám mở lời hỏi sâu Triệu Kim An, bởi tính tình cậu ta vốn thẳng như ruột ngựa, chẳng biết sẽ buông ra những lời lẽ sắc nhọn cỡ nào. Nếu buông vài câu chối tai (nhưng lại trần trụi đúng sự thật), khéo thầy giáo như ông tức đến nghẹn họng mà chẳng thể nuốt trôi.
 
-Năm đó, Triệu Kim An đã nhìn thẳng vào mắt Lưu Huy mà nói: "Em từ bỏ, thầy cứ để dành cho những người thực sự cần đi."
+Ngày ấy, Triệu Kim An đã nhìn thẳng vào mắt Lưu Huy mà dõng dạc tuyên bố: "Em xin rút lui, các thầy hãy dành phần trợ cấp đó cho những người thực sự cần."
 
-Đường Hiểu Tình chính là người thực sự cần, nhưng đơn xin của cô lại không được phê duyệt.
+Đường Hiểu Tình mới chính là người thực sự cần giúp đỡ, vậy mà hồ sơ xin trợ cấp của cô lại chẳng được phê duyệt.
 
-Lúc ấy Lưu Huy không hiểu ẩn ý, giờ đây mới thấy mặt mình đau rát như bị tát.
+Lúc đó Lưu Huy không hiểu hết ngụ ý sâu xa, giờ đây ngẫm lại mới thấy từng lời như cái tát giáng thẳng vào mặt mình.
 
-Lưu Huy quay sang hỏi Đường Hiểu Tình: "Em đi làm thêm bên ngoài, một tháng lương được bao nhiêu?"
+Lưu Huy bèn quay sang hỏi Đường Hiểu Tình: "Em đi làm thêm bên ngoài, mỗi tháng kiếm được bao nhiêu tiền lương?"
 
-Đường Hiểu Tình không nói con số cụ thể, chỉ bảo: "Hơn một nghìn tệ ạ."
+Đường Hiểu Tình không nói con số cụ thể, chỉ khẽ đáp: "Dạ hơn một nghìn tệ ạ."
 
 Lưu Huy: "..."
 
-Lương của hắn cũng chỉ quanh quẩn tầm một nghìn tệ, chứ chẳng được "hơn một nghìn".
+Lương tháng của thầy giáo như ông cũng chỉ vỏn vẹn tầm một nghìn tệ, chứ chưa chạm nổi mốc "hơn một nghìn". Ông không tham gia giảng dạy trên lớp, không đủ tiêu chuẩn đứng bục giảng như các vị giáo sư đại học.
 
-Hắn không có giờ lên lớp, cũng không đủ tư cách đứng lớp như mấy vị giáo sư đại học.
+Trời đất như sụp đổ dưới chân.
 
-Trời như sụp đổ.
+Lưu Huy thực sự cảm thấy mặt mình nóng bừng như bị thiêu đốt.
 
-Lưu Huy thực sự cảm thấy như bị vỗ mặt liên hồi.
+Đấy mới chỉ là tiền lương làm thêm của Đường Hiểu Tình thôi đấy, còn Triệu Kim An thì đường đường là người chịu trách nhiệm chính của cả một sự kiện quy mô.
 
-Đấy mới chỉ là Đường Hiểu Tình, còn Triệu Kim An là người phụ trách cơ mà.
-
-Nhớ lại câu "Em từ bỏ, thầy cứ để dành cho những người thực sự cần đi", Lưu Huy thấy mặt mình nóng bừng như lửa đốt.
+Nhớ lại câu nói "Em xin rút lui, các thầy hãy dành cho những người thực sự cần" của Triệu Kim An năm nào, Lưu Huy chỉ thấy hai gò má rát bỏng, ê chề khôn xiết.
 
 ***
 
-"Kim An, tớ có chuyện này muốn nói với cậu, tớ muốn theo đuổi Đường Hiểu Tình."
+"Kim An, có chuyện này tao muốn nói trước với mày một tiếng, tao tính theo đuổi Đường Hiểu Tình."
 
-Đây là lời Cốc Siêu Thừa nói với Triệu Kim An trong ký túc xá.
+Đó là lời Cốc Siêu Thừa nói với Triệu Kim An ngay tại phòng ký túc xá.
 
-Đường Hiểu Tình không phải bạn gái của Triệu Kim An, nhưng Cốc Siêu Thừa cảm thấy cần phải đánh tiếng một câu, vì từ hồi mới nhập học, cô nàng đã đối xử rất tốt với Triệu Kim An rồi.
+Đường Hiểu Tình tuy không phải bạn gái của Triệu Kim An, nhưng Cốc Siêu Thừa cảm thấy cần thiết phải đánh tiếng trước một câu. Bởi lẽ ngay từ ngày đầu nhập học đại học, Đường Hiểu Tình đã luôn dành sự quan tâm, đối xử đặc biệt tốt với Triệu Kim An.
 
-Bạn gái cũ của Triệu Kim An là Mộc Dao, giờ lại có Thẩm Tử Ngôn cùng làm việc chung, Cốc Siêu Thừa không nghĩ Triệu Kim An sẽ để mắt đến Đường Hiểu Tình.
+Bạn gái cũ của Triệu Kim An là Mộc Dao xinh đẹp ngút ngàn, giờ đây lại có thêm Thẩm Tử Ngôn cùng làm việc sát cánh mỗi ngày, Cốc Siêu Thừa không tin Triệu Kim An có thể để mắt tới một cô gái như Đường Hiểu Tình. Nếu thật sự vừa mắt, hai người họ đã thành đôi từ lâu rồi.
 
-Nếu thực sự có ý định, hai người họ đã ở bên nhau từ lâu rồi.
+Đàn ông khi có sự nghiệp trong tay sẽ trở nên vô cùng cuốn hút.
 
-Đàn ông khi có sự nghiệp sẽ trở nên đầy sức hút.
+Thực ra, phụ nữ cũng chẳng khác là bao.
 
-Thực ra, phụ nữ cũng vậy.
+Lần này, ngay cả Lưu Sấm Phong cũng chẳng buồn trêu chọc chuyện vóc dáng Đường Hiểu Tình thấp bé nữa, ngược lại còn khen cô trông khá ưa nhìn, năng lực làm việc cũng rất cừ khôi. Lưu Sấm Phong bèn bông đùa chọc Cốc Siêu Thừa: "Mày có phải là nhắm trúng cọc tiền lương mỗi tháng của Đường Hiểu Tình rồi không đấy?"
 
-Lần này ngay cả Lưu Sấm Phong cũng không còn chê Đường Hiểu Tình lùn nữa, còn khen cô khá xinh xắn, năng lực làm việc lại tốt, rồi quay sang trêu chọc Cốc Siêu Thừa.
+Cốc Siêu Thừa gắt lên: "Xéo đi, tao nghiêm túc đấy!"
 
-"Có phải mày nhắm trúng tiền lương của Đường Hiểu Tình rồi không?"
+Năm nhất đại học sắp sửa khép lại, Cốc Siêu Thừa tự biết lượng sức mình, hiểu rõ bản thân đời này chẳng với tới nổi những đóa hoa khôi như Mộc Dao hay Từ Mạn Mạn. Vì thế cậu ta quyết định lùi lại một bước, lựa chọn một đối tượng có "tính hiệu quả thực tế" cao hơn như Đường Hiểu Tình.
 
-Cốc Siêu Thừa mắng: "Cút đi, tao nghiêm túc đấy!"
+Thú thật, trong lòng Triệu Kim An dấy lên một chút cảm giác khó chịu.
 
-Sắp hết năm nhất rồi, Cốc Siêu Thừa cũng có tự trọng, hắn biết mình không đủ tầm theo đuổi những cô gái như Mộc Dao hay Từ Mạn Mạn.
+Có lẽ là đàn ông thì ít nhiều ai cũng sẽ có chút tâm lý sở hữu như vậy.
 
-Nên hắn lùi lại một bước, chọn Đường Hiểu Tình có "tỉ lệ hiệu năng trên giá thành" cao hơn.
+Lẽ nào trên đời thật sự có ai đại công vô tư đến mức không vương chút tư tâm nào?
 
-Thú thực, trong lòng Triệu Kim An có chút không thoải mái.
+Hắn tuyệt đối không tin!
 
-Đại khái là đàn ông ai cũng ít nhiều có tâm lý đó.
+Chính tay hắn vừa giúp Đường Hiểu Tình lột xác đôi chút, Cốc Siêu Thừa rõ ràng mang dã tâm muốn "hái trộm quả ngọt". Hắn nghi ngờ tên bạn cùng phòng này thực chất là đã tăm tia vòng một cỡ 34D của Đường Hiểu Tình.
 
-Thật sự có thể đại công vô tư đến thế sao? Không có chút ích kỷ nào ư?
+Chuyện này hắn chưa từng chạm tay vào kiểm chứng, chỉ mới quan sát bằng mắt thường. Dù có phần hơi phóng đại đôi chút, nhưng cúp C thì chắc chắn mười mươi.
 
-Không tin nổi!
+Khoản này Triệu Kim An dám lấy danh dự ra bảo đảm!
 
-Hắn vừa mới giúp Đường Hiểu Tình lột xác một chút, Cốc Siêu Thừa đã nhảy vào định "hái đào", hắn nghi ngờ tên này nhắm vào vòng một 34D của cô thì đúng hơn.
-
-Cái này Triệu Kim An chưa đụng vào, chỉ là ước lượng bằng mắt thường thôi.
-
-Có lẽ hơi quá một chút, nhưng cup C thì chắc chắn là có.
-
-Triệu Kim An dám lấy danh dự ra bảo đảm!
-
-Cao 1m52 mà sở hữu vòng một 34D, gương mặt lại thanh tú, chẳng trách Cốc Siêu Thừa thấy Đường Hiểu Tình "ngon bổ rẻ".
+Vóc người 1m52, vòng một 34D đẫy đà, gương mặt lại thanh tú ưa nhìn, thảo nào Cốc Siêu Thừa lại thấy Đường Hiểu Tình "hời" đến thế.
 
 ***
 
-Đợi đến lúc rảnh rỗi, Triệu Kim An mới nhớ tới Triệu Chí Dũng. Tên này sau khi bận rộn xong lễ khai mạc thì bảo có việc rồi không thấy mặt mũi đâu nữa.
+Mãi đến khi công việc vơi bớt đôi phần, Triệu Kim An mới chợt nhớ tới Triệu Trí Dũng. Thằng bạn nối khố sau khi phụ giúp xong khâu khai mạc giải đấu thì bảo có việc bận rồi mất hút bóng dáng, không thấy tăm hơi đâu nữa.
 
-Hơi bất thường.
+Có chút bất thường.
 
-Triệu Kim An tìm tới Vương Duy Đào, hai đứa này ngày nào cũng dính lấy nhau, nhưng Vương Duy Đào nói mình cũng không biết, chỉ bảo mỗi tối Triệu Chí Dũng làm xong việc rất muộn vẫn cứ phải chạy về trường mình.
+Triệu Kim An tìm Vương Duy Đào để hỏi han — hai đứa bọn họ ngày thường dính lấy nhau như hình với bóng. Vương Duy Đào bảo cậu ta cũng chẳng rõ đầu đuôi, chỉ biết mỗi tối Triệu Trí Dũng dù bận rộn tới khuya muộn cách mấy cũng nhất quyết đón xe chạy về trường mình. Vương Duy Đào rủ Trí Dũng ngủ lại phòng mình cho tiện, nhưng cậu ta vẫn nằng nặc đòi về.
 
-Vương Duy Đào bảo Triệu Chí Dũng cứ ngủ lại ký túc xá của mình cho xong, nhưng cậu ta nhất quyết đòi về.
+Triệu Kim An lại càng thêm tò mò.
 
-Triệu Kim An càng tò mò hơn.
+Cái thằng trời đánh này chẳng lẽ đã kiếm được người yêu ở trường rồi sao?
 
-Cái thằng chó này tìm được bạn gái ở trường rồi à?
+Cớ sao lại phải giấu giếm như mèo giấu cứt thế kia?
 
-Sao phải giấu giấu diếm diếm thế nhỉ?
+Vương Duy Đào tiết lộ, Triệu Trí Dũng từng buột miệng bảo cậu ta thích mẫu phụ nữ chững chạc, thành thục một chút.
 
-Vương Duy Đào bảo, Triệu Chí Dũng nói mình thích kiểu người trưởng thành một chút.
+Triệu Kim An bèn bấm số gọi cho Triệu Trí Dũng, hỏi thẳng vào vấn đề.
 
-Triệu Kim An gọi điện cho Triệu Chí Dũng, hỏi thẳng tuột.
+Triệu Trí Dũng ấp úng ngập ngừng, giọng điệu lộ rõ vẻ chột dạ, hốt hoảng.
 
-Triệu Chí Dũng ấp úng, tỏ vẻ khá hoảng hốt.
+Triệu Kim An nhìn đồng hồ thấy trời vẫn còn sớm, liền gọi Đan Vĩ lái xe chở mình tới Học viện Tài chính — ngôi trường nằm sát vách trường Cao đẳng Tài chính của Trí Dũng.
 
-Triệu Kim An thấy thời gian còn sớm, liền bảo Đơn Vĩ lái xe tới trường Tài chính nằm ngay sát cạnh trường Tài chuyên.
+Đến tận nơi rồi mới vỡ lẽ, vì sao Triệu Trí Dũng lại ấp úng, giấu giếm kỹ lưỡng đến thế, có người yêu mà tuyệt nhiên không để lọt một chút phong thanh nào ra ngoài.
 
-Đến nơi mới biết, tại sao Triệu Chí Dũng lại ấp úng, giấu giấu diếm diếm, yêu đương mà chẳng để lộ chút phong thanh nào.
+"Ông chủ, ăn lẩu cay tê ma-la-thang à?"
 
-"Ông chủ, ăn ma lạt thảng không?"
-
-Đơn Vĩ nhìn Triệu Chí Dũng đang lăng xăng giúp người ta lau bàn, thu tiền.
+Đan Vĩ đưa mắt nhìn Triệu Trí Dũng đang lăng xăng phụ quán, bận rộn chạy đôn chạy đáo lau bàn rồi thu tiền khách.
 
 "Anh đừng đi theo."
 
-Triệu Kim An xuống xe, châm một điếu thuốc, nhìn người phụ nữ đang trụng ma lạt thảng.
+Triệu Kim An bước xuống xe, châm một điếu thuốc, trầm ngâm nhìn người phụ nữ đang thoăn thoắt nhúng đồ bên nồi lẩu cay bốc khói nghi ngút.
 
-Trời tối, nhìn không rõ mặt mũi người phụ nữ đó lắm.
+Trời tối nhập nhoạng, nhìn không quá rõ dung mạo của người phụ nữ.
 
-Nhưng hắn phát hiện cạnh một chiếc bàn nhỏ có một bé gái đang ngồi, chừng lớn hơn Tống Gia Nguyệt một hai tuổi.
+Thế nhưng hắn nhận thấy bên cạnh chiếc bàn con đằng kia luôn có một bé gái ngồi ngoan ngoãn, độ tuổi chừng lớn hơn Tống Gia Nguyệt khoảng một hai tuổi.
 
-Triệu Chí Dũng ngẩng đầu thấy Triệu Kim An thì giật mình, vội vàng chạy lại, nhưng khi sắp tới gần thì bước chân lại trở nên lề mề.
+Triệu Trí Dũng ngẩng đầu lên chợt phát hiện bóng dáng Triệu Kim An, liền vội vã chạy lại, nhưng càng tới gần bước chân lại càng rụt rè, lề mề.
 
-"Không đi làm tình nguyện viên mà lại bận rộn ở đây?"
+"Không đi làm tình nguyện viên, lại chạy sang đây bận rộn thế này à?"
 
 Triệu Kim An mở lời trước.
 
-Nếu không phải là Triệu Chí Dũng, hắn đã chẳng buồn quản chuyện bao đồng.
+Nếu không phải vì Triệu Trí Dũng, đời nào Triệu Kim An thèm bận tâm đến chuyện bao đồng của thiên hạ.
 
-Triệu Chí Dũng lủi thủi đi tới, gãi đầu: "Kim An, mày nói khẽ thôi."
+Triệu Trí Dũng lúng túng bước tới, đưa tay gãi đầu: "Kim An... mày, mày nói nhỏ giọng chút."
 
-"Chuyện từ khi nào?"
+"Từ bao giờ thế?"
 
-"Hồi... hồi học kỳ trước, tao đến đây ăn ma lạt thảng rồi quen."
+"Kỳ... kỳ học trước tao tới đây ăn lẩu cay rồi quen biết."
 
-Triệu Kim An nhìn chằm chằm đứa bé gái.
+Triệu Kim An đưa mắt nhìn về phía bé gái đằng xa.
 
-Triệu Chí Dũng ấp úng khai báo: "Chị ấy tên là Trịnh Như, chồng mất rồi, đó là con gái chị ấy, bốn tuổi rưỡi, tên là Triệu Niệm Khả. Tao... tao thấy hai mẹ con họ tội nghiệp quá..."
+Triệu Trí Dũng lí nhí khai thật: "Cô ấy tên Trịnh Như, chồng mất sớm rồi. Đứa bé đằng kia là con gái cô ấy, 4 tuổi rưỡi, tên Triệu Niệm Khả. Tao... tao thấy hai mẹ con họ côi cút đáng thương quá..."
 
-Triệu Kim An ngắt lời, cười nhạt một tiếng: "Lại còn họ Kim An nữa cơ đấy."
+Triệu Kim An ngắt lời, khẽ bật cười: "Lại còn mang họ Triệu nữa cơ đấy."
 
-Thấy Triệu Kim An cười, tảng đá trong lòng Triệu Chí Dũng mới hạ xuống đôi chút, cậu ta mặt dày nói: "Đúng không, mày xem có phải là duyên phận không?"
+Thấy Triệu Kim An mỉm cười, tảng đá đè nặng trong lòng Triệu Trí Dũng mới vơi bớt đôi phần, cậu ta dày mặt nói: "Thấy chưa, mày bảo có phải là duyên phận trời định không?"
 
-"Đúng là duyên phận thật, mày mới mười chín tuổi mà con gái đã bốn tuổi rưỡi rồi, lại còn mang họ của mày nữa hả?"
+"Duyên phận ghê nhỉ. Mày mới 19 tuổi đầu mà con gái đã 4 tuổi rưỡi rồi, lại còn mang sẵn họ mày nữa chứ hả?"
 
-Triệu Chí Dũng nghe ra được ý mỉa mai, cậu ta lý nhí: "Thì cũng có chút ưu thế mà."
+Triệu Trí Dũng nghe hiểu lời mỉa mai, lí nhí thanh minh: "Dù sao thì... cũng có chút lợi thế mà."
 
-"Ưu thế?"
+"Lợi thế?"
 
-Triệu Kim An nhìn bản mặt thật thà của Triệu Chí Dũng: "Nếu mày chỉ định chơi bời thì tao không nói, nhưng nếu mày định nghiêm túc, thì cứ chuẩn bị tinh thần để bố mẹ mày đánh gãy chân đi."
+Triệu Kim An nhìn chằm chằm vào khuôn mặt chất phác, cục mịch của Triệu Trí Dũng: "Nếu mày chỉ định yêu đương chơi bời qua đường thì tao chẳng buồn nói làm gì. Còn nếu mày tính chuyện nghiêm túc, thì cứ chuẩn bị sẵn tinh thần chờ bố mẹ mày vác gậy đánh gãy chân đi."
 
-"Mày nghĩ bố mẹ mày có thể chấp nhận được không?"
+"Mày nghĩ bố mẹ mày có thể chấp nhận nổi chuyện này chắc?"
 
-"Nếu mày là mấy ông độc thân trong làng không cưới nổi vợ thì đã đành."
+"Trừ phi mày là mấy gã ế vợ trong làng, cùng đường không lấy nổi vợ thì đã đành một nhẽ."
 
-Triệu Chí Dũng cúi đầu không nói, cậu ta biết cửa ải bố mẹ rất khó qua.
+Triệu Trí Dũng cúi gằm mặt không nói một lời, cậu ta thừa hiểu cửa ải bố mẹ muôn phần trắc trở.
 
-Triệu Kim An quăng cho cậu ta một điếu thuốc: "Tiến triển đến bước nào rồi?"
+Triệu Kim An ném cho cậu ta một điếu thuốc: "Đã tiến triển tới bước nào rồi?"
 
-Triệu Chí Dũng bảo cái gì cần tiến triển thì đều tiến triển cả rồi.
+Triệu Trí Dũng lí nhí bảo những gì nên tiến triển thì đều tiến triển cả rồi.
 
-Triệu Kim An lại hỏi: "Con bé đã gọi mày là bố chưa?"
+Triệu Kim An lại hỏi: "Con bé đã cất tiếng gọi mày là bố chưa?"
 
-Triệu Chí Dũng ngẩng đầu, cười hì hì: "Nó gọi là chú, nhưng cũng có đôi lần gọi bố rồi."
-
-Triệu Kim An: "..."
-
-Hắn không ngờ chỉ một thoáng sơ sểnh mà Triệu Chí Dũng đã tự mình giải quyết xong xuôi chuyện đại sự cả đời rồi.
-
-Con gái cũng đã bốn tuổi rưỡi luôn!
-
-"Phù —"
-
-Triệu Kim An thở hắt ra một hơi: "Vương Duy Đào nói mày thích kiểu trưởng thành, nhưng thế này thì cũng trưởng thành quá mức rồi đấy."
-
-Triệu Chí Dũng cúi gầm mặt.
-
-Lúc này Triệu Kim An mới sực nhớ ra Triệu Chí Dũng vốn đã có "triệu chứng" từ trước, cứ nhìn thái độ của cậu ta với Doãn Hiểu Lan là biết, đúng là truyền nhân của Tào Thừa tướng mà.
-
-Triệu Chí Dũng nói nhỏ: "Kim An, mày giúp tao nghĩ cách qua ải bố mẹ với, tao nghiêm túc thật đấy. Trịnh Như là người phụ nữ rất tốt, Niệm Khả cũng rất đáng yêu..."
-
-"Cậu đã chọn con đường khó đi nhất rồi."
-
-Triệu Kim An nói: "Mày có học lịch sử mà, mấy bài toán khó nhằn này đến cỡ Lã Bất Vi hay Đa Nhĩ Cổn còn chẳng giải quyết êm xuôi nổi..."
-
-Triệu Chí Dũng cãi: "Họ là con trai, còn Niệm Khả là con gái mà."
+Triệu Trí Dũng ngẩng đầu lên, gãi gãi mái tóc cười ngượng: "Thường ngày gọi chú, nhưng cũng từng gọi mấy tiếng bố rồi."
 
 Triệu Kim An: "..."
 
-"Thế cứ lấy tao làm ví dụ đi, mày không nhìn ra sao?"
+Hắn thật không ngờ mình chỉ vừa lơ đễnh một chút, Triệu Trí Dũng đã tự tay giải quyết xong xuôi chuyện đại sự cả một đời người.
 
-"Mày cũng là con trai."
+Đến cả con gái cũng đã 4 tuổi rưỡi rồi cơ đấy!
+
+"Phù——"
+
+Triệu Kim An thở dài thườn thượt: "Vương Duy Đào bảo mày thích người chững chạc, thành thục, nhưng thế này thì thành thục quá mức quy định rồi đấy."
+
+Triệu Trí Dũng cúi đầu im thin thít.
+
+Triệu Kim An lúc này mới sực nhớ ra, Triệu Trí Dũng vốn dĩ đã có "mầm mống" từ lâu rồi — cứ nhìn thái độ cung kính, xao xuyến của cậu ta đối với chị dâu họ Doãn Hiểu Lan là đủ hiểu, đích thị là truyền nhân chân truyền của Tào Thừa tướng đây mà!
+
+Triệu Trí Dũng nhỏ giọng cầu xin: "Kim An, mày nghĩ cách giúp tao vượt qua ải bố mẹ với. Tao thật lòng nghiêm túc đấy, Trịnh Như là người phụ nữ rất tốt, bé Niệm Khả cũng ngoan ngoãn đáng yêu lắm..."
+
+"Cậu đã chọn con đường chông gai nhất rồi."
+
+Triệu Kim An nói: "Mày có học lịch sử mà, bài toán hóc búa này đến cỡ Lã Bất Vi hay Đa Nhĩ Cổn còn chẳng giải quyết êm xuôi được..."
+
+Triệu Trí Dũng cãi lại: "Bọn họ là sinh con trai, còn bé Niệm Khả là con gái mà."
 
 Triệu Kim An: "..."
 
-"Chí Dũng, ai thế em?"
+"Cứ lấy tao làm ví dụ, mày còn nhìn không thấu hay sao?"
 
-Đúng lúc này, Trịnh Như vừa đếm xong số xiên que, tiễn mấy cậu sinh viên cuối cùng ăn ma lạt thảng ra về, liền cất tiếng hỏi.
+"Thì mày cũng là con trai mà."
+
+Triệu Kim An: "..."
+
+"Trí Dũng, ai thế em?"
+
+Đúng lúc này, Trịnh Như đếm xong số xiên que, tiễn những vị khách sinh viên cuối cùng ra về rồi cất tiếng hỏi vọng lại...

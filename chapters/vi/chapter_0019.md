@@ -1,181 +1,183 @@
-# Chương 19: Chia Tay Rồi
+# Chương 19: Chia tay rồi
 
-"Cộc, cộc!"
+> **Tiêu đề gốc**: 第19章 分手了。
 
-Đúng lúc này, phục vụ gõ cửa bắt đầu lên món.
+"Cốc, cốc!"
 
-"Ngại quá, tôi xin phép không tiếp được rồi."
+Đúng lúc này, tiếng gõ cửa vang lên, nhân viên phục vụ bắt đầu bưng từng đĩa thức ăn thịnh soạn bước vào phòng bao.
 
-Triệu Kim An áy náy gật đầu, hắn vốn dĩ đã không định ở lại dùng bữa.
+"Thành thật xin lỗi, cháu xin phép không làm phiền bữa ăn của mọi người nữa ạ."
 
-"Triệu Kim An, em không đồng ý, em không đồng ý chia tay!"
+Triệu Kim An khẽ cúi đầu tỏ vẻ tạ lỗi. Ngay từ đầu, cậu vốn dĩ đã chẳng hề có ý định ở lại dùng bữa cơm này.
 
-Mộc Dao đứng sững tại chỗ, gương mặt quật cường, giọng nói trong trẻo vang lên.
+"Triệu Kim An, em không đồng ý! Em tuyệt đối không đồng ý chia tay!"
 
-Mặc dù đã đạt được kết quả mình mong muốn, thậm chí còn nhẹ nhàng và tốt hơn dự kiến rất nhiều, nhưng trong lòng Trương Tuệ lại cảm thấy rất khó chịu. Bà ta từng có lúc nghi ngờ Triệu Kim An không hề yêu con gái mình, nếu không tại sao hắn có thể làm được đến mức dứt khoát, phóng khoáng như vậy?
+Mộc Dao đứng trân trân tại chỗ, gương mặt giàn giụa nước mắt nhưng ánh mắt vẫn bướng bỉnh đến cùng.
 
-"Kim An, thức ăn cũng gọi rồi, ăn xong rồi hãy đi."
+Dẫu cho kết quả này đúng hệt như mong muốn ban đầu của gia đình, thậm chí còn diễn ra êm thấm và suôn sẻ hơn nhiều so với dự tính, thế nhưng trong lòng Trương Tuệ lại dấy lên một cảm giác cực kỳ khó chịu và hụt hẫng. Bà thậm chí còn hoài nghi rằng Triệu Kim An vốn chẳng hề có tình cảm với con gái mình, nếu không thì cớ sao một đứa trẻ mười tám tuổi lại có thể dứt áo ra đi một cách dửng dưng và thanh thản đến nhường ấy?
 
-Cũng chẳng rõ vì sao, có lẽ là do khách khí, Trương Tuệ lại muốn trò chuyện với Triệu Kim An thêm vài câu để trong lòng mình thoải mái hơn một chút.
+"Kim An à, đồ ăn cũng đã dọn lên cả rồi, cháu cứ ngồi xuống ăn xong bữa rồi hãy về."
 
-Bà ta muốn nhìn thấy Triệu Kim An luống cuống, luyến tiếc, phản kháng, hay là cố gắng tranh luận lấy lý lẽ...
+Chẳng rõ vì lý do gì, có lẽ là xuất phát từ phép lịch sự xã giao thông thường, hoặc giả Trương Tuệ muốn nấn ná nói thêm vài câu với Triệu Kim An để giải tỏa nỗi bứt rứt trong lòng.
 
-Thậm chí là hét lên câu: "Đừng khinh thiếu niên nghèo."
+Bà ta muốn nhìn thấy một Triệu Kim An lúng túng, bối rối, vương vấn không nỡ buông tay, hoặc chí ít là vùng vẫy phản kháng, kịch liệt tranh luận để bảo vệ tình yêu...
 
-Như vậy mới phù hợp với tính cách của giới trẻ.
+Thậm chí, kể cả khi cậu ta có gào thét lên câu nói ngông cuồng: "Ba mươi năm sông Đông, ba mươi năm sông Tây, đừng khinh thiếu niên nghèo!"
 
-Chứ không phải giống như bây giờ, nói buông là buông, nói đi là đi ngay được.
+Như thế mới đúng là bản tính bồng bột, máu lửa của một chàng trai trẻ.
 
-Chuyện này hoàn toàn nằm ngoài dự liệu của bà ta.
+Chứ tuyệt đối không phải là cái dáng vẻ nói buông là buông, bảo đi là quay lưng bước thẳng như lúc này.
 
-Thậm chí là ngoài dự liệu của tất cả mọi người, đem lại một loại ảo giác giống như đấm một cú vào đống bông, cực kỳ khó chịu.
+Tất cả mọi chuyện hoàn toàn nằm ngoài dự liệu của bà.
 
-"Đúng là tự trọng cao thật, người càng tự ti thì lòng tự trọng càng mạnh, nội tâm của loại người này thường hay nhạy cảm lắm."
+Thậm chí còn vượt quá sức tưởng tượng của tất cả những người đang ngồi trong căn phòng này, mang lại cho họ cảm giác như vừa tung hết sức tung ra một cú đấm ngàn cân nhưng lại hụt chân đấm trúng vào một đống bông gòn mềm nhũn, ức nghẹn không sao tả xiết.
 
-Giọng điệu Trương Vân Thiến nhẹ bẫng, bà ta cảm thấy Triệu Kim An không ở lại dùng bữa là do cái lòng tự trọng đáng thương kia đang quấy phá.
+"Đúng là cái thói tự ái vặt vãnh. Kẻ càng tự ti bao nhiêu thì lòng tự trọng lại càng nhạy cảm bấy nhiêu. Loại người này ruột gan lúc nào cũng dễ tổn thương lắm."
 
-"Nội tâm nhạy cảm?"
+Giọng điệu của Trương Vân Thiến nhẹ bẫng pha lẫn vẻ mỉa mai. Bà ta đinh ninh rằng Triệu Kim An không dám ở lại ăn cơm chẳng qua là do thứ tự ái hèn mọn, đáng thương của kẻ nghèo hèn đang tác oai tác quái mà thôi.
 
-Nghe thấy câu này, Triệu Kim An dừng bước, xoay người nhìn về phía Trương Vân Thiến, lại nhìn lướt qua mọi người.
+"Ruột gan dễ tổn thương sao?"
 
-"Các người chẳng phải chính là muốn thấy tôi như thế này sao?"
+Nghe thấy mấy chữ này, Triệu Kim An bỗng dừng bước. Cậu thong thả xoay người lại, đưa mắt nhìn thẳng vào Trương Vân Thiến, rồi lần lượt quét ánh nhìn qua từng gương mặt trong phòng.
 
-Hắn chỉ vào chiếc túi LV và chìa khóa xe trên bàn ăn: "Từ lúc đặt khách sạn cho đến khi tôi bước vào, chìa khóa xe, túi xách, gọi món, rồi cả chuyện 985, 211, các người lúc nào cũng đang nhắc nhở tôi."
+"Chẳng phải mọi người muốn nhìn thấy cháu như thế này sao?"
 
-"Nhắc nhở rằng tôi trèo cao, tôi không xứng, nhắc nhở tôi nên biết khó mà lui."
+Cậu giơ tay chỉ thẳng vào chiếc túi LV cùng hai chùm chìa khóa xe hơi đang nằm chình ình trên bàn ăn: "Ngay từ lúc đổi địa điểm sang khách sạn sang trọng này cho đến lúc cháu bước chân vào phòng, nào là chìa khóa xe hơi, nào là túi hiệu hàng chục triệu, rồi màn kịch gọi món đắt đỏ, chuyện so bì trường 985 với trường 211... Từng hành động, từng lời nói của mọi người đều không ngừng nhắc nhở cháu."
+
+"Nhắc nhở rằng cháu là kẻ trèo cao, nhắc nhở rằng một đứa nhà quê như cháu hoàn toàn không xứng với con gái nhà này, cốt để cháu biết thân biết phận mà tự động rút lui."
 
 Mọi người: "..."
 
-Không ai nói gì nữa.
+Tất cả bỗng chốc câm như hến.
 
-Mộc Nhân Cường lặng lẽ cất chìa khóa xe đi.
+Mộc Nhân Cường lúng túng, len lén thò tay kéo chiếc chìa khóa xe Volkswagen giấu tụt xuống dưới mặt bàn.
 
-Họ không ngờ Triệu Kim An cái gì cũng hiểu, càng không ngờ hắn lại nói huỵch tẹt ra như vậy.
+Bọn họ ngàn vạn lần không ngờ được rằng một thằng nhóc mười tám tuổi lại nhìn thấu toàn bộ những trò tiểu xảo ấy, càng không ngờ cậu lại dám thẳng thừng vạch trần tất cả ra trước bàn dân thiên hạ như vậy.
 
-Đây là lần đầu tiên kể từ khi bước vào phòng, Triệu Kim An thể hiện ra tính công kích.
+Đây là lần đầu tiên kể từ khi bước vào phòng, Triệu Kim An bộc lộ ra sự sắc sảo và tính công kích mạnh mẽ đến thế.
 
-Ngay cả khi trước đó Trương Vân Thiến nói chuyện khó nghe như vậy, Triệu Kim An cũng chưa từng tỏ thái độ gay gắt.
+Dẫu cho trước đó Trương Vân Thiến có buông lời châm chọc khó nghe đến mức nào, Triệu Kim An vẫn luôn giữ thái độ nhã nhặn, không hề phản kháng.
 
-Mộc Dao phản ứng lại, trừng mắt nhìn mẹ và dì nhỏ. Cô gái mười tám tuổi chưa từng nghĩ thế giới của người lớn lại phức tạp đến thế.
+Mộc Dao lúc này mới bừng tỉnh hiểu ra mọi chuyện. Cô trừng mắt nhìn mẹ và dì út của mình. Trái tim non nớt của cô gái mười tám tuổi chưa từng nghĩ rằng thế giới của người lớn lại toan tính, phức tạp và trần trụi đến mức ghê rợn như vậy.
 
-"Thi công chức là tốt cho cậu thôi!"
+"Người ta khuyên cháu thi công chức cũng là muốn tốt cho cháu thôi mà!"
 
-Trương Vân Thiến chuyển chủ đề rất điêu luyện: "Cậu đừng có mà không biết tốt xấu, nếu thi công chức, chị gái và anh rể tôi đều có thể giúp cậu..."
+Khoản đánh trống lảng chuyển đổi đề tài của Trương Vân Thiến quả thực vô cùng điêu luyện: "Cậu đừng có mà không biết điều như thế. Nếu cậu chịu khó thi vào biên chế nhà nước, chị gái và anh rể tôi đây hoàn toàn có thể ra tay nâng đỡ, giúp đỡ cậu một tay..."
 
-"Dì tưởng Cục Thuế và Cục Địa chính là do nhà dì mở chắc?"
+"Dì nghĩ Cục Thuế với Cục Đất đai là do nhà dì mở ra chắc?"
 
-Triệu Kim An chằm chằm nhìn Trương Vân Thiến, không nể mặt bà ta một chút nào, cũng coi như là nói thật lòng mình.
+Triệu Kim An nhìn thẳng vào mắt Trương Vân Thiến, không thèm nể nang chút thể diện nào của bà ta, ăn ngay nói thật một cách tàn nhẫn.
 
-Kỳ thi quốc gia là phải tự lực mà thi, chỉ dựa vào Mộc Nhân Cường và Mộc Nhân Quân thì vẫn chưa đủ năng lực đó, đại khái là ngay cả một chỉ tiêu biên chế họ cũng chẳng giải quyết nổi.
+Kỳ thi tuyển công chức quốc gia là cuộc cạnh tranh công khai, minh bạch bằng thực lực. Chỉ dựa vào cái chức vị tép riu của Mộc Nhân Cường và Mộc Nhân Quân ở huyện lẻ này mà đòi can thiệp sao? Đừng nói là nâng đỡ người khác, khéo ngay cả một chỉ tiêu biên chế cho người nhà bọn họ còn lo chưa nổi ấy chứ.
 
-"Nói năng kiểu gì vậy? Sao lại thẳng thừng thế?"
+"Cậu... cậu ăn nói cái kiểu gì thế hả?! Sao lại thô lỗ, thẳng thừng đến thế?!"
 
-Hai anh em nhà họ Mộc liếc nhìn nhau, sắc mặt khó coi nhưng lại không thể phản bác.
+Hai anh em nhà họ Mộc đưa mắt nhìn nhau, sắc mặt xám ngoét vì ngượng ngùng, xấu hổ nhưng lại chẳng tài nào tìm được lý lẽ để phản bác.
 
-Trương Vân Thiến cũng bị nghẹn đến mức không nói nên lời.
+Trương Vân Thiến cũng bị chặn họng đến mức nghẹn đắng, không thốt nên được nửa lời.
 
-Há miệng mắc quai, Triệu Kim An không nợ nần bất kỳ ai ở đây cả. Hắn nhìn quanh một vòng, cuối cùng nhìn sang Mộc Dao đang rơm rớm nước mắt ở bên cạnh.
+Ăn của người thì miệng mềm, nhận của người thì tay ngắn. Triệu Kim An từ đầu đến cuối chẳng ăn một cọng rau, chẳng uống một ngụm nước, không nợ bất kỳ ai trong căn phòng này lấy nửa xu. Cậu đưa mắt nhìn quanh một vòng, cuối cùng dừng lại ở Mộc Dao, người đang đầm đìa nước mắt nhìn mình trân trân.
 
-"Nghe lời mẹ và dì em đi... Không có anh trai nào cả, chúng ta chỉ là bạn cùng lớp thôi."
+"Hãy nghe lời mẹ và dì út của em đi... Sau này không có anh trai em gái gì hết, giữa chúng ta chỉ đơn thuần là bạn học cùng lớp cấp ba mà thôi."
 
-Nửa câu sau, Triệu Kim An là nói cho tất cả mọi người có mặt ở đây nghe.
+Nửa câu sau, Triệu Kim An nói dõng dạc cho tất cả những người có mặt trong phòng cùng nghe thấy.
 
-Hắn không muốn đến tận Quận Sa rồi còn phải "gánh vác" cái danh nghĩa gì đó, để Trương Tuệ có cớ ra vào điều tiếng.
+Cậu tuyệt đối không muốn sau này khi lên thành phố Quận Sa học tập lại phải "gánh vác" thêm bất kỳ sự phiền toái hay ràng buộc mập mờ nào, để rồi lại trở thành cái cớ cho Trương Tuệ buông lời đàm tiếu.
 
-Nói xong, cũng chẳng đợi Mộc Dao có đồng ý hay không, Triệu Kim An liền xoay người rời đi.
+Nói xong, chẳng buồn bận tâm xem Mộc Dao có đồng ý hay không, Triệu Kim An dứt khoát xoay người rảo bước rời khỏi phòng bao.
 
-"Ba, mẹ! Sáng nay hai người đã hứa với con thế nào, tại sao lại làm như vậy!?"
+"Bố! Mẹ! Sáng nay bố mẹ đã hứa với con thế nào cơ mà, tại sao bố mẹ lại đối xử với anh ấy như thế?!"
 
-Nước mắt Mộc Dao không kìm được nữa mà tuôn rơi. Có lẽ chính câu nói "Vậy tại sao thời gian qua anh không thấy em ở chợ rau" của Triệu Kim An đã khiến cô không còn mặt mũi nào để đuổi theo hắn.
+Nước mắt Mộc Dao vỡ òa tuôn rơi như mưa. Có lẽ câu nói "Vậy tại sao suốt thời gian qua anh chưa từng thấy em xuất hiện ở khu chợ đầu mối lấy một lần" của Triệu Kim An đã đánh trúng vào nỗi hổ thẹn sâu kín nhất trong lòng cô, khiến cô cảm thấy nhục nhã, không còn mặt mũi nào để đuổi theo bước chân cậu nữa.
 
-"Xem đi, tôi đã bảo rồi mà, nội tâm của hạng người này nhạy cảm nhất, loại người này tôi gặp nhiều rồi."
+"Đấy, thấy chưa, tôi đã bảo từ trước rồi mà! Cái loại người này tâm lý tự ti và nhạy cảm lắm, loại này ngoài xã hội tôi gặp đầy ra rồi."
 
-Nhìn thấy cô cháu gái đang giận dữ trừng mắt nhìn mình, Trương Vân Thiến cười nói: "Mộc Dao, cháu cứ yên tâm đi, bây giờ nó đi hiên ngang thế thôi, đến Quận Sa rồi cũng sẽ lại tìm cháu thôi mà."
+Nhìn đứa cháu gái đang trừng mắt giận dữ nhìn mình, Trương Vân Thiến lại cười xòa phân bua: "Mộc Dao à, cháu cứ yên tâm đi. Bây giờ cậu ta tỏ ra dứt khoát, phong độ thế thôi, chứ lên đến Quận Sa rồi thì thế nào cũng lại lon ton tìm đến cháu cho mà xem."
 
-"Cũng không nhìn xem Mộc Dao nhà chúng ta ưu tú, xinh đẹp nhường nào..."
+"Cháu cũng phải nhìn lại xem Mộc Dao nhà mình xinh đẹp, xuất sắc đến nhường nào chứ..."
 
-"Dì nhỏ! Dì đừng nói nữa!"
+"Dì út! Dì im đi, đừng nói nữa!"
 
-Đại khái là họ đều tưởng rằng chuyện này không dễ kết thúc như vậy. Có câu "Nam truy nữ cách tầng núi, nữ truy nam cách tầng lụa", bây giờ là Mộc Dao không chịu buông tay.
+Có lẽ trong suy nghĩ của họ, chuyện này sẽ chẳng thể nào chấm dứt một cách dễ dàng như vậy được. Người ta thường có câu "Nam theo đuổi nữ cách một ngọn núi, nữ theo đuổi nam chỉ cách một lớp voan mỏng", huống hồ hiện tại là Mộc Dao nhất quyết không chịu buông tay.
 
-Chỉ có Trương Tuệ là thấp thoáng có một suy đoán, chàng trai này dường như có chút khác biệt.
+Duy chỉ có Trương Tuệ là lờ mờ dấy lên một mối hoài nghi sâu sắc. Chàng trai trẻ này... dường như có điều gì đó rất khác biệt so với người thường.
 
-Chẳng lẽ mình thật sự đã sai rồi sao?
+Chẳng lẽ... mình đã thực sự nhìn lầm người rồi sao?
 
 ...
 
-Thành phố Tư Tinh đứng trong top 3 về quy mô kinh tế tại Sâm Châu.
+Thành phố Tư Tinh là một trong ba đầu tàu kinh tế phát triển bậc nhất của khu vực Sâm Châu.
 
-Có thời điểm còn từng xếp thứ nhất.
+Thậm chí đã có thời kỳ nơi đây từng vươn lên giữ vị trí quán quân.
 
-Nơi này có nguồn tài nguyên than đá phong phú, còn có cả hồ Đông Giang.
+Nơi đây sở hữu nguồn tài nguyên than đá trù phú, cùng với danh thắng hồ Đông Giang tuyệt đẹp nức tiếng gần xa.
 
-Dưới cái nắng hè gay gắt, Triệu Kim An cầm một chai nước khoáng đứng bên lề đường, da đầu bị nắng chiếu đến phát nóng. Hắn theo thói quen giơ tay định vẫy một chiếc taxi chạy ngang qua.
+Dưới cái nắng hè chói chang như thiêu như đốt, Triệu Kim An cầm một chai nước khoáng đứng bên lề đường nhựa. Ánh nắng rọi xuống làm da đầu cậu nóng bừng bừng. Theo thói quen, cậu giơ tay định vẫy một chiếc taxi vừa trờ tới.
 
-Rồi lại hạ tay xuống.
+Nhưng rồi cậu lại từ từ hạ tay xuống.
 
-Đối với hắn hiện tại mà nói, đi taxi là quá xa xỉ.
+Đối với hoàn cảnh kinh tế hiện tại của cậu, việc đi taxi quả thực là một sự xa xỉ không cần thiết.
 
-Lúc này, điện thoại "tinh" một tiếng.
+Đúng lúc này, túi quần reo lên tiếng "ting".
 
-Du Phỉ: "Kim An, thế nào rồi?"
+Du Phi: *Kim An ơi, tình hình buổi gặp mặt thế nào rồi?*
 
-Triệu Kim An không hiểu tại sao Du Phỉ không đi hỏi Mộc Dao, nhưng vì Du Phỉ là vị "kim chủ" đã cấp cho hắn 4500 tệ, hắn cầm điện thoại lên, chẳng cần suy nghĩ mà nói thật.
+Triệu Kim An không hiểu sao Du Phi lại không đi hỏi Mộc Dao mà lại nhắn tin cho mình, nhưng nghĩ đến việc Du Phi chính là "nhà tài trợ vàng" vừa góp vốn 4.500 tệ cho mình, cậu cầm điện thoại lên, không chút đắn đo nhắn lại sự thật.
 
-Triệu Kim An: "Chia tay rồi."
+Triệu Kim An: *Chia tay rồi.*
 
-Ba chữ ngắn gọn, đơn giản rõ ràng.
+Vỏn vẹn ba chữ ngắn gọn, dứt khoát và rõ ràng.
 
-"Chia tay rồi?"
+"Chia tay rồi á?!"
 
-Nhìn tin nhắn, Du Phỉ thẩn người ra hồi lâu không phản ứng lại được, trong lòng vừa có chút tiếc nuối, lại vừa có một tia vui mừng nho nhỏ.
+Nhìn chằm chằm vào dòng tin nhắn trên màn hình, Du Phi ngẩn người hồi lâu không tài nào hoàn hồn lại được. Trong lòng cô vừa dâng lên nỗi tiếc nuối cho bạn thân, nhưng sâu thẳm bên trong lại nhen nhóm một niềm vui nho nhỏ, khó tả thành lời.
 
-"Kim An đúng là đồ thẳng nam, sao anh ấy có thể nói ra hai chữ 'chia tay' dễ dàng vậy chứ? Thẳng thắn quá đi, hai chữ chia tay không phải nên để con gái nói ra sao?"
+"Kim An đúng là đồ đàn ông thẳng đuột như khúc gỗ! Sao cậu ấy có thể tùy tiện thốt ra hai chữ 'chia tay' dễ dàng như thế cơ chứ? Nói năng thẳng thắn đến phát sợ. Hai chữ 'chia tay' chẳng phải nên để người con gái nói ra trước hay sao?"
 
-Không cần hỏi, Du Phỉ cũng đoán được đôi chút chuyện đã xảy ra.
+Chẳng cần hỏi cặn kẽ, Du Phi cũng đã lờ mờ đoán ra được phần nào cơ sự.
 
-Trong phòng khách, máy điều hòa đang thổi vù vù, nàng di chuyển thân hình thon thả, nằm bò trên sofa cầm điện thoại hỏi tiếp: "Tại sao vậy?"
+Trong phòng khách mát rượi với tiếng điều hòa thổi vù vù, cô uốn éo thân hình mềm mại nằm bò ra chiếc ghế sofa da êm ái, với lấy chiếc điện thoại gõ vội: *Tại sao lại thế hả cậu?*
 
-Thế nhưng nàng mãi vẫn không đợi được tin nhắn trả lời của Triệu Kim An.
+Tuy nhiên, cô chờ mãi, chờ mãi mà chẳng thấy Triệu Kim An nhắn tin hồi đáp.
 
-Đứng bên đường, Triệu Kim An nhìn chai nước khoáng trong tay. Do chênh lệch nhiệt độ, chai nước lấy từ tủ lạnh ra bám đầy những giọt nước li ti, đang thi nhau nhỏ xuống.
+Đứng bên lề đường, Triệu Kim An cúi đầu quan sát chai nước khoáng đang cầm trên tay. Do sự chênh lệch nhiệt độ, chai nước vừa lấy từ tủ đông ra đã phủ một lớp sương mù mỏng mảnh, từng giọt nước mát lạnh li ti ngưng tụ lại rồi trượt dài rơi xuống mặt đường.
 
 "Đông Giang Ấn Tượng?"
 
-Đúng vậy, tên của loại nước khoáng này chính là Đông Giang Ấn Tượng.
+Phải rồi, nhãn hiệu của chai nước khoáng này chính là "Đông Giang Ấn Tượng".
 
-Tên này không đến nỗi quê mùa, chỉ là mang tính cục bộ địa phương quá nặng.
+Tên gọi này không hẳn là quê mùa, chỉ có điều nó mang tính cục bộ địa phương quá nặng nề.
 
-Một tệ một chai, cái vỏ chai chỉ cần bóp nhẹ một cái là đã biến dạng dữ dội, so với các dòng khác như C'estbon hay Nông Phu Sơn Tuyền thì có sự chênh lệch rõ rệt, có vẻ như nó chỉ bán được với giá một tệ.
+Một tệ một chai. Vỏ chai nhựa mỏng tang, chỉ cần bóp nhẹ một cái là đã móp méo biến dạng thảm hại. Đem đặt cạnh những thương hiệu đình đám như Cestbon hay Nông Phu Sơn Tuyền thì quả thực có sự cách biệt quá đỗi rõ ràng. Dường như số phận của nó sinh ra chỉ để bán với cái giá rẻ mạt một tệ mà thôi.
 
-Tư Tinh là một thành phố có nguồn tài nguyên nước vô cùng phong phú, nhớ lại sau này những thương hiệu nước khoáng của Tư Tinh như Sĩ Chi Nguyên, Mãng Thâm Lâm, Đông Giang Linh, Đông Giang Lộ Tuyền, Đông Giang Băng, Mãng Sơn Tú Thủy...
+Tư Tinh vốn là một thành phố sở hữu nguồn tài nguyên nước vô cùng dồi dào và tinh khiết. Nhớ lại ở kiếp sau, hàng loạt nhãn hiệu nước khoáng đóng chai của Tư Tinh đua nhau mọc lên như nấm sau mưa: Sĩ Chi Nguyên, Mãng Thâm Lâm, Đông Giang Linh, Đông Giang Lộ Tuyền, Đông Giang Băng, Mãng Sơn Tú Thủy...
 
-Dường như không có thương hiệu nào thực sự bứt phá đi ra ngoài được.
+Thế nhưng dường như chẳng có lấy một thương hiệu nào thực sự bứt phá để bước chân ra thị trường toàn quốc.
 
-Nghĩ đến đây, Triệu Kim An lại bước vào tiệm tạp hóa, tủ lạnh đa số trưng bày các dòng sản phẩm Nông Phu Sơn Tuyền, C'estbon, Wahaha.
+Nghĩ đến đây, Triệu Kim An rảo bước tiến vào một tiệm tạp hóa ven đường. Trong tủ mát phần lớn đều là các sản phẩm quen thuộc của Nông Phu Sơn Tuyền, Cestbon và tập đoàn Wahaha.
 
-Lại chạy sang tiệm tạp hóa bên cạnh, tình hình cũng tương tự.
+Cậu lại chạy sang tiệm tạp hóa sát vách, tình hình trưng bày cũng chẳng khác biệt là bao.
 
-Đây còn là ở Tư Tinh, đại bản doanh cơ đấy.
+Đây lại đang là đất Tư Tinh, chính là "đại bản doanh" sân nhà của nguồn nước Đông Giang đấy.
 
-Sản lượng tiêu thụ mà tốt được thì mới lạ.
+Bày biện lép vế như thế này thì doanh số bán hàng không thảm hại mới là chuyện lạ.
 
-Đối với người tiêu dùng hiện nay, một chai nước khoáng một tệ rưỡi, hai tệ cũng chỉ là chuyện tiện tay mà thôi.
+Đối với người tiêu dùng ở thời điểm hiện tại, một chai nước khoáng giá một tệ rưỡi hay hai tệ chẳng qua chỉ là món đồ mua tiện tay trên đường đi mà thôi.
 
-Của ai trưng bày ở phía trước, vị trí đắc địa, người đó có sản lượng tốt.
+Nhãn hàng nào được trưng bày ở vị trí nổi bật, chiếm lĩnh tầm mắt người mua thì nhãn hàng đó ắt sẽ bán chạy.
 
-Đây cũng là lý do vì sao những nhân viên bán trầu cau thường xuyên đến tiệm tạp hóa để điều chỉnh giá hàng của mình, chiếm được vị trí đẹp nhất trên kệ hàng chính là chìa khóa của doanh số.
+Đó cũng chính là lý do vì sao những nhân viên tiếp thị kẹo cau thường xuyên lượn lờ qua các tiệm tạp hóa để điều chỉnh, sắp xếp lại quầy kệ của mình. Việc chiếm lĩnh vị trí đắc địa nhất trên quầy thu ngân chính là chìa khóa then chốt quyết định doanh số sống còn.
 
-Ở một tiệm tạp hóa nọ, Triệu Kim An còn thấy một loại đồ uống có ga đã biến mất từ lâu, Future Cola.
+Tại một tiệm tạp hóa nhỏ trong hẻm, Triệu Kim An còn bắt gặp một loại nước ngọt có ga đã biến mất từ rất lâu trên thị trường: Future Cola.
 
-Hắn lại mua thêm một chai Đông Giang Ấn Tượng, sau đó đến quán net tra cứu tài liệu, rồi đi in một bản sơ yếu lý lịch ở tiệm photocopy bên đường, cuối cùng bắt xe đến Công ty TNHH Nước uống Đông Giang Sơn Tuyền.
+Cậu mua thêm một chai Đông Giang Ấn Tượng nữa, rồi ghé vào một quán net công cộng để tra cứu các thông tin liên quan đến doanh nghiệp. Sau đó, cậu sang tiệm photocopy in ấn bên đường in một bản sơ yếu lý lịch hoàn chỉnh, rồi bắt xe đi thẳng tới Công ty TNHH Nước uống Đông Giang Sơn Tuyền.
 
-Một công ty có vốn đăng ký là hai triệu tệ.
+Một công ty có vốn điều lệ đăng ký trên giấy phép là 2 triệu tệ.
 
-Địa điểm văn phòng nằm trong một tòa nhà dân cư ngay ngã ba đường hướng về hồ Đông Giang.
+Trụ sở làm việc của công ty tọa lạc ngay tại một tòa nhà dân cư nằm cạnh ngã ba đường dẫn vào khu du lịch hồ Đông Giang.
 
-Phía dưới tòa nhà đậu vài chiếc xe mô tô ba bánh, bên trên có dán logo Đông Giang Ấn Tượng.
+Dưới chân tòa nhà có đỗ vài chiếc xe máy ba gác thùng chở hàng, bên hông xe có dán logo của nhãn hiệu Đông Giang Ấn Tượng.
 
-Triệu Kim An trả tiền xong, cầm sơ yếu lý lịch xuống xe, không ai ngăn cản, hắn trực tiếp đi cầu thang lên tầng hai, thấy một văn phòng có người liền gõ cửa.
+Triệu Kim An trả tiền xe, cầm tập hồ sơ xin việc bước xuống. Không có ai canh gác hay ngăn cản, cậu ung dung bước theo cầu thang bộ lên thẳng tầng hai. Nhìn thấy một căn phòng làm việc đang mở cửa có người bên trong, cậu liền đưa tay gõ nhẹ lên cánh cửa.
 
-"Chào anh, tôi đến ứng tuyển."
+"Xin chào, tôi đến đây để ứng tuyển."

@@ -1,185 +1,187 @@
-# Chương 71: Hắn....
+# Chương 71: Cậu ta...
 
-"các ngươi ngược lại là nghĩ hay thật!"
+> **Tiêu đề gốc**: 第71章 他....
 
-Tại bộ trưởng cười mắng một câu, một mặt nghiêm túc nói:"đều đứng đắn một chút, đây là trường học 7 0 tròn năm khánh, không chỉ có sư ca sư tỷ, còn có bớt dạy sảnh cùng thị lý lãnh đạo sẽ đến!"
+"Các cô các cậu mơ đẹp nhỉ!"
 
-"ban đêm 1 0 chút rượu cửa hàng sẽ an bài bữa ăn khuya điểm tâm, các nàng đã ăn xong, toàn bộ các ngươi lấy đi cũng không quan hệ, nhưng mà đừng xuống tay trước! Nhớ kỹ a!!!"
+Trưởng ban Vu mắng yêu một câu, vẻ mặt nghiêm túc nói: "Tất cả đứng đắn lại chút coi, đây là đại lễ kỷ niệm 70 năm thành lập trường, không chỉ có các anh chị cựu sinh viên mà còn có cả lãnh đạo Sở Giáo dục tỉnh và lãnh đạo thành phố tới dự nữa đấy!"
 
-"đây là trường học đoàn ủy vừa mới gọi điện thoại cố ý lời nhắn nhủ!"
+"Mười giờ tối khách sạn sẽ chuẩn bị điểm tâm ăn khuya, đợi bọn họ dùng xong, các cậu muốn lấy bao nhiêu mang về cũng được, nhưng tuyệt đối không được tranh ăn trước đâu đấy! Nhớ kỹ cho tôi!!!"
 
-Tại bộ trưởng nhìn một chút đám người, lại căn dặn một câu:"nếu như một phần vạn bị ủy khuất gì, trước tiên nhịn một chút, đừng với đang ầm ĩ lên, ngày mai ta thay người."
+"Đây là Đoàn trường vừa gọi điện dặn dò đặc biệt đấy!"
 
-"hiểu chưa?"
+Trưởng ban Vu nhìn quanh mọi người, lại dặn thêm một câu: "Nếu chẳng may có chịu ấm ức gì thì cứ ráng nhịn một chút, đừng có cãi cọ tay đôi với người ta, ngày mai tôi đổi người khác."
 
-Đám người nhẹ gật đầu, tại bộ trưởng người hay là không tệ của.
+"Rõ chưa?"
 
-Hắn lại dặn dò rồi vài câu an vị xe buýt trở về trường học.
+Mọi người gật đầu, Trưởng ban Vu quả thực đối xử với cấp dưới rất tốt.
 
-Trường học bỏ hết cả tiền vốn, bao hết nhà khách sạn năm sao, có lẽ là"kiệt xuất đồng học"tài trợ, dạng này tiền rất nhiều người nguyện ý lấy ra cướp lấy ra, xem như theo như nhu cầu.
+Anh ta dặn dò thêm vài câu rồi bắt xe buýt trở về trường.
 
-Trường học cần các nàng trở lại trường, mặt mũi sáng sủa.
+Trường lần này chịu chi bộn tiền, bao trọn một khách sạn năm sao, có lẽ cũng do các "cựu sinh viên kiệt xuất" tài trợ. Loại tiền này rất nhiều người sẵn sàng móc hầu bao, thậm chí tranh nhau chi, coi như đôi bên cùng có lợi.
 
-Các nàng cũng có thể thừa cơ kết giao nhân mạch.
+Trường học cần họ về thăm để làm rạng danh, nở mày nở mặt.
 
-Sư lớn tại tỉnh Tương Nam là sắp xếp đệ tứ của đại học, bớt dạy sảnh khẳng định muốn người tới, có lãnh đạo thành phố cũng không kỳ quái.
+Họ cũng nhân cơ hội này để móc nối, mở rộng quan hệ.
 
-Đừng quên, sư lớn hiệu trưởng cũng là thính cấp!
+Sư Đại là trường đại học đứng thứ tư tại tỉnh Tương Nam, Sở Giáo dục tỉnh chắc chắn sẽ cử người đến, có lãnh đạo thành phố cũng chẳng có gì lạ.
 
-Phòng khách quán rượu bên trong, đại gia ngồi ở trên ghế sa lon chơi điện thoại.
+Đừng quên rằng, Hiệu trưởng Sư Đại cũng là cán bộ hàm cấp Sảnh!
 
-Triệu Kim An phát giác có hai nữ sinh nhan trị cũng không tệ lắm, sư nhiều học viện âm nhạc hoà thuận vui vẻ thuật học viện, đơn thuần nữ sinh nhan trị muốn so bên trong nam cùng hồ đại cao cá cấp bậc.
+Trong sảnh khách sạn, mọi người ngồi trên ghế sô pha lướt điện thoại.
 
-"ngươi tên là gì, chúng ta thêm một cái Q Q."
+Triệu Kim An phát hiện có hai cô bạn tình nguyện viên ngoại hình khá xinh xắn. Sư Đại có Học viện Âm nhạc và Học viện Mỹ thuật, xét riêng về nhan sắc của nữ sinh thì cao hơn Trung Nam và Đại học Hồ Nam một bậc.
 
-Có cái nữ sinh chủ động hỏi Triệu Kim An, bất quá không có trò chuyện nhiều, tất cả mọi người trao đổi phương thức liên lạc.
+"Cậu tên là gì thế, bọn mình thêm QQ đi."
 
-Đại khái qua nửa giờ, có cái nam sinh nhận một cái điện thoại, nói trường học bên kia làm xong hội gặp mặt rồi, cũng liền đại biểu có người muốn ngủ lại quán rượu.
+Một nữ sinh chủ động hỏi Triệu Kim An, nhưng đôi bên cũng không trò chuyện nhiều, mọi người chỉ trao đổi phương thức liên lạc.
 
-Đám người đứng dậy đến cửa tửu điếm, mang theo người tình nguyện thẻ ngực.
+Khoảng nửa tiếng sau, có một nam sinh nhận điện thoại, bảo bên trường đã kết thúc buổi gặp mặt giao lưu, đồng nghĩa với việc khách khứa sắp đến khách sạn nhận phòng.
 
-"a, có duyên."
+Mọi người đứng dậy ra cửa khách sạn, đeo thẻ tình nguyện viên trước ngực.
 
-Triệu Kim An nhìn mình của thẻ ngực cười một tiếng.
+"Hơ, thú vị thật."
 
-Lại qua 2 0 phút, lục tục ngo ngoe có xe tới, lao vụt BMW còn có Audi cùng vương miện, có treo tương A của, càng phần lớn là treo nơi khác bảng số.
+Triệu Kim An nhìn tấm thẻ trên ngực mình, khẽ bật cười một tiếng.
 
-Sau khi xuống xe các nàng tại cửa tửu điếm hàn huyên, sư ca sư tỷ của hô, hăng hái.
+Lại qua hai mươi phút nữa, các đoàn xe lục tục kéo tới, Mercedes-Benz, BMW, rồi cả Audi lẫn Toyota Crown, có xe biển số Tương A của tỉnh lỵ, nhưng phần nhiều là xe mang biển số ngoại tỉnh.
 
-Từ nơi này cũng có thể thấy được địa vị, ai đứng C vị, ai liền lẫn vào tốt hơn.
+Bước xuống xe, họ đứng ngay trước cửa khách sạn chào hỏi rôm rả, tiếng gọi đàn anh, đàn chị vang lên không ngớt, ai nấy đều khí thế hiên ngang, phong độ ngời ngời.
 
-Mà bên trong thể chế của lại là cái kia vòng quan hệ.
+Nhìn vào đây là có thể thấy rõ vị thế xã hội: ai đứng ở vị trí trung tâm thì người đó lăn lộn ngoài đời khấm khá hơn.
 
-Xe của bọn hắn có thể không tốt, thậm chí không có lái xe, nhưng mà trường học an bài xe đưa đón.
+Còn những người trong biên chế nhà nước lại tạo thành một vòng tròn quan hệ riêng biệt.
 
-Người tình nguyện một loạt tiến lên tiếp dẫn từng cái sư ca sư tỷ tiến khách sạn, chỉ có Triệu Kim An một người đứng xa xa của chỉ nhìn không kiếm sống, không có một cái"có thể đánh"đó a.
+Xe của họ có thể không sang trọng, thậm chí chẳng tự lái xe tới, nhưng phía nhà trường đã chu đáo bố trí xe đưa đón tận nơi.
 
-Hắn đang suy nghĩ một vấn đề, có kiểm tra Tư Đặc xe thương vụ sao?
+Các tình nguyện viên ùa lên tiếp đón, dẫn đường cho từng vị đàn anh đàn chị vào khách sạn, duy chỉ có Triệu Kim An đứng cách đó một quãng xa, chỉ đứng nhìn chứ chẳng buồn động tay động chân, căn bản là chưa thấy nhân vật nào đủ "tầm cỡ".
 
-Ngồi kiểm tra Tư Đặc của bình thường vì sảnh cục cấp trở lên, bao quát cấp tỉnh cùng mà cấp thành phố lãnh đạo.
+Anh đang thắc mắc một điều, liệu có xe chuyên dụng Coaster nào tới không?
 
-Nói thật, Triệu Kim An đối với khách sạn đồ ăn không có hứng thú, nhưng đối với hai trăm khối một phần cơm hộp rất hiếu kì.
+Người ngồi xe Coaster thường phải từ cấp Sảnh Cục trở lên, bao gồm cả lãnh đạo cấp tỉnh và cấp địa thị.
 
-Hai trăm đồng tiền cơm hộp, bên trong có thứ gì a?
+Thú thật, Triệu Kim An chẳng có chút hứng thú nào với sơn hào hải vị của khách sạn, nhưng anh lại vô cùng tò mò về suất cơm hộp hai trăm tệ.
 
-"Triệu Kim An, ngươi lại lười biếng."
+Một suất cơm hộp trị giá hai trăm tệ thì bên trong rốt cuộc có những món gì nhỉ?
 
-Tại bộ trưởng lại trở về tới, gặp Triệu Kim An lười biếng có chút im lặng.
+"Triệu Kim An, cậu lại lười biếng rồi đấy."
 
-Cơ hội tốt như vậy cũng sẽ không cùng sư ca sư tỷ tìm cách thân mật sao, có thể nhận được ai của ưu ái, sau khi tốt nghiệp công việc đều giải quyết.
+Trưởng ban Vu lại quay lại, thấy Triệu Kim An đứng trơ ra một chỗ lười nhác thì có phần cạn lời.
 
-Cũng khó trách ở kiếp trước bành vĩnh lệ nói Triệu Kim An"không tiến bộ", không hiểu được nghiên cứu, lấy lòng người vuốt mông ngựa cũng sẽ không.
+Cơ hội ngàn năm có một thế này mà không biết tranh thủ bắt quàng làm họ với các đàn anh đàn chị, ngộ nhỡ lọt vào mắt xanh của ai đó thì chuyện công ăn việc làm sau khi tốt nghiệp coi như xong xuôi rồi.
 
-Triệu Kim An thấy ở tu nhiên người không tệ, liền tản điếu thuốc cho hắn.
+Cũng chẳng trách ở kiếp trước Bành Vĩnh Lệ từng chê Triệu Kim An "không có chí tiến thủ", chẳng biết luồn lách, xu nịnh lấy lòng người khác một chút nào.
 
-Tại tu nhiên xem xét mắt đầu mẩu thuốc lá, Hoàng Phù, nói:"ngươi xem một chút bọn hắn, cơ hội khó được, tiểu tử ngươi bộ dáng không tệ, vạn nhất có đôi chân dài sư tỷ.... Khục, đúng không?"
+Triệu Kim An thấy Vu Tu Nhiên là người tốt tính nên rút một điếu thuốc mời anh ta.
 
-Tại tu nhiên một bộ"ngươi hiểu"của thần sắc.
+Vu Tu Nhiên liếc nhìn đầu lọc, thuốc lá Phù Dung vàng, liền bảo: "Cậu nhìn bọn họ xem, cơ hội hiếm có thế này, tướng mạo cậu nhóc này lại khôi ngô tuấn tú, ngộ nhỡ có đàn chị chân dài nào... khụ, hiểu rồi chứ?"
 
-Triệu Kim An cười cười:"tại bộ trưởng, ngươi đang dạy hư ta."
+Vu Tu Nhiên nháy mắt làm ra vẻ "chú mày tự hiểu".
 
-Tại tu nhiên hít một ngụm khói, cười nói:"ngươi liền nói ngươi có muốn hay không đi, đôi chân dài, sư tỷ, tiền nhiều...."
+Triệu Kim An cười cười: "Trưởng ban Vu, anh đang dạy hư em đấy nhé."
 
-Đang nói chuyện, lại có chiếc Audi tới.
+Vu Tu Nhiên rít một hơi thuốc, cười bảo: "Cậu cứ nói thật xem có thích không nào, chân dài, đàn chị, lại còn lắm tiền nhiều của..."
 
-"tới sống."
+Đang nói dở thì lại có một chiếc Audi chạy tới.
 
-Tại tu nhiên lập tức ngậm miệng nghênh đón tiếp lấy.
+"Có việc rồi."
 
-Cửa tửu điếm còn có mấy người, bọn hắn một mực không tiến vào, giống như là đang chờ người nào, nhìn thấy tới xe cũng sắp chạy bộ tới, cúi đầu cúi người canh giữ ở bên cạnh xe.
+Vu Tu Nhiên lập tức ngậm miệng, tươi cười nghênh đón.
 
-Cửa xe mở ra, xuống hai cái 4 0 tới tuổi nữ nhân.
+Trước cửa khách sạn còn có mấy người đàn ông đứng đợi nãy giờ chưa chịu vào trong, dường như đang chờ đợi một nhân vật quan trọng nào đó. Thấy chiếc xe chạy tới, họ vội vã rảo bước đi sang, khúm núm cúi người túc trực bên sườn xe.
 
-Tài xế lập tức xuống xe từ sau chuẩn bị rương lấy ra xe lăn.
+Cửa xe mở ra, hai người phụ nữ trạc bốn mươi tuổi bước xuống trước.
 
-"gì tình huống!?"
+Tài xế nhanh chóng xuống xe, lấy từ cốp sau ra một chiếc xe lăn.
 
-Tại tu nhiên trợn tròn mắt, đôi chân dài nhỉ?
+"Tình hình gì thế này!?"
 
-Liền thấy xếp sau ngồi một cái tuyệt đỉnh nữ nhân xinh đẹp, chính là giống như.... Chân không thể động?
+Vu Tu Nhiên ngẩn tò te, chân dài đâu chẳng thấy?
+
+Chỉ thấy ở hàng ghế sau là một người phụ nữ đẹp đến mê hồn, chỉ có điều dường như... đôi chân không cử động được?
 
 "Tô tiểu thư."
 
-Đây là hai nữ nhân đối với xe vợ của xưng hô, đứng mấy nam nhân xưng hô chính là"Tô chủ nhiệm."
+Đó là cách hai người phụ nữ xưng hô với người ngồi trong xe, còn mấy người đàn ông đang đứng kia thì cung kính gọi: "Tô Chủ nhiệm."
 
-Bọn hắn một mực chưa đi đến khách sạn, chính là đang chờ nàng.
+Họ nán lại trước cửa khách sạn suốt từ nãy đến giờ chính là để chờ cô.
 
-Tại tu nhiên cùng hai người nam người tình nguyện không biết làm sao làm, bọn hắn ngược lại là muốn giúp đỡ, bất quá người bên trong xe trên mặt giống như viết"người lạ chớ tới gần"bốn chữ.
+Vu Tu Nhiên cùng hai nam tình nguyện viên luống cuống không biết phải làm sao. Họ cũng muốn tiến tới giúp đỡ, nhưng sắc mặt người phụ nữ trong xe cứ như viết sẵn bốn chữ "người lạ chớ gần".
 
-Bên trong một cái nữ nhân nói:"không cần các ngươi, chúng ta tới."
+Một trong hai người phụ nữ lên tiếng: "Không cần các cậu đâu, để chúng tôi làm."
 
-Tô xa lại dựa vào thành ghế, lạnh lùng mở miệng:"hắn."
+Nhưng Tô Miến tựa vào lưng ghế, lạnh lùng cất lời: "Cậu ta."
 
-Đám người tìm tầm mắt của nàng nhìn về phía"trốn"ở phía sau Triệu Kim An, Triệu Kim An chỉ chỉ chính mình, xác nhận sau mới tại hai nữ nhân trong lúc kinh ngạc đi tới.
+Mọi người theo ánh mắt của cô nhìn về phía Triệu Kim An đang đứng "trốn việc" phía sau. Triệu Kim An đưa ngón tay tự chỉ vào mình, sau khi xác nhận lại thì mới bước tới giữa ánh mắt kinh ngạc của hai người phụ nữ.
 
-Hắn cũng không nghĩ đến lại ở chỗ này lần nữa gặp phải nữ nhân này.
+Chính anh cũng không ngờ lại tái ngộ người phụ nữ này ở nơi đây.
 
-"Tô tiểu thư...."
+"Tô tiểu thư..."
 
-Nữ nhân há to miệng, đây là nam nhân a.
+Người phụ nữ há hốc miệng định can ngăn, đây là con trai mà.
 
-Các nàng biết tô xa có bao nhiêu khó khăn phục dịch, cũng không phải có bao nhiêu khó khăn phục dịch, cũng không biết nơi đó liền không hợp nàng tâm ý không hiểu phát rất lớn tính khí, cũng may chị dâu nàng cho nhiều tiền, không phải vậy bảo mỗ này người nào thích làm ai làm.
+Họ thừa biết Tô Miến khó hầu hạ đến mức nào, cũng không hẳn là khó tính, mà là chẳng biết chỗ nào không vừa mắt liền vô cớ nổi cơn thịnh nộ. May mà chị dâu cô trả lương rất cao, bằng không công việc bảo mẫu này ai thèm làm chứ.
 
-Hai nữ nhân liếc nhau, một mặt không thể tưởng tượng nổi tránh ra vị trí.
+Hai người phụ nữ đưa mắt nhìn nhau, đầy vẻ khó tin rồi lùi lại nhường chỗ.
 
-Đang lúc mọi người chăm chú.
+Dưới sự chăm chú dõi theo của bao nhiêu ánh mắt.
 
-Triệu Kim An cúi người tiến vào trong xe, một tay quơ lấy tô xa hai chân một tay đỡ lấy cõng ôm ra:"xe lăn."
+Triệu Kim An khom người nghiêng mình vào trong xe, một tay vòng qua bế lấy đôi chân Tô Miến, một tay đỡ lấy lưng cô nhấc bổng ra ngoài: "Xe lăn."
 
-Tài xế mau đem xe lăn đẩy gần một chút, cũng không dám đưa tay giúp một điểm vội vàng.
+Tài xế vội vàng đẩy xe lăn lại gần hơn, nhưng tuyệt nhiên không dám thò tay vào phụ giúp dù chỉ một chút.
 
-"ta sát, xinh đẹp như vậy!?"
+"Vãi thật, đẹp đến thế cơ à!?"
 
-Tại tu nhiên trừng to mắt, vừa rồi trong xe ánh mắt không tốt không thấy rõ, khác người tình nguyện cũng không khá hơn chút nào, những nam nhân kia từng cái há to mồm.
+Vu Tu Nhiên trố mắt kinh ngạc, vừa rồi ánh sáng trong xe mờ mờ nên chưa nhìn rõ. Những tình nguyện viên khác cũng chẳng khá hơn là bao, mấy cậu nam sinh ai nấy há hốc mồm kinh ngạc.
 
-"ta cũng nghĩ ôm a....."
+"Mình cũng muốn bế quá..."
 
-Duy nhất khuyết điểm, chính là chân....
+Điểm nuối tiếc duy nhất chính là đôi chân kia...
 
-Tô xa hơi hơi nhíu mày.
+Tô Miến khẽ cau mày.
 
-Triệu Kim An nhỏ giọng nói:"ta không có làm đau ngươi."
+Triệu Kim An khẽ nói nhỏ: "Tôi không làm cô đau đâu."
 
-Tài xế: (° д °)
+Tài xế: ( °д°)
 
-Ngươi còn mạnh miệng!?
+Cậu còn dám cãi lại cơ à!?
 
-Hai cái bảo mẫu dọa kêu to một tiếng, liền đợi đến tô xa bão nổi.
+Hai người bảo mẫu giật bắn mình thảng thốt, chỉ chờ Tô Miến bùng nổ cơn lôi đình.
 
-Kết quả tô xa nói:"ngươi đẩy ta đi vào."
+Thế nhưng Tô Miến lại nói: "Cậu đẩy tôi vào trong."
 
-Hai cái bảo mẫu lại là sững sờ.
+Hai bảo mẫu lại sững sờ thêm lần nữa.
 
-"gì tình huống!?"
+"Chuyện quái gì thế này!?"
 
-Tài xế xem xét mắt Triệu Kim An, bọn người sau khi rời đi, nhanh chóng lấy điện thoại di động ra hồi báo:"lão bản, vừa mới Tô tiểu thư là một cái nam sinh ôm xuống xe, còn có...."
+Tài xế liếc nhìn bóng lưng Triệu Kim An, đợi nhóm người đi khuất liền vội vàng rút điện thoại ra báo cáo: "Thưa sếp, vừa rồi Tô tiểu thư được một nam sinh bế xuống xe, ngoài ra..."
 
-Tỉnh Tương Nam J khu, cán bộ nòng cốt biệt thự thứ 3 2 hào.
+Khu Quân sự tỉnh Tương Nam, biệt thự cán bộ cao cấp số 32.
 
-Một cái 3 0 nhiều tuổi của nữ nhân, phùng như đan một mặt ngạc nhiên vấn đạo:"muội muội của ngươi để một cái nam sinh ôm xuống xe?"
+Một người phụ nữ ngoài ba mươi tuổi tên Phùng Nhược Đan ngạc nhiên hỏi: "Em gái anh chịu để một nam sinh bế xuống xe á?"
 
-Tô cảnh đi nhận được điện thoại cũng rất kinh ngạc, hắn vuốt vuốt huyệt thái dương:"ngươi để cho nàng đi góp náo nhiệt này làm gì?"
+Tô Cảnh Hành nhận được điện thoại cũng hết sức bất ngờ, ông đưa tay day day huyệt thái dương: "Em để con bé đi tham gia cái lễ hội này làm gì không biết?"
 
-"ngươi lo lắng như vậy muội muội, tại sao không đi?"
+"Anh lo lắng cho em gái như vậy, sao bản thân không tự đi?"
 
-Phùng như đan cười nói:"chẳng lẽ sư lớn không có cho ngươi gửi thư mời?"
+Phùng Nhược Đan cười bảo: "Chẳng lẽ Sư Đại không gửi giấy mời cho anh à?"
 
-"bọn hắn dám không!?"
+"Họ dám không gửi sao!?"
 
-Tô cảnh đi nhóm lửa một điếu thuốc lá:"ta cái này chức vị đi thích hợp không?"
+Tô Cảnh Hành châm một điếu thuốc: "Nhưng vị trí này của anh đến đó có thích hợp không?"
 
-"tốt, muội muội của ngươi đang giáo dục bộ phận treo trách nhiệm, cũng coi như danh chính ngôn thuận."
+"Được rồi, em gái anh giữ một chức danh bên Bộ Giáo dục, đi dự cũng coi như danh chính ngôn thuận."
 
-Phùng như đan bưng tới tắm xong hoa quả:"lại nói, tô xa tới quận cát chính là tới giải sầu của, ngươi đem nàng mỗi ngày nhốt trong nhà, đó cùng tại kinh đô khác nhau ở chỗ nào?"
+Phùng Nhược Đan bưng đĩa hoa quả vừa rửa sạch tới: "Hơn nữa, Tô Miến đến Quận Sa cốt là để khuây khỏa tâm trạng, anh cứ nhốt con bé trong nhà suốt ngày thì khác gì ở Kinh Đô đâu?"
 
-"các ngươi nha, chính là quá đối đãi khác biệt nàng."
+"Mấy người các anh đấy, chỉ giỏi đối xử phân biệt với con bé quá mức."
 
-"đại ca bên đó đây?"tô cảnh đi vấn đạo.
+"Bên anh cả thế nào rồi?" Tô Cảnh Hành hỏi.
 
-Phùng như đan cười nói:"đại tẩu một ngày mấy cái điện thoại, hô tô xa đi nàng bên kia chơi, ngươi cùng đại ca nha, a, đại ca bận rộn như vậy của người trả lại cho ta gọi điện thoại."
+Phùng Nhược Đan cười nói: "Chị dâu cả ngày nào chẳng gọi mấy cuộc, bảo Tô Miến sang bên đó chơi. Anh với anh cả ấy à, hừ, anh cả bận rộn trăm công nghìn việc như thế mà vẫn gọi điện dặn dò em."
 
-Tô cảnh đi cười:"chúng ta chỉ như vậy một cái muội muội."
+Tô Cảnh Hành bật cười: "Chúng anh chỉ có duy nhất một đứa em gái này thôi mà."
 
-"đinh linh linh."
+"Reng... reng... reng..."
 
-Lúc này điện thoại lại vang lên, phùng như đan nhận điện thoại nói:"nam sinh kia đẩy ngươi muội muội tiến phòng khách sạn rồi
+Lúc này chuông điện thoại lại vang lên, Phùng Nhược Đan bắt máy rồi quay sang nói: "Cậu nam sinh đó đẩy em gái anh vào phòng khách sạn rồi..."

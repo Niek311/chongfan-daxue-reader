@@ -1,181 +1,187 @@
-# Chương 77: Tôi Ra Ngoài Một Chút
+# Chương 77: Tao ra ngoài một lát
 
-Phật Sơn.
+> **Tiêu đề gốc**: 第77章 我出去下。
 
-Với phương châm tiết kiệm được chút nào hay chút nấy, nhóm Triệu Kim An thuê một khách sạn bình dân. Sau mười hai giờ đêm, hắn nhận được tin nhắn từ Từ Mạn Mạn.
+Tại Phật Sơn.
 
-Vỏn vẹn hai chữ đơn giản: "Cảm ơn."
+Với phương châm tiết kiệm được đồng nào hay đồng nấy, nhóm người Triệu Kim An chỉ thuê một khách sạn bình dân dạng chuỗi để nghỉ chân. Quá mười hai giờ đêm, cậu mới nhận được tin nhắn hồi âm từ Từ Mạn Mạn.
 
-Ngày hôm sau, lễ Giáng sinh.
+Nội dung chỉ vỏn vẹn hai chữ giản dị:
 
-Cả nhóm tiếp tục tìm đến các công xưởng để thương thảo hợp đồng.
+[Cảm ơn.]
 
-Trước cửa khách sạn, Đơn Vĩ đã lái xe tới từ sớm, đỗ bên lề đường rồi còn xuống xe mở cửa. Triệu Kim An thản nhiên ngồi vào hàng ghế sau, khiến Lạc Cẩn Chi bất chợt bật cười một tiếng.
+Hôm sau là ngày lễ Giáng sinh.
 
-"Kim An, cậu chỉ thiếu mỗi một thư ký nữa thôi đấy."
+Cả nhóm lại tiếp tục hành trình đi tìm các nhà xưởng để đàm phán hợp đồng.
 
-Triệu Kim An nói nhỏ: "Không làm vậy thì ai trong số các chị coi tôi là ông chủ?"
+Trước cửa khách sạn, Đan Vĩ đã sớm đánh chiếc Range Rover tới đỗ bên lề đường. Anh nhanh nhẹn xuống xe, vòng ra sau mở cửa cung kính. Triệu Kim An đường hoàng ung dung bước vào hàng ghế sau ngồi. Thấy cảnh tượng ấy, Lạc Cẩn Chi bất chợt bật cười thành tiếng.
 
-Lạc Cẩn Chi nhìn Triệu Kim An hồi lâu, nụ cười càng thêm rạng rỡ.
+"Kim An à, trông em bây giờ chỉ thiếu mỗi một cô thư ký xinh đẹp đi kèm nữa thôi đấy."
 
-Triệu Kim An nói: "Chị cũng biết mua xe Land Rover để phô trương thanh thế mà. Công ty bây giờ chưa có nhiều tiền, lại không có danh tiếng, ra ngoài bàn chuyện làm ăn chỉ có thể bày ra chút phô trương thôi, có những người chỉ tin vào bộ mặt này."
+Triệu Kim An hạ thấp giọng, cười nói: "Không làm màu như thế này thì trong số các người ai chịu xem tôi là ông chủ cơ chứ?"
 
-Lạc Cẩn Chi gật đầu: "Vậy lát nữa tôi đóng vai thư ký cho cậu nhé?"
+Lạc Cẩn Chi nhìn Triệu Kim An hồi lâu, nụ cười càng thêm vẻ thích thú, rạng rỡ.
 
-Triệu Bác Lan ngồi bên cạnh cười nói: "Lạc tổng, chị nói vậy làm tôi có cảm giác chúng ta giống như một băng nhóm lừa đảo vậy."
+Triệu Kim An thong thả nói tiếp: "Chính chị cũng biết đường tậu hẳn một chiếc Range Rover để làm sang lấy thể diện đấy thôi. Công ty chúng ta hiện giờ vốn liếng chẳng có bao nhiêu, tiếng tăm lại chưa có, bước chân ra ngoài bàn chuyện làm ăn thì bắt buộc phải phô trương thanh thế một chút. Khối người ngoài kia chỉ nhìn vào cái mã bề ngoài mà đối đãi đấy."
 
-Hôm qua lúc đi công tác, cô nhận được điện thoại của Chu Sở Hân mới thú nhận rằng Triệu Kim An là cổ đông lớn nhất của công ty.
+Lạc Cẩn Chi gật đầu tán đồng: "Vậy lát nữa để chị đóng vai thư ký cho em nhé?"
 
-Kết quả là cô nàng Chu Sở Hân cứ nằng nặc đòi đến công ty làm việc. Triệu Bác Lan không đề cập chuyện này với Triệu Kim An, chỉ nói công ty còn nhỏ, mới khởi nghiệp, phòng tài vụ chưa có ý định tuyển người.
+Triệu Bác Lan ngồi ở ghế phụ lái ngoái đầu lại, bật cười: "Lạc tổng, nghe hai người bàn bạc thế này, em cứ có cảm giác chúng ta giống như một băng nhóm lừa đảo chuyên nghiệp ấy."
 
-Thực tế công ty không hề nhỏ, chỉ là ra khỏi Sâm Thành thì không ai biết đến mà thôi.
+Hôm qua trong lúc đi công tác, nhận được điện thoại của Chu Sở Hân, Triệu Bác Lan mới thú thật với cô bạn rằng Triệu Kim An chính là cổ đông lớn nhất của công ty.
 
-Tuy nhiên phòng tài vụ đúng là chưa định tuyển thêm, hiện tại một kế toán và một thủ quỹ là đủ rồi. Chuyện này Triệu Bác Lan vẫn chưa nói với người nhà, chỉ bảo mình đang làm việc ở công ty của Triệu Kim An.
+Vừa nghe xong, con bé Chu Sở Hân lập tức nằng nặc đòi nộp đơn vào công ty làm việc. Triệu Bác Lan không hề nhắc chuyện này với Triệu Kim An, chỉ bảo với Chu Sở Hân rằng công ty quy mô còn rất nhỏ, mới ở giai đoạn chập chững khởi nghiệp, phòng tài chính chưa có kế hoạch tuyển thêm người.
 
-Trong lòng những người ở Triệu Kim An Gia thôn, "Đông Giang Ấn Tượng" của Lạc Cẩn Chi đã là một công ty rất lớn rồi.
+Thực tế thì công ty cũng không hề nhỏ, chỉ có điều hễ bước chân ra khỏi ranh giới đất Sâm Châu thì chẳng mấy ai biết đến.
 
-Triệu Bác Lan rất muốn biết sau khi Đoạn Thu Bình biết chuyện thì bà sẽ nghĩ gì.
+Song phòng tài chính quả thực chưa cần tuyển thêm nhân sự, hiện tại một kế toán và một thủ quỹ là đã đủ để vận hành trơn tru. Chuyện bản thân đang làm việc trong công ty của Triệu Kim An, Triệu Bác Lan vẫn chưa hề hé răng nửa lời với gia đình ở quê.
 
-Đặc biệt là gia đình họ Tống kia.
+Trong mắt những người dân làng Triệu gia, công ty "Đông Giang Ấn Tượng" của Lạc Cẩn Chi vốn đã là một doanh nghiệp vô cùng bề thế và hoành tráng rồi.
 
-Triệu Bác Lan biết rõ Tống Siêu Văn chưa từng "nuôi dưỡng" Triệu Kim An lấy một ngày. Tống Siêu Văn chỉ mới đến Triệu Kim An Gia thôn một lần để gặp bà nội của Triệu Kim An, dù sao thì Đoạn Thu Bình cũng là con dâu nhà họ Triệu Kim An.
+Triệu Bác Lan rất tò mò không biết nếu sau này thím Đoạn Thu Bình biết được sự thật này thì sẽ có phản ứng ra sao.
 
-Vì lễ tiết, Tống Siêu Văn phải mang lễ vật đến gặp mặt bà nội một lần.
+Đặc biệt là cả cái gia đình họ Tống kia nữa.
 
-Cả nhóm nán lại Phật Sơn bốn ngày mới có một xưởng sản xuất chịu nhượng bộ.
+Triệu Bác Lan biết rất rõ Tống Siêu Văn chưa từng bỏ ra một đồng cắc nào để "nuôi nấng" Triệu Kim An dù chỉ một ngày. Tống Siêu Văn cả đời mới chỉ về thăm làng Triệu gia đúng một lần duy nhất để chào bà nội của Triệu Kim An, dẫu sao trên danh nghĩa Đoạn Thu Bình cũng từng là con dâu của nhà họ Triệu.
 
-"Triệu tổng, cậu chỉ thanh toán trước ba thành tiền hàng, giá lại ép thấp như vậy..."
+Theo phép tắc lễ nghi tối thiểu ở đời, Tống Siêu Văn buộc phải xách chút quà cáp đến diện kiến bà nội một lần cho phải phép.
 
-Ông chủ tên là Lưu Xuyên, công xưởng không lớn, có lẽ do tình hình kinh doanh không mấy khả quan nên mới chấp nhận đánh cược một lần. Triệu Kim An nói: "Lưu lão bản, chúng ta đã ký hợp đồng rồi mà."
+Cả nhóm nán lại Phật Sơn ròng rã suốt bốn ngày trời, cuối cùng mới có một chủ xưởng sản xuất chịu xuôi lòng nhượng bộ.
 
-Lưu Xuyên muốn nói lại thôi: "Triệu tổng, người thông minh không nói lời mập mờ, vạn nhất công ty của cậu... dù tôi có cầm hợp đồng đánh thắng kiện thì biết đi tìm ai đòi tiền?"
+"Triệu tổng à, bên cậu chỉ chịu thanh toán trước có ba mươi phần trăm tiền hàng, mà giá cả lại ép xuống sát ván thế này..."
 
-"Chỉ nợ gối đầu bốn tháng thôi."
+Vị chủ xưởng tên là Lưu Xuyên. Xưởng của ông ta quy mô không lớn, có lẽ vì tình hình kinh doanh dạo gần đây ế ẩm, khó khăn nên mới chịu bấm bụng đánh cược một phen. Triệu Kim An mỉm cười nói: "Lưu lão bản, chúng ta làm việc đều có hợp đồng pháp lý rõ ràng mà."
 
-"Bốn tháng là khoảng thời gian rất dài đấy, cậu cứ trì hoãn một chút là có thể khiến cái xưởng nhỏ này của tôi phá sản rồi."
+Lưu Xuyên ấp úng, ngập ngừng: "Triệu tổng, người ngay thẳng không nói chuyện vòng vo. Vạn nhất công ty của cậu xảy ra chuyện gì... thì dù tôi có cầm bản hợp đồng này đi kiện thắng kiện ở tòa án, tôi biết đi tìm ai để đòi tiền đây?"
 
-Lưu Xuyên hậm hực nói: "Tôi là đang đem cả gia sản ra để cược với cậu đấy."
+"Thời hạn công nợ gối đầu chỉ có bốn tháng thôi mà."
 
-Triệu Kim An cười đáp: "Lợi nhuận cao một chút thì sẽ không phá sản sao?"
+"Bốn tháng là một khoảng thời gian rất dài đấy! Cậu chỉ cần dây dưa, chậm trễ thanh toán một chút là cái xưởng bé tí teo này của tôi sập tiệm phá sản như chơi."
 
-Lưu Xuyên bảo: "Lợi nhuận cao thì lòng tôi cũng thoải mái hơn chút, nếu không thì đúng là làm không công, thật sự chẳng kiếm được bao nhiêu tiền cả. Cô thư ký họ Lạc và cô kế toán họ Kim An của cậu quá biết mặc cả."
+Lưu Xuyên giọng điệu bực dọc, rầu rĩ: "Tôi đây là đang đem cả gia tài tính mạng ra để đánh cược với cậu đấy."
 
-"Cậu nhìn xem, tủ đông tốt như thế mà các cô ấy ép giá tôi xuống còn 420 tệ một chiếc."
+Triệu Kim An mỉm cười hỏi: "Nếu nâng lợi nhuận lên cao một chút thì xưởng của chú sẽ không lo sập tiệm chứ gì?"
 
-"Chắc hẳn các người cũng đã đi xem các xưởng khác rồi, có nhà nào có giá trị sử dụng so với giá thành cao hơn của tôi không?"
+Lưu Xuyên thở dài: "Lợi nhuận cao hơn một chút thì trong lòng tôi cũng cảm thấy an ủi, bằng không đúng là công cốc nhọc nhằn, thực sự chẳng kiếm chác được bao nhiêu đâu. Cô thư ký Lạc với cô kế toán Triệu của cậu ép giá quá tài tình."
 
-Lưu Xuyên xòe một bàn tay ra: "Mỗi chiếc tăng thêm 50 tệ, ký hợp đồng ngay lập tức."
+"Cậu nhìn xem, tủ đông mát chất lượng tốt như thế này mà hai cô ấy ép giá tôi xuống còn có bốn trăm hai mươi tệ một chiếc."
 
-Triệu Kim An liếc nhìn Lạc Cẩn Chi rồi nói: "Tăng 20 tệ, nếu được thì ký hợp đồng ngay bây giờ."
+"Chắc các cậu cũng đã đi khảo sát nát các xưởng khác rồi, làm gì có chỗ nào tỉ lệ hiệu năng trên giá cả tốt bằng xưởng của tôi?"
 
-Lưu Xuyên vẫn còn do dự.
+Lưu Xuyên xòe bàn tay năm ngón ra: "Mỗi chiếc tăng thêm năm mươi tệ, tôi lập tức đặt bút ký hợp đồng ngay."
 
-Lạc Cẩn Chi lên tiếng: "Lưu lão bản, nhìn xa trông rộng một chút đi. Tăng thêm 50 tệ thì có khối người tranh nhau làm, ông cũng có thể đến Sâm Thành khảo sát, nhà máy nước nằm ngay tại đó."
+Triệu Kim An liếc mắt nhìn sang Lạc Cẩn Chi, rồi thong thả cất lời: "Tăng thêm hai mươi tệ. Nếu chú đồng ý thì chúng ta ký hợp đồng ngay bây giờ."
 
-"Nếu ông hợp tác với chúng tôi, sang năm e rằng phải đầu tư thêm thiết bị để nâng cao sản lượng đấy."
+Lưu Xuyên vẫn còn tỏ vẻ đắn đo, do dự.
 
-Lưu Xuyên nhìn quanh xưởng nhỏ của mình, lúc này mới nghiến răng dậm chân một cái.
+Lạc Cẩn Chi liền mở lời tiếp ứng: "Lưu lão bản, làm ăn thì nên nhìn xa trông rộng một chút. Nếu tăng thêm năm mươi tệ thì ngoài kia có biết bao nhiêu xưởng tranh nhau nhảy vào làm rồi. Chú hoàn toàn có thể cử người đến tận Sâm Châu để khảo sát thực tế, nhà máy nước của chúng tôi sừng sững ở ngay đó. Nếu hợp tác thuận lợi với chúng tôi, sang năm chú cứ chuẩn bị tinh thần đầu tư thêm máy móc dây chuyền để nâng cao công suất đi là vừa."
 
-Cược vậy!
+Lưu Xuyên đưa mắt nhìn quanh xưởng sản xuất nhỏ bé của mình, cuối cùng cắn chặt răng, giậm mạnh chân một cái.
 
-Triệu Bác Lan nhẩm tính một chút, 440 tệ một chiếc, 15.000 chiếc, tiền trong tài khoản công ty coi như cạn sạch. Vậy mà Triệu Kim An và Lạc Cẩn Chi trông cứ như vừa đánh thắng một trận lớn vậy.
+Đánh cược một phen!
 
-"Mấy người làm ông chủ này có phải chỉ cần là tiền nợ thì đều không lo lắng gì đúng không?"
+Triệu Bác Lan ngồi nhẩm tính nhanh trong đầu: Bốn trăm bốn mươi tệ một chiếc, tổng cộng mười lăm nghìn chiếc, toàn bộ số tiền trên sổ sách của công ty coi như sẽ sạch bách. Vậy mà trông bộ dạng của Triệu Kim An và Lạc Cẩn Chi cứ hớn hở như thể vừa đánh thắng một trận đại hồng thủy.
 
-Lúc quay về Quận Sa thì đã gần đến Tết Dương lịch, Lạc Cẩn Chi trực tiếp trở về Sâm Thành. Triệu Kim An vẫn lẻ bóng một mình, đừng nói đến "Tu La Trường", ngay cả một đối tượng mập mờ cũng không có.
+"Mấy người làm ông chủ này, chẳng lẽ cứ hễ là tiền nợ công nợ thì trong lòng không biết lo lắng, sốt ruột là gì hay sao?"
 
-Thật ra đêm Bình An hôm đó, Thẩm Tử Ngôn, Diêu Tân và Du Phỉ đều đã gửi tin nhắn cho Triệu Kim An, còn có cả Chu Sở Hân và Lâm Thanh Tuyết nữa.
+***
 
-Mộc Dao đã bị chặn, còn Từ Mạn Mạn thì không gửi.
+Khi cả nhóm quay trở lại Quận Sa thì trời đã cận kề Tết Dương lịch. Lạc Cẩn Chi đi thẳng một mạch về Sâm Châu. Triệu Kim An lại trở về với cảnh cô đơn lẻ bóng, đừng nói đến chuyện vướng vào mấy màn tranh giành tình cảm rắc rối, đến một đối tượng mập mờ để trò chuyện cậu cũng chẳng có.
 
-Ngày hôm đó sau khi làm xong việc, hắn mở QQ đang để chế độ ẩn danh lên, nhìn qua danh sách bạn bè một lượt nhưng chẳng có hứng thú trò chuyện với ai. Hắn vô thức nhấp vào khung tìm kiếm, thử nhập số QQ của Trần Thanh Trĩ.
+Thực ra vào đêm Giáng sinh hôm ấy, Thẩm Tử Ngôn, Diêu Sân và Du Phi đều có gửi tin nhắn chúc mừng cho Triệu Kim An, ngoài ra còn có cả Chu Sở Hân và Lâm Thanh Tuyết.
 
-Sau vài lần thử mới đúng, ảnh đại diện của nàng đang màu xám.
+Riêng Mộc Dao thì đã bị cậu cho vào danh sách đen, còn Từ Mạn Mạn thì tuyệt nhiên không thấy động tĩnh gì.
 
-Lúc này Triệu Bác Lan đến gõ cửa, hỏi hắn vẫn chưa tan làm sao, cùng nhau về trường.
+Hôm nay sau khi giải quyết xong xuôi công việc ở văn phòng, Triệu Kim An mở giao diện QQ đang để chế độ ẩn danh lên. Nhìn lướt qua danh sách bạn bè một lượt, cậu chẳng có chút hứng thú trò chuyện cùng ai. Theo quán tính vô thức, ngón tay cậu bấm vào ô tìm kiếm, gõ thử dãy số QQ của Trần Thanh Trĩ trong ký ức kiếp trước.
 
-Triệu Kim An tiện tay nhấn gửi yêu cầu kết bạn rồi tắt máy tính đi ra ngoài.
+Sau vài lần gõ thử các biến thể số, cuối cùng cậu cũng tìm đúng tài khoản. Ảnh đại diện của cô lúc này đang hiển thị màu xám xịt.
 
-Trên đường về trường, Triệu Bác Lan ngồi ở ghế phụ, cô nói tình hình tài chính của công ty không được tốt cho lắm, công ty vẫn còn nợ ngân hàng bốn triệu tệ, may mà dòng sản phẩm "Đông Giang" ở Tư Tinh của Lạc Cẩn Chi vẫn duy trì được mức thu chi cân bằng.
+Đúng lúc đó, Triệu Bác Lan gõ cửa bước vào, hỏi cậu đã tan làm chưa để cùng nhau bắt xe buýt về trường.
 
-Chi phí sinh hoạt hằng ngày và lương nhân viên không cần phải động đến khoản vốn của dòng sản phẩm "Trăn Nhiên".
+Triệu Kim An tiện tay nhấp chuột vào nút gửi lời mời kết bạn, sau đó tắt máy tính rồi đứng dậy bước ra ngoài.
 
-Triệu Bác Lan lo lắng chưa kịp đại triển hồng đồ thì công ty đã "chết yểu", như vậy làm sao có thể "dẫn dắt" Triệu Kim An Gia thôn cùng làm giàu được.
+Trên đường trở về trường, Triệu Bác Lan ngồi ở hàng ghế trước khẽ than thở rằng tình hình tài chính của công ty hiện tại không mấy khả quan. Công ty vẫn còn đang gánh khoản nợ ngân hàng bốn triệu tệ, may mà dòng sản phẩm "Đông Giang" của Lạc Cẩn Chi ở Tư Tinh vẫn duy trì được mức thu chi hòa vốn.
 
-Triệu Kim An nhớ lại trong tài khoản chứng khoán của mình vẫn còn hơn hai triệu tệ tiền vốn nên trong lòng không mấy hoảng loạn.
+Các chi phí vận hành thường nhật và tiền lương của nhân viên tạm thời chưa cần phải đụng đến nguồn vốn dành riêng cho dòng sản phẩm mới "Trăn Nhiên".
 
-Về đến ký túc xá, Lưu Sấm Phong lại đang gặm bánh màn thầu.
+Triệu Bác Lan chỉ nơm nớp lo sợ chưa kịp làm nên đại sự thì công ty đã "chết yểu" giữa đường, đến lúc đó biết lấy gì để "dẫn dắt" bà con làng Triệu gia cùng nhau làm giàu đây.
 
-"Hì hì, Kim An về rồi à."
+Triệu Kim An thầm nhớ đến khoản tiền hơn hai triệu tệ vẫn đang nằm im trong tài khoản chứng khoán của mình, trong lòng hoàn toàn bình thản, không một chút mảy may hoang mang.
 
-Lưu Sấm Phong uống một ngụm nước để nuốt trôi miếng bánh, nói rằng hôm nay gã lại đi làm thêm.
+Về đến phòng ký túc xá, Lưu Sấm Phong lại đang ngồi gặm màn thầu khô khốc.
 
-Gã đi đóng vai quần chúng, bảo là sau này mọi người có thể thấy gã trên tivi, còn gặp được mấy ngôi sao nữa. Lưu Sấm Phong nói văng cả nước miếng, vẻ mặt vô cùng phấn khích.
+"Haha, Kim An đã về rồi đấy à."
 
-Chỉ là khi nhắc đến thù lao, sắc mặt gã trở nên đầy phẫn nộ.
+Lưu Sấm Phong ngửa cổ tu một ngụm nước lớn để nuốt trôi miếng màn thầu nghẹn ứ nơi cổ họng, hào hứng kể rằng hôm nay cậu ta lại vừa đi làm thêm về.
 
-"Đám chó đẻ ở ban Đối ngoại kia!"
+Lần này là đi làm diễn viên quần chúng, bảo rằng sau này các cậu thể nào cũng thấy mặt tao xuất hiện trên ti vi, lại còn được tận mắt nhìn thấy mấy ngôi sao nổi tiếng nữa. Lưu Sấm Phong nói năng nước bọt văng tứ tung, vẻ mặt vô cùng phấn khích.
 
-"Đến hôm nay tao mới biết, đơn hàng tụi mình nhận trong nhóm bị tụi nó ăn chặn mất một nửa tiền hoa hồng. Mẹ nó, hôm nay tao phơi mình trong gió lạnh bên bờ sông Tương cả ngày trời mà chỉ nhận được có 25 tệ!"
+Chỉ có điều khi nhắc đến khoản thù lao nhận được, sắc mặt cậu ta lập tức chuyển sang tức tối, hậm hực tột cùng.
 
-"Trong nhóm tụi mình có 60 người đăng ký, cái đám chó đẻ đó chẳng làm gì cả mà tham ô mất 1500 tệ!"
+"Cái lũ chó má bên ban Đối ngoại hội sinh viên!"
 
-"1500 tệ đấy!"
+"Hôm nay tao mới vỡ lẽ ra, mấy cái việc làm thêm mà bọn mình nhận trong nhóm chat, tụi nó đứng giữa ăn chặn mất toi một nửa tiền hoa hồng! Mẹ kiếp, hôm nay ông đây đứng phơi mặt hóng gió lạnh buốt bên bờ sông Tương suốt cả một ngày trời mà chỉ kiếm được vỏn vẹn hai mươi lăm tệ!"
 
-"Lão Cốc, ông nói xem tim tụi nó có phải bị đen rồi không!"
+"Cả nhóm có đến sáu mươi đứa đăng ký đi làm, cái lũ chó chết ấy chẳng phải động tay động chân làm cái đách gì mà đút túi êm ru một nghìn năm trăm tệ!"
 
-Lưu Sấm Phong ngay cả bánh cũng không thèm ăn nữa, Cốc Siêu Thừa phụ họa nói đúng đúng đúng, xem ra Lưu Sấm Phong đã lải nhải phàn nàn với Cốc Siêu Thừa cả buổi tối rồi. Triệu Kim An không đưa ra ý kiến gì.
+"Một nghìn năm trăm tệ đấy chúng mày ạ!"
 
-Ăn chặn là chuyện thường tình, một bên kiếm tiền bằng sức lao động, một bên kiếm tiền bằng trí óc.
+"Lão Cốc, mày bảo xem lương tâm của tụi nó có bị chó tha mất rồi không cơ chứ!"
 
-Mày có thể nói tụi nó đen tối, có thể không nhận đơn, nhưng mày không thể thay đổi được điều đó.
+Lưu Sấm Phong tức đến mức vứt luôn nửa cái màn thầu đang ăn dở sang một bên. Cốc Siêu Thừa nằm trên giường phụ họa theo: "Đúng thế, đúng thế, quá quắt thật đấy." Xem chừng Lưu Sấm Phong đã ngồi ca cẩm, cằn nhằn với Cốc Siêu Thừa suốt cả buổi tối rồi, nên Triệu Kim An cũng chẳng buồn đưa ra ý kiến gì.
 
-Đó là cấu trúc của tổ chức xã hội.
+Chuyện ăn chia phần trăm trung gian vốn là quy luật muôn đời. Một bên bỏ sức lao động chân tay, một bên dùng đầu óc và mối quan hệ để kiếm tiền.
 
-Triệu Kim An đưa cho gã một điếu thuốc, cười nói: "Không sao, vài ngày nữa gia đình lại gửi sinh hoạt phí cho mày thôi."
+Cậu có thể chê họ ăn dày, có thể lựa chọn không nhận việc, nhưng cậu vĩnh viễn không thể nào thay đổi được thực tế đó.
 
-"Sinh hoạt phí cái mẹ gì."
+Đó chính là cấu trúc vận hành của xã hội loài người.
 
-Cốc Siêu Thừa nằm bò trên giường: "Phó lớp trưởng của tụi mình cũng biết chạy theo mốt lắm, vay tiền để mua cho Tiểu Tuyết của gã một thỏi son, hiệu Dior luôn đấy."
+Triệu Kim An rút bao thuốc ra mời mỗi người một điếu, cười an ủi: "Không sao đâu, qua hai ngày nữa là gia đình mày gửi tiền sinh hoạt phí tháng mới lên rồi mà."
 
-Triệu Kim An: "..."
+"Sinh hoạt phí cái nỗi gì nữa!"
 
-"Xá trưởng, ông đúng là chịu chi thật đấy, không định sống tiếp à?"
+Cốc Siêu Thừa nằm ườn trên giường bĩu môi: "Phó lớp trưởng kính mến của chúng ta học đòi đú đởn theo phong trào, đi vay mượn tiền khắp nơi để mua cho em Tuyết của cậu ta một thỏi son môi hiệu Dior xịn sò rồi kia kìa."
 
-"Tao cũng đâu có muốn, là do Lý Ngải Lan nói cái gì mà phần thưởng năm mới cho bản thân..."
+Triệu Kim An cạn lời: "..."
 
-Lưu Sấm Phong còn quay sang trách Lý Ngải Lan, nói là Lý Ngải Lan khoe thỏi son này trên không gian QQ, Lâm Thanh Tuyết để lại bình luận bên dưới bảo cô ấy cũng rất muốn mua nhưng không có tiền.
+"Trưởng phòng à, mày quả thực là chịu chơi và bạo chi đấy, không định để dành tiền sống qua ngày nữa à?"
 
-"Được đấy."
+"Tao cũng đâu có muốn thế đâu, tại con bé Lý Ngải Lan gì đó cứ rêu rao cái giọng năm mới phải tự thưởng cho bản thân một món quà..."
 
-Triệu Kim An mỉm cười, chợt nhận ra: "Lý Ngải Lan chẳng phải là sinh viên nghèo sao?"
+Lưu Sấm Phong đổ hết tội lỗi lên đầu Lý Ngải Lan, bảo rằng ả ta chụp ảnh khoe thỏi son Dior đắt tiền lên không gian QQ, Lâm Thanh Tuyết thấy thế liền vào để lại bình luận bảo rằng mình cũng mê thỏi son đó lắm nhưng kẹt nỗi không có tiền mua.
 
-Lưu Sấm Phong bảo tiền trợ cấp sinh viên nghèo vừa mới giải ngân, Lý Ngải Lan nhận được 1500 tệ.
+"Được đấy chứ."
 
-Cốc Siêu Thừa liền nói: "Loại người như vậy mà cũng được nhận trợ cấp, tôi đã bảo rồi, cái kiểu sinh viên nghèo gì mà trên QQ, hôm nay một ly trà sữa, mai một ly trà sữa, vừa có tiền là mua ngay thỏi son, sống còn sung sướng hơn cả tụi mình!"
+Triệu Kim An cười khẽ một tiếng, rồi chợt khựng lại: "Khoan đã, Lý Ngải Lan chẳng phải thuộc diện sinh viên nghèo có hoàn cảnh khó khăn sao?"
 
-Triệu Kim An không còn cảm thấy bất bình nữa, nếu là ở kiếp trước thì có lẽ sẽ có một chút.
+Lưu Sấm Phong đáp rằng tiền trợ cấp sinh viên nghèo vừa được nhà trường giải ngân đợt vừa rồi, Lý Ngải Lan ẵm trọn một nghìn năm trăm tệ.
 
-Hắn leo lên giường đi ngủ.
+Cốc Siêu Thừa lập tức chen vào: "Cái hạng người như thế mà cũng được nhận trợ cấp sinh viên nghèo! Tao đã bảo từ lâu rồi, làm quái gì có sinh viên nghèo nào mà lướt không gian QQ thấy hôm nay khoe uống ly trà sữa này, ngày mai khoe cốc trà sữa nọ. Vừa nhận được tiền cứu trợ một cái là lập tức đi mua ngay son môi hàng hiệu, cuộc sống hưởng thụ còn vương giả hơn cả lũ chúng mình!"
 
-Cốc Siêu Thừa lại nói: "Kim An, thật ra ông cũng nên nộp đơn xin trợ cấp đi. Còn nữa, không biết tại sao Đường Hiểu Tình lại không được phê duyệt."
+Triệu Kim An không còn cảm giác phẫn uất, bất bình như trước nữa. Nếu là ở kiếp trước, có lẽ trong lòng cậu sẽ dấy lên chút chua xót và phẫn nộ.
 
-Triệu Kim An vừa mở máy tính lên, tay bỗng dừng lại.
+Cậu trèo lên giường chuẩn bị đi ngủ.
 
-Lưu Sấm Phong lúng túng nói: "Tao cũng không biết tại sao nữa... Có lẽ Đường Hiểu Tình chuẩn bị hồ sơ chưa đầy đủ chăng."
+Cốc Siêu Thừa lại tiếp tục lên tiếng: "Kim An này, thực ra đợt vừa rồi mày nên làm đơn xin trợ cấp mới phải. À còn nữa, con bé Đường Hiểu Tình chẳng hiểu sao hồ sơ lại không được duyệt."
 
-Cốc Siêu Thừa bảo: "Hồ sơ chẳng phải ban cán sự lớp các ông phải xem qua trước một lượt sao?"
+Triệu Kim An vừa mới mở máy tính xách tay ra, những ngón tay đang đặt trên bàn phím bỗng dừng hẳn lại.
 
-Nghe giọng điệu có vẻ đang trách móc Lưu Sấm Phong. Cốc Siêu Thừa vốn chướng mắt cách hành xử của Lý Ngải Lan và cảm thấy đồng cảm với Đường Hiểu Tình.
+Lưu Sấm Phong ngượng ngùng gãi đầu, lí nhí: "Tao cũng chẳng rõ nguyên do tại sao... Chắc là do Đường Hiểu Tình chuẩn bị giấy tờ, hồ sơ chưa đầy đủ chăng."
 
-Lưu Sấm Phong cự lại: "Làm sao tao biết được, cũng đâu phải do tao quyết định."
+Cốc Siêu Thừa chất vấn: "Hồ sơ của lớp chẳng phải ban cán sự lớp chúng mày phải duyệt qua một lượt trước khi nộp lên khoa hay sao?"
 
-Lần này Lưu Sấm Phong không huênh hoang nữa, có lẽ gã cũng cảm thấy chuyện này không công bằng.
+Nghe giọng điệu của Cốc Siêu Thừa có phần trách cứ Lưu Sấm Phong, rõ ràng cậu ta rất chướng mắt với lối sống của Lý Ngải Lan và thật lòng cảm thương cho hoàn cảnh của Đường Hiểu Tình.
 
-Hai người nói xong liền quan sát phản ứng của Triệu Kim An.
+Lưu Sấm Phong phân trần: "Làm sao tao biết được, chuyện xét duyệt này đâu phải do một mình tao định đoạt."
 
-Triệu Kim An gõ bàn phím nhưng không thấy phản hồi, hắn mở lịch sử trò chuyện với Đường Hiểu Tình lên, một lúc lâu sau mới gập máy tính lại rồi bảo: "Tôi ra ngoài một chút."
+Lần này Lưu Sấm Phong không còn ba hoa chích chòe như mọi khi nữa, có lẽ chính bản thân cậu ta cũng cảm thấy kết quả này quá đỗi bất công.
 
-"Cái đó, Kim An..."
+Hai người nói xong liền đưa mắt cẩn thận quan sát phản ứng của Triệu Kim An.
 
-Lưu Sấm Phong nhắc nhở: "Đường Hiểu Tình đang làm thêm theo diện vừa học vừa làm ở nhà ăn, cô ấy tự nộp đơn lên trường đấy."
+Triệu Kim An vẫn gõ phím lạch cạch, vẻ mặt không chút biểu cảm. Cậu mở khung cửa sổ lịch sử trò chuyện với Đường Hiểu Tình ra xem lại. Phải một lúc lâu sau, cậu mới gập mạnh màn hình máy tính lại, thản nhiên buông một câu:
+
+"Tao ra ngoài một lát."
+
+"Ơ kìa, Kim An..."
+
+Lưu Sấm Phong vội vàng gọi với theo nhắc nhở: "Giờ này Đường Hiểu Tình đang làm thêm ở nhà ăn của trường đấy, con bé làm đơn xin nhà trường đi làm theo diện vừa học vừa làm..."

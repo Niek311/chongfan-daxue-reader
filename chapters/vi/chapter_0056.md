@@ -1,191 +1,193 @@
-# Chương 56: Các Cậu Và Triệu Kim An Từ Trường Không Hợp, Vậy Ai
+# Chương 56: Từ trường giữa các cậu và Triệu Kim An không hợp, vậy ai mới hợp?
 
-Hợp?
+> **Tiêu đề gốc**: 第56章 你们和赵今安磁场不太对，谁对？
 
-Nhớ lại thái độ của Diêu Tân đối với Triệu Kim An ngày hôm đó, Thẩm Tử Ngôn suy nghĩ một chút rồi hỏi Diêu Tân: "Cậu đã kết bạn QQ với Triệu Kim An chưa? Có nhắn tin trò chuyện với cậu ấy không?"
+Nhớ lại thái độ mê mẩn của Diêu Tân dành cho Triệu Kim An hôm nọ, Thẩm Tử Ngôn ngẫm nghĩ một lát rồi cất giọng hỏi:
 
-Giọng điệu rất hờ hững, giống như chỉ thuận miệng hỏi thăm.
+— Diêu Tân, cậu đã kết bạn QQ với Triệu Kim An chưa? Có nhắn tin nói chuyện với cậu ấy không?
 
-Diêu Tân bảo là đã kết bạn rồi.
+Giọng điệu của cô rất đỗi bâng quơ, hệt như một câu buột miệng hỏi thăm thường ngày.
 
-Nàng còn chưa kịp rửa mặt chải đầu, cứ thế bê đĩa bánh hành ngồi xếp bằng trên giường nói: "Nhưng tớ không tìm cậu ấy trò chuyện."
+Diêu Tân đáp:
 
-"Tại sao?"
+— Kết bạn rồi.
 
-Thẩm Tử Ngôn tiếp tục khơi gợi chủ đề: "Cái vẻ mặt mê trai ngày hôm đó của cậu, hận không thể ăn tươi nuốt sống người ta còn gì."
+Vẫn chưa kịp rửa mặt chải đầu, cô nàng ôm đĩa bánh hành, ngồi khoanh chân trên giường tiếp lời:
 
-"Tớ cũng muốn ăn lắm chứ."
+— Nhưng tớ chẳng chủ động nhắn tin cho cậu ấy bao giờ.
 
-Diêu Tân vẻ mặt oán hận: "Nhưng tớ tự biết mình biết ta, người như cậu ấy không thuộc về tớ."
+— Sao lại thế? — Thẩm Tử Ngôn tiếp tục gợi chuyện — Hôm ấy trông cậu háo sắc đến mức hận không thể nuốt chửng người ta vào bụng cơ mà.
 
-Thẩm Tử Ngôn hơi ngoài ý muốn.
+— Tớ cũng muốn “ăn” lắm chứ bộ! — Diêu Tân thở dài thườn thượt, mặt mày đầy vẻ hậm hực — Cơ mà tớ tự biết thân biết phận, người như cậu ấy vốn chẳng thuộc về tớ.
 
-Diêu Tân dùng từ "không thuộc về tớ", chứ không phải là "không nhìn trúng tớ".
+Thẩm Tử Ngôn thoáng chút bất ngờ.
 
-"Cậu xem này, ký túc xá chúng ta..."
+Điều Diêu Tân nói là “không thuộc về tớ”, chứ không phải “người ta chướng mắt tớ”.
 
-Diêu Tân tiếp tục nói: "Mạn Mạn và Trần Trạch... điều kiện của bọn họ, còn cậu và Mộc Dao nữa. Lấy ví dụ nhé, tớ và Triệu Kim An... cũng giống như Lưu Sấm Phong theo đuổi cậu vậy."
+— Cậu xem kìa, phòng ký túc xá chúng mình nhé... — Diêu Tân thao thao bất tuyệt — Mạn Mạn với Trần Trạch... Gia cảnh điều kiện của hai người họ ra sao, rồi còn cậu với Mộc Dao nữa. Lấy ví dụ đơn giản nhé, chuyện tớ với Triệu Kim An... cũng giống hệt như chuyện Lưu Sùng Phong đang theo đuổi cậu vậy. Người sáng mắt ai chẳng nhìn ra Lưu Sùng Phong có ý với cậu, thế cậu có chịu gật đầu đồng ý làm bạn gái cậu ta không?
 
-"Người sáng suốt đều biết Lưu Sấm Phong có hảo cảm với cậu, cậu có đồng ý cậu ta không?"
+Thẩm Tử Ngôn chỉ mỉm cười.
 
-Thẩm Tử Ngôn mỉm cười.
+Đang định với tay thay quần áo, cô bỗng khựng lại, nhận ra điểm mấu chốt trong câu nói vừa rồi:
 
-Nàng đang chuẩn bị thay quần áo, đột nhiên phản ứng lại.
+— Ban nãy cậu bảo “người như cậu ấy”... rốt cuộc là có ý gì?
 
-"Cậu vừa nói 'người như cậu ấy'... là có ý gì?"
+— Thì cậu thử ngẫm mà xem, mấy ngày nay rảnh rỗi nằm trên giường tớ cứ nghĩ mãi về chuyện này đấy. — Diêu Tân bỗng hào hứng hẳn lên, cô nàng nằm sấp trên đệm, nhoài người ra thành giường nói với Thẩm Tử Ngôn — Hôm đó Trần Trạch bảo Triệu Kim An hợp đi làm “phi công” cho phú bà, mấy hôm nay tớ ngẫm nghĩ kỹ lại, thấy lời Trần Trạch nói cũng có vài phần chí lý.
 
-"Cậu nghĩ mà xem, mấy ngày nay tớ rảnh rỗi cứ nằm trên giường suy nghĩ mãi."
+— Ý cậu bảo cậu ấy hợp làm “trai bao” á?
 
-Diêu Tân hứng thú hẳn lên, nàng nằm bò trên giường nói với Thẩm Tử Ngôn: "Hôm đó Trần Trạch nói cậu ấy hợp với phú bà, mấy ngày nay tớ ngẫm kỹ lại thấy lời Trần Trạch nói cũng có chút đạo lý."
+Thẩm Tử Ngôn cởi phăng chiếc áo bó sát, vòng tay ra sau lưng mở móc cài áo lót. Làn da trắng nõn như tuyết lộ ra dưới ánh đèn, từ phía sau vẫn có thể thấp thoáng nhìn thấy đường cong đẫy đà tuyệt mỹ — với khuôn ngực đầy đặn cỡ này, mỗi lần chạy bộ hẳn sẽ có đôi chút vướng víu, nặng nề.
 
-"Cậu định nói cậu ấy hợp làm 'trai bao' à?"
+— Cũng chẳng hẳn là kiểu trai bao nuôi trong lồng kính đâu, tớ cũng chẳng biết diễn tả thế nào cho đúng nữa. — Diêu Tân nghiền ngẫm phân tích — Mấy hôm nay tớ nghĩ nát óc rồi, kiểu người như cậu ấy rốt cuộc sẽ hợp với mẫu bạn gái ra sao? Mà không, chẳng phải là tìm bạn gái, kiểu người như cậu ấy vốn chẳng cần phải nhọc công đi tìm bạn gái làm gì. Vấn đề là, mẫu phụ nữ như thế nào mới có thể xứng đôi vừa lứa với cậu ấy.
 
-Thẩm Tử Ngôn cởi bỏ chiếc áo bó sát, vòng tay ra sau lưng tháo móc cài, làn da trắng như tuyết, nhìn từ phía sau cũng có thể thấy được đôi chút đường cong, chạy bộ có lẽ sẽ hơi vướng víu.
+Đánh giá này quả thực cao đến mức kinh ngạc.
 
-"Cũng không phải kiểu trai bao đó, tớ cũng không diễn tả được."
+Thẩm Tử Ngôn khựng lại động tác trên tay, chợt nhận ra những lời Diêu Tân vừa thốt ra dường như lại có lý đến lạ kỳ.
 
-Diêu Tân cân nhắc nói: "Mấy ngày nay tớ thật sự đã nghĩ, chính là người như cậu ấy hợp tìm kiểu bạn gái như thế nào. Mà cũng không hẳn là tìm bạn gái, cậu ấy vốn chẳng cần đi tìm."
+Không phải là Triệu Kim An đi tìm bạn gái, mà là mẫu phụ nữ nào mới đủ tầm để sánh bước bên cạnh cậu ấy.
 
-"Phải nói là kiểu phụ nữ nào mới hợp với cậu ấy."
+— Tử Ngôn này, tớ đã thử ướm từng người trong phòng mình vào rồi đấy nhé. — Diêu Tân nói tiếp — Trước hết là gạt tớ ra rìa rồi. Cậu với Mộc Dao điều kiện đều tốt như thế, tớ đã nghĩ đến Mộc Dao, nhưng Mộc Dao không hợp; tớ lại thử ghép cậu với Triệu Kim An lại với nhau, cũng thấy cứ sai sai ở chỗ nào ấy. Tử Ngôn à, tớ không có ý chê cậu hay Mộc Dao không tốt đâu nhé, chỉ là... chỉ là từ trường giữa hai cậu và Triệu Kim An... hình như không cùng một tần số.
 
-Đánh giá này là cực kỳ cao.
+— Từ trường á?!
 
-Thẩm Tử Ngôn khựng lại động tác, đột nhiên phát hiện lời Diêu Tân nói dường như có lý thật.
+Thẩm Tử Ngôn nghiêm túc ngẫm nghĩ một thoáng, rồi bật cười trêu lại:
 
-Không phải Triệu Kim An tìm bạn gái, mà là kiểu phụ nữ nào mới xứng đôi với hắn.
+— Thế còn Mạn Mạn phòng mình thì sao? Cậu vẫn chưa nhắc đến cậu ấy kìa.
 
-"Tử Ngôn, tớ đã thử đưa các thành viên ký túc xá mình vào so sánh."
+Diêu Tân liếc mắt nhìn ra phía cửa phòng, thấy bên ngoài vắng hoe không có ai mới ghé sát tai thì thào:
 
-Diêu Tân nói: "Đầu tiên là loại trừ tớ ra. Cậu và Mộc Dao điều kiện đều tốt như vậy, tớ đã nghĩ đến Mộc Dao, nhưng Mộc Dao không hợp. Tớ còn đặt cậu và Triệu Kim An ở cạnh nhau để hình dung, cũng thấy có gì đó sai sai."
+— Tuy tớ mới chỉ tiếp xúc với Triệu Kim An đúng một lần, nhưng mấy hôm nay ngẫm đi nghĩ lại, tớ phát hiện ra Mạn Mạn phòng mình và Triệu Kim An mới là một cặp trời sinh ăn ý nhất. Tớ cũng chẳng giải thích nổi vì sao, chỉ là trực giác mách bảo hai người họ đứng cạnh nhau cực kỳ hài hòa, vừa vặn.
 
-"Tử Ngôn, tớ không bảo cậu và Mộc Dao không tốt nhé, chỉ là... là do từ trường của các cậu và Triệu Kim An... không hợp nhau lắm."
+Thẩm Tử Ngôn sững sờ ngước nhìn Diêu Tân đang nằm ở giường tầng trên. Diêu Tân lại nghiêm túc gật đầu khẳng định thêm lần nữa.
 
-"Từ trường!?"
-
-Thẩm Tử Ngôn nghiêm túc suy nghĩ, cười hỏi: "Thế còn Mạn Mạn phòng mình thì sao? Cậu vẫn chưa nhắc đến cậu ấy kìa."
-
-Diêu Tân liếc nhìn ra cửa, thấy không có ai mới hạ thấp giọng nói: "Tuy tớ và Triệu Kim An chỉ mới tiếp xúc một lần, nhưng mấy ngày nay tớ đã suy nghĩ rất kỹ, tớ thấy Mạn Mạn phòng mình và Triệu Kim An là xứng đôi nhất."
-
-"Tớ cũng không nói rõ được tại sao, chỉ cảm giác hai người họ rất hợp."
-
-Thẩm Tử Ngôn ngẩn ngơ nhìn Diêu Tân ở giường trên, Diêu Tân thì gật đầu rất quả quyết.
-
-......
+...
 
 Tối ngày mùng 7.
 
-Triệu Kim An một mình đeo ba lô trở lại trường, hắn dừng bước ở cổng trường, Đơn Vĩ đứng cách đó mười mét lập tức tiến lên.
+Triệu Kim An một mình khoác ba lô sải bước về trường. Vừa dừng chân trước cổng lớn, người đàn ông đứng cách đó mười mét lập tức rảo bước bám theo.
 
-"Ông chủ."
+— Ông chủ.
 
-Triệu Kim An nói: "Không cần đi theo tôi đâu, ở trong trường rất an toàn."
+Triệu Kim An ngoảnh lại bảo:
 
-Đơn Vĩ ấp úng: "Ông chủ, tôi nhận lương của cậu mà chẳng làm được việc gì cả."
+— Không cần phải đi theo tôi đâu, ở trong trường học rất an toàn.
 
-"Sẽ có việc thôi, bây giờ không có gì thì về nhà ở bên con gái nhiều hơn đi, đến lúc mấu chốt đừng để hỏng việc là được."
+Đơn Vĩ ấp a ấp úng, gãi đầu gãi tai:
 
-"Vậy... vậy được rồi."
+— Ông chủ, tôi... tôi cầm tiền lương của cậu rồi mà từ đầu đến giờ chẳng làm được việc gì ra hồn cả.
 
-Đơn Vĩ dĩ nhiên biết trong trường rất an toàn, vị trí vệ sĩ này có cũng được mà không có cũng chẳng sao. Hắn cứ nhìn đông ngó tây, chỉ mong lúc này có mấy tên choai choai không có mắt nhảy ra "làm khó" ông chủ.
+— Sắp tới rồi sẽ có việc. Bây giờ chưa có chuyện gì thì chú cứ về nhà dành nhiều thời gian ở bên con gái đi, chỉ cần lúc then chốt đừng để tuột xích là được.
 
-Để rồi hắn có dịp thi triển tài năng, giúp ông chủ vả mặt bọn chúng.
+— Dạ... vậy cũng được ạ.
 
-Nhưng ông chủ không gây chuyện thì thôi đi, ra ngoài còn cực kỳ khiêm tốn và lịch sự.
+Đơn Vĩ dĩ nhiên biết trong khuôn viên trường đại học thì tuyệt đối an toàn, sự hiện diện của một vệ sĩ như gã quả thực có cũng như không. Gã cứ ngó nghiêng dáo dác khắp xung quanh, trong lòng thậm chí còn mong mỏi có vài ba tên du côn tóc vàng hoe mắt mù nào đó nhảy xổ ra “gây sự” với ông chủ, để gã có cơ hội trổ hết ngón nghề đấm đá, giúp ông chủ vả mặt một trận ra trò.
 
-Một ông chủ như vậy Đơn Vĩ dĩ nhiên rất thích, chỉ là bản thân hắn thấy mình quá thiếu cảm giác tồn tại.
+Khổ nỗi, ông chủ nhà gã chẳng những không bao giờ kiếm chuyện sinh sự, mà mỗi khi ra ngoài lại còn khiêm nhường, lễ độ đến mức khó tin.
 
-Không có giá trị.
+Một người chủ chu đáo, tử tế như thế thì Đơn Vĩ thích đến mê đi được, chỉ có điều... sự tồn tại của gã mờ nhạt quá.
 
-Lỡ tháng sau ông chủ không thuê mình nữa thì sao?
+Không thể hiện được giá trị của bản thân.
 
-Triệu Kim An nhìn Đơn Vĩ một lát, đi vào tiệm tạp hóa mua một cây thuốc Hoàng Phù đưa cho hắn. Đơn Vĩ lúc này mới yên tâm: "Ông chủ, cậu đã phát lương cho tôi rồi mà."
+Lỡ sang tháng sau ông chủ không thuê gã nữa thì biết làm sao?
 
-"Cầm lấy đi."
+Triệu Kim An nhìn Đơn Vĩ một lát, rồi rẽ vào tiệm tạp hóa mua một cây thuốc lá Hoàng Phù Dung đưa cho gã. Đơn Vĩ bấy giờ mới an lòng đôi chút, ngượng ngùng xua tay:
 
-"Vậy... vậy tôi không khách sáo nhé?"
+— Ông chủ, cậu đã trả lương hậu hĩnh cho tôi rồi mà...
 
-Đơn Vĩ cười ngây ngô vài tiếng.
+— Cầm lấy đi.
 
-Đây là Na Tề dạy hắn, con bé nói: "Ba à, sau này ba chỉ được cười với ông chủ thôi, đừng có cười với người khác."
+— Vậy... vậy tôi không khách khí nữa nhé?
 
-Kiếp trước Triệu Kim An chưa từng làm đại ông chủ, cũng không hẳn là một nhân viên công sở bình thường, hắn chỉ là một kế toán. Nghề kế toán không cần làm việc kiểu 996, đa số cuối tuần đều được nghỉ hai ngày.
+Đơn Vĩ cười hề hề vài tiếng ngây ngô.
 
-Bởi vì chính phủ và ngân hàng không làm việc, nên không thể kết chuyển sổ sách hay báo cáo thuế được.
+Đó là lời con gái Đơn Na Tề đã dặn dò gã từ trước: “Bố ơi, sau này bố chỉ được cười với ông chủ thôi nhé, đừng có đi cười toe toét với người ngoài.”
 
-Làm kế toán ở công ty lớn có thể biết được rất nhiều nội dung nội bộ trong ngành, nào là làm giả sổ sách, mua chuộc kiểm toán, thế tội, v.v. Hắn biết rõ thư ký và tài xế rất quan trọng, điều kiện tiên quyết là phải trung thành.
+Kiếp trước, Triệu Kim An chưa từng làm ông chủ lớn, nhưng cũng chẳng phải tầng lớp làm công ăn lương cày cuốc bán mạng. Anh chỉ là một kế toán viên bình thường, nghề kế toán thì không cần phải làm việc theo kiểu 996 (9 giờ sáng đến 9 giờ tối, 6 ngày/tuần), phần lớn các ngày cuối tuần đều được nghỉ trọn vẹn hai ngày.
 
-Quan trọng nhất cũng chính là lòng trung thành, năng lực chỉ là thứ yếu.
+Bởi lẽ cơ quan nhà nước và ngân hàng không làm việc vào cuối tuần, mà không làm việc thì chẳng thể nào đối soát sổ sách hay quyết toán thuế má được.
 
-"Bíp——!"
+Làm kế toán ở các tập đoàn lớn sẽ thấu hiểu rất nhiều góc khuất thâm cung bí sử trong giới: nào là làm sổ sách giả, mua chuộc kiểm toán, tìm người gánh tội thay... Nhờ vậy anh hiểu rất rõ tầm quan trọng của thư ký và tài xế riêng. Yếu tố tiên quyết hàng đầu là phải tuyệt đối trung thành.
 
-Tại ngã ba đường, một chiếc BMW từ từ lướt qua.
+Quan trọng nhất muôn đời vẫn là lòng trung thành, năng lực chỉ xếp hàng thứ hai.
 
-Triệu Kim An liếc nhìn biển số xe, là Trần Trạch. Hắn theo bản năng nhìn vào ghế phụ, thấy một bóng người.
+“Tin... tin——!”
 
-"Mạn Mạn, mẹ anh rủ em đi mua sắm sao em không đi?"
+Tại khúc cua ngã ba đường, một chiếc xe BMW từ từ lướt qua.
 
-Trần Trạch tập trung lái xe, người trong trường quá đông nên hắn không dám phân tâm. Thấy phía ghế phụ không phản hồi, hắn lại gọi thêm một tiếng: "Mạn Mạn?"
+Triệu Kim An liếc nhìn biển số xe, là xe của Trần Trạch. Theo thói quen, ánh mắt anh khẽ lướt qua ghế phụ, thấp thoáng một bóng người quen thuộc.
 
-"Dạ?"
+— Mạn Mạn, hôm trước mẹ anh rủ em đi dạo phố mua sắm, sao em lại không đi thế?
 
-"Anh bảo là dịp Quốc khánh mẹ anh rủ em đi mua sắm sao em không đi? Bà ấy còn bảo muốn dẫn em đi mua mấy bộ quần áo mới nữa."
+Trần Trạch chăm chú cầm vô lăng, trong khuôn viên trường học người đi lại nườm nượp nên gã chẳng dám lơ là. Thấy ghế phụ im lìm không đáp, gã lại cất giọng gọi thêm lần nữa:
 
-"Hôm đó em hơi khó chịu trong người."
+— Mạn Mạn?
 
-"Bị cảm à?"
+— Dạ?
 
-"Không sao, khỏi rồi."
+— Anh bảo là đợt nghỉ Quốc khánh vừa rồi, mẹ anh rủ em đi dạo phố sao em không đi? Bác ấy còn bảo muốn dắt em đi sắm mấy bộ quần áo mới nữa cơ.
 
-Trong ánh sáng lờ mờ, Từ Mạn Mạn thắt dây an toàn tựa sát vào cửa xe, nàng nhìn chằm chằm vào gương chiếu hậu, nhìn chằm chằm vào người thanh niên giữa đám đông trong gương. Nàng đột nhiên rất muốn hét lên: "Dừng xe."
+— Hôm đó người em hơi mệt.
 
-Nhưng không thể!
+— Em bị cảm à?
 
-Đến dưới lầu ký túc xá nữ, Trần Trạch mở cốp xe nói: "Toàn bộ là mẹ anh đưa cho em đấy, quần áo, trái cây, đồ ăn vặt, mẹ anh đối xử với em còn tốt hơn cả đối với anh nữa!"
+— Không sao, em khỏi rồi.
 
-"Anh về đi, lái xe cẩn thận nhé."
+Dưới ánh đèn đường mờ ảo, Từ Mạn Mạn thắt dây an toàn, nép người dựa vào cánh cửa xe. Ánh mắt cô dán chặt vào chiếc gương chiếu hậu bên ngoài, chăm chú nhìn theo bóng hình đơn độc giữa dòng người tấp nập phía sau. Trong một khoảnh khắc ngột ngạt, cô bỗng trào dâng một thôi thúc muốn thốt lên hai chữ “Dừng xe”.
 
-Dưới lầu ký túc xá nữ người qua kẻ lại tấp nập, Từ Mạn Mạn xách đồ, Trần Trạch nhìn trái ngó phải rồi nói: "Hay là chúng mình cũng bắt chước họ ôm một cái, hôn một cái nhé?"
+Nhưng cô không thể!
 
-Từ Mạn Mạn nói: "Anh mau về đi, lái xe đừng có gọi điện thoại, dễ phân tâm lắm!"
+Xe dừng lại dưới chân tòa nhà ký túc xá nữ, Trần Trạch mở cốp sau, hớn hở bảo:
 
-Trần Trạch lầm bầm rồi lái xe đi.
+— Toàn bộ đều là đồ mẹ anh gửi cho em đấy, nào là quần áo, trái cây, đồ ăn vặt. Mẹ anh đối xử với em còn tốt hơn cả với anh ruột nữa đấy!
 
-Ngày đầu tiên đi học sau khai giảng, không ai dám đến muộn hay cúp tiết.
+— Em biết rồi, anh về đi, lái xe cẩn thận nhé.
 
-Kẻ ngốc cũng biết, chắc chắn giảng viên sẽ điểm danh.
+Dưới sảnh ký túc xá nữ người qua kẻ lại tấp nập, Từ Mạn Mạn xách mấy túi đồ trên tay. Trần Trạch nhìn dáo dác xung quanh rồi cười cười gạ gẫm:
 
-Mới là sinh viên năm nhất, mọi người vẫn giống như học sinh cấp ba, lên lớp nghe giảng và ghi chép rất nghiêm túc.
+— Hay là chúng mình cũng học theo mấy cặp kia, ôm một cái rồi hôn một miếng nhé?
+
+Từ Mạn Mạn khẽ lảng tránh:
+
+— Anh mau về đi, lúc lái xe đừng có nghe điện thoại, dễ phân tâm nguy hiểm lắm!
+
+Trần Trạch lầm bầm vài câu trong miệng rồi nổ máy lái xe rời đi.
+
+...
+
+Ngày đầu tiên trở lại giảng đường sau kỳ nghỉ lễ, chẳng một sinh viên nào dám đi muộn hay cúp tiết.
+
+Kẻ ngốc cũng thừa hiểu, buổi học đầu tiên này thể nào giáo viên cũng điểm danh từng người một.
+
+Mới chỉ là sinh viên năm nhất, ai nấy vẫn giữ nguyên thói quen từ thời cấp ba, ngồi ngay ngắn ghi chép bài giảng vô cùng chăm chỉ.
 
 Triệu Kim An thì không.
 
-Một là, hắn không có ý định lại đi làm một kế toán quèn.
+Thứ nhất, anh chẳng hề có ý định tiếp tục kiếp làm một nhân viên kế toán quèn nữa.
 
-Hai là, mấy môn như Toán cao cấp hắn nghe chẳng hiểu gì, có lẽ trình độ toán học của hắn đã dừng lại ở cấp hai rồi.
+Thứ hai, những môn đại cương như Toán cao cấp thì anh nghe chẳng vào đầu, khéo kiến thức toán học cấp hai giờ đây bảo anh giải cũng tắc tị.
 
-Nhưng nếu bàn về việc làm sổ sách, xem báo cáo tài chính, thì giáo viên bộ môn cũng phải gọi Triệu Kim An một tiếng thầy.
+Thế nhưng, nếu bàn về nghiệp vụ hạch toán sổ sách, phân tích báo cáo tài chính chuyên sâu, thì ngay cả giảng viên đứng trên bục giảng kia cũng phải kính cẩn gọi Triệu Kim An một tiếng “thầy”.
 
-Có một câu nói đùa rằng, khi học bá ngẩng đầu lên, giáo viên sẽ biết ngay mình có chỗ nào giảng sai.
+Có một câu nói đùa kinh điển rằng: Khi học bá ngẩng đầu lên nhìn, giáo viên lập tức giật mình biết ngay mình vừa giảng sai chỗ nào.
 
-Nếu là môn chuyên ngành, Triệu Kim An hoàn toàn có đủ tự tin đó.
+Nếu là các môn nghiệp vụ chuyên ngành kế toán, Triệu Kim An hoàn toàn có đủ tự tin và bản lĩnh ấy.
 
-Kiếp trước Triệu Kim An có thể đạt mức lương hơn 200 nghìn tệ mỗi năm ở Quận Sa, không phải vì lương cơ bản cao như vậy, mà là vì hắn đã thi đỗ chứng chỉ Kế toán công chứng (CPA).
+Ở kiếp trước, Triệu Kim An có thể đạt mức thu nhập hơn 200.000 tệ mỗi năm tại Quận Sa không phải vì lương cứng của anh cao đến thế, mà là nhờ anh đã thi đỗ chứng chỉ Kế toán viên Công chứng (CPA). Có được tấm chứng chỉ danh giá này trong tay, người chẳng cần phải đến công ty đi làm ngày nào, chỉ việc đem bằng đi treo, cho doanh nghiệp khác thuê lại danh nghĩa, mỗi năm đã ung dung bỏ túi ngót nghét 100.000 tệ.
 
-Có chứng chỉ này trong tay, người không cần đi làm, chỉ cần treo bằng ở công ty khác là mỗi năm đã có thu nhập 100 nghìn tệ.
+Những ai từng dấn thân vào con đường thi chứng chỉ chuyên môn ắt sẽ hiểu rõ điều này, bên ngành xây dựng và kiến trúc cũng có những tấm bằng quyền lực tương tự.
 
-Ai từng thi lấy bằng đều biết điều này, kể cả các loại chứng chỉ bên ngành xây dựng.
+Lúc này, cố vấn học tập Lưu Huy đang đứng trên bục giảng say sưa nói về chuyện này. Thầy giảng giải với vẻ mặt tràn đầy nhiệt huyết, nước bọt văng tung tóe khắp nơi. Thầy bảo bước chân vào cánh cổng đại học tuyệt đối không được lơ là việc học, chỉ cần thi đỗ được chứng chỉ CPA, mức lương khởi điểm bảo đảm không dưới 100.000 tệ mỗi năm!
 
-Cố vấn học tập Lưu Huy đang đứng trên bục giảng nói về chuyện này, giọng điệu hào hùng, nước bọt văng tung tóe. Ông nói lên đại học cũng không được lơ là học tập, chỉ cần thi lấy một cái bằng Kế toán công chứng, lương năm bảo đảm không dưới 100 nghìn tệ!
+Cả đám sinh viên ngồi bên dưới nghe xong như được tiêm một liều thuốc kích thích cực mạnh. Mức thu nhập 100.000 tệ vào năm 2006 đấy nhé! Lại còn chẳng cần phải nhọc công đến công ty chấm công, thế chẳng phải chỉ cần nằm ườn ở nhà cũng có bạc vạn rơi vào đầu hay sao?
 
-Các sinh viên bên dưới như được tiêm máu gà. Mức lương 100 nghìn tệ vào năm 2006 đó nha, lại còn không cần đến công ty làm việc, chẳng phải ngồi mát ăn bát vàng cũng có 100 nghìn tệ sao?
+Nghĩ thôi mà đã thấy sướng rơn cả người.
 
-Nghĩ thôi đã thấy sướng.
+Thế nhưng, thầy Lưu Huy lại chẳng hề hé môi nửa lời về việc kỳ thi lấy chứng chỉ này gian nan, trầy da tróc vảy đến mức nào, tỷ lệ đỗ thấp đến thảm hại ra sao.
 
-Lưu Huy không nói cho họ biết chứng chỉ này khó thi đến mức nào, tỉ lệ vượt qua thấp ra sao.
+Và thầy càng không bao giờ nói cho đám tân sinh viên non nớt này biết rằng: Những bậc thầy kế toán đỉnh cao thực thụ... đa phần đều đang “học tập nâng cao nghiệp vụ” ở trong Trại giam Đề Lan Kiều cả rồi!
 
-Càng không nói cho đám tân sinh viên này biết rằng, những kế toán thực thụ giỏi nhất đều đang "tu nghiệp" trong tù Đề Lan Kiều.
+Nói một cách khác, trong cái nghề kế toán đầy cạm bẫy này, chưa từng nếm mùi “tu nghiệp” ở Đề Lan Kiều thì chưa thể coi là một kế toán viên lão luyện đạt chuẩn.
 
-Nói cách khác, trong ngành kế toán, nếu chưa từng vào tù Đề Lan Kiều thì chưa được coi là một kế toán đủ tư cách.
+Đề Lan Kiều mới chính là vinh dự tột đỉnh của giới kế toán!
 
-Đề Lan Kiều mới là vinh dự cao nhất của nghề kế toán!
-
-Kế toán công chứng chỉ là hạng em út mà thôi!
+Còn chứng chỉ CPA danh giá kia... suy cho cùng cũng chỉ là hàng em út mà thôi.

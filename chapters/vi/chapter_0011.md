@@ -1,219 +1,207 @@
-# Chương 11: Mcdonald'S
+# Chương 11: McDonald's
 
-Mộc Dao cầm điện thoại ném mạnh xuống sofa, vẻ mặt đầy buồn bực.
+> **Tiêu đề gốc**: 第11章 麦当劳。
 
-"Chắc chắn là Kim An đang giận rồi."
+Mộc Dao quẳng phịch chiếc điện thoại xuống ghế sofa, gương mặt lộ rõ vẻ hờn dỗi không vui.
 
-Con gái mới yêu thường có chút bám người, Mộc Dao cảm thấy hơi hối hận vì hôm qua không ở bên Triệu Kim An mà lại đi ăn uống, hát hò cùng đám bạn học.
+"Nhất định là Kim An đang giận rồi."
 
-"Nhưng lúc đó ở chợ... anh cũng đâu có giữ mình lại!"
+Con gái mới bước vào tình yêu thường có chút bám người. Nghĩ đến chuyện hôm qua không ở bên Triệu Kim An mà lại đi ăn uống, hát hò karaoke cùng đám bạn học, trong lòng Mộc Dao bắt đầu dâng lên cảm giác hối hận.
 
-"Anh không biết giữ mình lại à?"
+"Nhưng mà lúc ở chợ rau... cậu ấy đâu có giữ mình lại cơ chứ!"
 
-Mộc Dao nằm bò trên sofa lầm bầm, bực bội vung nắm đấm nhỏ đập vào gối ôm để trút giận.
+"Bộ cậu không biết mở miệng giữ người ta lại sao?"
 
-Kỳ nghỉ hè sau kỳ thi đại học là kỳ nghỉ dài nhất, Mộc Dao thấy buồn chán vô cùng, nàng khao khát Triệu Kim An dành thời gian ở bên mình.
+Mộc Dao nằm sấp xuống sofa lẩm bẩm oán trách, bực bội vung nắm đấm nhỏ đấm thùm thụp vào chiếc gối ôm để trút giận.
 
-Nàng sẽ nhớ Triệu Kim An, chỉ cần rảnh rỗi là sẽ nhớ đến hắn.
+Kỳ nghỉ hè sau kỳ thi đại học là kỳ nghỉ dài nhất trong đời học sinh. Mộc Dao thấy chán chường vô cùng, cô gái nhỏ khát khao Triệu Kim An có thể bớt chút thời gian đến bên cạnh mình.
 
-Từ thành phố Tư Tinh trở về, Triệu Kim An gọi một cuộc điện thoại cho Triệu Chí Dũng.
+Cô nhớ Triệu Kim An, chỉ cần rảnh rỗi một chút là nỗi nhớ lại ùa về lấp đầy tâm trí.
 
-Bốn mươi phút sau, chiếc mô tô phân khối lớn cực ngầu xuất hiện, Triệu Chí Dũng đeo giỏ cá trên lưng, gạt chân chống xe, đôi cánh tay phơi nắng cả ngày lại đen thêm một tông.
+...
 
-"Kim An, mày đi đâu thế?"
+Từ Sâm Châu trở về, Triệu Kim An gọi một cuộc điện thoại cho Triệu Trí Dũng.
 
-Nói đoạn, hắn lại phát hiện ra một vấn đề, đây là cửa hàng McDonald's duy nhất trong thành phố.
+Bốn mươi phút sau, chiếc xe máy phân khối lớn đầy vẻ hầm hố rồ ga xuất hiện. Triệu Trí Dũng quải chiếc giỏ cá bên hông, gạt chân chống chống xe lại. Phơi nắng cả ngày dài khiến hai cánh tay cậu ta lại đen đi một tông.
 
-Triệu Kim An chỉ tay vào cửa hàng McDonald's sau lưng: "Mua ít đồ."
+"Kim An, mày đi đâu cả ngày nay thế?"
 
-"Mày còn tiền không?"
+Vừa dứt lời, cậu ta liền nhận ra một điều kỳ lạ: đây là tiệm McDonald's duy nhất trong toàn thành phố.
 
-"Mày không có tiền à?"
+Triệu Kim An hất cằm chỉ về phía cửa hàng McDonald's sau lưng: "Vào mua chút đồ."
 
-"Tiền bán cá hôm qua mày cầm hết rồi còn gì!"
+"Mày còn tiền à?"
 
-"Bố mẹ mày không đưa thêm tí tiền nào à?"
+"Mày hết tiền rồi sao?"
 
-Bên lề đường, hai người mắt to trừng mắt nhỏ nhìn nhau.
+"Tiền bán cá hôm qua mày ôm hết sạch còn gì!"
 
-Triệu Chí Dũng vẻ mặt đầy phẫn nộ: "Đúng là có bồ quên bạn, một trăm sáu mươi tệ mà cũng không để lại đồng nào."
+"Thế bố mẹ mày không cho mày đồng nào à?"
 
-Hắn đinh ninh rằng hôm nay Triệu Kim An đã đi chơi cùng Mộc Dao trong thành phố cả ngày, và đã tiêu sạch tiền chỉ trong một ngày.
+Bên lề đường, hai chàng trai mắt to trừng mắt nhỏ nhìn nhau.
 
-Triệu Kim An từ trong túi quần móc ra hai mươi ba tệ cùng một chiếc bật lửa.
+Triệu Trí Dũng tức tối càu nhàu: "Đúng là trọng sắc khinh bạn, một trăm sáu mươi tệ cũng chẳng thèm chừa lại lấy một cắc."
 
-Triệu Chí Dũng liếc nhìn một cái, vẻ mặt đầy chê bai: "Đi thôi, đi bán cá trước đã."
+Cậu ta đinh ninh rằng hôm nay Triệu Kim An ở thành phố dạo chơi cùng Mộc Dao cả ngày, và đã tiêu sạch bách số tiền đó rồi.
 
-"Hôm nay đánh được bao nhiêu?"
+Triệu Kim An thò tay vào túi quần, móc ra hai mươi ba tệ lẻ cùng một chiếc bật lửa.
 
-"Khoảng mười hai, mười ba cân gì đó, nếu mày không gọi điện cho tao sớm thế thì chắc phải được hai mươi cân rồi."
+Triệu Trí Dũng liếc nhìn một cái, vẻ mặt đầy vẻ chê bai khinh bỉ: "Thôi đi nào, trước tiên đi bán cá đã."
 
-Cứ thế, hai người lên xe mô tô, phóng về phía chợ dân sinh.
+"Hôm nay kiếm được bao nhiêu?"
 
-Đây là sở trường của Triệu Chí Dũng, nhắc đến là hắn tràn đầy tự tin.
+"Chừng mười hai, mười ba cân gì đấy. Nếu mày không gọi cho tao sớm thế thì hai mươi cân cũng chẳng thành vấn đề."
 
-Hôm nay tuy không có Triệu Kim An đeo giỏ cá, nhưng buổi sáng Triệu Chí Dũng đã ra sông đắp bờ, thả lưới, nên thu hoạch hôm nay còn nhiều hơn hôm qua một chút.
+Thế là, hai người lại leo lên xe máy, phóng thẳng về hướng chợ rau.
 
-Có điều hôm nay không gặp được "kẻ khờ" như Âu Cường, hai người ở chợ bán mãi mới được chín mươi lăm tệ.
+Bắt cá là sở trường số một của Triệu Trí Dũng, hễ nhắc đến là giọng điệu lại tràn trề vẻ tự tin.
 
-Triệu Chí Dũng còn "cướp" mất năm mươi tệ để đi mua thịt lợn, nhìn thằng bạn thân xách túi thịt lợn cười như thằng ngốc, Triệu Kim An có mấy lời nghẹn ở cổ họng không biết nói sao cho phải.
+Hôm nay tuy không có Triệu Kim An đeo giỏ phụ giúp, nhưng từ sáng sớm Triệu Trí Dũng đã ra sông kè vũng nhốt cá, giăng lưới sẵn sàng, nên lượng cá thu hoạch được còn nhỉnh hơn hôm qua một chút.
 
-"Hì hì, hôm qua đã hứa mua cho chị dâu rồi."
+Thế nhưng hôm nay không gặp được "con mồi béo bở" chịu chi như Âu Cường, hai người ngồi ở chợ rau bán hồi lâu mới thu về được chín mươi lăm tệ.
 
-"Là bà nội, mày đừng có làm loạn vai vế đấy."
+Triệu Trí Dũng nhanh tay "cướp" phăng năm mươi tệ chạy đi mua thịt heo. Nhìn thằng bạn nối khố xách tảng thịt heo cười toe toét như một kẻ ngốc, Triệu Kim An có cả đống lời muốn nói nghẹn ứ ở cổ họng, chẳng biết nên mở lời thế nào.
 
-Triệu Kim An kịp thời chỉnh đốn, hắn sợ tư tưởng của Triệu Chí Dũng đi lệch hướng, làm chú thì có nghĩa vụ phải sửa sai.
+"Hì hì, hôm qua tao đã hứa mua thịt cho chị dâu rồi mà."
 
-"Đi thôi, mày mua McDonald's cho ai đấy, không phải định mang đi tặng Mộc Dao chứ?"
+"Là bà thím họ, mày đừng có ăn nói lộn xộn bừa bãi vai vế."
 
-"Duyệt Thiên."
+Triệu Kim An kịp thời chỉnh đốn. Hắn sợ suy nghĩ của Triệu Trí Dũng đi chệch đường ray, phận làm chú họ như hắn có nghĩa vụ phải uốn nắn ngay từ đầu.
 
-"Hầy, kiếm được tiền thì cũng nên mua cho em gái ít đồ ăn."
+"Đi thôi. Mày mua McDonald's cho ai đấy, không phải định mang đi dỗ dành Mộc Dao chứ?"
 
-Cửa hàng thức ăn nhanh như McDonald's phải nói thế nào nhỉ?
+"Cho bé Duyệt Thiên."
 
-Vào năm 2006, ở cái thành phố nhỏ hạng mười tám này, nó thuộc dạng tồn tại "cao cấp". Ăn một suất cơm hộp chỉ mất bốn tệ, có thịt cũng chỉ năm tệ, mà tiêu xài một lần ở McDonald's hay KFC thì phải mất đến mấy chục tệ.
+"Hầy, kiếm được tiền thì đúng là nên mua cho em gái chút đồ ngon."
 
-Ngoài trẻ con yêu thích, thanh niên hẹn hò cũng thường chọn những cửa hàng thức ăn nhanh như vậy.
+Cái tên tiệm thức ăn nhanh McDonald's này, phải nói sao nhỉ?
 
-Chi phí không quá cao mà lại sành điệu.
+Vào năm 2006, tại một thành phố cấp mười tám nhỏ bé này, nó thuộc hàng xa xỉ phẩm "cao cấp". Ăn một suất cơm hộp bình dân chỉ mất bốn tệ, có thịt thà đàng hoàng cũng chỉ năm tệ, trong khi vào McDonald's hay KFC tiêu xài một lần là đi tong mấy chục tệ.
 
-Dù sao thì việc kinh doanh của McDonald's và KFC trong thành phố đều rất tốt. Triệu Chí Dũng đeo giỏ cá, bên trong là một miếng thịt lợn nặng khoảng bảy cân, giỏ vẫn còn thoang thoảng mùi tanh của cá.
+Ngoài đám trẻ con mê tít, các cặp đôi thanh niên trẻ hẹn hò cũng thường chọn những quán ăn nhanh kiểu này. Tiêu xài vừa tầm lại mang vẻ sành điệu, thời thượng phương Tây.
 
-Hắn ngước đầu nhìn chằm chằm vào những tấm hình quảng cáo tinh xảo phía trên, nuốt nước miếng ực một cái.
+Cửa hàng McDonald's và KFC trong thành phố lúc nào cũng đông nghẹt khách. Triệu Trí Dũng đeo chiếc giỏ đựng cá trên lưng, bên trong là tảng thịt heo nặng chừng bảy cân, chiếc giỏ vẫn còn thoang thoảng mùi tanh nồng của bùn nước sông.
 
-Không phải chưa từng ăn, chỉ là số lần đếm trên đầu ngón tay.
+Cậu ta ngửa đầu, nhìn chằm chằm vào những bức ảnh món ăn được in rực rỡ, tinh xảo trên bảng thực đơn mà nuốt nước bọt đánh ực.
 
-Hống hồ lúc này Triệu Chí Dũng mới mười tám tuổi, bận rộn cả buổi chiều, bụng dạ đã dính vào lưng rồi.
+Không phải chưa từng được ăn, chỉ là số lần được nếm thử đếm trên đầu ngón tay. Huống hồ chàng trai Triệu Trí Dũng lúc này mới chỉ mười tám tuổi, tất bật quần quật suốt cả buổi chiều, bụng đói cồn cào dán chặt vào lưng.
 
-Triệu Kim An lấy hết số tiền mình có là sáu mươi tám tệ, gọi một suất combo và gọi thêm một cái bánh burger.
+Triệu Kim An dốc toàn bộ số tiền còn lại trong người, tổng cộng sáu mươi tám tệ, gọi một phần combo rồi gọi thêm riêng một chiếc hamburger nữa.
 
-"Ăn ở đây hay mang về?"
+"Dùng tại đây hay mang về ạ?"
 
 "Mang về."
 
-Cô gái phục vụ xinh đẹp nhìn Triệu Kim An, rồi lại nhìn Triệu Chí Dũng, nhăn mũi một cái rồi chuẩn bị đi làm đồ.
+Cô nhân viên xinh xắn liếc nhìn Triệu Kim An, rồi lại ngó sang Triệu Trí Dũng, hơi khẽ nhăn mũi một cái rồi quay đi chuẩn bị đồ ăn.
 
-Triệu Chí Dũng lúc này mới phản ứng lại, nhìn cái giỏ cá mình đang đeo, định ra ngoài chờ.
+Triệu Trí Dũng lúc này mới giật mình nhận ra, nhìn lại chiếc giỏ cá nồng mùi tanh trên lưng mình, bối rối toan lùi ra ngoài cửa đứng đợi.
 
-Triệu Kim An túm lấy hắn, nghiêm túc nói: "Mày là khách hàng."
+Triệu Kim An đưa tay giữ chặt lấy vai bạn, trầm giọng nói đầy nghiêm túc: "Mày là khách hàng, là người tiêu dùng."
 
-"Hì hì."
+"Hì hì." Triệu Trí Dũng gãi gãi đầu, nở nụ cười ngượng ngùng.
 
-Triệu Chí Dũng gãi đầu, cười gượng gạo.
+"Ha." Triệu Kim An cũng khẽ cười. Hắn thấy xót xa cho nỗi tự ti sâu kín trong lòng Triệu Trí Dũng — một sự tự ti bắt nguồn từ hoàn cảnh gia đình nghèo khó.
 
-"Hừ."
+Thời cấp ba, trong lớp có vài bạn học thường cầm theo ly nước ngọt có logo McDonald's hay KFC vào lớp học. Rõ ràng một chai Coca ở tiệm tạp hóa bên ngoài chỉ bán có hai tệ rưỡi, nhưng họ lại thích cầm chiếc cốc giấy có thương hiệu ấy. Uống hết rồi vẫn không nỡ vứt đi, cứ ngậm lấy ống hút mà mút đá lạo xạo phát ra tiếng sột soạt, sau đó đặt chiếc cốc thật ngay ngắn, nổi bật ngay trên mặt bàn học.
 
-Triệu Kim An cũng cười, có chút xót xa cho sự tự ti trong lòng Triệu Chí Dũng, sự tự ti bắt nguồn từ hoàn cảnh gia đình.
+Những học sinh nghèo như Triệu Kim An và Triệu Trí Dũng đương nhiên chẳng bao giờ dám vung tiền như thế. Mấy chục tệ đối với họ là cả tháng tiền tiêu vặt. Nếu là những người còn tằn tiện hơn nữa, chỉ cần một hũ tương ớt Lão Can Ma ăn kèm cơm trắng là có thể cầm cự qua ngày suốt cả tuần chỉ với mười mấy tệ.
 
-Thời trung học, có vài bạn học trong lớp thường cầm cốc Coca vào phòng học, rõ ràng ở cửa hàng tạp hóa bên ngoài một chai Coca chỉ bán hai tệ rưỡi, nhưng họ lại thích cầm cốc của McDonald's hay KFC vào.
+Triệu Kim An và Triệu Trí Dũng dĩ nhiên chưa đến mức phải chắt bóp tới độ ấy, nhưng xung quanh họ luôn có những mảnh đời học sinh còn chật vật hơn nhiều.
 
-Uống xong cũng không nỡ vứt, cứ ngậm ống hút mút đá lạo xạo.
+Nhận túi đồ ăn từ tay nhân viên, Triệu Kim An xin thêm vài gói tương cà, rồi lấy chiếc bánh hamburger đưa cho Triệu Trí Dũng.
 
-Sau đó, họ còn đặt chiếc cốc đó lên bàn học.
+Bước ra ngoài tiệm, Triệu Trí Dũng mới ngạc nhiên hỏi: "Kim An, mày không ăn à?"
 
-Những học sinh như Triệu Kim An và Triệu Chí Dũng tự nhiên không nỡ tiêu xài, mấy chục tệ đối với họ là tiền tiêu vặt của cả một tháng.
+Cậu ta tưởng Triệu Kim An nhịn miệng để dành hết cho cô em gái Triệu Duyệt Thiên. Triệu Kim An xua tay: "Mày ăn đi, tao vừa mới ăn cơm no xong."
 
-Nếu ai tiết kiệm hơn một chút, một lọ tương ớt Lão Cán Ma ăn với cơm trắng, mười mấy tệ có thể cầm cự được một tuần.
+"Thế thì tao không khách khí nữa đâu nhé."
 
-Triệu Kim An và Triệu Chí Dũng tự nhiên không cần phải khổ như thế, nhưng trong trường luôn có những học sinh còn khó khăn hơn họ.
+Triệu Trí Dũng cầm bánh nhai ngấu nghiến như hổ đói.
 
-Nhận lấy túi đồ từ tay nhân viên phục vụ, Triệu Kim An xin thêm mấy gói tương cà, rồi lấy một cái bánh burger đưa cho Triệu Chí Dũng.
+Triệu Kim An thò tay vào túi rút ra một điếu thuốc Bạch Sa, châm lửa hút.
 
-Sau khi ra ngoài, Triệu Chí Dũng mới hỏi: "Kim An, mày không ăn à?"
+Dưới cái nắng gay gắt của buổi chiều muộn, hai bóng người rảo bước tiến về phía chiếc xe máy dựng bên lề đường.
 
-Hắn tưởng Triệu Kim An nhịn để dành cho em gái Triệu Duyệt Thiên, Triệu Kim An xua tay: "Mày ăn đi, tao vừa ăn cơm xong."
+Một người đeo trên lưng tảng thịt heo trị giá năm mươi tệ.
 
-"Hì hì, vậy tao không khách sáo nhé."
+Một người mang trong túi tờ vé số trị giá gần năm triệu tệ.
 
-Triệu Chí Dũng ăn ngấu nghiến.
+"Kim An à, hai đứa mình cày cuốc quần quật suốt hai ngày trời mà chưa để dành được đồng cắc nào cả!"
 
-Triệu Kim An từ túi quần móc ra một điếu thuốc Bạch Sa, châm lửa.
+"Ừ."
 
-Dưới ánh nắng gay gắt, hai người đi về phía chiếc xe mô tô đậu bên lề đường.
-
-Một người thồ năm mươi tệ thịt lợn, một người thồ tờ vé số trị giá gần năm triệu tệ.
-
-"Kim An, chúng ta bận rộn hai ngày rồi mà vẫn chưa để dành được đồng nào!"
-
-"Ừm."
-
-"Tiền kiếm được ngày mai không được tiêu xài lung tung nữa đâu đấy!"
+"Ngày mai kiếm được tiền thì dứt khoát không được tiêu xài bậy bạ nữa đâu đấy!"
 
 "Được."
 
-"Đúng rồi, hôm nay mày với Mộc Dao đi làm gì mà tiêu nhiều tiền thế?"
+"À đúng rồi, hôm nay mày với Mộc Dao đi đâu làm gì mà tiêu tốn nhiều tiền thế?"
 
-"Lái xe cho hẳn hoi vào, đừng có ngoái đầu lại!"
+"Tập trung lái xe đi, đừng có quay đầu lại!"
 
-"Kiếm được tiền tao muốn mua một chiếc Nokia N70."
+"Bao giờ kiếm được tiền tao muốn mua một con Nokia N70 ghê."
 
-Năm 2006, chiếc điện thoại bán chạy nhất chính là Nokia N70, lúc mới ra mắt giá là 3950 tệ, sau đó giảm xuống còn 2790 tệ. Sắp lên đại học nên rất nhiều người muốn đổi điện thoại đầu tiên.
+Năm 2006, chiếc điện thoại bán chạy nhất thị trường chính là Nokia N70. Lúc mới ra mắt có giá 3.950 tệ, sau đó giảm dần xuống còn 2.790 tệ. Sắp bước chân vào giảng đường đại học, điều đầu tiên mà đa số thanh niên nghĩ tới chính là đổi một chiếc điện thoại thật xịn.
 
-Triệu Kim An bỗng nhận ra dường như mình chẳng có gì muốn mua, trong mắt hắn, điện thoại thời này đều như nhau, chỉ cần nghe gọi và nhắn tin được là xong.
+Triệu Kim An lại chợt nhận ra bản thân dường như chẳng có thứ gì đặc biệt muốn mua sắm. Trong mắt một người đã từng trải qua cả thời đại smartphone như hắn, điện thoại thời này chiếc nào cũng giống nhau, chỉ cần nghe gọi, nhắn tin ổn định là đủ.
 
-Về đến Triệu Gia Thôn, nhà nhà đã bắt đầu đỏ lửa, khói bếp nghi ngút. Triệu Duyệt Thiên đang ở sân trước đuổi theo một con chó vàng nhỏ đùa nghịch, chiếc váy nhỏ trên người lại bẩn hết cả.
+...
 
-Thấy xe mô tô quay về, con bé hớn hở chạy tới.
+Khi trở về tới làng họ Triệu, từng nếp nhà đã bắt đầu nghi ngút khói bếp lam chiều. Bé Triệu Duyệt Thiên đang chạy lăng xăng đuổi bắt một chú chó cỏ nhỏ ngoài sân trước, chiếc váy nhỏ trên người lại lấm lem bụi đất.
 
-"Anh trai!"
+Thấy chiếc xe máy quen thuộc chạy về, cô bé mừng rỡ chân sáo chạy ùa ra:
 
-Triệu Kim An còn chưa kịp mở lời, Triệu Chí Dũng đã cướp lời trước.
+"Anh ơi~!"
 
-"Xem anh trai mua gì cho em này? McDonald's đấy!"
+Triệu Kim An còn chưa kịp mở miệng, Triệu Trí Dũng đã nhanh nhảu tranh lời:
 
-"Ha ha ha... Cảm ơn anh trai."
+"Xem anh mua cho em món gì này! McDonald's nhé!"
 
-Triệu Chí Dũng giả vờ nghiêm mặt: "Còn anh thì sao?"
+"A ha ha ha... Em cảm ơn anh ạ!"
 
-"Cảm ơn anh Chí Dũng."
+Triệu Trí Dũng làm bộ mặt nghiêm nghị trêu chọc: "Thế còn anh thì sao?"
 
-Vương Kim Như có lẽ từng đưa Triệu Duyệt Thiên đi ăn rồi, con bé nhảy cẫng lên bên cạnh chiếc mô tô, Triệu Kim An đưa túi đồ qua: "Cho bà nội một cái cánh gà nhé."
+"Em cảm ơn anh Trí Dũng ạ."
 
-"Bà nội ơi!"
+Có lẽ trước đây Vương Kim Như từng dắt Triệu Duyệt Thiên đi ăn thử rồi, nên con bé vừa nhận ra là nhảy cẫng lên bên chiếc xe máy vì vui sướng. Triệu Kim An đưa túi đồ ăn qua dặn dò: "Đưa cho bà nội một chiếc cánh gà nhé."
 
-Triệu Duyệt Thiên hét lớn: "Anh trai mua McDonald's về này!"
+"Bà nội ơi!" Triệu Duyệt Thiên cất tiếng gọi vang: "Anh mua McDonald's về này!"
 
 "Ngoan lắm!"
 
-Triệu Chí Dũng xoa đầu Triệu Duyệt Thiên, rồi sốt sắng xách túi thịt lợn đi sang nhà Doãn Hiểu Lan nịnh nọt.
+Triệu Trí Dũng xoa xoa đầu bé Duyệt Thiên, rồi sốt ruột xách tảng thịt heo chạy biến sang nhà Doãn Hiểu Lan để lấy lòng.
 
-"Chà, thịt lợn đều mang sang nhà người khác hết rồi à?"
+"Gớm chưa, thịt heo lại xách hết sang nhà người khác rồi đấy à?"
 
-Vương Kim Như từ trong bếp đi ra, buông một câu đầy mỉa mai.
+Vương Kim Như từ trong bếp bước ra, buông ngay một câu mỉa mai chua chát.
 
-Cũng đúng, trong nhà mình không để lại tí nào, quả thực có chút không phải.
+Cũng phải thôi, trong nhà mình chẳng chừa lại lấy một miếng, kể ra cũng hơi kỳ cục. Mãi đến hôm nay bà mới biết chuyện Triệu Kim An và Triệu Trí Dũng rủ nhau đi bắt cá mang bán.
 
-Hôm nay bà mới biết Triệu Kim An và Triệu Chí Dũng đi bán cá.
+Thế nhưng khi nhìn thấy túi đồ ăn nhanh trong lòng Triệu Duyệt Thiên, sắc mặt bà dịu lại đôi phần, lẩm bẩm thêm một câu: "Xem như mày vẫn còn chút lương tâm."
 
-Nhưng nhìn thấy cái túi trong tay Triệu Duyệt Thiên, bà lại bồi thêm một câu: "Coi như mày còn có chút lương tâm."
+Triệu Kim An xem như không nghe thấy, tự động gạt bỏ những lời khó nghe ấy ra ngoài tai.
 
-Triệu Kim An coi như không nghe thấy, tự động lọc bỏ những lời khó nghe đó.
+Ở kiếp trước, suốt những năm tháng tuổi trẻ hắn đều phải sống dưới những lời "cằn nhằn xoi mói" như thế của Vương Kim Như.
 
-Kiếp trước suốt bao nhiêu năm hắn đều sống dưới sự "cằn nhằn" như thế này của Vương Kim Như.
+Thế nhưng giờ đây nghe lại, trong lòng Triệu Kim An lại dấy lên một cảm nhận hoàn toàn khác.
 
-Nhưng bây giờ nghe lại, Triệu Kim An lại có một cảm nhận khác.
+"Thím à, thím đừng nói năng kiểu đó trước mặt bé Duyệt Thiên, không tốt cho việc dạy dỗ trẻ con đâu."
 
-"Thím à, thím đừng nói năng như thế trước mặt Duyệt Thiên, không tốt cho việc giáo dục trẻ con đâu."
-
-Vương Kim Như lườm một cái: "Được rồi, mày là sinh viên đại học, mày nói chuyện có trình độ."
+Vương Kim Như đảo mắt lườm một cái: "Vâng, cậu là sinh viên đại học, cậu ăn nói có trình độ, có văn hóa nhất rồi."
 
 "..."
 
-Được rồi, Triệu Kim An chịu thua, muốn thay đổi một người quả thực quá khó.
+Được rồi, Triệu Kim An đành chịu thua. Muốn thay đổi tính nết của một con người quả thực khó hơn lên trời.
 
-Vương Kim Như sững người một lát rồi cũng bật cười.
+Vương Kim Như ngẩn người ra một thoáng rồi cũng bật cười. Bà bước tới vỗ nhẹ lên vai Triệu Kim An: "Tối nay cậu định ăn cơm ở đâu?"
 
-Bà đi tới vỗ vai Triệu Kim An: "Mày sang đâu ăn cơm?"
+"Bên nhà chị dâu ạ."
 
-"Sang chỗ chị dâu ạ."
+Triệu Kim An ngó nghiêng sang phía bên kia, Triệu Trí Dũng vẫn chưa thấy quay ra, chắc hẳn đang tíu tít phụ giúp nấu nướng trong bếp rồi.
 
-Triệu Kim An liếc nhìn, Triệu Chí Dũng vẫn chưa ra, chắc là đang ở trong bếp giúp một tay nấu cơm rồi.
+"Lần sau không ăn cơm nhà thì nhớ nói sớm một tiếng, lại tốn công nấu thêm phần cơm của cậu rồi!"
 
-"Lần sau không về nhà ăn cơm thì nói sớm một tiếng, lại nấu thừa cơm của mày rồi!"
+Miệng lưỡi Vương Kim Như tuy có phần cay nghiệt bộc trực, nhưng trong chuyện ăn uống thường ngày bà chưa từng phân biệt đối xử tệ bạc giữa Triệu Kim An và Triệu Duyệt Thiên. Mỗi lần Triệu Kim An ở nội trú trường huyện về nhà, bà thỉnh thoảng vẫn giặt giũ quần áo giúp hắn.
 
-Vương Kim Như cái miệng tuy có hơi "độc địa", nhưng về chuyện ăn uống bà không bao giờ phân biệt đối xử giữa Triệu Kim An và Triệu Duyệt Thiên. Lúc Triệu Kim An đi học nội trú về, thỉnh thoảng bà còn giúp hắn giặt quần áo.
+Dù sao Triệu Kim An mỗi tháng mới về nhà một lần, trong thâm tâm Vương Kim Như có lẽ cũng có đôi chút mong mỏi, dù sao trong nhà có một đứa con trai vẫn an tâm hơn cảnh chỉ toàn ba người phụ nữ lủi thủi.
 
-Dù sao thì mỗi tháng Triệu Kim An mới về nhà một lần, trong lòng Vương Kim Như có lẽ vẫn còn chút mong mỏi, dù sao vẫn tốt hơn là trong nhà chỉ có ba người phụ nữ.
-
-Ngày thường Vương Kim Như cũng không ít lần khoe khoang trong thôn, nói cháu trai mình vừa đẹp trai, thành tích học tập lại vừa tốt.
+Ngày thường, Vương Kim Như cũng không ít lần đem chuyện khoe khoang khắp đầu làng cuối xóm, bảo rằng đứa cháu trai của mình vừa khôi ngô tuấn tú, thành tích học tập lại xuất sắc vô cùng...

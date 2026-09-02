@@ -1,199 +1,203 @@
-# Chương 124: Trong góc của ánh sáng nhạt.
+# Chương 124: Vệt sáng nơi góc khuất
 
-Từ Mạn Mạn trong nhà không phải làm ăn, không có cái gì thương nghiệp thông gia.
+> **Tiêu đề gốc**: 第124章 角落里的微光。
 
-Phụ thân, từ tắc thì tòa nhà là công vụ viên.
+Gia đình Hứa Mạn Mạn không theo nghiệp buôn bán kinh doanh, nên chẳng hề có chuyện liên hôn thương mại vì lợi ích tiền tài.
 
-Mẫu thân, lương Tuệ Trân cũng là sự nghiệp bện.
+Bố cô, ông Hứa Tắc Đống là một công chức nhà nước.
 
-Hai nhà là đối câu đối hai bên cánh cửa nhà của hàng xóm, quan hệ rất tốt, Dương thù đẹp từ chức kinh thương kiếm tiền sau liền dọn đi rồi.
+Mẹ cô, bà Lương Huệ Trân cũng làm việc trong biên chế của cơ quan sự nghiệp công lập.
 
-Nói trần trạch cùng Từ Mạn Mạn thanh mai trúc mã hai nhỏ vô tư cũng có thể.
+Hai gia đình vốn là hàng xóm đối cửa sát vách, quan hệ thân thiết gắn bó từ lâu. Mãi sau này khi Dương Thù Mỹ từ chức ra ngoài bươn chải kinh doanh, phất lên kiếm được nhiều tiền mới chuyển đến khu nhà sang trọng hơn.
 
-Phụ mẫu là đồng sự lại là hàng xóm, chắc chắn thường xuyên thông cửa.
+Bảo Trần Trạch và Hứa Mạn Mạn là thanh mai trúc mã, hai nhỏ vô tư cùng nhau lớn lên cũng chẳng hề sai.
 
-Dương thù rất đẹp ưa thích Từ Mạn Mạn, đối với từ tắc thì tòa nhà cùng lương Tuệ Trân lại hiểu rõ, biết tính cách của các nàng, còn có bồi dưỡng ra được nữ nhi, dạng này trong sạch của gia đình....
+Bố mẹ đôi bên vừa là đồng nghiệp cũ lại vừa là láng giềng gần, việc thường xuyên qua lại thăm hỏi nhau là lẽ dĩ nhiên.
 
-Không có lý do gì không thích.
+Dương Thù Mỹ quý Hứa Mạn Mạn như con gái ruột, đối với tính cách của vợ chồng Hứa Tắc Đống và Lương Huệ Trân lại càng hiểu rõ từng chân tơ kẽ tóc. Bà thấu hiểu nhân phẩm của họ, cũng như nề nếp gia phong đã rèn giũa nên một cô con gái đoan trang, thanh tú nhường này... Một gia đình gia giáo, trong sạch như thế...
 
-Dương thù đẹp trước đó vội vàng khởi sự nghiệp tới, trần trạch liền thường xuyên tại Từ Mạn Mạn nhà ăn cơm.
+Chẳng có bất kỳ lý do gì để bà không vừa lòng.
 
-Trần trạch cùng Từ Mạn Mạn từ tiểu học đến sơ trung cơ hồ mỗi ngày cùng ngươi học chung, tựa hồ không có thổ lộ.
+Ngày trước mỗi khi bận rộn dốc sức cho sự nghiệp làm ăn, Trần Trạch vẫn thường xuyên sang nhà Hứa Mạn Mạn ăn cơm ké.
 
-Song phương phụ mẫu có chút chấp nhận.
+Từ những năm tháng tiểu học cho tới hết cấp hai, Trần Trạch và Hứa Mạn Mạn gần như ngày nào cũng sóng vai cùng nhau đến trường rồi cùng nhau về nhà. Giữa hai người dường như chưa từng có một lời tỏ tình chính thức nào.
 
-Hài tử còn nhỏ thời điểm, song phương phụ mẫu liền thường xuyên nói đùa.
+Bậc làm cha làm mẹ đôi bên coi như đã ngầm định mối duyên lành này từ lâu.
 
-Dương thù tóc đẹp đạt sau, mua tân phòng trang trí đều cho Từ Mạn Mạn lưu lại căn phòng ngủ, nhận đúng người con dâu này.
+Từ thuở hai đứa trẻ còn tấm bé, người lớn hai nhà đã thường xuyên đem chuyện này ra trêu đùa, gán ghép.
 
-Từ Mạn Mạn từ phòng ngủ đi ra.
+Sau khi Dương Thù Mỹ ăn nên làm ra, lúc mua căn hộ mới và bài trí nội thất, bà đều cố tình chừa riêng một phòng ngủ bài trí tươm tất cho Hứa Mạn Mạn, trong lòng đã đinh ninh nhận chắc cô con dâu hiền thảo này.
 
-Từ tắc thì tòa nhà rất ưa thích hí hoáy đồ uống trà, trông thấy nữ nhi liền hỏi:"trần trạch nhỉ? Hắn lại không đi trong xưởng?"
+Hứa Mạn Mạn từ trong phòng ngủ bước ra.
 
-Từ Mạn Mạn gật đầu, tại ba ba đối diện ngồi xuống tới:"hắn tối hôm qua cùng bằng hữu ăn bữa khuya uống một chút rượu, chơi đến đã khuya, gọi điện thoại bây giờ còn chưa đứng lên."
+Hứa Tắc Đống vốn rất có thú vui tao nhã thưởng trà, vừa thấy con gái liền cất giọng hỏi: "Thằng Trần Trạch đâu rồi con? Nó lại không chịu đến xưởng à?"
 
-Từ tắc thì tòa nhà nhìn xem thời gian:"nhanh 1 1 điểm."
+Hứa Mạn Mạn khẽ gật đầu, kéo ghế ngồi xuống đối diện với bố: "Tối qua cậu ấy đi ăn đêm uống chút rượu với bạn bè, chơi bời tới tận khuya muộn, con gọi điện thì giờ vẫn còn chưa ngủ dậy ạ."
 
-Lương Tuệ Trân mang theo tạp dề, đang tại trích thái đang chuẩn bị cơm, nàng cười nói:"người tuổi trẻ bây giờ a đều như vậy, ban đêm ngủ không được, buổi sáng dậy không nổi."
+Hứa Tắc Đống liếc nhìn đồng hồ trên tường: "Đã gần mười một giờ trưa rồi còn gì."
 
-Từ Mạn Mạn nhìn mụ mụ một cái, không có phản bác.
+Lương Huệ Trân đang đeo tạp dề nhặt rau trong bếp chuẩn bị bữa trưa, liền cười xòa nói vọng ra: "Lũ trẻ thời nay đứa nào mà chẳng thế hả ông, tối thì thức khuya không ngủ được, sáng thì ngủ nướng chẳng chịu dậy."
 
-Nàng muốn nói Triệu Kim An không phải như thế.
+Hứa Mạn Mạn khẽ đưa mắt nhìn mẹ, không lên tiếng phân bua.
 
-Từ tắc thì tòa nhà nói:"Dương thù đẹp hô trần trạch đi thêm trong xưởng đi loanh quanh, là có ý định để hắn rèn luyện một chút."
+Trong lòng cô thầm nghĩ: Triệu Kim An đâu có như thế.
 
-"các nàng mới lên đại nhị, bây giờ có mấy cái nam hài tử có thể trầm xuống tâm? Cũng không phải chúng ta niên đại đó, 1 0 mấy tuổi liền muốn nuôi sống gia đình đi giãy công điểm rồi."
+Hứa Tắc Đống nhấp một ngụm trà rồi nói: "Dương Thù Mỹ bảo Trần Trạch chịu khó đến xưởng ngó nghiêng việc kinh doanh là có ý muốn rèn giũa cho nó trưởng thành đấy."
 
-"các ngươi nam còn tốt, một ngày có 1 0 công điểm, chúng ta female chỉ có 4 công điểm, 6 công điểm."
+"Chúng nó mới vừa lên năm hai đại học, thời buổi này có mấy đứa con trai biết lắng lòng lại chịu khó học hỏi đâu ông? Đâu phải như cái thời của chúng mình ngày xưa, mới mười mấy tuổi đầu đã phải bươn chải kiếm từng đồng gánh vác cả gia đình, nai lưng ra đồng kiếm từng điểm công."
 
-Lương Tuệ Trân kéo xong việc nhà liền tiến vào phòng bếp.
+"Cánh đàn ông các ông còn đỡ, một ngày cày cuốc được mười điểm công, còn phụ nữ chúng tôi còng lưng cả ngày cũng chỉ được có bốn điểm, sáu điểm công là cùng."
 
-Nàng và từ tắc thì tòa nhà cũng là nhìn xem trần trạch lớn lên, trần trạch bản tính không xấu, cái tuổi này nam hài tử ham chơi điểm rất bình thường.
+Bà Lương Huệ Trân buôn dăm ba câu chuyện phiếm thời bao cấp xong liền quay trở lại gian bếp.
 
-Từ Mạn Mạn lưng đứng thẳng, hai đầu gối khép lại hơi nghiêng, đưa tay giúp ba ba pha trà.
+Bà và Hứa Tắc Đống cũng là những người tận mắt nhìn Trần Trạch lớn lên từ tấm bé. Bản tính thằng bé không hề xấu, ở cái tuổi bồng bột này con trai có ham chơi một chút cũng là lẽ thường tình.
 
-Từ tắc thì tòa nhà mắt nhìn nữ nhi, hài lòng gật đầu.
+Hứa Mạn Mạn giữ thẳng sống lưng, hai đầu gối khép hờ nghiêng nhẹ sang một bên, vươn đôi bàn tay thon thả thuần thục pha trà giúp bố.
 
-Hắn một mực cứ như vậy dạy bảo nữ nhi của, Từ Mạn Mạn tại nhà mình xem tivi cũng không thể mặc váy ngã lệch ở trên ghế sa lon, nữ hài tử ngồi phải có một tượng ngồi.
+Hứa Tắc Đống đưa mắt ngắm nhìn con gái, hài lòng khẽ gật đầu.
 
-Từ tắc thì tòa nhà nói:"nam hài tử thành thục tối nay, ngươi nhiều đốc xúc phía dưới hắn."
+Ông luôn nghiêm khắc rèn giũa con gái theo nếp nhà gia giáo như thế. Hứa Mạn Mạn ở nhà xem tivi cũng tuyệt đối không được phép mặc váy rồi nằm ngả ngớn tùy tiện trên sô pha, con gái bước ra ngoài hay ở nhà thì ngồi phải ra dáng ngồi.
 
-Từ Mạn Mạn chần chờ sẽ, gật đầu.
+Hứa Tắc Đống dặn dò: "Bọn con trai thường trưởng thành và chín chắn muộn hơn, con chịu khó nhắc nhở, đốc thúc nó nhiều hơn một chút."
 
-Một lát sau Từ Mạn Mạn liền đứng dậy đi phòng ngủ.
+Hứa Mạn Mạn ngập ngừng một thoáng rồi khẽ gật đầu: "Vâng ạ."
 
-Nàng lại một lần nghe được"đốc xúc."
+Ngồi thêm một lát, Hứa Mạn Mạn đứng dậy quay trở về phòng ngủ của mình.
 
-Dương thù đẹp gọi mình đốc xúc trần trạch, ba ba cũng gọi chính mình đốc xúc trần trạch.
+Cô lại một lần nữa nghe thấy hai chữ "đốc thúc".
 
-Từ Mạn Mạn không biết mình từ lúc nào bắt đầu liền nghe được cái từ này.
+Dì Dương Thù Mỹ bảo cô phải đốc thúc Trần Trạch, đến bố đẻ cũng dặn dò cô phải đốc thúc Trần Trạch.
 
-Tựa như là sơ trung?
+Hứa Mạn Mạn không nhớ nổi mình đã bắt đầu nghe thấy từ ngữ này từ bao giờ nữa.
 
-Dương thù đẹp a di gọi mình đốc xúc trần trạch học tập.
+Hình như là từ hồi cấp hai chăng?
 
-Từ Mạn Mạn chính mình cũng không nhớ rõ.
+Khi ấy dì Dương Thù Mỹ đã dặn cô phải đốc thúc chuyện học hành của Trần Trạch.
 
-Ngược lại trần trạch là có chút sợ chính mình.
+Chính bản thân Hứa Mạn Mạn cũng chẳng còn nhớ rõ mốc thời gian cụ thể nữa.
 
-Từ Mạn Mạn khép cửa phòng lại, khóa trái, phục ghé vào trên bàn học.
+Chỉ biết rằng trong lòng Trần Trạch luôn có đôi phần kiêng dè, sợ sệt cô.
 
-Nàng đột nhiên phát giác dạng này ngồi mệt mỏi quá, ngồi lâu rồi liền mệt mỏi.
+Hứa Mạn Mạn khép chặt cửa phòng, xoay chốt khóa trái lại, rồi buông lỏng cả người gục xuống mặt bàn học.
 
-"Triệu Kim An sẽ mệt không?"
+Cô bỗng phát hiện ra giữ mãi tư thế ngồi nghiêm trang chuẩn mực ấy sao mà mệt mỏi đến thế, ngồi lâu cả người sẽ rã rời, ê ẩm.
 
-"hắn ăn cơm bưng bát, cũng ngồi rất thẳng."
+"Triệu Kim An có thấy mệt mỏi như vậy không?"
 
-"hắn một mực cũng là như vậy sao?"
+"Cậu ấy lúc bưng bát ăn cơm, sống lưng cũng luôn thẳng tắp như vậy."
 
-Trần trạch ngủ đến giữa trưa mới lên, gọi điện thoại tới nói hôm nay không đi trong xưởng rồi, Từ Mạn Mạn không nói gì, liền"ân"một tiếng.
+"Có phải từ trước đến nay cậu ấy vẫn luôn nghiêm cẩn như thế không?"
 
-Trần trạch còn có chút ngoài ý muốn, nói Mạn Mạn, ngươi đừng hướng mẹ ta cáo trạng.
+Trần Trạch ngủ say sưa đến tận trưa trật mới chịu dậy, gọi điện sang phân trần rằng hôm nay không đến xưởng nữa. Hứa Mạn Mạn không nói thêm lời nào, chỉ khẽ "ừm" một tiếng buông lơi.
 
-"ân."
+Trần Trạch còn có chút bất ngờ, vội vàng dặn: "Mạn Mạn à, cậu đừng có mách mẹ tớ đấy nhé."
 
-Từ Mạn Mạn lại ừ một tiếng.
+"Ừm."
 
-Cúp điện thoại, nàng cũng không đi tinh sa rồi, tại phòng ngủ ngủ sẽ.
+Hứa Mạn Mạn lại nhàn nhạt đáp một tiếng.
 
-Buổi chiều mới đi ra ngoài, nói mẹ, ta ra ngoài phía dưới.
+Cúp điện thoại xong, cô cũng chẳng còn tâm trí nào muốn sang Tinh Sa nữa, cứ thế nằm nghỉ một giấc trong phòng ngủ.
 
-8 cuối tháng.
+Mãi tới tận xế chiều cô mới sửa soạn bước ra khỏi nhà, cất tiếng: "Mẹ ơi, con xin phép ra ngoài một lát ạ."
 
-Dương quang vẫn như cũ hừng hực, nhưng đã rút đi loại kia thiêu đốt một dạng sắc bén, càng giống một khối ấm áp lá vàng phủ kín đại địa, nhiều hơn một loại chín muồi sung mãn cảm giác.
+***
 
-Từ Mạn Mạn không có đánh ô mặt trời, một kiện đơn giản T lo lắng, một đầu quần jean bó sát người.
+Cuối tháng Tám.
 
-Thân thể của nàng liền có một loại sung mãn cảm giác.
+Ánh nắng vàng vọt vẫn rực rỡ chan hòa khắp phố phường, nhưng đã rũ bỏ đi thứ nhiệt lượng gay gắt thiêu đốt như thiêu như đốt của mùa hè, tựa như một lớp dát vàng ấm áp phủ đều lên mặt đất, mang theo hương vị đẫy đà, chín muồi của mùa thu chớm sang.
 
-Tròn trịa thẳng hai chân, tinh tế vòng eo, mông lại vểnh lên vừa tròn, cho người ta một loại căng cứng cảm giác.
+Hứa Mạn Mạn không mang theo ô che nắng, chỉ mặc một chiếc áo thun đơn giản kết hợp cùng chiếc quần jean bó sát.
 
-Đây là 1 9 tuổi thiếu nữ.
+Cơ thể cô toát lên một vẻ căng tràn đầy đặn.
 
-Từ Mạn Mạn đi xe buýt đi đại học thành, tìm được chính mình đã từng kiêm chức qua công ty.
+Đôi chân thon dài thẳng tắp, vòng eo nhỏ nhắn đối lập với bờ mông tròn trịa săn chắc và cong vút, mang lại cảm giác căng tràn sức sống.
 
-Trong viện.
+Đó là nét thanh xuân kiều diễm của một thiếu nữ mười chín tuổi xuân thì.
 
-Đơn vĩ đang tại rửa xe, hắn cái gì công cụ cũng có, cầm tăng áp lực ống nước phun ra xe hàng nhỏ.
+Hứa Mạn Mạn đón xe buýt đi tới làng đại học, tìm đến địa chỉ của công ty mà mình từng làm việc bán thời gian trước đây.
 
-"tiểu cô nương, ngươi tìm ai?"
+Bên trong khoảng sân nhỏ.
 
-"ngươi tốt, xin hỏi đạt đến nhiên ở đây làm việc sao?"
+Đan Vĩ đang cặm cụi rửa xe. Anh trang bị đầy đủ mọi dụng cụ nghề nghiệp, tay cầm vòi xịt nước áp lực cao phun rửa sạch sẽ chiếc xe tải nhỏ.
 
-Đơn vĩ dò xét Từ Mạn Mạn, gật đầu.
+"Cô bé tìm ai thế?"
 
-Triệu Bác lan vừa vặn đi ra, tại lầu hai hành lang vấn đạo:"ngươi là tới nhận lời mời kiêm chức sao, không cần tới đây."
+"Dạ cháu chào chú, xin hỏi đây có phải văn phòng làm việc của công ty Trăn Nhiên không ạ?"
 
-"không phải."
+Đan Vĩ đưa mắt đánh giá Hứa Mạn Mạn một lượt rồi khẽ gật đầu.
 
-Từ Mạn Mạn ngẩng đầu:"ta tại công ty của các ngươi làm qua mấy ngày kiêm chức, ta biết Triệu Kim An."
+Đúng lúc đó Triệu Bác Lan bước ra ngoài hành lang tầng hai, cất tiếng hỏi vọng xuống: "Em đến ứng tuyển làm cộng tác viên bán thời gian à? Không cần phải qua tận đây đâu nhé."
 
-Triệu Bác lan nhìn một chút Từ Mạn Mạn, gõ cửa:"Kim An, có người tìm ngươi!"
+"Dạ không phải đâu chị."
 
-Triệu Kim An đi ra, nhìn xem trong viện của Từ Mạn Mạn, có chút ngoài ý muốn.
+Hứa Mạn Mạn ngước mặt lên: "Trước đây em từng làm thêm ở công ty mình vài hôm, em là người quen của Triệu Kim An ạ."
 
-Đêm đó Từ Mạn Mạn hỏi mình tại quận cát sao?
+Triệu Bác Lan chăm chú nhìn Hứa Mạn Mạn vài giây rồi quay người gõ cửa: "Kim An ơi, có người tìm anh này!"
 
-Hai người nghỉ hè hai cái nguyệt nhưng chưa từng thấy qua mặt.
+Triệu Kim An từ trong phòng bước ra ngoài hành lang, nhìn thấy bóng dáng Hứa Mạn Mạn đang đứng dưới sân, trong lòng thoáng chút bất ngờ.
 
-Không nghĩ tới sắp khai giảng rồi Từ Mạn Mạn đột nhiên tìm tới, Triệu Kim An cười nói:"ngươi tốt."
+Đêm hôm nọ cô gái này nhắn tin hỏi anh có ở Quận Sa không.
 
-Lại là một câu"ngươi tốt", phảng phất song phương lần thứ nhất gặp mặt.
+Thế nhưng suốt trọn vẹn hai tháng nghỉ hè, hai người chưa từng gặp mặt nhau lấy một lần.
 
-Nhưng rõ ràng man thương thương là sợ đau, từ nhỏ sợ chích a.
+Không ngờ sát ngày tựu trường, Hứa Mạn Mạn lại bất ngờ tìm đến tận cửa công ty. Triệu Kim An mỉm cười cất lời chào: "Chào cậu."
 
-Từ Mạn Mạn ngẩn người, ngẩng đầu cười nói:"ngươi tốt, Triệu Kim An, ta ở công ty kiêm chức mấy ngày còn chưa tới qua công ty, ta có thể lên đi xem một chút sao?"
+Lại là một câu "chào cậu" khách sáo, xa cách, cứ như thể hai người mới gặp nhau lần đầu tiên trong đời.
+
+Thế nhưng rõ ràng cái nick "Mạn Sợ Đau" kia là vì sợ đau, từ nhỏ đã sợ bị tiêm cơ mà.
+
+Hứa Mạn Mạn khẽ ngẩn người một thoáng, rồi ngước gương mặt xinh đẹp lên mỉm cười: "Chào Triệu Kim An. Tớ làm thêm cho công ty mấy ngày rồi mà chưa từng được ghé qua văn phòng, tớ có thể lên trên xem thử một chút được không?"
+
+Triệu Kim An gật đầu: "Được chứ, cậu lên đi."
+
+Hứa Mạn Mạn xỏ đôi dép lê mùa hè thanh mảnh, nhẹ nhàng bước từng bước lên cầu thang tầng hai.
+
+Ở hành lang tầng hai, cô nhìn thấy một gian phòng treo tấm biển: Tổng Giám Đốc.
+
+Cô thừa biết đó là phòng làm việc riêng của Lạc Cẩn Chi.
+
+"Cốc, cốc."
+
+Rõ ràng cánh cửa gỗ chỉ khép hờ chứ không đóng chặt, Hứa Mạn Mạn vẫn lịch sự gõ nhẹ hai tiếng. Triệu Kim An bên trong cất giọng: "Vào đi cậu."
+
+Triệu Bác Lan đang đứng báo cáo tiến độ công việc, liền đưa mắt liếc nhìn Hứa Mạn Mạn.
+
+Triệu Kim An bảo: "Cậu cứ ngồi tạm ghế nghỉ một lát nhé."
+
+Hứa Mạn Mạn gật đầu, đưa mắt ngắm nhìn xung quanh gian phòng làm việc. Một căn phòng có diện tích khá nhỏ nhắn, bên trong chỉ kê duy nhất một bộ bàn ghế sô pha cùng bàn trà đơn giản.
+
+Nổi bật nhất trong phòng chính là hai chiếc tủ mát cỡ lớn được cắm điện sáng trưng.
+
+Bên trong tủ mát trưng bày đầy ắp tất cả các dòng sản phẩm của công ty.
+
+Sau khi lấy được chữ ký phê duyệt của Triệu Kim An vào tập tài liệu, Triệu Bác Lan liền cất bước đi ra ngoài.
+
+Trước khi rời đi, cô nàng lại kín đáo liếc nhìn Hứa Mạn Mạn thêm một cái, ra tới ngoài hành lang cũng cố tình không khép chặt cánh cửa phòng lại.
+
+"Muốn uống nước gì cậu cứ tự nhiên lấy nhé."
+
+Triệu Kim An cầm một chai trà sữa trên bàn lên giới thiệu: "Đây là dòng sản phẩm mới ra mắt của công ty tớ, Trà sữa Ngu Quang, giá bán lẻ ngoài thị trường là ba tệ một chai."
+
+Đây là dòng sản phẩm do chính Triệu Kim An lấy cảm hứng từ trà sữa Assam nổi tiếng đời sau để đặt hàng nhà máy nghiên cứu công thức sản xuất riêng.
+
+Hứa Mạn Mạn bước lại mở cánh cửa tủ mát, tự tay vặn nắp một chai rồi đưa lên miệng nhấp một ngụm nhỏ, mỉm cười nhận xét: "Vị ngọt thanh dịu dàng, so với dòng nước có ga Tiểu Tạc Đạn thì tớ thích uống trà sữa này hơn nhiều."
+
+"Con gái chắc hẳn sẽ rất mê món này đấy."
+
+Hứa Mạn Mạn chăm chú ngắm nghía bao bì trên thân chai, rồi ngước mắt nhìn Triệu Kim An cất giọng hỏi: "Triệu Kim An, cái tên Ngu Quang này là do cậu tự đặt đấy à?"
 
 Triệu Kim An gật đầu.
 
-Từ Mạn Mạn xuyên qua song xăng đan giày, lên lầu hai.
+Hứa Mạn Mạn hỏi tiếp: "Cái tên này có ẩn chứa ý nghĩa gì đặc biệt không cậu?"
 
-Tại lầu hai hành lang, trông thấy một gian văn phòng, giám đốc.
+Triệu Kim An mỉm cười giải thích: "Chữ 'Ngu' mang ý nghĩa là góc khuất, xó nhỏ. 'Ngu Quang' chính là vệt sáng len lỏi nơi góc khuất, một ngụm xoa dịu đi mọi mệt mỏi trong lòng."
 
-Nàng biết đây là lạc cẩn chi văn phòng.
+"Vệt sáng nơi góc khuất sao?"
 
-"đông, đông."
+Hứa Mạn Mạn cầm chai trà sữa trong tay, khẽ lẩm nhẩm lại từng từ ngữ trong lòng. Cô bỗng nhận ra rằng Triệu Kim An hồi đầu năm nhất bước chân vào giảng đường đại học cũng hệt như một vệt sáng nơi góc khuất vậy, anh luôn lặng lẽ ẩn giấu sự rực rỡ của chính mình vào một góc tối khiêm nhường...
 
-Rõ ràng cửa không khóa nhanh, Từ Mạn Mạn vẫn là gõ cửa một cái, Triệu Kim An nói:"đi vào a."
+Vệt sáng nơi góc khuất...
 
-Triệu Bác lan đang tại hồi báo công việc, mắt nhìn Từ Mạn Mạn.
+Thực ra nếu lúc này có Diêu Hân ở đây, cô nàng sẽ cảm thấy hình ảnh đó lại càng giống với Hứa Mạn Mạn hơn.
 
-Triệu Kim An nói:"ngươi ngồi trước."
-
-Từ Mạn Mạn gật gật đầu, tham quan đứng lên, rất nhỏ văn phòng, chỉ có một trương sô pha cùng bàn trà.
-
-Rõ ràng nhất chính là bày hai cái lãnh tàng quỹ.
-
-Lãnh tàng quỹ bên trong trần liệt công ty tất cả sản phẩm.
-
-Triệu Bác lan cầm tới Triệu Kim An của ký tên liền ra cửa.
-
-Trước khi ra cửa lại nhìn mắt Từ Mạn Mạn, ở hành lang bên ngoài không đem cửa đóng nhanh.
-
-"uống gì chính mình cầm."
-
-Triệu Kim An cầm lấy cái bàn một bình trà sữa:"đây là công ty của chúng ta của sản phẩm mới, góc quang trà sữa, giá thị trường 3 khối."
-
-Đây là Triệu Kim An bắt chước Asam trà sữa, định chế đi ra ngoài một cái sản phẩm.
-
-Từ Mạn Mạn mở ra lãnh tàng quỹ, vặn ra một bình, uống một ngụm, nói:"ngọt ngào, so với nhẹ dưỡng tiểu bom cái này bọt nước, ta càng ưa thích uống trà sữa."
-
-"nữ sinh hẳn là sẽ rất ưa thích."
-
-Từ Mạn Mạn nhìn một chút cái bình, nhìn về phía Triệu Kim An vấn đạo:"Triệu Kim An, góc chỉ là ngươi lấy tên sao?"
-
-Triệu Kim An gật đầu.
-
-Từ Mạn Mạn nói:"cái tên này có ngụ ý gì sao?"
-
-Triệu Kim An cười nói:"góc, là xó xỉnh của ý tứ, góc ánh sáng liền là trong góc của ánh sáng nhạt, một ly chữa trị mỏi mệt."
-
-"trong góc của ánh sáng nhạt sao?"
-
-Từ Mạn Mạn cầm cái bình trong lòng mặc niệm, nàng phát giác Triệu Kim An đại nhất tựu trường thời điểm giống như trong góc của ánh sáng nhạt, hắn đem mình giấu ở xó xỉnh.....
-
-Ánh sáng nhạt....
-
-Kỳ thực diêu tân ở chỗ này, nàng sẽ cảm thấy càng giống Từ Mạn Mạn.
-
-Trần trạch   thẩm tử nói   Mộc Dao tại đại học cũng là loại kia"quang mang bắn ra bốn phía"của
+Bởi lẽ Trần Trạch, Thẩm Tử Ngôn, hay Mộc Dao ở môi trường đại học đều là những cá nhân thuộc về kiểu người "hào quang tỏa sáng rực rỡ" thu hút mọi ánh nhìn...

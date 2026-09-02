@@ -1,209 +1,213 @@
-# Chương 79: Ợ~ Đắt Quá
+# Chương 79: Ợ~ đắt thật đấy
 
-"Tôi đã bảo là tôi có tiền mà."
+> **Tiêu đề gốc**: 第79章 嗝~好贵。
 
-Triệu Kim An lại sang hàng bên cạnh mua hai cái bánh tiêu hành và hai ly trà sữa, quay lại thì đồ nướng cũng vừa chín tới. Hắn dẫn Đường Hiểu Tình bước lên một bậc thềm rồi ngồi xuống bãi cỏ.
+"Tớ đã bảo là tớ có tiền rồi mà."
 
-"Ăn đi."
+Triệu Kim An bước sang quầy hàng bên cạnh mua thêm hai chiếc bánh kếp hành thơm phức và hai ly trà sữa ấm nóng. Khi quay trở lại thì đồ nướng cũng vừa chín tới, cậu liền dẫn Đường Hiểu Tình bước lên mấy bậc tam cấp rồi cùng nhau ngồi xuống bãi cỏ xanh mướt bên sườn đồi.
 
-Đường Hiểu Tình thực sự rất vui, trong lòng trào dâng niềm xúc động khó tả.
+"Ăn đi nào."
 
-Nàng nhìn quanh bốn phía, xung quanh có vài cặp tình nhân, phía dưới là tiếng hò reo uống rượu chạm cốc của đám con trai. Nàng cảm thấy mùa đông này chẳng còn lạnh lẽo nữa, mặt trăng đêm nay cũng đặc biệt tròn.
+Trong lòng Đường Hiểu Tình lúc này ngập tràn niềm vui sướng và phấn khích khôn tả.
 
-Đây có tính là hẹn hò không?
+Cô bé đưa mắt nhìn quanh quất bốn phía, gần đó có vài ba cặp tình nhân đang ngồi tựa đầu vào nhau thủ thỉ, phía dưới là tiếng hô hào chạm ly rôm rả của mấy nhóm nam sinh đang tụ tập nhậu nhẹt. Cảm giác như cái giá lạnh căm căm của mùa đông này bỗng chốc tan biến đi đâu hết, vầng trăng trên bầu trời đêm nay dường như cũng tròn trịa và sáng trong hơn hẳn mọi ngày.
 
-Không sao, cứ coi như là hẹn hò đi.
+Đây có phải là một buổi hẹn hò không nhỉ?
 
-Cách đó không xa có một đôi tình nhân dường như đang hôn nhau, Đường Hiểu Tình thẹn thùng ngồi xuống, dưới ánh trăng khẽ liếc nhìn Triệu Kim An.
+Thôi kệ, cứ coi như đây chính là một buổi hẹn hò đi!
 
-"Mau ăn đi, kẻo nguội mất."
+Cách đó không xa có một đôi nam nữ dường như đang trao nhau nụ hôn nồng cháy. Đường Hiểu Tình ngượng ngùng nép người ngồi xuống, mượn ánh trăng vằng vặc khẽ liếc nhìn sang sườn mặt góc cạnh của Triệu Kim An.
 
-Triệu Kim An vừa gặm bánh tiêu hành vừa nói với giọng ôn hòa. Lúc này Đường Hiểu Tình mới nâng chiếc bánh thơm phức lên, hút một ngụm trà sữa rồi nói: "Triệu Kim An, cậu mua nhiều quá rồi."
+"Ăn nhanh đi kẻo nguội mất bây giờ."
 
-Triệu Kim An cười cười: "Ăn hết đi, đừng lãng phí."
+Triệu Kim An vừa cắn một miếng bánh kếp hành vừa cất giọng ấm áp, dịu dàng. Đến lúc này Đường Hiểu Tình mới dám đón lấy chiếc bánh thơm lừng đưa lên miệng cắn một miếng nhỏ, rồi cắm ống hút uống thử một ngụm trà sữa ngọt ngào, khẽ nói: "Triệu Kim An, cậu mua nhiều đồ ăn quá rồi đấy."
 
-"Ừm."
+Triệu Kim An cười đáp: "Cứ ăn cho hết đi, đừng để lãng phí là được."
 
-Đường Hiểu Tình lại nâng ly trà sữa lên hút một ngụm, đây là lần đầu tiên nàng được uống trà sữa.
+"Ừm!"
 
-"Hắn đã cho mình lần đầu tiên."
+Đường Hiểu Tình lại nâng ly trà sữa lên hút thêm một ngụm lớn nữa. Đây là lần đầu tiên trong đời cô bé được thưởng thức món trà sữa này.
 
-Triệu Kim An lại cầm một cái đùi gà đưa cho nàng. Đường Hiểu Tình ăn rất sạch sẽ, gặm nhẵn nhụi cả xương mới luyến tiếc đặt xuống, xem ra câu nói "ăn no rồi" lúc trước là nói dối.
+"Cậu ấy đã mang lại cho mình lần đầu tiên."
 
-"Triệu Kim An, tôm này cậu ăn đi."
+Triệu Kim An cầm một chiếc đùi gà nướng vàng rộm đưa sang cho cô. Đường Hiểu Tình ăn vô cùng sạch sẽ, gặm đến từng mẩu xương cuối cùng mới chịu buông tay. Xem ra lời khẳng định "đã ăn no căng bụng" lúc nãy hoàn toàn là một lời nói dối vụng về.
 
-"Tôi no rồi, cậu không ăn thì vứt đi vậy."
+"Triệu Kim An, chỗ tôm nướng này cậu ăn đi."
 
-Nhìn ba xiên tôm còn lại trong túi, Đường Hiểu Tình không nỡ, lại tự mình ăn từng con một. Một xiên chỉ có hai con mà bán tận hai tệ, Đường Hiểu Tình ăn rất tỉ mỉ.
+"Tớ no rồi, nếu cậu không ăn thì đành vứt đi vậy."
 
-Nàng mút sạch đuôi tôm, không bỏ sót chút thịt nào, ngay cả gia vị dính trên vỏ tôm cũng được nàng mút sạch bong.
+Nhìn ba xiên tôm sú nướng béo ngậy vẫn còn nằm trong túi nilon, Đường Hiểu Tình tiếc của không nỡ bỏ, đành tự mình ăn từng con một. Một xiên chỉ có hai con tôm mà giá tận hai tệ, nên cô bé ăn vô cùng cẩn thận và tỉ mỉ.
+
+Cô gặm sạch sẽ từng chút thịt ở phần đuôi tôm, không bỏ sót lấy một chút nào, ngay cả phần gia vị thơm lừng bám ngoài vỏ tôm cũng được cô mút láp sạch bách.
 
 "Ợ~"
 
-Một tiếng ợ hơi vang lên đầy đột ngột, Đường Hiểu Tình đánh một cái ợ no. Thật mất mặt quá, con gái sao có thể ợ hơi như vậy chứ?
+Một tiếng ợ hơi no nê bất chợt vang lên vô cùng rõ ràng giữa không gian tĩnh lặng. Ôi xấu hổ chết đi được, con gái con lứa ai lại đi ợ hơi to tướng như thế này bao giờ?
 
-Lại còn ngay trước mặt chàng trai mình thích nữa.
+Đã thế lại còn xảy ra ngay trước mặt chàng trai mà mình thầm thương trộm nhớ nữa chứ!
 
-Triệu Kim An nói: "Ăn không nổi thì thôi."
+Triệu Kim An buồn cười nói: "Ăn không nổi nữa thì thôi, đừng cố quá."
 
-Đường Hiểu Tình đỏ bừng mặt, vùi đầu vào giữa hai đầu gối, lí nhí: "Đắt quá~"
+Khuôn mặt Đường Hiểu Tình đỏ bừng bừng như quả gấc chín, cô xấu hổ vùi sâu mặt vào hai đầu gối, lí nhí thanh minh: "Đắt tiền quá mà~"
 
-Triệu Kim An thật sự nhịn không được mà bật cười.
+Lần này thì Triệu Kim An thực sự không thể kìm nén nổi nữa mà bật cười thành tiếng.
 
-Hắn mới nhận ra vóc dáng Đường Hiểu Tình tuy mảnh khảnh, chiều cao cũng nhỏ nhắn, nhưng những chỗ cần có thịt dường như quy mô chẳng kém gì Lâm Thanh Tuyết. Tư thế ngồi này... giữa đầu gối và lồng ngực không còn kẽ hở, quả thực có chút "vô lý".
+Cậu lúc này mới chợt nhận ra, vóc dáng của Đường Hiểu Tình tuy gầy guộc, nhỏ nhắn, chiều cao có phần khiêm tốn, nhưng những chỗ cần nảy nở trên cơ thể thì quy mô dường như chẳng hề thua kém gì Lâm Thanh Tuyết chút nào. Với tư thế ngồi ôm gối như thế này... giữa hai đầu gối và khuôn ngực đẫy đà chẳng hề có lấy một chút khe hở, trông thực sự có phần đẫy đà, nở nang đến khó tin.
 
-Được rồi, Triệu Kim An thừa nhận mình thực sự nhớ phụ nữ rồi.
+Thôi được rồi, Triệu Kim An thành thật thừa nhận rằng bản thân mình đúng là đang thèm muốn phụ nữ thật.
 
-Hắn lại có thể nảy sinh suy nghĩ kiểu đó với Đường Hiểu Tình.
+Không ngờ mình lại có thể nảy sinh những suy nghĩ mờ ám ấy với một cô bé ngây thơ như Đường Hiểu Tình.
 
-Tội lỗi quá!
+Đúng là tội lỗi, tội lỗi!
 
-Không dám tưởng tượng 1m52 nằm trên giường... 1m81 và 1m52 sẽ kết hợp thế nào đây?
+Thật không dám tưởng tượng một cô bé cao một mét năm mươi hai nằm trên giường... thì một mét tám mươi mốt với một mét năm mươi hai sẽ kết hợp với nhau ra làm sao?
 
-"Triệu Kim An, tối nay cậu tiêu nhiều tiền quá rồi."
+"Triệu Kim An, tối nay cậu tiêu tốn nhiều tiền quá rồi đấy."
 
-Đường Hiểu Tình bất ngờ ngẩng đầu lên.
+Đường Hiểu Tình bất chợt ngẩng đầu lên, vẻ mặt đầy nghiêm túc.
 
-"Tôi bảo tôi mua vé số trúng mấy trăm ngàn, cậu có tin không?"
+"Nếu tớ bảo rằng tớ vừa trúng số độc đắc được mấy trăm nghìn tệ thì cậu có tin không?"
 
-Đường Hiểu Tình ngẩn người một hồi lâu, rồi mỉm cười gật đầu: "Tớ tin."
+Đường Hiểu Tình ngây người ra mất một lúc lâu, sau đó mỉm cười gật đầu lia lịa: "Tớ tin chứ."
 
-"Mẹ cậu có ai chăm sóc không?"
+"Mẹ cậu ở quê có ai chăm sóc không?" Triệu Kim An lại hỏi sang chuyện gia đình.
 
-Triệu Kim An lại hỏi.
+Đường Hiểu Tình khẽ lắc đầu, ánh mắt bỗng chốc chùng xuống, đượm buồn. Cô nghẹn ngào: "Mẹ tớ chỉ có một mình ở nhà, tớ ở trên này lo lắng không yên... Tớ chỉ mong sao sau này tốt nghiệp đại học, đi làm kiếm được tiền sẽ đón mẹ lên Quận Sa sống cùng."
 
-Đường Hiểu Tình lắc đầu, thần sắc trở nên hơi trầm xuống, nàng nói: "Mẹ ở nhà một mình, tớ không yên tâm... Tớ chỉ muốn sau khi tốt nghiệp đại học đi làm, kiếm được tiền sẽ đón bà lên Quận Sa."
+"Triệu Kim An, cậu bảo xem... một người có hoàn cảnh như tớ, liệu có đủ tư cách để yêu đương không?"
 
-"Triệu Kim An, cậu nói xem một người như tớ có phải không có tư cách yêu đương không?"
+Triệu Kim An chợt nhớ lại những lời mà Trương Vân Thiến từng nói ngày trước. Dẫu có phần khó nghe, tàn nhẫn nhưng lại vô cùng thực tế. Cậu nhìn thẳng vào mắt Đường Hiểu Tình, trầm giọng: "Vạn sự do người."
 
-Triệu Kim An nhớ lại những lời Trương Vân Thiến nói hôm đó, tuy khó nghe nhưng rất thực tế. Hắn nói với Đường Hiểu Tình: "Sự tại nhân vi."
+"Vạn sự do người sao?"
 
-"Sự tại nhân vi sao?"
+Đường Hiểu Tình cười chua chát: "Hoàn cảnh của tớ như thế này... bước vào tình yêu chỉ tổ làm gánh nặng, kéo lùi người khác mà thôi."
 
-Đường Hiểu Tình cười khổ: "Người như tớ... chỉ làm liên lụy người khác thôi."
+Triệu Kim An im lặng không đáp.
 
-Triệu Kim An không nói gì.
+Cậu đang cố lục tìm trong ký ức của kiếp trước xem sau khi tốt nghiệp đại học, Đường Hiểu Tình đã đi đâu về đâu. Hình như cô bé không hề ở lại lập nghiệp tại đất Quận Sa này.
 
-Hắn đang hồi tưởng lại, kiếp trước sau khi tốt nghiệp đại học Đường Hiểu Tình đã đi đâu, hình như không ở lại Quận Sa.
+Và sau đó cũng bặt vô âm tín, chẳng còn nghe thấy bất kỳ tin tức nào về cô nữa.
 
-Hắn cũng chẳng nghe thấy tin tức gì về nàng nữa.
+Đường Hiểu Tình cứ thế lặng lẽ ngắm nhìn Triệu Kim An. Mọi khi sau khi tan ca làm thêm ở nhà ăn, cô sẽ vội vã chạy thục mạng về phòng ký túc xá vì sợ cửa đóng then cài. Thế nhưng lúc này đây, cô chỉ muốn thời gian trôi thật chậm để được ngồi bên cậu thêm một lát nữa, dẫu lát nữa có phải đứng ngoài cửa gõ cửa và bị cô quản lý ký túc xá mắng té tát vào mặt cũng cam lòng.
 
-Đường Hiểu Tình cứ lặng lẽ nhìn Triệu Kim An. Trước đây hễ rời khỏi nhà ăn là nàng sẽ về ký túc xá ngay vì sợ cửa đóng, nhưng giờ nàng lại muốn nán lại thêm một chút, dù lát nữa có phải gọi cửa rồi bị dì quản lý ký túc mắng một trận cũng được.
+Cuối cùng vẫn là Triệu Kim An lên tiếng nhắc nhở rằng sắp đến giờ ký túc xá đóng cửa.
 
-Cuối cùng vẫn là Triệu Kim An lên tiếng báo ký túc xá sắp đóng cửa.
+Trên suốt dọc đường đi bộ về, Đường Hiểu Tình trải lòng kể hết về bệnh tình của mẹ mình. Mẹ cô không làm được những công việc đồng áng nặng nhọc, mà ở nông thôn nếu không thể làm việc nặng thì đồng nghĩa với việc không có bất kỳ nguồn thu nhập nào. Bố cô thì đã qua đời từ năm cô mới lên chín tuổi.
 
-Suốt dọc đường, Đường Hiểu Tình kể về tình hình của mẹ mình, rằng bà không làm được việc nặng, mà ở nông thôn không làm được việc nặng thì coi như không có nguồn thu nhập. Cha nàng đã mất từ năm nàng lên chín tuổi.
+Triệu Kim An thuận miệng hỏi thêm: "Mẹ cậu không đi bước nữa sao?"
 
-Triệu Kim An hỏi một câu: "Mẹ cậu không tái giá sao?"
+Đường Hiểu Tình đáp: "Ai lại chịu rước một người đàn bà ốm yếu bệnh tật về làm vợ cơ chứ. May mà nhờ chính sách nhà nước tốt, mỗi tháng mẹ tớ nhận được tám mươi tệ tiền trợ cấp bảo trợ xã hội." Kể đến đây, nụ cười của Đường Hiểu Tình có chút tự giễu, chua xót.
 
-Đường Hiểu Tình đáp, ai lại muốn lấy một người bệnh về nhà chứ. May mà chính sách tốt, tiền trợ cấp khó khăn mỗi tháng được 80 tệ. Nói đến đây, Đường Hiểu Tình có chút tự giễu.
+Tám mươi tệ.
 
-80 tệ.
+Vậy mà tối nay cô và Triệu Kim An vừa mới ăn hết đứt năm mươi tệ bạc.
 
-Mà nàng với Triệu Kim An tối nay đã ăn hết tận 50 tệ rồi.
+Dưới chân tòa nhà ký túc xá nữ, Đường Hiểu Tình khẽ nói: "Triệu Kim An, tớ lên phòng đây nhé." Thế nhưng bước chân cô vẫn dùng dằng, đứng chôn chân tại chỗ không chịu nhấc bước.
 
-Dưới lầu ký túc xá nữ, Đường Hiểu Tình nói: "Triệu Kim An, tớ lên đây," nhưng bước chân vẫn không nhúc nhích.
+Cô chưa từng dám mơ tưởng có một ngày Triệu Kim An sẽ đích thân đưa mình về tận cửa ký túc xá thế này. Buổi "hẹn hò" tối nay thực sự quá đỗi trọn vẹn và ngọt ngào.
 
-Nàng chưa bao giờ nghĩ rằng sẽ có ngày Triệu Kim An tiễn mình về ký túc xá, buổi "hẹn hò" này thật trọn vẹn.
+Triệu Kim An hỏi: "Lý Lộ dạo này còn làm khó dễ gì cậu nữa không?"
 
-Triệu Kim An hỏi: "Lý Lộ còn làm khó cậu không?"
+Đường Hiểu Tình lắc đầu đáp: "Trước kia thì có, nhưng cũng chỉ là chặn đường mấy lần thôi chứ không dám động tay động chân với tớ."
 
-Đường Hiểu Tình lắc đầu, nói: "Trước đây thì có, chỉ là chặn đường vài lần, chưa từng ra tay với tớ."
+Cô không hề kể cho cậu nghe những lời lẽ cay độc, sỉ nhục mà Lý Lộ từng tuôn ra xúc phạm mình. Một kẻ như Lý Lộ đến Triệu Kim An còn dám chặn đường buông lời lăng mạ, thì đủ hiểu những lời ả trút lên đầu Đường Hiểu Tình sẽ thậm tệ và tàn nhẫn đến mức nào.
 
-Nàng không kể những lời Lý Lộ nói khó nghe đến mức nào. Lý Lộ còn dám chặn đường Triệu Kim An để nói những lời đó, thì có thể tưởng tượng được những lời ả nói với Đường Hiểu Tình còn quá đáng đến mức nào.
+"Thế chuyện cậu không nhận được tiền trợ cấp sinh viên nghèo... cậu có oán trách nhà trường không?" Triệu Kim An cuối cùng vẫn hỏi ra điều băn khoăn bấy lâu.
 
-"Vậy việc cậu không nhận được tiền trợ cấp sinh viên nghèo... cậu có trách nhà trường không?"
+"Sao lại phải oán trách chứ?"
 
-Triệu Kim An vẫn hỏi ra miệng.
-
-"Tại sao chứ?"
-
-Đường Hiểu Tình mỉm cười nói: "Tớ tính rồi, ở nhà ăn chỉ cần chịu khó làm thì một tháng được 600 tệ, tiền trợ cấp một năm mới có 1500 tệ, là thầy hướng dẫn đã lên trường giúp tớ giành lấy công việc này đấy."
+Đường Hiểu Tình mỉm cười thuần khiết: "Tớ đã tính toán kỹ rồi, ở nhà ăn chỉ cần tớ chịu khó làm việc chăm chỉ thì mỗi tháng kiếm được sáu trăm tệ, trong khi tiền trợ cấp cả năm trời cũng chỉ có một nghìn năm trăm tệ mà thôi. Công việc ở nhà ăn này cũng là do thầy cố vấn Lưu đích thân lên trường xin giúp tớ đấy."
 
 Triệu Kim An: "..."
 
-Làm ở nhà ăn được coi là một trong những công việc mệt mỏi và bẩn thỉu nhất rồi.
+Làm việc ở nhà ăn được coi là một trong những công việc vất vả, nặng nhọc và nhếch nhác nhất trong trường.
 
-Chẳng thong thả bằng làm ở thư viện...
+Làm sao sánh được với sự nhàn hạ, phong lưu ở thư viện...
 
-Được rồi, với tư cách là thầy hướng dẫn của lớp Kế toán 1, Lưu Huy cũng coi như đã làm được một việc ra hồn người.
+Thôi được rồi, dẫu sao trên cương vị là cố vấn học tập của lớp Kế toán 1, thầy Lưu Huy ít ra cũng đã làm được một việc có chút tính người.
 
-"Đừng làm ở đó nữa, ngày mai đến tìm tôi."
+"Đừng làm ở nhà ăn nữa, ngày mai qua tìm tớ."
 
-Triệu Kim An muốn xây dựng đội ngũ nòng cốt của mình, thứ nhất là phòng tài chính, thứ hai là phải có người của mình trên thị trường. Nhìn Đường Hiểu Tình, hắn như nhìn thấy chính mình của kiếp trước.
+Triệu Kim An đang cần xây dựng bộ khung nhân sự đáng tin cậy của riêng mình. Thứ nhất là phòng tài chính, thứ hai là ngoài thị trường phải có người của mình cắm chốt. Nhìn thấy dáng vẻ của Đường Hiểu Tình lúc này, Triệu Kim An như nhìn thấy lại chính hình bóng của bản thân mình ở kiếp trước.
 
-Ngày hôm sau tan học, Đường Hiểu Tình đã đến.
+***
 
-"Lên đây."
+Chiều hôm sau vừa tan học, Đường Hiểu Tình liền tới điểm hẹn.
 
-Triệu Kim An đứng trên tầng hai vẫy tay, Đơn Vĩ lái xe đi đón nàng.
+"Lên đây!"
 
-Sau khi xuống xe, Đường Hiểu Tình có chút ngơ ngác. Nếu không phải Triệu Kim An gọi điện, nàng còn chẳng dám lên xe. Nàng không biết Audi là gì, càng không phân biệt được A4, A6 hay A8.
+Triệu Kim An đứng ở ban công tầng hai của tòa nhà văn phòng vẫy tay gọi. Chiếc xe do Đan Vĩ cầm lái vừa chở cô tới nơi.
 
-Nàng chỉ nghe các bạn cùng lớp nói xe BMW của Trần Trạch trị giá mấy trăm ngàn, và biết thêm cả hãng Mercedes.
+Bước xuống xe, Đường Hiểu Tình vẫn còn đang ngơ ngác, bàng hoàng. Nếu không phải đích thân Triệu Kim An gọi điện bảo tài xế đến đón, cô tuyệt đối không dám bước chân lên một chiếc xe sang trọng như thế này. Cô bé chẳng hề biết Audi là xe gì, càng không phân biệt nổi các dòng A4, A6 hay A8.
 
-Đơn Vĩ hướng lên tầng hai gọi một tiếng: "Ông chủ."
+Cô chỉ từng nghe các bạn cùng lớp bàn tán xôn xao rằng chiếc xe BMW của Trần Trạch trị giá mấy trăm nghìn tệ, ngoài ra còn biết thêm hãng xe Mercedes nữa mà thôi.
 
-"Ông chủ?"
+Đan Vĩ ngẩng đầu lên tầng hai cất giọng cung kính: "Báo cáo ông chủ, tôi đã đón người về rồi ạ."
 
-Đường Hiểu Tình ngơ ngơ ngác ngác bước lên tầng hai. Triệu Kim An bảo nàng vào phòng tài chính tìm Triệu Bác Lan trước. Sau khi nàng từ phòng tài chính bước ra, Triệu Kim An lại gọi điện thoại cho Hồ Thần.
+"Ông chủ ư?"
 
-Lạc Cẩn Chi gọi điện tới.
+Đường Hiểu Tình mang theo tâm trạng ngơ ngác, bỡ ngỡ bước lên tầng hai. Triệu Kim An bảo cô sang phòng tài chính gặp Triệu Bác Lan trước để làm quen. Khi cô vừa bước ra khỏi phòng tài chính thì Triệu Kim An lại nhấc máy gọi điện thoại cho Hồ Thần.
 
-"Kim An, Đường Hiểu Tình là ai? Còn giám sát viên trưng bày thị trường là chức danh gì thế?"
+Đúng lúc đó, Lạc Cẩn Chi từ Sâm Châu gọi điện tới.
 
-Ngày kế tiếp.
+"Kim An, Đường Hiểu Tình là ai thế? Mà cái chức danh 'Giám sát trưng bày thị trường' rốt cuộc là cái chức vụ quái quỷ gì vậy hả?"
 
-Đường Hiểu Tình lại đến bến xe phía Nam, kho bãi của công ty nằm ở đó, nhân viên giao hàng mỗi ngày cũng tập trung tại đây. Đường Hiểu Tình trước tiên cần phải nắm rõ quy trình làm việc.
+***
 
-Quận Sa có năm quận: Nhạc Lộc, Vũ Hoa, Phù Dung, Thiên Tâm, Khai Phúc.
+Sang ngày hôm sau.
 
-Ngoài ra còn có hai huyện là Tinh Sa và Vọng Thành.
+Đường Hiểu Tình lại được phân công sang bến xe khách phía Nam. Tổng kho hàng của công ty nằm ở đó, đội ngũ nhân viên giao hàng mỗi ngày cũng đều phải tập trung tại đây trước khi xuất phát, Đường Hiểu Tình cần phải nắm bắt tường tận toàn bộ quy trình vận hành công việc.
 
-Nàng cần phải làm quen với các nhân viên giao hàng, cùng với nhân viên kinh doanh của từng khu vực.
+Thành phố Quận Sa gồm có năm quận nội thành: quận Nhạc Lộc, quận Vũ Hoa, quận Phù Dung, quận Thiên Tâm và quận Khai Phúc.
 
-Hồ Thần biết, cô gái nhỏ này chính là biến tướng của việc đến để giám sát gã.
+Ngoài ra còn có thêm hai huyện ngoại thành là Tinh Sa và Vọng Thành.
+
+Cô phải làm quen với từng nhân viên giao hàng, đồng thời nắm rõ thông tin của các nhân viên kinh doanh phụ trách từng khu vực quận huyện.
+
+Hồ Thần nhìn qua là hiểu ngay, cô bé nhỏ nhắn này thực chất chính là "tai mắt" được cài cắm tới để giám sát nhất cử nhất động của ông ta.
+
+***
 
 Ngày thứ ba.
 
 Ngày 1 tháng 1 năm 2007.
 
-Tết Dương lịch, các trường đại học trong khu đại học đều được nghỉ, cũng sắp đến kỳ thi cuối kỳ để nghỉ đông.
+Tết Dương lịch, các trường đại học trong khu Đại học Thành đều được nghỉ lễ, kỳ thi kết thúc học kỳ một cũng đang cận kề, chẳng bao lâu nữa là sinh viên sẽ bước vào kỳ nghỉ đông.
 
-Đường Hiểu Tình đi theo một nhân viên kinh doanh để bắt đầu chạy việc, nàng muốn nhanh chóng làm quen với nghiệp vụ. Có lẽ vì xuất thân từ dân kế toán, Đường Hiểu Tình gọi điện cho Triệu Kim An hỏi có cần kiểm kê kho bãi không?
+Đường Hiểu Tình tranh thủ những ngày nghỉ theo chân một nhân viên kinh doanh giàu kinh nghiệm đi thị trường. Cô muốn nhanh chóng nắm bắt nghiệp vụ thực tế. Có lẽ vì xuất thân từ ngành kế toán nên Đường Hiểu Tình liền gọi điện thoại xin ý kiến Triệu Kim An, hỏi xem có cần tiến hành kiểm kê tổng kho hàng hay không.
 
-Triệu Kim An có chút bất ngờ, đáp: "Tùy cậu phát huy."
+Triệu Kim An có chút bất ngờ trước sự chủ động này, mỉm cười bảo: "Cứ phát huy tự do theo ý cậu."
 
-Thế là Đường Hiểu Tình tranh thủ kỳ nghỉ, ban ngày chạy khắp các đường lớn ngõ nhỏ, ban đêm thì kiểm kê tại kho. Lạc Cẩn Chi lại gọi điện tới, nói: "Kho bãi đã có người kiểm kê rồi, em làm thế này không phải là cướp việc của người khác sao?"
+Thế là Đường Hiểu Tình tranh thủ cả kỳ nghỉ lễ, ban ngày thì len lỏi qua từng con ngõ ngách, đường lớn phố nhỏ để khảo sát thị trường, ban đêm lại cặm cụi ở kho hàng kiểm đếm từng thùng sản phẩm. Lạc Cẩn Chi lại sốt ruột gọi điện tới ca cẩm, bảo rằng kho bãi đã có người phụ trách kiểm kê rồi, em làm thế chẳng phải là đang cướp chén cơm và công việc của người khác hay sao?
 
-Triệu Kim An cười nói: "Chị Cẩn Chi, có phải chị có khuất tất gì không đấy?"
+Triệu Kim An cười đáp: "Cẩn Chi tỷ, chẳng lẽ chị có điều gì mờ ám giấu em à?"
 
-Lạc Cẩn Chi bực mình đáp: "Tôi có bệnh à mà đi chiếm chút lợi lộc nhỏ này của cậu. Cậu khóa chặt tài chính, lại sắp xếp thêm một người như vậy, bộ không tin tưởng tôi đến thế sao?"
+Lạc Cẩn Chi bực dọc, gắt gỏng: "Chị bị dở hơi hay sao mà thèm đi chiếm chút tiện nghi cỏn con đó của em! Em siết chặt toàn bộ quyền hành tài chính chưa đủ, giờ lại cài thêm một con bé tới soi mói kho bãi, em không tin tưởng chị đến mức đấy cơ à?"
 
-"Cậu mà cứ thế này... thì chúng ta thà chia tay cho xong!"
+"Em mà cứ làm cái trò này... thì chi bằng chúng ta chia tay nhau luôn cho rồi!"
 
-Triệu Kim An: "..."
+Triệu Kim An cạn lời: "..."
 
-"Lạc tổng, từ chia tay là dùng như thế à? Tôi đã chiếm được chút hời nào của chị đâu!"
+"Lạc tổng à, cái từ 'chia tay' của chị dùng có đúng ngữ cảnh không đấy? Em đã chiếm được tí tiện nghi nào trên người chị đâu cơ chứ!"
 
-"Phải gọi là đường ai nấy đi chứ!"
+"Phải gọi là đường ai nấy đi mới chuẩn xác!"
 
-Lạc Cẩn Chi cũng bật cười, nàng dặn dò Triệu Kim An sắm Tết thì đừng mua nước ngọt, cứ từ công ty mà khuân mấy thùng về.
+Lạc Cẩn Chi nghe vậy cũng bật cười. Chị dặn dò Triệu Kim An Tết này chuẩn bị sắm sửa đồ Tết thì đừng tốn tiền mua nước ngọt, cứ việc từ công ty khuân vài thùng nước giải khát cao cấp mang về nhà dùng.
 
-Triệu Kim An mới sực nhớ ra năm nào Vương Kim Như cũng sắm Tết từ sớm.
+Triệu Kim An lúc này mới chợt nhớ ra thím Vương Kim Như năm nào cũng có thói quen chuẩn bị sắm Tết từ rất sớm.
 
-"Năm nay nên mua nhiều đồ tốt một chút cho Tiểu Duyệt Thiên, còn phải đưa thím ra phố mua bộ quần áo đắt tiền."
+"Năm nay nhất định phải mua thật nhiều đồ ngon đồ chơi cho con bé Duyệt Thiên, lại còn phải dẫn thím lên phố sắm một bộ quần áo thật đắt tiền nữa."
 
-Nghĩ đến cảnh Triệu Duyệt Thiên ôm gói quà lớn của Want Want chảy nước miếng, muốn ăn mà không nỡ ăn, Triệu Kim An nở nụ cười đầy nuông chiều.
+Nghĩ đến cảnh con bé Triệu Duyệt Thiên ôm gói quà lớn của thương hiệu Vượng Vượng chảy cả nước dãi, thèm ăn lắm nhưng lại chẳng nỡ bóc ra ăn, khóe môi Triệu Kim An bất giác nở một nụ cười ngập tràn sự cưng chiều và ấm áp.
 
-Đường Hiểu Tình làm việc rất liều mạng. Thứ nhất vì công ty là của Triệu Kim An, thứ hai là Triệu Bác Lan đã "vẽ bánh" cho nàng, nói lương tạm định là 1200 tệ, sang năm nếu hiệu quả tốt sẽ tăng lên 2000 tệ.
+Đường Hiểu Tình làm việc vô cùng xông xáo và hết mình. Thứ nhất là vì công ty này thuộc về Triệu Kim An, thứ hai là Triệu Bác Lan đã "vẽ ra cho cô một viễn cảnh tươi sáng", bảo rằng mức lương thử việc tạm thời là một nghìn hai trăm tệ, sang năm nếu hiệu quả kinh doanh tốt thì sẽ tăng lên hai nghìn tệ một tháng.
 
-Thậm chí là 3000 tệ.
+Thậm chí có thể lên tới ba nghìn tệ.
 
-Hoặc có thể nhiều hơn nữa!
+Hoặc nhiều hơn thế nữa!
 
-Đường Hiểu Tình không nghĩ nhiều đến thế, nàng đã hỏi Đơn Vĩ về tiền thuê nhà. Có mức lương 2000 tệ là nàng có thể thuê một căn nhà ở khu đại học để đón mẹ lên Quận Sa rồi.
+Đường Hiểu Tình chẳng dám mơ mộng xa xôi đến thế. Cô đã hỏi thăm Đan Vĩ về giá thuê nhà trọ, chỉ cần mức lương đạt hai nghìn tệ một tháng là cô hoàn toàn có thể thuê một căn phòng nhỏ ấm cúng ở khu Đại học Thành này để đón mẹ từ dưới quê lên Quận Sa phụng dưỡng.
 
-Như vậy nàng vừa có thể chăm sóc mẹ, vừa tiết kiệm được tiền học phí, lại còn có tiền đưa mẹ đi mua thức ăn.
+Như vậy cô vừa có thể chăm sóc mẹ chu đáo, vừa dành dụm đủ tiền đóng học phí cho những năm tới, lại còn có tiền đưa cho mẹ đi chợ hàng ngày.
 
-Ở thành phố không giống như dưới quê, đến mớ rau cũng phải bỏ tiền ra mua.
+Sống ở chốn thị thành đâu có giống như ở thôn quê, ngay cả một cọng rau ngọn cỏ cũng đều phải bỏ tiền túi ra mua.

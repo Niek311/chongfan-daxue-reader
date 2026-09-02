@@ -1,237 +1,237 @@
-# Chương 126: Hắn Còn Chặn Cả Tôi
+# Chương 126: Đến cả tôi mà nó cũng chặn số?
 
-Chỉ ở nhà đúng ba ngày, Thẩm Tử Ngôn đã quay lại trường sớm hơn dự định.
+> **Tiêu đề gốc**: 第126章 他连我都拉黑？
 
-Lần này Lục Mai Tiêu không hề ngăn cản, còn cổ vũ con gái, bảo nàng mau chóng đưa Triệu Kim An về nhà.
+Chỉ ở nhà vỏn vẹn ba ngày, Thẩm Tử Ngôn đã quay lại trường sớm hơn dự định.
 
-Thẩm Tử Ngôn sắp xếp cho Lưu Sấm Phong phụ trách khu vực ga tàu hỏa.
+Lần này, Lục Mai Tiêu không hề cản trở, thậm chí còn cổ vũ con gái, giục cô mau chóng "bắt" Triệu Kim An mang về nhà ra mắt.
 
-Ga tàu là nơi có lưu lượng người qua lại lớn nhất, cũng là nơi có tầm ảnh hưởng lớn nhất đến việc xây dựng thương hiệu và uy tín cho hoạt động lần này.
+Thẩm Tử Ngôn phân công Lưu Sấm Phong phụ trách khu vực ga tàu hỏa.
 
-Ban đầu Lưu Sấm Phong và Vương Duy Đào còn tranh nhau xem ai sẽ phụ trách trường Sư Đại.
+Ga tàu là nơi có lưu lượng người qua lại đông đúc nhất, đóng vai trò then chốt trong việc định hình thương hiệu cũng như lan tỏa tiếng vang cho chiến dịch lần này.
 
-Vương Duy Đào nói mình có quan hệ tốt với Triệu Kim An.
+Ban đầu, Lưu Sấm Phong và Vương Duy Đào còn tranh nhau xem ai sẽ phụ trách mảng Đại học Sư phạm.
 
-Lưu Sấm Phong lại bảo mình là bạn cùng phòng với Triệu Kim An, lại còn là xá trưởng phòng 303. Cuối cùng, hắn chốt một câu rằng hoạt động lần này không do Triệu Kim An phụ trách, vì Triệu Kim An đã bị Thẩm Tử Ngôn "tước quyền" rồi.
+Vương Duy Đào bảo mình thân với Triệu Kim An hơn.
 
-Thẩm Tử Ngôn xin ý kiến của Triệu Kim An, sau đó trả cho Lưu Sấm Phong mức lương 80 tệ một ngày.
+Lưu Sấm Phong liền vỗ ngực bảo mình là bạn cùng phòng, lại còn là trưởng phòng 303, cuối cùng còn bồi thêm một câu: Hoạt động lần này đâu phải do Triệu Kim An nắm quyền, quyền hành đã bị Thẩm Tử Ngôn "đoạt" mất rồi.
 
-Có thể nói Lưu Sấm Phong hơi thích chiếm chút lợi lộc nhỏ, nhưng ưu điểm của hắn cũng rất rõ ràng. Ga tàu hỏa cần một người tháo vát như hắn phụ trách, còn Vương Duy Đào thì suýt chút nữa đã được giao quản lý khu Sư Đại.
+Thẩm Tử Ngôn sau khi xin ý kiến của Triệu Kim An, đã quyết định trả cho Lưu Sấm Phong mức thù lao tám mươi tệ một ngày.
 
-Cốc Siêu Thừa thì lại càng không được.
+Người ta có thể chê Lưu Sấm Phong thích chiếm chút món lợi nhỏ, nhưng ưu điểm của cậu ta lại vô cùng rõ ràng. Khu vực phức tạp như ga tàu hỏa rất cần một người lanh lợi, tháo vát và biết điều như cậu ta quán xuyến; còn Vương Duy Đào thì suýt chút nữa chỉ kham nổi mảng Sư Đại.
 
-Về phương diện này, bọn họ đều thua xa Lưu Sấm Phong!
+Về phần Cốc Siêu Thừa thì càng không cần phải bàn.
 
-Cốc Siêu Thừa nhớ lại mức lương cứng trách nhiệm của mình là 800 tệ, thế mà chưa tháng nào hắn nhận được đủ con số đó. Giờ đây thấy cùng là làm tình nguyện viên (kiêm chức), mình chỉ được 35 tệ một ngày, trong khi Lưu Sấm Phong lại có tận 80 tệ.
+Ở phương diện này, hai người họ kém Lưu Sấm Phong quá xa!
 
-Nghĩa là Lưu Sấm Phong làm mười ngày đã có 800 tệ!
+Cốc Siêu Thừa nghĩ đến mức lương cứng theo chỉ tiêu tám trăm tệ của mình, đi làm cả tháng trời mà chưa từng cầm trọn vẹn tám trăm tệ trong tay; giờ đây nhìn thấy cũng đi làm tình nguyện viên (thực chất là làm thêm), mình chỉ được ba mươi lăm tệ một ngày, trong khi Lưu Sấm Phong lại ẵm trọn tám mươi tệ.
 
-Mấu chốt là Thẩm Tử Ngôn chủ động tăng lương cho Lưu Sấm Phong, chứ không phải do Lưu Sấm Phong dày mặt đi đòi.
+Tính ra, Lưu Sấm Phong chỉ cần làm mười ngày là đã bỏ túi tám trăm tệ!
 
-Khoảng cách năng lực giữa người với người, vào lúc này đã được cụ thể hóa!
+Điều mấu chốt là mức lương ấy do chính Thẩm Tử Ngôn chủ động tăng cho Lưu Sấm Phong, chứ không phải do cậu ta dày mặt mở miệng đòi hỏi.
 
-Cốc Siêu Thừa nhớ lại đánh giá của Triệu Kim An dành cho mình và Lưu Sấm Phong: "Lưu Sấm Phong lợi hại hơn cậu."
+Khoảng cách về năng lực giữa người với người, vào khoảnh khắc này bỗng hiện lên rõ mồn một!
 
-Giờ đây, ngay cả Thẩm Tử Ngôn mới chỉ tiếp xúc vài lần cũng hành động như vậy.
+Cốc Siêu Thừa chợt nhớ lại lời nhận xét của Triệu Kim An về mình và Lưu Sấm Phong: "Lưu Sấm Phong cừ hơn cậu nhiều."
 
-Chẳng lẽ khoảng cách lại rõ ràng đến thế sao?
+Bây giờ đến lượt Thẩm Tử Ngôn, người mới tiếp xúc với họ vài lần, cũng đưa ra lựa chọn y hệt.
 
-Bọn họ đều nhìn một cái là ra mình không bằng Lưu Sấm Phong?
+Chẳng lẽ khoảng cách lại rành rành đến thế sao?
 
-Điều khó chịu nhất là Lưu Sấm Phong chỉ cười hì hì cảm ơn Thẩm Tử Ngôn, chứ không hề khoe khoang trước mặt Cốc Siêu Thừa. Dường như việc hắn phụ trách ga tàu nhận 80 tệ một ngày, còn cậu là tình nguyện viên bình thường nhận 35 tệ là chuyện đương nhiên.
+Ai nấy chỉ liếc mắt một cái là nhìn ra mình thua kém Lưu Sấm Phong?
 
-Trước mặt cậu, chẳng có gì đáng để khoe khoang cả.
+Điều khiến Cốc Siêu Thừa khó chịu nhất là, Lưu Sấm Phong chỉ cười hề hề cảm ơn Thẩm Tử Ngôn chứ chẳng thèm khoe khoang nửa lời trước mặt cậu ta. Cứ như thể việc một người gánh vác ga tàu nhận tám mươi tệ một ngày, còn một tình nguyện viên quèn chỉ nhận ba mươi lăm tệ là chuyện đương nhiên như lẽ trời đất.
 
-Sự phớt lờ này... khiến Cốc Siêu Thừa lại phải chịu thêm một vạn tấn sát thương.
+Trước mặt cậu, chẳng có gì đáng để người ta phải khoe khoang.
 
-Dù sao mình cũng đã đi làm thêm cả hai tháng hè mà, Vương Duy Đào còn là người phụ trách ở Sư Đại kia kìa.
+Chính sự ngó lơ này... lại giáng cho Cốc Siêu Thừa một đòn chí mạng, tổn thương sâu sắc.
+
+Bản thân cậu ta cũng đi làm thêm suốt hai tháng hè kia mà, còn Vương Duy Đào dầu gì cũng là người phụ trách bên Sư Đại.
 
 Không ai nhắc đến Trần Trạch.
 
-Có khi Trần Trạch sẽ bảo: "Tao quản lý cả một cái xưởng, ai có thời gian chơi trò này với bọn mày."
+Bởi nếu nhắc, khéo Trần Trạch lại buông một câu: "Tao phải quản lý cả một nhà máy, rảnh đâu mà chơi mấy trò con nít này với tụi mày."
 
-Nói ra chỉ tổ chuốc lấy nhạt nhẽo.
+Hỏi han chỉ tổ tự rước nhục vào thân.
 
-Thẩm Tử Ngôn chạy ngược chạy xuôi vô cùng bận rộn. Ngoài việc làm vật phẩm tuyên truyền, nàng còn phải liên hệ với ban đối ngoại của các trường đại học tại Quận Sa để đến trường người ta "bày sạp". Dù là làm từ thiện, miễn phí, thì cũng phải thông báo một tiếng.
+Thẩm Tử Ngôn bận rộn chạy ngược chạy xuôi. Ngoài việc chuẩn bị các ấn phẩm truyền thông và vật dụng quảng bá, cô còn phải liên hệ với Ban Đối ngoại của các trường đại học lớn trên toàn Quận Sa. Muốn vào khuôn viên trường người ta "dựng quầy", dù mang danh nghĩa thiện nguyện, phát nước miễn phí, thì vẫn phải đánh tiếng xin phép đàng hoàng.
 
-Hơn nữa còn cần sinh viên của trường người ta "cung cấp" tình nguyện viên.
+Đồng thời, cũng cần các trường bạn "cung cấp" lực lượng tình nguyện viên hỗ trợ.
 
-Thẩm Tử Ngôn vốn là người của Hội sinh viên, nàng gọi điện cho Triệu Kim An, nói rằng muốn chi chút "phí bôi trơn" cho ban đối ngoại của các trường.
+Vốn là người trong Hội Sinh viên, Thẩm Tử Ngôn liền gọi điện cho Triệu Kim An, đề xuất nên chi chút "phí bôi trơn" cho Ban Đối ngoại của các trường.
 
-Triệu Kim An đáp: "Được, cậu cứ quyết định là được."
+Triệu Kim An dứt khoát: "Được chứ, cậu cứ tự quyết định là được."
 
-Thẩm Tử Ngôn cứ ngỡ người như Triệu Kim An sẽ không đồng ý, hoặc ít nhất cũng phải hỏi kỹ tại sao.
+Thẩm Tử Ngôn cứ ngỡ một người trẻ tuổi như Triệu Kim An sẽ không đồng ý ngay, hoặc ít ra cũng phải gặng hỏi lý do vì sao: Công ty chúng ta mang nước khoáng miễn phí đến phục vụ tân sinh viên trường họ, cớ sao còn phải lót tay cho Ban Đối ngoại của họ nữa?
 
-Công ty chúng ta cung cấp nước khoáng miễn phí cho tân sinh viên trường họ, mà còn phải đưa tiền cho ban đối ngoại của họ sao?
+Nhưng Triệu Kim An ở kiếp trước từng đi làm thêm rất nhiều, anh quá hiểu những ngóc ngách uẩn khúc bên trong.
 
-Triệu Kim An kiếp trước từng đi làm thêm, hắn thừa hiểu những lắt léo trong đó.
+Hay nói đúng hơn, xã hội này vốn dĩ vận hành như thế.
 
-Hay nói cách khác, cái xã hội này vốn dĩ là như vậy.
+Trường đại học, hay cụ thể là Hội Sinh viên các trường, thực chất chính là một xã hội thu nhỏ.
 
-Đại học, Hội sinh viên thực chất chính là một xã hội thu nhỏ.
+Cậu bước chân vào địa bàn của người ta làm truyền thông quảng bá, kiểu gì cũng phải có chút qua lại.
 
-Cậu đến địa bàn của người khác để tuyên truyền quảng bá, dù sao cũng phải đưa chút lợi ích.
+Không hẳn vì người ta xấu tính.
 
-Cũng không hẳn là bọn họ xấu.
+Đặt mình vào vị trí của họ mà xem: Nếu có ai đó nhờ cậu giúp một việc vặt thuận tay, nếu đối phương không có lấy một lời cảm ơn hay chút quà mọn biểu thị thành ý, cậu sẽ nghĩ thế nào? Nhưng nếu người ta biếu cậu hai bao thuốc lá ngon, chẳng phải trong lòng cậu sẽ cảm thấy thoải mái, nhiệt tình hơn hẳn sao?
 
-Thử đổi vị trí mà suy nghĩ, nếu có người nhờ cậu giúp một việc nhỏ, dù chỉ là tiện tay, nhưng nếu đối phương không có chút biểu hiện gì, cậu sẽ nghĩ thế nào? Nếu người ta biếu cậu hai cây thuốc lá, chẳng phải trong lòng cậu sẽ thấy thoải mái hơn nhiều sao?
+Triệu Kim An bây giờ không còn giữ cái vẻ "chính trực" ngây ngô ngày trước nữa.
 
-Triệu Kim An bây giờ không còn "chính trực" đến mức cứng nhắc nữa.
+Con người khi không thể thay đổi được xã hội thì buộc phải học cách thích nghi với nó, trong mắt phải dung nạp được đôi hạt cát.
 
-Con người nếu không thay đổi được xã hội thì phải thích nghi với nó, trong mắt phải chứa được cả hạt cát.
+Anh đã qua cái tuổi bồng bột, bất mãn với đời rồi.
 
-Hắn cũng đã qua cái tuổi "thanh niên phẫn nộ" rồi.
+Triệu Kim An gọi Triệu Bác Lan đến, dặn liên hệ với phóng viên đài truyền hình Mango.
 
-Triệu Kim An gọi Triệu Bác Lan đến, bảo nàng liên hệ với phóng viên của đài truyền hình Mang Quả.
+Trăn Nhiên đã đổ tiền mua quảng cáo trên đài Mango, một hoạt động mang đầy "năng lượng tích cực" như thế này nhất định phải được đưa tin.
 
-Trăn Nhiên đã đổ tiền quảng cáo vào đài Mang Quả, những sự kiện mang tính "năng lượng tích cực" thế này nên được đưa tin.
+Triệu Bác Lan bảo Thẩm Tử Ngôn đã đi lo liệu việc đó rồi.
 
-Triệu Bác Lan nói Thẩm Tử Ngôn đã đi tìm rồi.
+Không những thế, Thẩm Tử Ngôn còn thông qua các mối quan hệ gia đình để mời phóng viên của vài tòa soạn báo lớn.
 
-Thẩm Tử Ngôn còn thông qua các mối quan hệ gia đình để tìm phóng viên của vài tòa soạn báo.
+Vào thời điểm này, báo giấy vẫn là một kênh truyền thông vô cùng uy tín và hiệu quả.
 
-Thời điểm này, báo giấy vẫn là một phương tiện truyền thông rất tốt.
+Điều cốt lõi chính là gây dựng danh tiếng!
 
-Quan trọng nhất là uy tín!
+Chẳng ai bàn đến chuyện chi phí tốn kém ra sao. Giá thành của một chai nước khoáng chủ yếu nằm ở nhân công, vận chuyển và vỏ chai, phần còn lại chính là chi phí tiếp thị quảng bá.
 
-Không ai nhắc đến chi phí bỏ ra. Giá vốn của một chai nước khoáng chủ yếu tập trung vào nhân lực và vận chuyển, cùng với bản thân cái vỏ chai.
+Triệu Bác Lan có nhắc đến Triệu Chí Dũng. Cậu ta được giao phụ trách trường Cao đẳng Tài chính.
 
-Còn lại đều là chi phí marketing và quảng bá.
+Triệu Bác Lan bảo nghỉ hè Chí Dũng chỉ về quê được vài ngày, lên Quận Sa rồi mà chẳng thấy ghé qua công ty, trông có vẻ hơi kỳ lạ.
 
-Triệu Bác Lan nhắc đến Triệu Chí Dũng, cậu ta là người phụ trách ở trường Tài chuyên.
+Triệu Kim An càng không muốn nói rõ chân tướng cho Triệu Chí Dũng biết. Anh không rõ Trịnh Như rốt cuộc là người đàn bà thế nào, trong lòng anh vẫn luôn mang chút "ác ý" hoài nghi, nhưng suy cho cùng cũng là muốn tốt cho thằng bạn nối khố.
 
-Triệu Bác Lan bảo Triệu Chí Dũng nghỉ hè chỉ về nhà có vài ngày, lên đến Quận Sa rồi mà cũng chẳng thấy đến công ty, có chút kỳ lạ.
+Nếu Chí Dũng và Trịnh Như chỉ "chơi bời qua đường" rồi chia tay thì là kết cục êm đẹp nhất.
 
-Triệu Kim An càng không muốn cho Triệu Chí Dũng biết sự thật. Hắn không biết Trịnh Như là hạng phụ nữ gì, hắn đang dùng "ác ý" để suy đoán Trịnh Như nhằm bảo vệ Triệu Chí Dũng.
+Nhưng ngộ nhỡ Trịnh Như biết được Chí Dũng có một người bạn thân chí cốt như anh, tương lai tiền đồ vô lượng thì...
 
-Nếu Triệu Chí Dũng và Trịnh Như chỉ "vui chơi" rồi chia tay thì tốt nhất.
+Triệu Kim An tự nhận lòng mình có phần nhỏ mọn, nhưng anh cũng muốn mượn chuyện này để thử lòng Trịnh Như.
 
-Nhưng nếu Trịnh Như biết Triệu Chí Dũng có một người bạn nối khố như hắn, tương lai có lẽ sẽ tiền đồ vô lượng...
+Dẫu sao một người phụ nữ như Trịnh Như — góa chồng ở tuổi ngoài ba mươi, một nách nuôi đứa con gái bốn tuổi — cuộc đời buộc họ phải thực tế đến trần trụi, không thực tế thì làm sao chèo chống nổi miệng ăn?
 
-Triệu Kim An có chút tiểu nhân, cũng có ý muốn thử thách Trịnh Như.
+Chỉ sợ Trịnh Như chỉ coi Triệu Chí Dũng như một gã cửu vạn miễn phí, vừa vặn giải tỏa nhu cầu sinh lý; rồi nhân lúc này "cưỡi lừa tìm ngựa", đợi con gái lớn hơn một chút là thẳng chân đá văng Chí Dũng ra rìa.
 
-Nhưng hạng phụ nữ như Trịnh Như, không dám nói tuyệt đối, nhưng một góa phụ ngoài ba mươi tuổi, dắt theo đứa con gái bốn tuổi, họ buộc phải thực tế. Không thực tế thì rất khó để sống tiếp.
-
-Đừng để Trịnh Như coi Triệu Chí Dũng như lao động miễn phí, lại còn thỏa mãn được nhu cầu sinh lý.
-
-Hiện tại, nàng ta cứ đứng núi này trông núi nọ, đợi con gái lớn thêm chút nữa là đá Triệu Chí Dũng đi ngay.
-
-Hạng người như vậy có không?
+Loại người như thế trên đời này có không?
 
 Chắc chắn là có.
 
-Từ Mạn Mạn biết Thẩm Tử Ngôn đã quay lại, cũng biết Thẩm Tử Ngôn đang bận bịu việc gì.
+...
 
-Diêu Tân la ó trong nhóm chat, đòi Thẩm Tử Ngôn phải giữ cho mình một suất, bảo là 35 tệ một ngày tôi cũng muốn kiếm tiền.
+Từ Mạn Mạn biết Thẩm Tử Ngôn đã trở lại trường, cũng biết cô nàng đang bận rộn chuyện gì.
 
-Làm tình nguyện viên kiểu này cũng không mệt lắm, lại còn có ô che nắng, 35 tệ một ngày cứ vừa làm vừa nói cười là xong.
+Diêu Sân thì í ới trong nhóm chat, nài nỉ Thẩm Tử Ngôn chừa cho mình một suất, bảo rằng ba mươi lăm tệ một ngày em cũng muốn kiếm tiền.
 
-Mộc Dao trong lòng rất đấu tranh.
+Làm tình nguyện viên phát nước cũng chẳng mệt nhọc gì, lại có dù che nắng râm mát, ba mươi lăm tệ một ngày vừa làm vừa nói cười rôm rả là hết buổi.
 
-Nếu vẫn là Triệu Kim An phụ trách thì Mộc Dao rất sẵn lòng. Nàng không muốn làm tình nguyện viên dưới trướng Thẩm Tử Ngôn, như vậy chẳng khác nào đi làm thuê cho Thẩm Tử Ngôn sao?
+Tâm trạng Mộc Dao thì giằng xé vô cùng.
 
-Khai giảng.
+Nếu hoạt động này do Triệu Kim An đứng ra phụ trách, Mộc Dao sẽ chẳng ngần ngại mà tham gia ngay. Nhưng cô không cam tâm làm một chân tình nguyện viên dưới trướng Thẩm Tử Ngôn. Như thế chẳng khác nào đi làm công, chịu sự sai bảo của Thẩm Tử Ngôn hay sao?
 
-Trương Tuệ đã đến Quận Sa.
+...
 
-Kiếp trước cũng vậy, cứ mỗi dịp khai giảng hay nghỉ lễ Trương Tuệ đều đến Quận Sa, dù sao em gái ruột cũng ở đây.
+Ngày tựu trường.
 
-Trương Tuệ và Trương Vân Thiến đưa Mộc Dao đi mua quần áo, buổi tối thì ngủ lại căn hộ của Trương Vân Thiến.
+Trương Tuệ lặn lội lên Quận Sa.
 
-Trong phòng ngủ bật điều hòa, ba người phụ nữ đều khoác váy ngủ mỏng manh.
+Kiếp trước cũng vậy, cứ mỗi dịp đầu năm học hay nghỉ lễ, Trương Tuệ đều lên Quận Sa, dù sao em gái ruột của bà cũng đang sống ở đây.
 
-Không ngờ "quy mô" của Trương Tuệ lại là lớn nhất, bà thích màu đỏ rượu vang, nằm trên giường ngửi ngửi rồi hỏi Trương Vân Thiến:
+Trương Tuệ cùng Trương Vân Thiến dẫn Mộc Dao đi sắm sửa quần áo mới, tối đến thì ngủ lại căn hộ của Trương Vân Thiến.
 
-"Cái giường này của dì chưa từng có đàn ông ngủ qua đấy chứ, nếu không tối nay tôi và Dao Dao ra ngoài ngủ."
+Trong phòng ngủ bật điều hòa mát rượi, ba người phụ nữ khoác hờ những chiếc váy ngủ mềm mại.
 
-Không có người ngoài, tắm xong cả ba đều không mặc nội y.
+Không ngờ vóc dáng đẫy đà của Trương Tuệ lại là đẫy đà nhất. Bà chuộng tông màu đỏ rượu vang, ngồi trên giường khẽ hít hà một hơi rồi hỏi em gái:
 
-Dáng người của Trương Vân Thiến thì săn chắc hơn một chút, nàng liếc nhìn Mộc Dao rồi bảo: "Chị hỏi Dao Dao ấy, nhà em có mùi đàn ông không?"
+"Giường này của em chưa từng có đàn ông nằm qua đấy chứ? Nếu có thì tối nay chị qua ngủ với Dao Dao."
 
-"Ý tôi là dì ly hôn hai năm rồi, tuổi tác cũng lớn rồi, không cân nhắc chuyện sinh con sau này sao?"
+Không có người ngoài, vừa tắm xong nên cả ba người đều thả rông, không mặc nội y.
 
-Chủ đề kiểu này bị chị gái ruột càm ràm, Trương Vân Thiến chỉ đành ngồi nghe.
+Dáng người Trương Vân Thiến có phần săn chắc và cao ráo hơn đôi chút. Cô liếc nhìn Mộc Dao rồi cười đáp: "Chị hỏi Dao Dao mà xem, nhà em lấy đâu ra mùi đàn ông?"
 
-Trương Vân Thiến đúng là kiếm được chút tiền, cuộc sống nhỏ bé trôi qua rất tinh tế, chỉ là thiếu một đứa con.
+"Ý chị là, em ly hôn cũng hai năm rồi, tuổi tác chẳng còn nhỏ nữa, không tính chuyện sinh một đứa con sau này nương tựa à?"
 
-Chỉ cần không phải là người theo chủ nghĩa không sinh con (DINK), thì đây là chủ đề không thể trốn tránh.
+Chuyện riêng tư này chỉ có chị em ruột mới thẳng thắn nhắc nhở, Trương Vân Thiến đành ngoan ngoãn lắng nghe.
 
-Trương Vân Thiến trêu chọc: "Chị à, chị lên Quận Sa thế này mà yên tâm để anh rể ở nhà một mình sao?"
+Trương Vân Thiến kiếm được không ít tiền, cuộc sống độc thân trôi qua vô cùng tinh tế, phong nhã, chỉ hiếm muộn mỗi đứa con.
 
-"Anh rể con không dám đâu."
+Miễn là không theo chủ nghĩa không sinh con, thì đây là chủ đề muôn thuở không thể né tránh.
 
-Trương Tuệ đang dặm chút đồ trang điểm cấp ẩm, nhìn vóc dáng vẫn còn khá kiêu ngạo trong gương, bà rất tự tin.
+Trương Vân Thiến trêu lại: "Chị à, chị lên Quận Sa thế này, yên tâm để anh rể ở nhà một mình sao?"
 
-Bà lúc nào cũng tự tin, và bà có vốn liếng để làm điều đó.
+"Anh rể em đố dám léng phéng."
 
-Trương Vân Thiến cười một tiếng: "Chị quản anh rể chặt quá rồi."
+Trương Tuệ dặm chút phấn dưỡng ẩm, ngắm nhìn vóc dáng vẫn còn đầy vẻ kiêu hãnh của mình trong gương với sự tự tin tuyệt đối.
 
-"Đàn ông là phải quản chặt, thẻ lương của lão ấy đều nằm trên người tôi, đàn ông không có tiền trong người thì sẽ không hư hỏng."
+Bà vốn dĩ luôn tự tin, và bà hoàn toàn có vốn liếng để tự tin như thế.
 
-Trương Tuệ vừa nói vừa liếc nhìn con gái, giống như đang dạy bảo nàng vậy.
+Trương Vân Thiến bật cười: "Chị quản anh rể chặt quá đấy."
 
-"Dao Dao, dì nhỏ có loại sản phẩm nở ngực hiệu quả lắm, con chỉ có chỗ này là hơi nhỏ thôi, ha ha ha."
+"Đàn ông là phải quản cho chặt. Thẻ lương của ổng chị giữ hết, đàn ông trong túi không có tiền thì lấy đâu ra cơ hội đổ đốn."
 
-Trương Vân Thiến nhìn Mộc Dao, còn định đưa tay lên thử.
+Trương Tuệ vừa nói vừa đưa mắt nhìn con gái, như thể đang truyền thụ kinh nghiệm xương máu.
 
-Mộc Dao giật nảy mình: "Dì nhỏ!"
+"Dao Dao này, dì có dòng sản phẩm nở ngực hiệu quả lắm đấy. Cháu chỉ mỗi tội chỗ này hơi khiêm tốn chút thôi, ha ha ha."
 
-"Yên tâm, không có tác dụng phụ đâu."
+Trương Vân Thiến nhìn sang Mộc Dao, tiện tay định đưa lên sờ thử.
 
-"Con không cần!"
+Mộc Dao giật thót mình: "Dì!"
 
-"Lại đây, để dì nhỏ xem nào, ở đây làm gì có người ngoài, dì là chuyên gia đấy!"
+"Yên tâm đi, không có tác dụng phụ đâu."
 
-"Không, dì nhỏ dì tránh ra đi!"
+"Cháu không cần đâu!"
 
-"Sao con chẳng giống mẹ con, mà cũng chẳng giống dì nhỏ thế nhỉ? Con nhìn mẹ con xem... lớn thế kia, hình dáng lại còn đẹp nữa."
+"Nào, để dì xem nào, ở đây toàn người nhà chứ có ai đâu, dì là dân chuyên nghiệp mà!"
 
-Hai người phụ nữ nô đùa trên giường, xuân quang rò rỉ.
+"Không chịu đâu, dì tránh ra đi!"
 
-Mộc Dao thẹn đỏ mặt, liếc nhìn mẹ mình, hình như của mình đúng là hơi nhỏ thật. Nàng đã thấy của Thẩm Tử Ngôn ở trong ký túc xá rồi, quy mô và hình dáng của Thẩm Tử Ngôn đều vô cùng hoàn mỹ.
+"Sao cháu chẳng giống mẹ, cũng chẳng giống dì tí nào thế nhỉ? Nhìn mẹ cháu xem... vừa đẫy đà, phom dáng lại chuẩn thế kia."
 
-"Dì đừng trêu Dao Dao nữa!"
+Hai dì cháu đùa giỡn rộn ràng trên giường, cảnh xuân lấp ló.
 
-Trương Tuệ ưỡn ngực, nghĩ ngợi một hồi rồi nói: "Cái hãng Trăn Nhiên ở ga tàu hôm nay chính là công ty mà Triệu Kim An đang làm thêm à?"
+Mộc Dao đỏ bừng cả mặt, lén nhìn mẹ một cái. Đúng thật là vòng một của cô có phần nhỏ nhắn hơn. Trước đây ở ký túc xá cô từng nhìn thấy của Thẩm Tử Ngôn, kích thước và đường nét của Thẩm Tử Ngôn đều hoàn hảo đến mức đáng ghen tị.
 
-"Vâng."
+"Thôi, em đừng trêu chọc Dao Dao nữa!"
 
-Tâm trạng Mộc Dao trở nên hơi trùng xuống: "Mẹ, Kim An lợi hại lắm. Du Phỉ và Ngải Manh Manh đều bảo Kim An rất giỏi, còn có Thẩm Tử Ngôn nữa... bây giờ là Thẩm Tử Ngôn..."
+Trương Tuệ khẽ ưỡn ngực, ngẫm nghĩ một lát rồi cất lời: "Hôm nay ở ga tàu, công ty Trăn Nhiên phát nước đó... chính là chỗ Triệu Kim An làm thêm à?"
+
+"Vâng ạ."
+
+Tâm trạng Mộc Dao bỗng chùng xuống: "Mẹ ơi, Kim An giỏi lắm đấy. Cả Du Phi với Ngải Manh Manh đều bảo Kim An rất có tài. Còn có Thẩm Tử Ngôn nữa... bây giờ Thẩm Tử Ngôn đang..."
 
 "Thẩm Tử Ngôn?"
 
-Trương Tuệ lẩm bẩm một mình, có chút không hiểu nổi, lại có cảm giác như bạn trai của con gái mình bị người ta cướp mất vậy.
+Trương Tuệ lẩm bẩm một mình, trong lòng vừa khó hiểu, lại vừa dâng lên cảm giác như thể bạn trai của con gái mình đã bị người ta nẫng tay trên.
 
-Nếu điều kiện của Thẩm Tử Ngôn chỉ bình thường thì Trương Tuệ sẽ không có cảm giác này.
+Nếu Thẩm Tử Ngôn chỉ là một cô gái với gia cảnh bình thường, Trương Tuệ đã chẳng bận tâm đến thế.
 
-Vấn đề là, ngay từ ngày đầu khai giảng năm nhất, Trương Tuệ đã dặn Mộc Dao phải giao thiệp nhiều với Thẩm Tử Ngôn, bà cảm thấy trong phòng 406 thì Thẩm Tử Ngôn là ưu tú nhất.
+Ngặt một nỗi, ngay từ ngày đầu tiên nhập học năm nhất, chính Trương Tuệ đã dặn dò Mộc Dao phải cố gắng kết thân với Thẩm Tử Ngôn, bởi bà nhìn ra trong cả phòng 406, Thẩm Tử Ngôn là người xuất sắc và gia thế vượt trội nhất.
 
-"Kim An đang ở trường chứ? Để tôi gọi điện cho nó."
+"Kim An đang ở trường đúng không? Để mẹ gọi điện cho nó."
 
-Mộc Dao vẻ mặt đầy mong đợi, vội vàng nói cho mẹ biết số điện thoại mới của Triệu Kim An.
+Mộc Dao tràn đầy hy vọng, vội vàng đọc số điện thoại mới của Triệu Kim An cho mẹ.
 
-Có được số mới, Trương Tuệ quay số gọi cho Triệu Kim An.
+Có được số mới, Trương Tuệ bấm máy gọi ngay.
 
-Chuông reo vài tiếng thì bắt máy.
+Chuông reo vài hồi thì đầu dây bên kia bắt máy.
 
-"Alo, ai đấy?"
+"Alo, xin hỏi ai đấy ạ?"
 
-Giọng nói ôn hòa của Triệu Kim An truyền ra từ ống nghe.
+Chất giọng trầm ấm, điềm đạm của Triệu Kim An vang lên từ ống nghe.
 
-Trương Tuệ mới biết Triệu Kim An không hề lưu số của bà.
+Trương Tuệ lúc này mới nhận ra Triệu Kim An thậm chí còn không buồn lưu số của bà.
 
-Chuyện đó còn chưa là gì.
+Nhưng sự việc đâu chỉ dừng lại ở đó.
 
-"Alo, Triệu Kim An, tôi là mẹ của Mộc Dao..."
+"Alo, Triệu Kim An à, bác là mẹ của Mộc Dao đây..."
 
-Trương Tuệ vừa mới mở lời, đầu dây bên kia đã truyền đến tiếng "tút tút tút".
+Trương Tuệ vừa mới mở lời giới thiệu, đầu dây bên kia đã vang lên tiếng "tút... tút... tút" dứt khoát.
 
-Cúp, cúp máy rồi!?
+Cúp... cúp máy rồi ư?!
 
-Trương Tuệ thử gọi lại lần nữa, máy báo không thể kết nối.
+Trương Tuệ sững sờ bấm gọi lại lần nữa, nhưng tổng đài chỉ báo không thể liên lạc được.
 
-Chặn rồi!?
+Bị chặn số rồi ư?!
 
-Mắt Mộc Dao đỏ hoe: "Mẹ thấy chưa, chính là tại mọi người đấy!"
+Hốc mắt Mộc Dao đỏ hoe, nghẹn ngào thốt lên: "Mẹ thấy chưa! Tất cả là tại mẹ với dì đấy!"
 
-Trương Tuệ nhìn điện thoại mà cũng thấy bị đả kích nặng nề. Bà không ngờ Triệu Kim An lại chặn cả mình, đến một câu cũng không muốn nghe bà nói. Ở Tư Tinh, Trương Tuệ nào đã bao giờ phải chịu sự đối đãi thế này.
+Trương Tuệ nhìn chằm chằm vào màn hình điện thoại, lòng tự ái bị giáng một đòn nặng nề. Bà vạn lần không ngờ Triệu Kim An lại dám chặn cả số của bà, đến một câu cũng chẳng buồn nghe bà nói. Ở cái đất Tư Tinh bé nhỏ ấy, nào có bao giờ Trương Tuệ phải nếm trải sự đối đãi bẽ bàng đến nhường này!

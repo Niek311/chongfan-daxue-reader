@@ -1,203 +1,155 @@
-# Chương 108: Người Chú Này Của Tôi, Tấm Ván Ngắn Nhất Cũng Đã
+# Chương 108: Ông chú của tôi, khuyết điểm ngắn nhất cũng đã được bù đắp
 
-Được Bù Đắp
+> **Tiêu đề gốc**: 第108章 我的这个叔，最短的短板也补齐了。
 
-"Kim An, lát nữa mày đừng nói lung tung đấy."
+"Kim An, lát nữa mày đừng nói năng linh tinh đấy nhé."
 
-Triệu Kim An đi theo Triệu Chí Dũng qua đó. Sau khi Triệu Chí Dũng giới thiệu xong, Triệu Kim An liền bảo mình là chú của hắn.
+Triệu Kim An rảo bước đi theo Triệu Trí Dũng tiến lại gần. Triệu Trí Dũng làm động tác giới thiệu, Triệu Kim An liền thản nhiên nói: "Tôi là chú họ của nó."
 
-Trịnh Như ngẩn người vài giây, rồi mới hỏi có muốn ăn chút ma lạt thảng không?
+Trịnh Như ngớ người mất vài giây, rồi đon đả mở lời: "Hai người có muốn ăn chút lẩu cay lót dạ không?"
 
-Triệu Chí Dũng đã tự đi lấy bát đũa rồi.
+Triệu Trí Dũng đã nhanh nhảu chạy đi lấy bát đũa.
 
-Nhìn hai người phối hợp thành thục như vậy, Trịnh Như còn gọi "Chí Dũng", Triệu Kim An thầm nghĩ không biết Triệu Việt Tiến và Lưu Đồng Hoa mà biết chuyện thì còn có ý định để Triệu Chí Dũng quay về Triệu Kim An Gia thôn nữa không.
+Nhìn hai người họ phối hợp nhịp nhàng, ăn ý đến thế, Trịnh Như lại còn gọi "Trí Dũng" ngọt xớt, Triệu Kim An thầm nghĩ nếu để hai bác Triệu Dược Tiến và Lưu Đồng Hoa ở quê nhà biết được chuyện này, liệu có còn cho phép Triệu Trí Dũng bước chân về làng họ Triệu nữa hay không.
 
-Hắn cũng đã hiểu vì sao Triệu Chí Dũng lại mê luyến Trịnh Như đến thế.
+Hắn cũng đã phần nào hiểu được lý do vì sao Triệu Trí Dũng lại say mê Trịnh Như đến mê muội nhường ấy.
 
-Trịnh Như vóc người không cao, gương mặt khá xinh xắn, trắng trẻo mịn màng, hơi mũm mĩm, tổng kết lại chính là quá sức "nhân thê".
+Trịnh Như dáng người không cao, gương mặt khá ưa nhìn, làn da trắng trẻo nõn nà, thân hình hơi đẫy đà mũm mĩm, tóm gọn lại bằng một câu là toát lên phong vị của một người phụ nữ có gia đình vô cùng đậm đà, đằm thắm.
 
-Ngay cả Triệu Kim An cũng phải thừa nhận, sở thích của Tào thừa tướng quả thực không sai chút nào.
+Đến cả Triệu Kim An cũng phải thầm thừa nhận, sở thích năm xưa của Tào Thừa tướng thực sự chẳng có gì sai trái. Những kẻ không hiểu được thú vui của Tào Thừa tướng, chẳng qua là vì bản thân họ còn quá đỗi trẻ người non dạ mà thôi.
 
-Kẻ không hiểu được Tào thừa tướng, chẳng qua là vì còn quá trẻ nên chưa hiểu đời mà thôi.
+Triệu Trí Dũng và Trịnh Như đang ghé tai nhau thì thầm to nhỏ, còn bé Triệu Niệm Khả cứ tròn xoe đôi mắt ngây thơ nhìn Triệu Kim An.
 
-Triệu Chí Dũng và Trịnh Như đang nói thầm với nhau, còn Triệu Niệm Khả cứ nhìn chằm chằm Triệu Kim An.
+Triệu Kim An bất giác nhớ tới Tống Gia Nguyệt, hai đứa trẻ này tính ra tuổi tác chắc chỉ chênh lệch nhau vài ba tháng. Đã vậy, một bên mẹ bán quán nướng vỉa hè, một bên mẹ bán lẩu cay lề đường.
 
-Triệu Kim An chợt nhớ tới Tống Gia Nguyệt, tuổi của hai đứa nhỏ chắc chỉ cách nhau vài tháng.
+Triệu Kim An mỉm cười với con bé, khẽ sờ vào túi áo rồi rút ra hai tờ một trăm tệ đưa cho cháu.
 
-Hơn nữa, một bên là quầy đồ nướng, một bên là tiệm ma lạt thảng.
+Trịnh Như vội vàng xua tay lia lịa: "Ấy chết, thế này làm sao mà được ạ!"
 
-Triệu Kim An mỉm cười với con bé, sờ vào túi quần, cuối cùng rút ra hai trăm tệ.
+Triệu Kim An xua tay nói: "Không sao đâu chị, lần đầu gặp mặt em chưa kịp mua chút quà bánh gì cho cháu."
 
-Trịnh Như vội vàng nói không được.
+Tạm thời chưa bàn tới chuyện tình cảm giữa cô và Triệu Trí Dũng sẽ đi về đâu, nhưng Triệu Trí Dũng đã công nhận, dẫu tương lai ra sao thì chung quy cũng chỉ là hai trăm tệ, chút thể diện này nhất định phải giữ trọn cho thằng bạn nối khố.
 
-Triệu Kim An bảo không sao, lần đầu gặp mặt cũng chưa mua được gì cho trẻ con.
+Thế nhưng từ tận đáy lòng, Triệu Kim An vẫn thật tâm mong muốn Triệu Trí Dũng có thể tìm hiểu, yêu đương và kết hôn một cách bình thường như bao người khác.
 
-Chưa bàn đến quan hệ với Triệu Chí Dũng, một khi Triệu Chí Dũng đã thừa nhận rồi, thì bất kể sau này bọn họ ra sao, chung quy cũng chỉ là hai trăm tệ, chút thể diện này vẫn phải giữ cho Triệu Chí Dũng.
+Mãi cho đến khi Triệu Kim An theo chân Triệu Trí Dũng về tới căn phòng trọ của Trịnh Như.
 
-Từ tận đáy lòng, Triệu Kim An hy vọng Triệu Chí Dũng có thể yêu đương và kết hôn một cách bình thường.
+Ăn xong chút lẩu cay, Triệu Trí Dũng lại lăng xăng phụ giúp thu dọn quầy hàng, vác đồ đạc lên vai, Triệu Kim An cũng xách phụ một tay, còn Trịnh Như một tay xách đồ, tay kia dắt bé Triệu Niệm Khả.
 
-Cho đến khi Triệu Kim An theo Triệu Chí Dũng về căn nhà thuê của Trịnh Như.
+Băng qua một con hẻm nhỏ ngoằn ngoèo, căn nhà Trịnh Như thuê là một dãy nhà tập thể cũ kỹ nằm trong diện chờ giải tỏa.
 
-Ăn xong ma lạt thảng, Triệu Chí Dũng lại giúp thu dọn quầy hàng, vác đồ đạc, Triệu Kim An cũng tiện tay xách giúp một ít. Trịnh Như một tay xách đồ, một tay dắt Triệu Niệm Khả.
-
-Băng qua một con hẻm, nơi Trịnh Như thuê là một khu nhà chờ giải tỏa.
-
-Triệu Kim An đặt đồ xuống, nhìn quanh một lượt, chỉ thấy một phòng ngủ có giường, còn phòng ngủ kia thì chất đầy đồ đạc.
+Triệu Kim An đặt đồ đạc xuống, đưa mắt ngó nghiêng xung quanh: cả căn nhà chỉ có duy nhất một phòng ngủ là có kê giường nệm, phòng ngủ còn lại thì chất đầy thùng xốp và đồ đạc lỉnh kỉnh phục vụ việc buôn bán.
 
 "..."
 
-Triệu Kim An kéo Triệu Chí Dũng ra ngoài, nhỏ giọng hỏi: "Mày thường xuyên ngủ ở đây à?"
+Triệu Kim An kéo Triệu Trí Dũng ra ngoài hành lang, hạ thấp giọng hỏi: "Mày thường xuyên ngủ lại ở đây?"
 
-Triệu Chí Dũng gật đầu.
+Triệu Trí Dũng gật đầu cái rụp.
 
-Triệu Kim An hơi líu lưỡi: "Mày, Trịnh Như, rồi con gái chị ấy..."
+Triệu Kim An lắp bắp, nghẹn lời: "Mày... Trịnh Như... rồi con bé..."
 
-"Mọi người... ngủ chung một giường?"
+"Cả ba... ngủ chung một cái giường á?"
 
-Triệu Chí Dũng hơi ngượng ngùng: "Niệm Khả mới có 4 tuổi."
+Triệu Trí Dũng gãi đầu, vẻ mặt ngượng ngùng: "Bé Niệm Khả mới có 4 tuổi thôi mà."
 
 Triệu Kim An: "..."
 
-Hắn không dám tưởng tượng đến lúc làm "chuyện đó", cho dù đứa trẻ còn nhỏ chưa hiểu chuyện, thì tâm lý của Trịnh Như là thế nào, mà Triệu Chí Dũng lại có tâm lý ra sao.
+Hắn thật sự chẳng dám tưởng tượng đến cái cảnh lúc hai người làm cái chuyện kia, dẫu cho đứa trẻ còn quá nhỏ chưa hiểu sự đời, thì tâm lý của Trịnh Như sẽ ra sao, và tâm lý của Triệu Trí Dũng sẽ thế nào.
 
-Triệu Kim An đặt đồ xuống rồi rời đi ngay.
+Triệu Kim An buông đồ xuống rồi quay người rảo bước ra về ngay lập tức.
 
-Điều may mắn duy nhất là Triệu Chí Dũng không phải loại đàn ông lụy tình mù quáng, kẻ hắn lụy cũng không phải loại "trà xanh".
+Điều may mắn duy nhất là Triệu Trí Dũng không phải loại lụy tình mù quáng, và đối tượng cậu ta nhắm tới cũng chẳng phải phường "trà xanh" đào mỏ. Ít nhất thì Trịnh Như cũng thật lòng tình nguyện để Triệu Trí Dũng trèo lên giường của mình.
 
-Chí ít Trịnh Như cũng đã để Triệu Chí Dũng leo lên giường của mình.
+Triệu Trí Dũng còn kể rằng Trịnh Như chẳng bao giờ đòi hỏi hay tiêu xài tiền của cậu ta, biết cậu ta còn là sinh viên ăn học, thỉnh thoảng cô còn lén nhét thêm tiền tiêu vặt cho cậu. Đợt nghỉ hè năm ngoái Triệu Trí Dũng kiếm được hơn ba nghìn tệ, đợt nghỉ đông vào rừng đào măng kiếm được một nghìn ba trăm tệ.
 
-Triệu Chí Dũng còn nói, Trịnh Như không tiêu tiền của hắn, biết hắn vẫn là sinh viên nên thỉnh thoảng còn nhét thêm tiền cho hắn.
+Triệu Kim An hiểu rồi, một người phụ nữ dịu dàng, chu đáo như Trịnh Như... bảo sao Triệu Trí Dũng hoàn toàn lu mờ lý trí, sa lầy không cách nào dứt ra nổi.
 
-Kỳ nghỉ hè Triệu Chí Dũng kiếm được hơn 3 ngàn, kỳ nghỉ đông đi đào măng mùa đông kiếm được 1 ngàn 3 trăm tệ.
+Giờ đây có ai khuyên can cũng chỉ bằng thừa.
 
-Triệu Kim An đã hiểu, Trịnh Như cứ như thế này... Triệu Chí Dũng hoàn toàn lún sâu vào rồi.
+Chỉ còn nước nằm chờ ngày chuyện vỡ lở, Triệu Dược Tiến và Lưu Đồng Hoa vác đòn gánh đánh gãy chân cậu ta mà thôi!
 
-Ai khuyên cũng vô dụng thôi.
+Ngay cả Triệu Bác Lan cũng cất tiếng hỏi sao dạo này cuối tuần chẳng thấy Triệu Trí Dũng ghé qua công ty nữa. Triệu Kim An không hé răng nửa lời về sự tồn tại của Trịnh Như, chắc hẳn mấy ngày cuối tuần cậu ta đang bận rộn sắm vai một người cha mẫu mực bên hai mẹ con họ rồi.
 
-Chỉ đành đợi đến ngày chuyện này bại lộ, Triệu Việt Tiến và Lưu Đồng Hoa đánh gãy chân hắn mà thôi!
+***
 
-Ngay cả Triệu Bác Lan cũng hỏi tại sao cuối tuần Triệu Chí Dũng đều không tới nữa.
+Giải bóng rổ Cúp Trăn Nhiên vẫn đang diễn ra vô cùng sôi nổi, náo nhiệt.
 
-Triệu Kim An không tiết lộ chuyện của Trịnh Như, có lẽ cuối tuần hắn đang tranh thủ thời gian để diễn vai người cha tốt.
+Vòng thi đấu đầu tiên, đội của Lưu Sấm Phong giành chiến thắng khá dễ dàng. Nghe đâu cả Mộc Dao lẫn Từ Mạn Mạn đều có mặt trên khán đài để cổ vũ. Thế nhưng vì không thấy bóng dáng Triệu Kim An xuất hiện, Mộc Dao chỉ nán lại xem được một nửa trận rồi lẳng lặng quay gót ra về.
 
-Giải Cúp Trăn Nhiên đang diễn ra sôi nổi.
+Diêu Thần nhắn tin thông báo rằng Khổng Triết Vũ vẫn kiên trì không chịu từ bỏ ý định theo đuổi Mộc Dao.
 
-Lưu Sấm Phong thắng vòng đầu rất nhẹ nhàng, nghe nói Mộc Dao và Từ Mạn Mạn đều đến cổ vũ cho hắn.
+Nhân dịp hai ngày cuối tuần, Triệu Kim An đáp một chuyến xe tới Chu Châu.
 
-Nhưng không thấy Triệu Kim An đâu, Mộc Dao chỉ xem được một nửa rồi rời đi.
+Giang Công Kỳ đã nhanh chóng tìm được kho bãi ưng ý, hiện đang tất bật đăng tin tuyển dụng nhân viên kinh doanh thị trường.
 
-Diêu Tân gửi tin nhắn nói rằng Khổng Triết Vũ vẫn chưa từ bỏ việc theo đuổi Mộc Dao.
+Triệu Bác Lan sau khi thanh toán xong tiền cọc thuê kho liền thở dài than vãn rằng chỗ nào cũng cần đến tiền, liệu có nên tính chuyện mua vài chiếc xe van cũ chạy tạm cho đỡ tốn kém ngân sách hay không?
 
-Nhân dịp cuối tuần, Triệu Kim An đi một chuyến tới Chu Châu.
+Đối diện với ánh mắt mong mỏi, nóng lòng của Giang Công Kỳ, Triệu Kim An dứt khoát: "Xe mới cũng chẳng đắt đỏ gì, chỉ tầm hơn ba vạn một chiếc. Xe cũ vừa ngốn xăng lại vừa hay hỏng vặt dọc đường, hoàn toàn không đáng để chúng ta phải tằn tiện khoản chi phí này."
 
-Giang Công Kỳ đã tìm được kho bãi, đang bận rộn tuyển dụng nhân viên kinh doanh.
+Triệu Bác Lan bắt đầu lúi húi tính toán xem mỗi thành phố cấp địa khu cần trang bị bao nhiêu chiếc xe van. Dù sao đi nữa, dàn xe van của công ty ngày một nhiều lên trông thấy, không còn phải chật vật dựa dẫm vào mấy chiếc xe ba gác máy lạch cạch như trước. Tất nhiên, đội xe ba gác vẫn chưa bị đào thải hoàn toàn.
 
-Triệu Bác Lan trả tiền thuê, than thở chỗ nào cũng cần tiêu tiền, hay là mấy chiếc xe tải nhỏ cứ mua lại xe cũ cho xong?
+Triệu Kim An mở lời mời nhóm nhân viên của Giang Công Kỳ một bữa cơm thân mật tại một quán ăn bình dân bên vỉa hè. Hắn không nói những lời đao to búa lớn hay hô hào khẩu hiệu sáo rỗng, chỉ chân thành động viên mọi người hãy nỗ lực hết mình, Trăn Nhiên hiện đang trong giai đoạn khát nhân tài nhất, và thị trường phía trước vẫn là một mảnh đất màu mỡ nguyên sơ chưa ai khai phá.
 
-Đối diện với ánh mắt mong chờ của Giang Công Kỳ, Triệu Kim An nói: "Xe mới cũng không đắt, chỉ hơn 3 vạn một chiếc, xe cũ vừa tốn xăng vừa dễ hỏng, không cần thiết phải tiết kiệm chút tiền này."
+Giang Công Kỳ lập tức tiếp lời, lấy ngay câu chuyện bản thân ra làm minh chứng sống: mới một tháng trước anh ta vẫn chỉ là một cậu nhân viên kinh doanh quèn ở Lưu Dương, công ty đang trên đà bành trướng mở rộng, chính là thời cơ vàng cho những người có chí tiến thủ. Bất cứ ai trong số họ cũng đều có cơ hội vươn lên nắm giữ vị trí Quản lý thành phố!
 
-Thế là Triệu Bác Lan bắt đầu tính toán xem mỗi thành phố cấp địa khu cần trang bị mấy chiếc xe tải.
+Giang Công Kỳ thậm chí còn có tài "vẽ bánh vẽ" điệu nghệ hơn cả Triệu Kim An, vài chén rượu ngà ngà vào liền nói đến mức mấy gã đàn ông ngồi quanh bàn ai nấy mặt đỏ bừng bừng vì hưng phấn và tràn trề hy vọng.
 
-Dù sao đi nữa, xe tải của công ty đã nhiều lên, không còn là những chiếc xe ba gác nhỏ nữa.
+Những người này vốn đều đã dắt túi đôi chút kinh nghiệm trong ngành hàng tiêu dùng nhanh. Cái tên Trăn Nhiên dẫu họ mới chỉ nghe phong thanh, thế nhưng giai điệu ca khúc "Yêu Em 105°" thì trên khắp các ngõ ngách phố phường đã có vô số hàng quán mở phát liên tục. Lời bài hát đã được khéo léo chỉnh sửa, cụm từ "nước cất XX" được thay thế hoàn toàn bằng "nước sủi bọt Khinh Dưỡng Trăn Nhiên".
 
-Tất nhiên, xe ba gác cũng không bị đào thải.
+Tháng Năm gõ cửa, cái nóng nực oi ả của mùa hè bắt đầu ùa về. Lời ca khúc vô cùng hợp cảnh, tiết tấu lại vui tươi, rộn rã, khiến danh sách phát nhạc của rất nhiều cửa hàng đều có mặt bài hát này. Người ta không coi đó là một bản nhạc quảng cáo đơn thuần, mà chỉ thấy giai điệu quá đỗi bắt tai. Thế nhưng hai chữ "Trăn Nhiên"... hễ nhìn thấy trên nhãn chai là người mua lập tức nhớ ra ngay.
 
-Triệu Kim An mời bọn Giang Công Kỳ đi ăn một bữa tại một quán ăn vỉa hè.
+Đó chính là lý do vì sao tại các đô thị lớn như Bắc Kinh, Thượng Hải, Quảng Châu, Thâm Quyến lại mọc lên nhiều công ty truyền thông tiếp thị đến vậy — một ý tưởng quảng cáo xuất sắc thực sự đủ sức làm bùng nổ doanh số của cả một dòng sản phẩm.
 
-Hắn không nói những lời đao to búa lớn, chỉ bảo mọi người hãy nỗ lực hết mình, Trăn Nhiên đang là lúc cần người, hiện tại thị trường vẫn còn là một mảnh trắng xóa.
+Nhân viên kinh doanh mảng hàng tiêu dùng nhanh hầu hết là nam giới. Ban đầu nhìn thấy Triệu Kim An tuổi đời còn quá trẻ, trong lòng họ không khỏi có đôi phần nghi ngại, dao động. Thế nhưng ngay khi nhìn thấy chiếc xe Audi A6 sang trọng cùng vóc dáng vạm vỡ, uy nghiêm của Đan Vĩ đứng bên cạnh, cõi lòng họ lập tức vững chãi mười phần. Thử hỏi phải cỡ ông chủ tầm vóc thế nào khi ra đường mới mang theo cả tài xế kiêm vệ sĩ riêng? Nhìn thần thái và diện mạo của Đan Vĩ, chỉ liếc qua một cái là biết ngay thuộc hàng vệ sĩ chuyên nghiệp đẳng cấp.
 
-Giang Công Kỳ lập tức tiếp lời, lấy chính mình ra làm ví dụ, nói rằng một tháng trước mình vẫn còn là nhân viên kinh doanh ở Lưu Dương, công ty đang mở rộng, chính là lúc cần nhân tài.
+Rời Chu Châu, Triệu Kim An ghé qua Tương Đàm, rồi xuôi thẳng xuống phía nam khảo sát Hành Dương. Ngày thứ Hai không kịp trở về trường, trong vòng ba ngày ngắn ngủi hắn chỉ kịp ghé qua 3 địa điểm theo trục nam chứ chưa thể đi sâu xuống tận Sâm Thành. Ở Sâm Thành đã có Lạc Cẩn Chi quán xuyến, đó là địa bàn ruột của cô nên không cần hắn phải nhọc lòng lo nghĩ.
 
-Mọi người đều có cơ hội trở thành quản lý khu vực!
+Hắn vẫn chưa triển khai kế hoạch bắc tiến hay đánh sang phía tây!
 
-Giang Công Kỳ còn biết "vẽ bánh" hơn cả Triệu Kim An, uống chút rượu vào là nói đến mức mấy gã đàn ông đỏ mặt tía tai.
+Ở mạn phía tây có Hoài Hóa — thành phố nơi Trần Thanh Trĩ đang ngày ngày theo học.
 
-Những người đàn ông này đều có ít nhiều kinh nghiệm làm hàng tiêu dùng nhanh, bọn họ mới chỉ nghe danh Trăn Nhiên gần đây, nhưng bài hát "Người con trai 105°C của tôi" thì trên phố lớn ngõ nhỏ đều có các hộ kinh doanh đang bật.
-
-Lời bài hát này đã được sửa lại, thay thế "nước cất XX" thành "nước bọt khí oxy nhẹ Trăn Nhiên".
-
-Tháng Năm, mùa hè sắp đến.
-
-Lời bài hát này rất hợp cảnh, giai điệu lại nhẹ nhàng, danh sách nhạc của nhiều cửa hàng đều có bài hát này.
-
-Họ không coi đó là nhạc quảng cáo, chỉ thấy hay nên bật.
-
-Nhưng hai chữ "Trăn Nhiên"... mọi người cứ nhìn thấy là sẽ nhớ ra ngay.
-
-Đó là lý do tại sao ở các thành phố lớn như Bắc Kinh, Thượng Hải, Quảng Châu, Thâm Quyến lại có nhiều công ty hoạch định đến thế, một ý tưởng quảng cáo tốt thực sự có thể làm bùng nổ một sản phẩm.
-
-Nhân viên kinh doanh hàng tiêu dùng nhanh cơ bản đều là nam giới, thấy Triệu Kim An trẻ như vậy, trong lòng họ vốn chưa có lòng tin lắm, nhưng khi nhìn thấy chiếc Audi A6 và Đơn Vĩ thì họ đã vững tâm hơn nhiều.
-
-Thử hỏi ông chủ cấp bậc nào ra đường mới mang theo cả tài xế lẫn vệ sĩ?
-
-Vẻ mặt của Đơn Vĩ, nhìn một cái là biết ngay loại vệ sĩ cực kỳ chuyên nghiệp.
-
-Từ Chu Châu đi một chuyến tới Tương Đàm, lại xuôi Nam đến Hành Dương, thứ Hai không kịp quay về, ba ngày trời cũng chỉ mới đi được 3 nơi theo hướng Nam, chưa xuống đến Sâm Thành.
-
-Ở Sâm Thành đã có Lạc Cẩn Chi, thành phố do nàng phụ trách thì không cần phải lo lắng.
-
-Vẫn chưa tiến quân lên phía Bắc hay sang phía Tây!
-
-Phía Tây có Hoài Hóa, thành phố nơi Trần Thanh Trĩ đang ở.
-
-Thứ Tư mới quay về Quận Sa, Đơn Vĩ lái xe, Triệu Kim An ngồi hàng ghế sau, Triệu Bác Lan ngồi ghế phụ.
+Mãi đến chiều thứ Tư, Triệu Kim An mới quay về tới Quận Sa. Đan Vĩ cầm vô lăng, Triệu Kim An ngồi ngả lưng ở hàng ghế sau, còn Triệu Bác Lan ngồi ở vị trí ghế phụ phía trước.
 
 "Kim... An..."
 
-Triệu Bác Lan nghiêng người, định nói gì đó rồi lại thôi.
+Triệu Bác Lan nghiêng người qua, khẽ mấp máy môi định nói điều gì nhưng rồi lại ngập ngừng khép miệng lại.
 
-Nàng vốn dĩ muốn hỏi khi nào thì tiến quân lên phía Bắc và sang phía Tây.
+Ban đầu cô toan hỏi khi nào thì công ty mới bắt đầu kế hoạch bắc tiến và tây tiến. Nhưng rồi cô nhận ra Triệu Kim An đang chăm chú lật giở từng trang sách — kỳ thi kết thúc học kỳ đại học đã cận kề nên hắn tỏ ra vô cùng tập trung.
 
-Nhưng lại thấy Triệu Kim An đang đọc sách, nhìn kỹ lại thì là giáo trình đại học, sắp đến kỳ thi cuối kỳ nên hắn rất tập trung.
+Triệu Bác Lan cứ thế lặng lẽ nghiêng đầu ngắm nhìn hắn một hồi lâu. Có lẽ vì trong mắt cô đã có sẵn một lớp "kính lọc", cô thực sự không tưởng tượng nổi mẫu con gái như thế nào trên đời này mới xứng đôi vừa lứa với ông chú họ của mình. Trước đây hắn vẫn còn tồn tại khuyết điểm, nhưng giờ đây, khuyết điểm ngắn nhất ấy cũng đã được bù đắp một cách hoàn hảo.
 
-Triệu Bác Lan cứ thế lặng lẽ nhìn một lúc, có lẽ là do có bộ lọc thiện cảm, nàng không biết kiểu con gái thế nào mới xứng đáng với người chú này của mình.
+Đan Vĩ ngồi bên cạnh nhạy bén nhận ra nét khác lạ của Triệu Bác Lan, liền kín đáo liếc mắt nhìn qua gương chiếu hậu, bụng thầm nghĩ:
 
-Trước đây hắn còn có điểm yếu, nhưng giờ đây, tấm ván ngắn nhất cũng đã được bù đắp rồi.
+"Chẹp, ông chủ mà có rụng mất một cọng lông chân, con bé Na Tề ở nhà khéo nó đoạn tuyệt quan hệ cha con với mình mất."
 
-Đơn Vĩ nhận ra sự khác thường của Triệu Bác Lan bên cạnh, cũng liếc nhìn vào gương chiếu hậu.
+***
 
-"Chao ôi, nếu ông chủ mà rụng một sợi lông nào, chắc Na Tề sẽ đoạn tuyệt quan hệ cha con với tôi mất."
+Khu Đại học Thành Quận Sa.
 
-Thành phố đại học Quận Sa.
+Giải đấu Cúp Trăn Nhiên đang bước vào giai đoạn kịch tính. Dọc theo các tuyến đường sầm uất như Lộc Sơn Nam, Phố Đọa Lạc, đường Đăng Sơn... đi tới bất cứ ngóc ngách nào cũng có thể nghe thấy các cửa hàng mặt phố rộn rã phát khúc ca "Yêu Em 105°".
 
-Giải Cúp Trăn Nhiên đang được tổ chức, dọc theo Đường Lộc Sơn Nam, Phố Trụy Lạc, đường Đăng Sơn... đi đến đâu cũng có thể nghe thấy các cửa hàng đang bật bài "Người con trai 105°C của tôi".
+Đường Hiểu Tình gọi điện tới, giọng điệu ngập tràn vẻ phấn khích khôn xiết, báo rằng dạo gần đây tại khu vực quận Nhạc Lộc ngày nào cũng có tới tấp các chủ cửa hàng gọi điện hối thúc công ty mau chóng chở hàng tới! Không chỉ riêng quận Nhạc Lộc, mà lượng tiêu thụ trên toàn địa bàn nội thành đều ghi nhận mức tăng trưởng vô cùng ấn tượng.
 
-Đường Hiểu Tình gọi điện thoại với giọng điệu rất hưng phấn, nói rằng bây giờ ở quận Nhạc Lộc, mỗi ngày có rất nhiều chủ cửa hàng gọi điện yêu cầu giao hàng!
+Trước đây, một tiệm tạp hóa nhỏ lẻ cả ngày trời khéo chẳng bán nổi vài ba chai nước. Giờ đây, các ông chủ quán net thi nhau nhấc máy gọi tới tấp: "Chở gấp ít hàng của Trăn Nhiên qua đây nhé, nhanh nhanh lên đấy, nhất định phải có cái loại nước sủi bọt gì đó, hình như tên là Bom Nhỏ Khinh Dưỡng thì phải!"
 
-Không chỉ quận Nhạc Lộc, mà doanh số toàn khu vực nội thành đều có sự gia tăng rõ rệt.
+Hồi trước khi đi dán áp-phích quảng cáo, công ty đã cố tình in sẵn một số điện thoại đường dây nóng ở góc dưới. Cúp máy xong, ông chủ quán net còn lẩm bẩm chửi đổng một câu: "Tên tuổi quái quỷ gì nghe lộn xộn rườm rà, lại còn Bom Nhỏ! Sao không đặt luôn là Mìn Lớn đi cho rồi!"
 
-Trước đây một tiệm tạp hóa nhỏ cả ngày cũng chẳng bán nổi mấy chai.
+Một chai Bom Nhỏ bán lẻ với giá hai tệ rưỡi, ngang ngửa giá một lon Coca. Những đơn vị gọi điện đặt hàng kiểu này đều thanh toán dứt điểm tiền tươi thóc thật ngay khi nhận hàng.
 
-Bây giờ mấy ông chủ quán nét đều gọi điện giục: "Giao cho chúng tôi ít sản phẩm của Trăn Nhiên đi, nhanh lên, nhất định phải có cái loại nước bọt khí gì đó, gọi là Tiểu Tạc Đạn Oxy Nhẹ ấy!"
+Còn đối với những cửa hàng tiện lợi đã được trang bị tủ mát từ trước, kể từ đợt giao hàng thứ hai trở đi cũng đều thanh toán dứt điểm tiền mặt tại chỗ, công ty không cần phải tặng kèm thêm tủ mát nữa.
 
-Hồi đầu khi dán poster, hắn đã cố ý để lại một số điện thoại.
+Doanh nghiệp rốt cuộc đã bắt đầu nhìn thấy những đồng lợi nhuận thực tế chảy vào tài khoản!
 
-Gác máy xong, hắn còn lầu bầu mắng một câu: "Cái tên quái quỷ gì không biết, còn tiểu tạc đạn! Sao không gọi là đại địa lôi luôn đi!"
+Có bạn tình nguyện viên còn gọi điện cho Từ Mạn Mạn, cất giọng vô cùng hào hứng kể rằng những tờ áp-phích ngày trước mọi người cùng nhau lặn lội đi dán nay đã phát huy tác dụng rõ rệt, mang lại hiệu quả trực tiếp và bất ngờ ngoài sức tưởng tượng!!!
 
-Tiểu Tạc Đạn Oxy Nhẹ giá hai tệ rưỡi một chai, bằng giá với Coca-Cola.
+Trước đây chính Từ Mạn Mạn là người trực tiếp dẫn đầu đội tình nguyện đi khắp hang cùng ngõ hẻm khu Đại học Thành, kiên trì gõ cửa từng hộ kinh doanh một.
 
-Những người gọi điện này đều là thanh toán trước nhận hàng sau, trả tiền mặt ngay.
+Nhận được cuộc gọi này, Từ Mạn Mạn vừa bất ngờ lại vừa vui sướng, trong lồng ngực dâng lên niềm xúc động rạo rực khó tả. Cô vô cùng ngưỡng mộ Thẩm Tử Ngôn, ngưỡng mộ cả Đường Hiểu Tình, chỉ tiếc rằng bản thân không thể tiếp tục "dấn thân" đồng hành cùng họ trên con đường ấy nữa.
 
-Những cửa hàng tiện lợi đã có tủ lạnh, lần giao hàng thứ hai cũng đều thanh toán ngay, không cần phải kèm thêm một chiếc tủ lạnh nào nữa.
+Từ Mạn Mạn tự bỏ tiền túi ra mua một két nước sủi bọt. Ngày thường cô vốn chẳng mấy khi đụng tới thứ đồ uống này. Vậy mà lúc này, cô lại đưa tay vặn nắp chai, một hơi uống cạn tới một phần ba chai nước — đó đã là giới hạn tối đa đối với sức chứa của cô!
 
-Công ty cuối cùng đã bắt đầu nhìn thấy lợi nhuận!
+"Mặt hàng này được chuộng đến thế cơ à?"
 
-Còn có tình nguyện viên gọi điện cho Từ Mạn Mạn, nói rất to rằng những tấm poster trước đây chúng ta cùng đi dán đã có hiệu quả rồi, hiệu quả trực tiếp nhất luôn!!!
+Chủ tiệm tiện lợi ban đầu chỉ dám nhập thử hai két bán chơi, thấy một két vừa vơi đi vài chai đã vội vàng rút điện thoại ra gọi giục nhập thêm hàng.
 
-Trước đây chính là Từ Mạn Mạn dẫn đội đi dán, cùng với mấy bạn tình nguyện viên, chạy đôn chạy đáo khắp khu đại học.
-
-Nhận được cuộc điện thoại này, Từ Mạn Mạn vừa bất ngờ vừa vui vẻ, trong lòng còn ẩn chứa chút kích động.
-
-Nàng rất ngưỡng mộ Thẩm Tử Ngôn, rất ngưỡng mộ Đường Hiểu Tình, đáng tiếc là bản thân nàng không thể "tham gia" vào đó được nữa.
-
-Từ Mạn Mạn bỏ tiền ra mua một két nước bọt khí, vốn dĩ nàng không mấy khi uống loại nước này.
-
-Nhưng lúc này nàng lại vặn nắp chai, uống một hơi hết một phần ba chai.
-
-Đây đã là giới hạn của nàng rồi!
-
-"Được ưa chuộng đến thế sao?"
-
-Chủ cửa hàng tiện lợi ban đầu chỉ nhập hai két, một két đã bán được vài chai, đành phải cầm điện thoại lên gọi điện nhập thêm hàng.
-
-Từ Mạn Mạn ngồi trên băng ghế dài bên ngoài cửa hàng tiện lợi, dưới chân là một két nước bọt khí vừa mới khui, tiệm quần áo bên cạnh đang phát bài "Người con trai 105°C của tôi".
+Từ Mạn Mạn lặng lẽ ngồi trên chiếc ghế dài bên ngoài cửa hàng tiện lợi, dưới chân là thùng nước sủi bọt vừa mới khui nắp, bên cạnh là tiệm bán quần áo thời trang đang rộn rã ngân vang khúc nhạc "Yêu Em 105°"...

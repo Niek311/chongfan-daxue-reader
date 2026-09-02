@@ -1,245 +1,245 @@
-# Chương 95: Lịch Sự Của Anh Liên Quan Gì Đến Tôi
+# Chương 95: Sự lịch sự của cậu thì liên quan quái gì đến tôi?
 
-Các trường đại học ở thành phố lần lượt bắt đầu khai giảng.
+> **Tiêu đề gốc**: 第95章 你的礼貌关我什么事？
 
-Sau kỳ nghỉ Tết trở lại ký túc xá, Lưu Sấm Phong và Cốc Siêu Thừa phát hiện Triệu Kim An đã về trường từ sớm, trên giường có dấu vết người nằm, trong gạt tàn còn vài mẩu thuốc lá.
+Các trường đại học trong khu đô thị Đại học lục tục bước vào mùa khai giảng học kỳ mới.
 
-"Càng ngày càng không hiểu nổi Kim An."
+Sau đợt nghỉ Tết trở lại ký túc xá, Lưu Sấm Phong và Cốc Siêu Thừa ngạc nhiên phát hiện Triệu Kim An đã có mặt ở trường từ lâu. Giường chiếu có dấu vết người nằm ngủ, trong gạt tàn thuốc lá trên bàn còn vương lại mấy đầu mẩu thuốc lá hút dở.
 
-Lưu Sấm Phong cầm một mẩu thuốc lá trong gạt tàn lên cho Cốc Siêu Thừa xem: "Hoàng Phù!"
+"Tao càng ngày càng không tài nào hiểu nổi thằng Kim An nữa."
 
-"Lúc không có ai, một mình Kim An ở ký túc xá cũng hút Hoàng Phù."
+Lưu Sấm Phong nhặt một đầu mẩu thuốc lá trong gạt tàn lên huơ huơ trước mặt Cốc Siêu Thừa: "Phù Dung Vàng này!"
 
-Khi có người thì có thể nói là vì giữ thể diện, nhưng Triệu Kim An rõ ràng là sinh viên nghèo mà.
+"Lúc trong phòng chẳng có ai, một thân một mình nó ở ký túc xá cũng rít toàn Phù Dung Vàng."
 
-Cốc Siêu Thừa liếc mắt nhìn: "Lão Lưu, kỳ nghỉ đông vừa rồi ông đi phe vé tàu hỏa, làm 'cò' kiếm được bao nhiêu tiền?"
+Nếu ở chỗ đông người thì còn có thể bảo là thích làm màu giữ thể diện, nhưng đằng này Triệu Kim An rõ ràng mang danh là sinh viên thuộc diện hộ nghèo cơ mà.
 
-"Phe vé gì chứ? Cò mồi gì?"
+Cốc Siêu Thừa liếc mắt nhìn qua: "Này lão Lưu, đợt nghỉ đông vừa rồi mày ôm vé tàu hỏa làm phe vé kiếm chác được bao nhiêu tiền thế?"
 
-"Tôi đây là giúp đỡ bạn học!"
+"Phe vé cái gì? Đầu cơ tích trữ cái gì hả?!"
 
-Lưu Sấm Phong có chút không vui: "Tôi chỉ thu có 20 tệ tiền phí vất vả thôi, ông tưởng nửa đêm xếp hàng mua vé tàu không cực khổ chắc? Các ông nằm trong ký túc xá ngủ, còn tôi phải xếp hàng ở nhà ga!"
+"Tao đây là lòng tốt giúp đỡ bạn bè cùng trường nhé!"
 
-"Được rồi được rồi, tôi chỉ hỏi ông kiếm được bao nhiêu thôi."
+Lưu Sấm Phong tỏ vẻ khó chịu gắt lên: "Tao chỉ thu có hai mươi tệ tiền công vất vả thôi đấy. Mày tưởng nửa đêm nửa hôm thức trắng đi xếp hàng mua vé tàu hỏa sướng lắm chắc? Lúc tụi mày trùm chăn ngủ say như lợn trong ký túc xá thì tao phải co ro đứng xếp hàng ngoài ga tàu đấy!"
 
-"Hai ngàn."
+"Thôi được rồi, tao chỉ tò mò hỏi xem mày kiếm được bao nhiêu thôi mà."
 
-"Nhiều vậy sao!?"
+"Hai nghìn tệ."
 
-Cốc Siêu Thừa rất kinh ngạc.
+"Nhiều thế cơ à?!"
 
-Thực tế Lưu Sấm Phong không nói thật, gã kiếm được tận 3.200 tệ.
+Cốc Siêu Thừa trố mắt kinh ngạc.
 
-Cũng chẳng biết tại sao.
+Trên thực tế, Lưu Sấm Phong không hề nói thật con số thực tế, đợt ấy anh ta bỏ túi trọn vẹn ba nghìn hai trăm tệ.
 
-Kiếm được bao nhiêu tiền, Lưu Sấm Phong sẵn lòng nói thật với Triệu Kim An, vì Triệu Kim An sẽ không đố kỵ, không đỏ mắt với gã, còn Cốc Siêu Thừa và Trần Trạch mà thấy gã kiếm được tiền...
+Chẳng hiểu vì sao.
 
-Khoảng thời gian đó hai người kia chẳng ít lần lầm bầm trong ký túc xá.
+Kiếm được bao nhiêu tiền, Lưu Sấm Phong chỉ sẵn lòng giãi bày thật lòng với mỗi mình Triệu Kim An. Bởi anh ta biết Triệu Kim An tuyệt đối sẽ không bao giờ đố kỵ ghen ghét hay đỏ mắt với mình. Chứ còn Cốc Siêu Thừa với Trần Trạch mà thấy anh ta kiếm được nhiều tiền...
 
-"Kim An còn về nhà muộn hơn cả tôi." Lưu Sấm Phong nói.
+Thời gian trước hai đứa nó đã chẳng ít lần đứng trong phòng lải nhải xỏ xiên, châm chọc đủ điều rồi.
 
-"Cậu ấy làm gì vậy?"
+"Kim An đợt này về quê muộn hơn cả tao đấy," Lưu Sấm Phong nói thêm.
 
-"Không biết."
+"Cậu ấy ở lại làm cái gì thế?"
 
-Lưu Sấm Phong lắc đầu: "Lúc đó cậu ấy mời tôi hút thuốc cũng toàn là Hoàng Phù."
+"Ai mà biết được."
 
-Lưu Sấm Phong phát hiện mình kiếm được nhiều tiền như vậy còn không nỡ mua Hoàng Phù, liền cảm thấy Triệu Kim An thật kỳ lạ.
+Lưu Sấm Phong lắc đầu: "Khoảng thời gian đó mỗi lần nó mời tao hút thuốc cũng toàn là Phù Dung Vàng cả."
 
-Cốc Siêu Thừa đang thu dọn hành lý, đột nhiên nhớ ra điều gì đó.
+Lưu Sấm Phong tự thấy bản thân kiếm được một món tiền lớn như thế mà còn không nỡ bấm bụng mua một bao Phù Dung Vàng để hút, thế nên anh ta cứ cảm thấy Triệu Kim An dạo này bí ẩn và kỳ lạ vô cùng.
 
-"Lão Lưu, Tết này Trần Trạch có nhắn tin lại cho ông không?"
+Cốc Siêu Thừa đang lúi húi thu dọn hành lý, bỗng sực nhớ ra điều gì đó:
 
-Lưu Sấm Phong bĩu môi: "Không, người ta là Trạch ca, vòng bạn bè khác chúng ta, người ta chỉ nhận tin nhắn thôi, anh ta cũng đâu có nhắn lại 'Chúc mừng năm mới' cho ông chứ gì?"
+"Lão Lưu này, đợt Tết vừa rồi Trần Trạch có nhắn tin chúc mừng trả lời mày không?"
 
-Cốc Siêu Thừa gật đầu: "Từ Mạn Mạn thì có trả lời tôi, cả Thẩm Tử Ngôn nữa."
+Lưu Sấm Phong bĩu môi: "Làm gì có. Người ta là Trạch ca cơ mà, đẳng cấp mối quan hệ của người ta ở tầm khác, thuộc về tầng lớp chỉ nhận tin nhắn chúc tụng của thiên hạ thôi. Nó cũng đâu có thèm nhắn lại bốn chữ 'Năm mới vui vẻ' cho mày, đúng không?"
 
-Lưu Sấm Phong bảo tôi cũng thế, còn có Diêu Tân.
+Cốc Siêu Thừa gật đầu: "Hứa Mạn Mạn thì có trả lời tin nhắn của tao, cả Thẩm Tử Ngôn nữa."
 
-Gã liếc nhìn cửa phòng rồi lại hạ thấp giọng nói: "Mộc Dao và Trần Trạch có chút giống nhau."
+Lưu Sấm Phong tiếp lời: "Tao cũng thế, lại còn có cả Diêu Tân nữa."
 
-Cốc Siêu Thừa nói: "Mộc Dao có trả lời tin nhắn của tôi."
+Anh ta đưa mắt liếc nhìn ra ngoài cửa hành lang, rồi hạ thấp giọng thì thào: "Con bé Mộc Dao tính nết cũng y chang như Trần Trạch vậy."
+
+Cốc Siêu Thừa bảo: "Mộc Dao có nhắn tin trả lời tao mà."
 
 Lưu Sấm Phong: "..."
 
-Hóa ra là chỉ coi thường mỗi mình mình thôi sao.
+Hóa ra chỉ có mỗi mình anh ta là bị người ta khinh khỉnh ngó lơ mà thôi.
 
-Đúng lúc này Vương Duy Đào tới, xách theo túi lớn túi nhỏ, nhìn một vòng ký túc xá không thấy Triệu Kim An đâu, liền quay người định đi.
+Đúng lúc ấy, Vương Duy Đào tay xách nách mang đồ đạc bước vào. Cậu ta đảo mắt nhìn quanh phòng một lượt, không thấy bóng dáng Triệu Kim An đâu liền quay ngoắt người toan bỏ đi.
 
-"Đào tử, vừa đến đã đi đâu vậy? Mang đặc sản gì đấy?"
+"Kìa Đào Tử, vừa mới tới sao đã vội đi thế? Mang đặc sản gì ở quê lên đấy?"
 
-Vương Duy Đào giơ ngón tay giữa lên với Lưu Sấm Phong: "Với ông thì không có gì đâu, đợi Kim An về mới có."
+Vương Duy Đào quay lại giơ ngón tay giữa về phía Lưu Sấm Phong: "Cho cái mặt mày ăn thì có mà phí của, đợi Kim An về thì chẳng còn mẩu nào đâu."
 
 "Mẹ kiếp!"
 
-Lưu Sấm Phong mặt đầy buồn bực: "Kim An đâu phải bạn gái ông!"
+Lưu Sấm Phong mặt xị ra đầy vẻ uất ức: "Thằng Kim An có phải bạn gái của mày đâu mà cưng như cưng trứng thế!"
 
-Buổi tối, Trần Trạch và Triệu Kim An quay lại.
+Đến tối muộn, Trần Trạch và Triệu Kim An mới cùng nhau trở về phòng.
 
-Trần Trạch rút một điếu thuốc, xoay chìa khóa xe và bảo hôm nay anh đã lái xe tới ga hỏa xa hai lượt để đón Thẩm Tử Ngôn và Diêu Tân, còn nói kỳ nghỉ đông chính anh cũng đã lái xe tiễn các nàng đi.
+Trần Trạch rút thuốc lá ra chia cho mọi người, ngón tay vừa xoay xoay chùm chìa khóa xe ô tô vừa cao giọng kể rằng hôm nay anh ta đã lái xe chạy ra ga tàu hỏa tới hai chuyến liền để đón Thẩm Tử Ngôn và Diêu Tân. Lại còn khoe thêm rằng đợt nghỉ đông trước Tết cũng chính anh ta đã đích thân lái xe chở hai cô nàng ra tận ga tàu.
 
-Trong chốc lát không ai đáp lời.
+Cả căn phòng nhất thời rơi vào im lặng, chẳng có ai lên tiếng hưởng ứng.
 
-Một lúc sau Cốc Siêu Thừa hỏi: "Từ Mạn Mạn biết không?"
+Một lát sau, Cốc Siêu Thừa mới dè dặt hỏi: "Chuyện này Hứa Mạn Mạn có biết không?"
 
-Trần Trạch nói chính Từ Mạn Mạn gọi anh lái xe tiễn bạn cùng phòng đấy thôi.
+Trần Trạch thản nhiên đáp chính Hứa Mạn Mạn là người chủ động nhờ anh ta lái xe đi đón giùm bạn cùng phòng ký túc xá.
 
-"Thế còn Mộc Dao?"
+"Thế còn Mộc Dao thì sao?"
 
-Cốc Siêu Thừa lại hỏi.
+Cốc Siêu Thừa lại sốt sắng gặng hỏi tiếp.
 
-Trần Trạch nhìn Triệu Kim An, nói: "Mộc Dao có dì nhỏ ở Quận Sa."
+Trần Trạch đưa mắt liếc nhanh về phía Triệu Kim An, nhàn nhạt đáp: "Mộc Dao có người dì ruột sống ở Quận Sa ra đón rồi."
 
-Triệu Kim An không thấy lạ lắm, đây là cách hành sự của Từ Mạn Mạn.
+Triệu Kim An nghe vậy chẳng hề tỏ ra bất ngờ. Đây chính là cung cách đối nhân xử thế quen thuộc, khéo léo và chu toàn của Hứa Mạn Mạn.
 
-Nếu là Trần Trạch, anh ta có lẽ chỉ nghĩ đến việc đón tiễn Thẩm Tử Ngôn.
+Nếu để một mình Trần Trạch tự ý quyết định, có lẽ trong đầu anh ta sẽ chỉ nghĩ đến việc lái xe đưa đón mỗi mình Thẩm Tử Ngôn mà thôi.
 
-Còn nếu Mộc Dao cần, đương nhiên có cả Mộc Dao.
+Và nếu Mộc Dao cần, thì đón thêm cả Mộc Dao nữa.
 
-Cốc Siêu Thừa cũng nhìn Triệu Kim An, rồi ấp úng hỏi Trần Trạch: "Trạch ca, cái đó... lần trước anh nói có người tên Khổng Triết Vũ đang theo đuổi Mộc Dao..."
+Cốc Siêu Thừa cũng len lén đưa mắt nhìn Triệu Kim An, rồi lại ngập ngừng ấp úng quay sang hỏi Trần Trạch: "Trạch ca... cái chuyện... lần trước anh bảo có một anh chàng tên Khổng Triết Vũ đang theo đuổi Mộc Dao ấy..."
 
-Nghe đến vấn đề này, Triệu Kim An cũng nhìn về phía Trần Trạch.
+Nghe đến câu hỏi này, Triệu Kim An cũng bất giác ngẩng đầu nhìn về phía Trần Trạch.
 
-Không nói Mộc Dao không được tìm bạn trai, nhưng phàm là con người thì ai cũng sẽ tò mò chứ.
+Chẳng ai cấm Mộc Dao tìm bạn trai mới cả, nhưng phàm là con người thì ai nấy đều có sẵn tính tò mò muôn thuở.
 
-Được rồi, ai cũng sẽ có chút tư tâm.
+Được rồi, là con người thì ai cũng khó tránh khỏi đôi chút tâm lý tư lợi riêng tư.
 
-"Không rõ."
+"Tao cũng không rõ lắm."
 
-Trần Trạch nhún vai: "Ai mà biết được kỳ nghỉ đông bọn họ có liên lạc qua điện thoại không, tôi chỉ nói hai điểm, Khổng Triết Vũ là sinh viên đại học Trung Nam, điều kiện gia đình rất tốt."
+Trần Trạch nhún vai tỏ vẻ bất cần: "Ai mà biết được trong kỳ nghỉ đông vừa rồi hai người họ có nhắn tin qua lại bằng điện thoại hay không. Tao chỉ tóm gọn lại hai điểm thế này thôi: Khổng Triết Vũ là sinh viên Đại học Trung Nam, gia thế điều kiện nhà nó cực kỳ khủng."
 
-"Lão Lưu, ông đừng có không phục, lần trước tôi nói hắn lái Bentley... sự thật là điều kiện gia đình hắn rất tốt."
+"Lão Lưu, mày đừng có ngồi đấy mà bĩu môi không phục. Lần trước tao đã bảo nó lái xe Mercedes đi học rồi đấy... Sự thật rành rành là gia cảnh nhà nó giàu có vô cùng."
 
-Ý của Trần Trạch rất rõ ràng, trường học và gia cảnh của Khổng Triết Vũ hơn hẳn Lưu Sấm Phong và Triệu Kim An, các ông có thể không phục bằng miệng, nhưng sự thật là như thế.
+Ý tứ trong lời nói của Trần Trạch đã quá rõ ràng: Cả danh tiếng trường đại học lẫn điều kiện kinh tế gia đình của Khổng Triết Vũ đều vượt trội hơn hẳn so với Lưu Sấm Phong và Triệu Kim An. Tụi mày ngoài miệng có thể không phục, nhưng đó là hiện thực trần trụi không thể chối cãi.
 
-Trần Trạch còn có vài câu chưa nói ra, đó là đích đến của việc học đại học và tìm việc làm của các ông chỉ là điểm xuất phát của người ta mà thôi.
+Có những lời phũ phàng hơn mà Trần Trạch giữ lại không nói toạc ra: Đó là cái đích đến sau khi tốt nghiệp đại học lăn lộn đi làm của tụi mày, thực chất chỉ là vạch xuất phát sẵn có của người ta mà thôi.
 
-"Kim An, cậu hiểu không?"
+"Kim An, mày có hiểu được đạo lý ấy không?"
 
-Trần Trạch nói: "Còn nữa lão Lưu, tôi không nói tôi và Khổng Triết Vũ cùng phe cánh gì đâu mà khoe khoang với các ông."
+Trần Trạch nói tiếp: "Còn lão Lưu nữa, tao không có ý bảo tao đứng cùng một phe với Khổng Triết Vũ để khoe khoang chọc tức tụi mày đâu nhé."
 
-Lưu Sấm Phong bĩu môi, không nói gì nữa.
+Lưu Sấm Phong bĩu môi một cái rồi im bặt, không buồn lên tiếng nữa.
 
-"Hiểu rồi."
+"Tôi hiểu chứ."
 
-Triệu Kim An đặt chai nước khoáng xuống, nhìn Cốc Siêu Thừa: "Ý ông là 'chim khôn chọn cành mà đậu', con gái chọn chàng trai ưu tú hơn là chuyện thường tình, phải không?"
+Triệu Kim An đặt chai nước khoáng trong tay xuống bàn, ánh mắt điềm tĩnh nhìn sang Cốc Siêu Thừa: "Ý cậu là 'chim khôn biết chọn cành son mà đậu', con gái người ta hướng về những chàng trai ưu tú vượt trội hơn mình là điều hoàn toàn hợp lẽ tự nhiên, đúng không?"
 
-"Mọi cô gái đều như nhau cả, đúng không?"
+"Tất cả con gái trên đời này đều giống nhau cả thôi, có phải vậy không?"
 
-Ánh mắt Cốc Siêu Thừa có chút lảng tránh, gã nhận ra mình vừa rồi quá vội vàng, Mộc Dao là bạn gái cũ của Triệu Kim An, hẳn là cậu ấy đã nhìn ra mình thích Mộc Dao rồi.
+Ánh mắt Cốc Siêu Thừa thoáng chút bối rối, né tránh. Cậu ta bỗng nhận ra vừa rồi bản thân đã quá vội vàng, hấp tấp. Mộc Dao vốn là bạn gái cũ của Triệu Kim An, cái thái độ sốt sắng ấy chắc chắn đã khiến Kim An nhìn thấu tâm can rằng cậu ta đang thầm thương trộm nhớ Mộc Dao rồi.
 
-Trần Trạch cảm thấy lời nói của Triệu Kim An có ẩn ý, nhưng vẫn gật đầu.
+Trần Trạch cảm nhận được trong lời nói của Triệu Kim An dường như có hàm ý sâu xa nào đó, nhưng rồi anh ta vẫn gật đầu đồng tình.
 
-Lưu Sấm Phong đổi chủ đề: "Kim An, ngày nào ông cũng ở bên ngoài làm gì vậy, có phải cũng đi làm thêm không?"
+Lưu Sấm Phong liền nhanh nhảu chuyển sang chủ đề khác: "Kim An này, ngày nào mày cũng chạy đôn chạy đáo ở bên ngoài làm cái gì thế, có phải mày cũng đang đi làm thêm kiếm tiền không?"
 
-Triệu Kim An chỉ vào chai nước khoáng trên bàn: "Công ty của tôi."
+Triệu Kim An đưa tay chỉ vào chai nước khoáng đặt ngay ngắn trên bàn: "Đây là công ty của tao."
 
-Ký túc xá yên tĩnh trong giây lát.
+Căn phòng ký túc xá bỗng chốc chìm vào khoảng lặng như tờ.
 
-Lưu Sấm Phong xua tay: "Kim An, ông đừng có đùa nữa."
+Lưu Sấm Phong xua xua tay bật cười: "Thôi đi Kim An, mày đừng có nói đùa kiểu đấy."
 
-Ba người nhìn nhau, cảm thấy Triệu Kim An quá làm bộ, không hẳn là làm bộ mà là hư vinh.
+Ba người trong phòng đưa mắt nhìn nhau, thầm nghĩ Triệu Kim An dạo này sĩ diện hão quá mức rồi. Không phải làm màu bình thường, mà là thói hư vinh trỗi dậy.
 
-Trần Trạch vừa mới nói xong Khổng Triết Vũ, Triệu Kim An liền nói mình mở công ty.
+Trần Trạch vừa mới mở mồm nhắc đến công tử Khổng Triết Vũ, Triệu Kim An đã lập tức nổ tung trời rằng mình tự mở công ty riêng.
 
-"Kim An, ông chỉ là làm thêm ở cái công ty này thôi chứ gì?"
+"Kim An à, có phải mày đang đi làm thêm cho cái công ty nước khoáng này không?"
 
-Lưu Sấm Phong nói: "Đường Hiểu Tình hình như cũng làm thêm ở công ty này, tôi nghe bạn cùng phòng cô ấy bảo Đường Hiểu Tình ngày nào học xong cũng ra ngoài chạy thị trường."
+Lưu Sấm Phong phân tích: "Hình như con bé Đường Hiểu Tình cũng đang làm thêm cho công ty này thì phải. Tao nghe mấy đứa bạn cùng phòng của nó kể lại rằng ngày nào Đường Hiểu Tình cứ tan học một cái là lập tức chạy đôn chạy đáo ra ngoài để tiếp thị mở rộng thị trường."
 
-Triệu Kim An sững sờ, thời buổi này nói thật chẳng ai tin.
+Triệu Kim An thoáng ngẩn người ra một chút. Đúng là ở cái thời buổi này, nói thật lòng thì chẳng có lấy một ai chịu tin.
 
-Họ chỉ sẵn lòng tin vào những gì họ muốn tin mà thôi.
+Người ta chỉ chăm chăm lựa chọn tin vào những điều mà trong thâm tâm họ muốn tin mà thôi.
 
-"À, đúng vậy."
+"À, ừ, đúng rồi đấy."
 
-Trần Trạch mỉm cười, cầm lấy quần áo đi vào phòng tắm.
+Trần Trạch khẽ nhếch mép cười khẩy, vớ lấy bộ quần áo rồi thong thả bước vào phòng tắm.
 
-Lưu Sấm Phong cảm thấy mình kiếm được tiền đã rất lợi hại rồi, Triệu Kim An trừ khi ở ngoài làm 'trai bao' cho phú bà, nếu không chắc chắn chẳng biết kiếm tiền bằng gã được.
+Lưu Sấm Phong thì tự đắc nghĩ rằng bản thân biết cách kiếm tiền như thế đã là ghê gớm lắm rồi, Triệu Kim An nếu không phải ra ngoài làm "trai bao" cho mấy bà phú bà giàu có thì chắc chắn chẳng thể nào kiếm tiền giỏi giang bằng mình được.
 
-Cốc Siêu Thừa là sinh viên bình thường nhất, không quan tâm đến mấy chuyện này.
+Cốc Siêu Thừa là mẫu sinh viên đại học bình thường và an phận nhất, cậu ta chẳng mấy bận tâm đến những chuyện làm ăn kiếm tiền này.
 
-Có hôm gã hỏi Vương Duy Đào, Triệu Kim An và Đường Hiểu Tình có phải có gì đó không?
+Có một hôm, cậu ta tò mò gặng hỏi Vương Duy Đào xem liệu giữa Triệu Kim An và Đường Hiểu Tình có mối quan hệ mờ ám gì với nhau hay không.
 
-Vương Duy Đào sững sờ hồi lâu, rồi mắng ông đang nói cái quái gì thế!
+Vương Duy Đào sững sờ mất nửa ngày trời, sau đó chỉ thẳng mặt quát: Mày đang ăn nói xằng bậy cái quái gì thế hả!
 
-Kim An đã có Tô Miền, ai có thể so được với chị Tô Miền của tôi chứ!?
+Kim An nhà người ta đã có chị Tô Miến rồi, trên đời này làm gì có đứa con gái nào đủ tư cách đem ra so sánh với chị Tô Miến của tao cơ chứ?!
 
-Triệu Kim An thấy lời Trần Trạch nói rất có lý, cậu lái chiếc Ngũ Lăng Chi Quang đi Lưu Dương, Lưu Dương cũng thuộc Quận Sa, là một thành phố cấp huyện trực thuộc.
+Triệu Kim An lại cảm thấy những lời Trần Trạch nói thực ra rất có lý. Anh một mình cầm lái chiếc xe van Wuling Chi Quang lặn lội xuống tận Lưu Dương. Lưu Dương tuy thuộc địa giới hành chính của Quận Sa nhưng là một thành phố cấp huyện trực thuộc, từ trung tâm thành phố lái xe xuống đó phải mất hơn một tiếng đồng hồ.
 
-Từ khu trung tâm lái xe mất hơn 1 tiếng đồng hồ.
+Sau đó anh lại tiếp tục chạy sang mạn Ninh Hương.
 
-Còn có Ninh Hương nữa.
+Triệu Kim An hoàn toàn không hề có chút tò mò nào mà đi bận tâm dò la về nhân vật Khổng Triết Vũ kia làm gì, chẳng có gì cần thiết cả. Con gái có xu hướng phải lòng những người đàn ông ưu tú hơn mình là lẽ đương nhiên ở đời.
 
-Triệu Kim An không tò mò đi quan tâm đến Khổng Triết Vũ, không cần thiết, con gái thích chàng trai ưu tú hơn cũng chẳng có gì sai.
+Thế nhưng anh không ngờ rằng Khổng Triết Vũ lại bằng cách nào đó đã nghe ngóng và dò la ra được số điện thoại của anh.
 
-Chẳng ngờ Khổng Triết Vũ lại hỏi thăm được thông tin về Triệu Kim An.
+"Reng... reng... reng..."
 
-"Reng reng reng."
+Triệu Kim An bấm nút nghe máy: "Alo, ai đấy?"
 
-Triệu Kim An nhấc máy: "Alo, ai đấy?"
+"Triệu Kim An phải không? Tôi là Khổng Triết Vũ bên Đại học Trung Nam, chắc cậu cũng đã nghe danh tôi rồi nhỉ."
 
-"Triệu Kim An, tôi là Khổng Triết Vũ ở Trung Nam, chắc cậu biết tôi rồi."
+Triệu Kim An liếc nhìn màn hình điện thoại: "Có chuyện gì không?"
 
-Triệu Kim An liếc nhìn điện thoại: "Có việc gì không?"
+"Xin hỏi bây giờ cậu có thời gian rảnh không? Hai chúng ta gặp mặt nói chuyện một lát được chứ?"
 
-"Phiền phức hỏi cậu hiện giờ có thời gian không? Chúng ta gặp nhau một lát?"
+Giọng điệu của Khổng Triết Vũ trong ống nghe nghe qua có vẻ rất nhã nhặn và mang phong thái lịch thiệp của một quý ông.
 
-Giọng Khổng Triết Vũ nghe có vẻ rất phong độ quý ông.
+"Tôi không rảnh."
 
-"Không có thời gian."
+Triệu Kim An dứt khoát bấm nút cúp máy.
 
-Triệu Kim An trực tiếp cúp máy.
+Chỉ một lát sau, chuông điện thoại lại dồn dập reo vang. Khổng Triết Vũ cố nén bực bội lên tiếng: "Triệu Kim An, tôi không có ý tứ gì xấu cả, tôi chỉ muốn lịch sự hỏi thăm cậu một câu..."
 
-Chẳng mấy chốc điện thoại lại reo, Khổng Triết Vũ nói: "Triệu Kim An, tôi không có ý gì khác, tôi chỉ lịch sự hỏi cậu..."
+"Sự lịch sự của cậu thì liên quan quái gì đến tôi? Tôi cũng đã trả lời cậu rất rõ ràng là tôi không rảnh rồi cơ mà."
 
-"Lịch sự của anh liên quan gì đến tôi? Tôi cũng trả lời anh rồi là không có thời gian."
+Nói xong một câu bằng giọng điệu bình thản không chút gợn sóng, Triệu Kim An lại thẳng tay dập máy thêm một lần nữa.
 
-Bình tĩnh nói xong, Triệu Kim An lại cúp máy lần nữa.
+Ngồi ở ghế phụ lái bên cạnh, Đường Hiểu Tình chớp chớp đôi mắt tròn xoe ngơ ngác: "Ai gọi thế anh?"
 
-Ở ghế phụ, Đường Hiểu Tình chớp chớp mắt: "Ai vậy?"
+"Một kẻ rảnh rỗi vô công rồi nghề ấy mà."
 
-"Kẻ rảnh rỗi."
+Triệu Kim An buông một câu kết luận ngắn gọn, quả thực là rảnh rỗi sinh nông nổi.
 
-Triệu Kim An đưa ra một định nghĩa, đúng là đủ rảnh rỗi thật.
+Đường Hiểu Tình ngẩn ngơ một lúc: "Công nhận người này lạ thật đấy, ai đời gọi điện thoại cho người khác mà cứ mở mồm ra là tự khen mình lịch sự với chẳng không lịch sự cơ chứ?"
 
-Đường Hiểu Tình ngẩn người: "Có chút kỳ quặc, ai gọi điện mà lại nói chuyện lịch sự hay không lịch sự nhỉ?"
+Ở đầu dây bên kia.
 
-Phía bên kia.
+Nhìn màn hình điện thoại phát ra những tiếng tút tút kéo dài, Khổng Triết Vũ cũng cảm thấy vô cùng quái đản và kỳ quặc. Tên Triệu Kim An này dường như chẳng hề có lấy nửa phần tò mò hay e sợ trước danh tính của anh ta, giọng điệu nói chuyện từ đầu đến cuối phẳng lặng như tờ, lại còn thẳng tay cúp máy một cách cực kỳ dứt khoát, không chút do dự.
 
-Nhìn chiếc điện thoại phát ra tiếng "tút tút tút", Khổng Triết Vũ cũng thấy rất lạ, Triệu Kim An dường như chẳng hề tò mò về hắn, nói chuyện cũng luôn bình thản, cúp máy lại còn dứt khoát.
+Một luồng uất ức nghẹn ứ nơi lồng ngực không sao giải tỏa nổi, Khổng Triết Vũ có cảm giác bản thân vừa bị đối phương hoàn toàn ngó lơ, xem như không khí.
 
-Hắn còn cảm thấy hơi tức ngực, cơn giận nghẹn ở lồng ngực không sao giải tỏa được, Khổng Triết Vũ có cảm giác mình bị phớt lờ.
+Tâm trạng của anh ta lúc này chẳng khác nào hai mẹ con Trương Tuệ và Trương Vân Thiến trong khách sạn hôm nọ, chuẩn bị sẵn bao nhiêu lời lẽ đao to búa lớn nhưng rốt cuộc lại nghẹn đắng trong họng không thể thốt ra thành lời.
 
-Trạng thái của hắn lúc này có chút giống Trương Tuệ và Trương Vân Thiến ở khách sạn hôm đó, chuẩn bị rất nhiều lời mà không nói ra được.
+Thực ra Triệu Kim An mới là người không tài nào hiểu nổi những suy nghĩ ấy.
 
-Triệu Kim An lại càng không nghĩ thông suốt.
+Đoàn Thu Bình cũng y hệt như vậy, cứ thích kéo lôi bé Tống Gia Nguyệt vào, rồi lại muốn kéo theo cả Tống Siêu Văn cùng Tống Uyển Hòa vào cuộc đời anh. Bản thân anh vốn chẳng hề muốn dính dáng dây mơ rễ má gì với những người mang họ Tống kia, đôi bên cứ an phận thủ thường, sống tốt cuộc đời của mỗi người chẳng phải là điều vẹn cả đôi đường hay sao?
 
-Đoạn Thu Bình cũng thế, thích lôi kéo Tống Gia Nguyệt, kéo cả Tống Siêu Văn, Tống Uyển Hòa vào, mình đã không muốn dính dáng gì đến người họ Tống kia, mọi người cứ thế yên ổn mà sống không được sao?
+Vốn dĩ đôi bên chẳng có chút máu mủ ruột rà nào, từ trước tới nay cũng chưa từng cùng nhau chung sống ngày nào, thử hỏi có điều gì cần thiết để phải cố gượng ép quàng vào nhau làm gì?
 
-Vốn dĩ chẳng có quan hệ huyết thống, cũng chưa từng chung sống, có cần thiết phải lôi kéo quan hệ không?
+Nếu như cảm thấy anh không có lễ phép, thì hôm ấy tốt nhất đừng có lặn lội ra tận ga tàu hỏa, đừng bao giờ gặp mặt nhau nữa, đạo lý đơn giản chỉ có bấy nhiêu thôi.
 
-Nếu cảm thấy mình không có lễ phép, hôm đó đừng có đến ga hỏa xa, đừng có gặp mặt là xong, đơn giản thôi mà.
+Chẳng lẽ cứ bắt buộc anh phải mở miệng ngọt ngào gọi Tống Gia Nguyệt là em gái, gọi Tống Uyển Hòa là chị gái, rồi cung kính gọi Tống Siêu Văn một tiếng chú rể, làm như thế mới được coi là người có lòng dạ bao dung, chín chắn trưởng thành và biết điều hiểu chuyện hay sao?
 
-Chẳng lẽ nhất định phải gọi Tống Gia Nguyệt là em gái, gọi Tống Uyển Hòa là chị, gọi Tống Siêu Văn một tiếng chú, như vậy mới là lòng dạ rộng rãi, trưởng thành và có lễ phép sao?
+Khổng Triết Vũ này cũng chẳng khác là bao. Đôi bên vốn dĩ là người xa lạ không quen không biết, nếu cậu không muốn lịch sự thì ngay từ đầu đừng bấm số gọi điện làm gì; cậu muốn theo đuổi Mộc Dao thì cứ việc đường đường chính chính mà theo đuổi, cậu tuyệt đối không thể tự cho mình cái quyền bắt ép người khác phải có nghĩa vụ hưởng ứng lại cái thứ gọi là "lịch sự" của bản thân mình được.
 
-Khổng Triết Vũ cũng vậy, vốn dĩ không quen biết, anh không muốn lịch sự thì đừng gọi điện, anh muốn đuổi theo Mộc Dao thì cứ đuổi, anh không thể bắt người khác phải đáp lại cái sự lịch sự của mình được.
+Năm lần bảy lượt xuất hiện, ba cô nữ sinh phòng 406 rốt cuộc cũng đã quen mặt với đàn anh Khổng Triết Vũ học năm thứ ba.
 
-Năm lần bảy lượt, ba cô gái phòng 406 đều đã quen biết Khổng Triết Vũ năm ba.
+Nói theo cách của Trần Trạch, thì Thẩm Tử Ngôn và Khổng Triết Vũ vốn dĩ thuộc về cùng một tầng lớp xã hội.
 
-Dùng lời của Trần Trạch mà nói, Thẩm Tử Ngôn và Khổng Triết Vũ coi như cùng một vòng tròn.
+Chỉ có điều Thẩm Tử Ngôn sống kín tiếng hơn, không bao giờ lái xe hơi bóng lộn đến trường học để phô trương thanh thế.
 
-Chỉ là Thẩm Tử Ngôn không cao điệu như vậy, không lái xe đến trường.
+Sau vài lần tiếp xúc, ba cô gái phòng 406 không hề mở miệng nói đỡ cho Khổng Triết Vũ, nhưng cũng chẳng hề lên tiếng bênh vực cho Triệu Kim An.
 
-Tiếp xúc vài lần, ba cô gái phòng 406 không nói giúp cho Khổng Triết Vũ, cũng không nói giúp cho Triệu Kim An.
+Khổng Triết Vũ rất hay xách theo phần ăn sáng thịnh soạn đứng túc trực dưới chân tòa nhà ký túc xá nữ để đợi Mộc Dao, Hứa Mạn Mạn và Thẩm Tử Ngôn đi ngang qua nhìn thấy cũng chỉ lẳng lặng quan sát.
 
-Khổng Triết Vũ thường xuyên xách bữa sáng đứng dưới lầu ký túc xá nữ chờ Mộc Dao, bọn Từ Mạn Mạn và Thẩm Tử Ngôn cứ thế đứng nhìn.
+Bọn họ giữ vững lập trường trung lập tuyệt đối, không đưa ra bất kỳ lời bình phẩm hay can thiệp nào.
 
-Họ giữ thái độ trung lập, không đưa ra bất kỳ ý kiến nào.
+Bọn họ không bao giờ khuyên: "Dao Dao à, Triệu Kim An đã chặn số cậu suốt ngần ấy thời gian rồi, cậu cứ đồng ý lời tỏ tình của anh Khổng Triết Vũ đi cho xong";
 
-Không nói: "Dao Dao à, Triệu Kim An đã chặn cậu lâu như vậy rồi, cậu cứ đồng ý với Khổng Triết Vũ đi."
+Mà cũng chẳng bao giờ nhắc lại: "Năm lớp 10 Triệu Kim An từng nắn nót viết thư tình gửi cho cậu..."
 
-Cũng chẳng nói: "Triệu Kim An từ hồi lớp mười đã viết thư tình cho cậu rồi đấy..."
+Thẩm Tử Ngôn khẽ mở lại dòng tin nhắn đã nhận được từ nhiều ngày trước trên điện thoại.
 
-Thẩm Tử Ngôn liếc nhìn tin nhắn từ nhiều ngày trước.
-
-Lưu Sấm Phong: "Triệu Kim An và Đường Hiểu Tình đang đi làm thêm ở ngoài, Triệu Kim An nói đó là công ty của cậu ấy, ha ha ha."
+Lưu Sấm Phong: [Triệu Kim An với Đường Hiểu Tình đang đi làm thêm bên ngoài, Triệu Kim An còn chém gió bảo công ty nước khoáng đó là của nó nữa cơ chứ, ha ha ha.]

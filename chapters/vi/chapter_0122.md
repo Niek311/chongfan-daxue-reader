@@ -1,213 +1,215 @@
-# Chương 122: Ngươi không đem hắn mang về?
+# Chương 122: Con không dẫn cậu ấy về à?
 
-Tới gần khai giảng.
+> **Tiêu đề gốc**: 第122章 你没把他带回来？
 
-Thẩm tử nói đem Thường Đức thị trường sự tình xử lý tốt mới về nhà.
+Gần đến ngày khai giảng.
 
-Nhân viên đủ, mới người phụ trách gọi bành quý.
+Thẩm Tử Ngôn thu xếp ổn thỏa mọi công việc ở thị trường Thường Đức xong xuôi mới chịu trở về nhà.
 
-Một cái 4 0 tuổi khoảng chừng của nam nhân, thẩm tử nói xin chỉ thị Triệu Kim An cùng lạc cẩn chi.
+Nhân sự đã tuyển đủ, người phụ trách mới tên là Bành Quý.
 
-Hai người đều đúng thẩm tử nói nên lời bày ra tín nhiệm.
+Đó là một người đàn ông trạc chừng bốn mươi tuổi. Thẩm Tử Ngôn đã xin ý kiến của Triệu Kim An và Lạc Cẩn Chi trước khi quyết định.
 
-Cứ như vậy, một cái thành thị người phụ trách thì tương đương với là thẩm tử nói chỉ định của.
+Cả hai người đều bày tỏ sự tin tưởng tuyệt đối vào mắt nhìn của Thẩm Tử Ngôn.
 
-Đồng dạng là nghỉ hè công việc, nếu như đáy vực siêu nhận biết rồi, không biết sẽ ra sao.
+Cứ như vậy, vị trí người đứng đầu một thành phố coi như do chính tay Thẩm Tử Ngôn lựa chọn và bổ nhiệm.
 
-Nguyên bản Thường Đức người phụ trách lư kiều vĩ triệu hồi rồi sâm thành, tại lạc cẩn chi của dưới sự lãnh đạo phụ trách sâm thành thị tràng.
+Cùng là sinh viên đi làm thêm kỳ nghỉ hè, nếu Cốc Siêu Thừa mà biết được chuyện này, chẳng rõ trong lòng sẽ ngổn ngang đến mức nào.
 
-Lư kiều vĩ chỉ là không quá sẽ quản lý, nhưng làm việc an tâm cần cù chăm chỉ, có lạc cẩn chi tại sâm thành vấn đề liền không lớn rồi, lạc cẩn chi không đành lòng để theo chính mình mấy năm lão nghiệp vụ làm tiếp trở về nghiệp vụ viên.
+Người phụ trách Thường Đức cũ là Lư Kiều Vĩ được điều động về lại Sâm Châu, dưới sự chỉ đạo trực tiếp của Lạc Cẩn Chi để phụ trách thị trường nơi đó.
 
-Lại thêm lạc cẩn chi có quá nhiều chuyện phải bận rộn, nàng còn muốn quản lý nhà máy nước, thị trường cần phải có một giúp đỡ.
+Lư Kiều Vĩ chỉ là không quá giỏi về mặt quản lý bao quát, nhưng làm việc lại vô cùng cần cù, chắc chắn. Có Lạc Cẩn Chi tọa trấn ở Sâm Châu thì mọi chuyện không còn là vấn đề lớn. Lạc Cẩn Chi cũng không nỡ để một nhân viên kinh doanh kỳ cựu đã theo mình bao năm phải quay lại làm một nhân viên thị trường quèn.
 
-Mộc Dao thời khắc chú ý thẩm tử nói của động tĩnh.
+Hơn nữa, Lạc Cẩn Chi có quá nhiều việc phải quán xuyến, chị còn phải quản lý cả nhà máy nước khoáng nên thị trường rất cần một cánh tay đắc lực phụ tá.
 
-Từ Mạn Mạn cũng thời khắc chú ý thẩm tử nói của động tĩnh.
+Mộc Dao luôn dõi theo từng động thái của Thẩm Tử Ngôn.
 
-Diêu tân cũng có chút bát quái.
+Hứa Mạn Mạn cũng luôn để tâm đến hành tung của Thẩm Tử Ngôn.
 
-Sự thật chính là Triệu Kim An cùng Mộc Dao chia tay có 1 năm, ai tìm nam (nữ) bằng hữu cũng là disengaged.
+Diêu Hân thì có chút tò mò hóng chuyện.
 
-Thẩm tử nói thông minh bao nhiêu, biết các nàng đều đang chăm chú chính mình lúc nào trở về quận cát.
+Thực tế rành rành là Triệu Kim An và Mộc Dao đã chia tay được tròn một năm, giờ đây ai tìm bạn trai hay bạn gái mới đều là quyền tự do cá nhân của mỗi người.
 
-Nàng ở trong bầy gửi tin tức nói, về nhà.
+Thẩm Tử Ngôn thông minh nhường nào, cô thừa hiểu bọn họ đều đang ngấm ngầm để ý xem bao giờ mình mới quay về Quận Sa.
 
-Hơn nữa kèm tấm vé phi cơ.
+Cô liền gửi một tin nhắn vào nhóm chat, báo rằng mình đã về nhà.
 
-Tân thật có ngươi: tử nói, ngươi liền về nhà rồi?
+Kèm theo đó là bức ảnh chụp tấm vé máy bay.
 
-Thẩm tử nói: ân, không quay lại nhà mẹ ta muốn tới bắt người.
+Hân Có Cậu Rồi: Tử Ngôn, cậu về nhà rồi đấy à?
 
-Man thương thương: thuận buồm xuôi gió.
+Thẩm Tử Ngôn: Ừm, không về nữa thì mẹ tớ sắp phi sang đây bắt người về mất.
 
-Dao Dao thỏ: thuận buồm xuôi gió.
+Mạn Sợ Đau: Thượng lộ bình an nhé.
 
-Còn không có vạch mặt, thẩm tử giảng hòa Triệu Kim An không có gì cả, Mộc Dao do dự sẽ cũng ở trong bầy đưa tới chúc phúc.
+Thỏ Dao Dao: Thượng lộ bình an.
 
-Thẩm tử nói thu thập xong hành lý, chưa có trở về công ty, trực tiếp lái xe đi hoa cúc sân bay.
+Chưa từng có xích mích nào xé toạc mặt nhau, giữa Thẩm Tử Ngôn và Triệu Kim An trên danh nghĩa cũng chưa có gì mờ ám, Mộc Dao ngập ngừng một thoáng rồi cũng gửi lời chúc vào nhóm.
 
-"uy, Kim An, ta về nhà."
+Thẩm Tử Ngôn thu dọn hành lý tươm tất, không ghé qua công ty nữa mà lái thẳng xe tới sân bay Hoàng Hoa.
 
-"hai tháng này khổ cực."Triệu Kim An từ trong thâm tâm nói.
+"Alo, Kim An à, tớ về nhà rồi nhé."
 
-"tiền xăng báo sao? Cao tốc phí qua đường thanh lý sao?"
+"Hai tháng nay vất vả cho cậu rồi." Giọng Triệu Kim An vang lên đầy chân thành.
 
-"báo một nửa?"
+"Thế tiền xăng có được thanh toán không? Phí cầu đường cao tốc có được duyệt chi không đây?"
 
-"vé máy bay nhỉ?"
+"Thanh toán một nửa nhé?"
 
-"ngươi không tới công ty đi làm liền không mua vé máy bay về nhà sao?"
+"Thế còn vé máy bay thì sao?"
 
-"hẹp hòi, Triệu Kim An, ngươi tốt hẹp hòi."
+"Cậu không đến công ty làm việc thì chẳng lẽ không mua vé máy bay để về nhà à?"
 
-Thẩm tử nói cười vô cùng sung sướng, một tay tay lái một tay gọi điện thoại, ứng phó nhẹ nhàng như thường, xem xét liền không có thiếu lái xe, cửa sổ xe mở ra, gió hè thổi lên tóc dài.
+"Keo kiệt, Triệu Kim An, cậu đúng là đồ ki bo kẹt xỉ!"
 
-Lao vụt E 2 3 0 không có quá nhiều đồ vật bên trong, không có giống tiểu nữ sinh bày đầy vật nhỏ.
+Thẩm Tử Ngôn bật cười rạng rỡ, một tay cầm vô lăng, một tay nghe điện thoại, xử lý mọi việc vô cùng thoải mái và thuần thục. Nhìn qua là biết cô đã có thâm niên lái xe từ lâu. Cửa kính hạ xuống một nửa, làn gió mùa hạ mơn man thổi tung mái tóc dài bồng bềnh.
 
-Chỉ mua rồi một bộ đỏ thẫm chỗ ngồi bộ.
+Chiếc Mercedes-Benz E230 không bày biện quá nhiều phụ kiện rườm rà, chẳng giống những cô gái mới lớn thích trang trí lỉnh kỉnh đồ chơi.
 
-Trần trạch của trên xe cũng không đồ vật gì, hẳn là Từ Mạn Mạn không có mua.
+Cô chỉ mua duy nhất một bộ bọc ghế da phối hai màu đen đỏ sang trọng.
 
-Không giống Triệu Kim An, ở kiếp trước mua xe, Trần Thanh Trĩ mua đủ loại tiểu vật trang trí, trung khống thai bày đầy, đủ loại gật gù đắc ý.
+Xe của Trần Trạch cũng chẳng có vật trang trí gì, chắc hẳn là do Hứa Mạn Mạn không mua.
 
-Chỉ có thể nói mỗi người nữ sinh của tính cách không tầm thường.
+Chẳng bù cho Triệu Kim An ở kiếp trước, sau khi tậu xe, Trần Thanh Trĩ đã sắm đủ loại tượng nhỏ ngộ nghĩnh bày kín cả bảng điều khiển trung tâm, xe chạy là đầu chúng cứ lắc lư qua lại không ngừng.
 
-Có lẽ đối với thẩm tử nói tới nói, lao vụt E 2 3 0 chỉ là một chiếc xe, muốn mua liền mua.
+Chỉ có thể nói mỗi cô gái đều mang một nét tính cách riêng biệt.
 
-Đến nỗi Mộc Dao, không biết.
+Có lẽ đối với Thẩm Tử Ngôn, chiếc Mercedes E230 này đơn thuần chỉ là một phương tiện đi lại, thích thì mua mà thôi.
 
-Ở kiếp trước lúc chia tay, Triệu Kim An tại kiêm chức kiếm lời học phí, Mộc Dao cũng không có xe, mộc nhân mạnh cùng trương tuệ chắc có tích súc mua xe, nhưng sẽ không cho đi học nữ nhi mua.
+Còn về phần Mộc Dao, chẳng ai rõ.
 
-Các nàng chỉ là tư cách star công chức nhỏ, còn không có giàu có đến trình độ kia.
+Ở kiếp trước vào thời điểm chia tay, Triệu Kim An vẫn còn đang chật vật làm thêm kiếm từng đồng trang trải học phí, Mộc Dao cũng chưa có xe riêng. Vợ chồng Mộc Nhân Cường và Trương Tuệ chắc hẳn có tiền tiết kiệm đủ để mua một chiếc ô tô, nhưng sẽ không bao giờ vung tiền mua xe cho cô con gái đang tuổi ăn học.
 
-Thẩm tử nói mua khoang hạng nhất, ra sân bay liền có xe tới đón.
+Họ chỉ là những công chức bình thường ở Tư Tinh, gia cảnh chưa thể giàu có đến mức độ xa hoa ấy.
 
-Lại là 1 giờ đường xe.
+Thẩm Tử Ngôn mua vé khoang hạng nhất, vừa bước ra khỏi cửa sân bay đã có xe chuyên dụng chờ sẵn đón về.
 
-Một tòa tự xây biệt thự sang trọng, có 5 tầng, thường có người nói Tô Thành của người có tiền, bởi vì người bên này đi nơi khác đến trường, tiền sinh hoạt phổ biến sẽ cao rất nhiều.
+Lại thêm một tiếng đồng hồ chạy xe nữa.
 
-Đẩy cửa ra, lục hồng tiêu nghiêng chân, quay đầu, nhìn cũng không nhìn nữ nhi một cái.
+Trước mắt là một căn biệt thự sang trọng nguy nga cao năm tầng do gia đình tự xây. Người ta vẫn thường bảo dân Tô Châu có của ăn của để, bởi lẽ con em vùng này đi học đại học ở các tỉnh khác thì mức sinh hoạt phí trung bình bao giờ cũng vượt trội hơn hẳn.
 
-"mẹ, ta trở về."
+Đẩy cửa bước vào nhà, Lục Mai Tiêu đang ngồi vắt chéo chân trên ghế sô pha, ngoảnh mặt sang một bên, làm bộ chẳng thèm ngó ngàng đến cô con gái cưng.
 
-Thẩm tử nói cười đang đi qua, ôm lấy trên ghế sa lon mụ mụ.
+"Mẹ ơi, con gái mẹ về rồi đây này."
 
-"ngươi còn biết trở về?"
+Thẩm Tử Ngôn cười tươi rói sà tới, ôm chầm lấy mẹ trên sô pha.
 
-Lục hồng tiêu lúc này mới dò xét nữ nhi:"nghỉ hè đều nhanh xong, ngươi nhìn rám đen, chính là cha ngươi, trong nhà lại không cần ngươi bây giờ liền đi kiếm tiền, nghe nói ngươi còn mở xe taxi đưa hàng...."
+"Con còn nhớ đường mò về cái nhà này cơ đấy?"
 
-Thẩm vĩnh đàm nói:"mẹ chiều con hư, giàu không quá đời thứ ba, nói chính là...."
+Lúc này Lục Mai Tiêu mới quay sang săm soi con gái một lượt: "Nghỉ hè sắp hết rồi còn đâu. Nhìn xem này, da dẻ đen nhẻm cả đi rồi. Tất cả là tại bố mày đấy, nhà này thiếu thốn gì đâu mà cần con gái phải lao ra ngoài kiếm tiền từ lúc này cơ chứ. Nghe nói con còn phải tự lái cả xe tải van đi giao hàng nữa..."
 
-Nghênh tiếp thê tử của ánh mắt, thẩm vĩnh đàm không dám đem"các ngươi"nói ra miệng, cười ha hả nói:"nhiều rèn luyện một chút cũng tốt."
+Thẩm Vĩnh Đàm đứng bên cạnh chen vào: "Mẹ nuông chiều thì con sinh hư, giàu không quá ba đời, các cụ dạy cấm có sai..."
 
-Lục hồng tiêu trợn mắt trừng một cái:"tại nhà mình công ty cũng có thể rèn luyện."
+Bắt gặp ánh mắt sắc lẹm của vợ phóng tới, Thẩm Vĩnh Đàm nuốt vội hai chữ "các bà" vào trong bụng, cười xòa chữa cháy: "Để con bé rèn luyện nhiều một chút cũng là chuyện tốt mà."
 
-Thẩm vĩnh đàm cười ha hả:"còn là không giống nhau của, người của công ty đều biết tử nói."
+Lục Mai Tiêu lườm chồng một cái: "Ở công ty nhà mình thiếu gì chỗ để rèn luyện?"
 
-"hai người các ngươi cha con....."
+Thẩm Vĩnh Đàm cười ha hả: "Môi trường nó khác nhau chứ, ở công ty nhà mình thì từ trên xuống dưới ai mà chẳng nhẵn mặt Tử Ngôn."
 
-Lục hồng tiêu 1 6 8 của kích thước, 4 5 tuổi, hình dạng khí chất đều tốt, trước kia cùng thẩm vĩnh đàm cùng một chỗ đánh liều sự nghiệp, vào niên đại đó hẳn là thuộc về late childbirth rồi.
+"Hai bố con các người đúng là..."
 
-Kiếm tiền sau mới bắt đầu chú trọng bảo dưỡng cách ăn mặc, bây giờ nhìn lại xinh đẹp lại có khí chất.
+Lục Mai Tiêu sở hữu chiều cao mét sáu mươi tám, năm nay bốn mươi lăm tuổi, dung mạo và khí chất đều thuộc hàng xuất chúng. Thời trẻ bà cùng Thẩm Vĩnh Đàm đồng cam cộng khổ gây dựng cơ nghiệp, vào thời kỳ ấy thì sinh con ở độ tuổi của bà có thể coi là muộn.
 
-Cũng là lục hồng tiêu nội tình hảo.
+Sau khi làm ăn phát đạt, bà mới bắt đầu chú trọng chăm sóc sắc đẹp và trau chuốt bản thân, nên đến giờ trông vẫn vô cùng quý phái, đằm thắm.
 
-Nội tình không tốt liền không sinh ra thẩm tử nói con gái xinh đẹp như vậy.
+Tất nhiên cũng nhờ nền tảng dung nhan của bà vốn đã rất đẹp.
 
-Bảo mẫu đi ra hô ăn cơm đi.
+Nếu nét đẹp không sẵn có thì làm sao sinh ra được một cô con gái kiều diễm như Thẩm Tử Ngôn.
 
-Thẩm vĩnh đàm rất đau lục hồng tiêu, không có giống có chút nam nhân một dạng phát đạt liền quên đi đã từng cùng một chỗ đánh liều thê tử, đương nhiên, hộp đêm những địa phương này lão Thẩm chắc chắn đi qua.
+Người giúp việc trong nhà bước ra thông báo cơm nước đã chuẩn bị xong.
 
-Có thể vẫn là khách quen.
+Thẩm Vĩnh Đàm thương yêu chiều chuộng Lục Mai Tiêu hết mực, không giống một số gã đàn ông vừa phất lên đã vội quên đi người vợ tào khang từng cùng mình chịu bao đắng cay. Dĩ nhiên những chốn như vũ trường, hộp đêm thì lão Thẩm chắc chắn từng ghé qua.
 
-Ngươi không đi, ta không có đi, từ đâu tới nhiều như vậy hộp đêm.
+Thậm chí có khi còn là khách quen nữa là đằng khác.
 
-Chẳng lẽ những thứ này nơi chốn người làm công tiêu phí lên?
+Anh không tới, tôi không đi, thì lấy đâu ra lắm tụ điểm ăn chơi xa xỉ đến thế?
 
-Sau khi ngồi xuống, trong nhà có hai cái bảo mẫu, bảo mẫu không thể lên bàn cùng nhau ăn cơm.
+Chẳng lẽ những nơi tiêu tiền như nước ấy lại để cho tầng lớp làm công ăn lương ghé thăm hay sao?
 
-Lục hồng tiêu cho nữ nhi gắp thức ăn:"người đâu?"
+Sau khi ngồi vào bàn ăn, trong nhà có hai người giúp việc nhưng họ không ngồi cùng bàn dùng bữa với chủ.
 
-"a!?"
+Lục Mai Tiêu gắp thức ăn cho con gái, hỏi bâng quơ: "Người đâu rồi?"
 
-Thẩm tử nói ngẩng đầu, giả ngu.
+"Dạ!?"
 
-Lục hồng tiêu tức giận nói:"Triệu Kim An, ngươi không đem hắn mang về?"
+Thẩm Tử Ngôn ngẩng đầu lên, giả vờ ngơ ngác.
 
-Thẩm tử nói:......
+Lục Mai Tiêu bực mình lườm con gái: "Cái cậu Triệu Kim An ấy, con không dẫn cậu ta về đây à?"
 
-"mẹ, chúng ta quan hệ thế nào cũng không có, như thế nào mang về?"
+Thẩm Tử Ngôn cạn lời: "......"
 
-"không cần!"
+"Mẹ này, bọn con đã có quan hệ gì đâu, dắt người ta về làm sao được ạ?"
 
-Thẩm tử nói:......
+"Vô dụng thật đấy!"
 
-Lục hồng tiêu còn nói:"hai cái Nguyệt đô không có xong một cái nam hài tử."
+Thẩm Tử Ngôn lại câm nín: "......"
 
-Thẩm tử nói:......
+Lục Mai Tiêu bồi thêm một câu: "Suốt hai tháng trời ròng rã mà không xử lý nổi một cậu con trai."
 
-"cha, ban đầu là mẹ đuổi ngươi sao?"
+Thẩm Tử Ngôn méo mặt: "......"
 
-"khục!"
+"Bố ơi, ngày xưa có phải mẹ là người chủ động theo đuổi bố không đấy?"
 
-Thẩm vĩnh đàm đang muốn khoác lác, nghênh tiếp thê tử của ánh mắt, lại đổi giọng:"ăn cơm ăn cơm, là ta đuổi mẹ ngươi, đuổi ba năm, mẹ ngươi nhìn ta đáng thương mới đáp ứng."
+"Khụ!"
 
-Trong bữa tiệc, bầu không khí rất tốt, một nhà ba người vui vẻ hòa thuận.
+Thẩm Vĩnh Đàm định bụng bốc phét vài câu lấy oai, nhưng vừa chạm phải ánh mắt của vợ liền vội vàng đổi giọng: "Ăn cơm, ăn cơm đi con. Là bố theo đuổi mẹ con ròng rã suốt ba năm trời, mẹ con thấy bố tội nghiệp quá nên mới gật đầu đồng ý đấy chứ."
 
-Lục hồng tiêu đột nhiên hỏi thẩm tử nói:"có hình của hắn sao? Cho mụ mụ xem."
+Bên bàn ăn, bầu không khí vô cùng ấm cúng, cả gia đình ba người rộn rã tiếng cười nói.
 
-Thẩm tử nói liền lấy ra điện thoại, điện thoại ảnh chụp mơ hồ, nàng liền lấy ra laptop, có đạt đến nhiên ly khai mạc ngày đó quay phim video quay được cùng ảnh chụp.
+Lục Mai Tiêu bỗng quay sang hỏi Thẩm Tử Ngôn: "Con có ảnh của cậu ấy không? Đưa mẹ xem mặt mũi thế nào nào."
 
-Thẩm tử ngôn lợi thu nhận công nhân làm nên liền đã copy một phần.
+Thẩm Tử Ngôn liền rút điện thoại ra, nhưng ảnh trong máy hơi mờ, cô bèn lấy chiếc máy tính xách tay ra. Trong máy có lưu lại đoạn video và những bức ảnh chất lượng cao được ghi hình vào ngày khai mạc giải bóng rổ Cúp Trăn Nhiên.
 
-Lục hồng tiêu nhìn chằm chằm màn ảnh máy vi tính, thấy say sưa ngon lành.
+Thẩm Tử Ngôn đã tranh thủ quyền hạn trong công việc để sao chép lại một bản.
 
-"tiểu Ngôn, ngươi như thế nào như vậy không cần, không đem hắn mang về?"
+Lục Mai Tiêu dán mắt vào màn hình máy tính, ngắm nghía chăm chú với vẻ vô cùng thích thú.
 
-Thẩm tử nói:......
+"Tiểu Ngôn này, sao con lại vô tích sự thế cơ chứ, không biết đường dắt cậu ấy về đây?"
 
-"mẹ, ngươi cũng quá bề ngoài hiệp hội đi?"
+Thẩm Tử Ngôn dở khóc dở cười: "......"
 
-Thẩm vĩnh đàm hiếu kì đứng dậy xem xét mắt, nhìn xem thê tử cơm cũng không ăn, nói:"đừng xem, ngươi cũng 4 0 nhiều người rồi."
+"Mẹ à, mẹ cũng mê ngoại hình quá mức rồi đấy nhé?"
 
-Thẩm tử nói đột nhiên nghĩ tới Mộc Dao, sớm nói:"mẹ, Triệu Kim An trong nhà không tốt, phụ thân tại hắn lên tiểu học liền không có, mẫu thân tái giá, chỉ có một cái nãi nãi...."
+Thẩm Vĩnh Đàm tò mò đứng dậy ghé mắt nhìn thử, thấy vợ mê mẩn đến mức cơm cũng chẳng buồn ăn, liền cất giọng: "Thôi đừng ngắm nữa, bà đã ngoài bốn mươi tuổi đầu rồi đấy."
 
-"ai, chuyện này là sao?"
+Thẩm Tử Ngôn bất chợt nhớ đến Mộc Dao, bèn nói trước một câu để mẹ chuẩn bị tâm lý: "Mẹ ơi, hoàn cảnh gia đình của Triệu Kim An không được tốt đâu ạ. Bố cậu ấy mất từ hồi cậu ấy học tiểu học, mẹ thì đi lấy chồng khác, trong nhà chỉ còn lại mỗi một bà nội thôi..."
 
-Lục hồng tiêu hoạt động video, vừa trơn đến Triệu Kim An phát trên tóc thủy của đoạn ngắn:"Kim An ở tại nhà chúng ta cũng không quan hệ, nhà chúng ta lớn như vậy, nãi nãi đến cũng không quan hệ."
+"Ôi dào, chuyện đó thì có làm sao đâu cơ chứ?"
 
-Lục hồng tiêu là thực sự không cảm thấy đây là khuyết điểm, ngược lại cảm thấy dạng này tốt hơn.
+Lục Mai Tiêu lướt ngón tay chuyển tiếp đoạn video, đúng vào khoảnh khắc Triệu Kim An vuốt ngược mái tóc ướt đẫm nước: "Kim An sang nhà mình ở rể luôn cũng chẳng hề gì, nhà mình thênh thang thế này, đón cả bà nội sang ở cùng cũng được tuốt."
 
-Thẩm tử nói:.....
+Lục Mai Tiêu thực lòng chẳng coi hoàn cảnh đó là khuyết điểm, ngược lại còn cảm thấy thế này lại càng thuận tiện hơn.
 
-Mẹ liền hô Kim An rồi?
+Thẩm Tử Ngôn nghẹn lời: "......"
 
-Thẩm vĩnh đàm cười nói:"ngươi tam quan đi theo ngũ quan đi đúng không?"
+Mẹ đã gọi người ta là "Kim An" ngọt xớt thế rồi cơ à?
 
-Các nàng cũng là đùa giỡn một chút.
+Thẩm Vĩnh Đàm bật cười bảo: "Bà đúng là tam quan cứ chạy đằng sau ngũ quan đấy nhỉ?"
 
-Thẩm vĩnh đàm lên mạng tra xét nhẹ dưỡng tiểu bom, đối với Triệu Kim An là công nhận, lục hồng tiêu thì càng khỏi phải nói, bây giờ thấy Triệu Kim An của bộ dáng, một trăm cái hài lòng.
+Cả nhà cùng trêu đùa vài câu vui vẻ.
 
-Trò chuyện một chút, thẩm vĩnh đàm nhanh 5 0 tuổi, nhắc tới nhà mình công ty.
+Thẩm Vĩnh Đàm đã từng lên mạng tra cứu thông tin về sản phẩm nước có ga Tiểu Tạc Đạn, trong lòng ông rất tán thưởng năng lực của Triệu Kim An. Lục Mai Tiêu thì khỏi phải nói, giờ tận mắt thấy tướng mạo khôi ngô của chàng trai trẻ thì trong lòng đã ưng ý đến một trăm phần trăm.
 
-Hắn cùng Dương thù đẹp không tầm thường, Dương thù đẹp mới 4 0 tuổi.
+Trò chuyện một hồi, Thẩm Vĩnh Đàm năm nay đã ngót nghét ngũ tuần, câu chuyện lại xoay quanh công ty của gia đình.
 
-Thẩm tử nói tại lên cấp ba, thẩm vĩnh đàm liền có ý định bồi dưỡng nữ nhi.
+Ông không giống Dương Thù Mỹ, Dương Thù Mỹ mới vừa tròn bốn mươi.
 
-Thẩm tử nói nói:"cha, coi như..... Triệu Kim An sẽ không tới công ty nhà chúng ta của, hắn chướng mắt công ty nhà chúng ta."
+Từ hồi Thẩm Tử Ngôn còn học cấp ba, Thẩm Vĩnh Đàm đã có ý thức bồi dưỡng con gái để sau này gánh vác sự nghiệp.
 
-"không nhìn trúng!?"
+Thẩm Tử Ngôn thẳng thắn nói: "Bố à, cho dù thế nào đi nữa... Triệu Kim An cũng sẽ không bao giờ về làm cho công ty nhà mình đâu, cậu ấy chướng mắt cơ nghiệp nhà mình ấy chứ."
 
-Thẩm vĩnh đàm có chút không phục, Triệu Kim An cho dù có điểm năng lực cũng mới cất bước, chính mình xông xáo mấy chục năm, hắn dựa vào cái gì không nhìn trúng?
+"Chướng mắt á!?"
 
-Thẩm tử giảng hòa Triệu Kim An tiếp xúc không nhiều, nhưng mà chút này giải Triệu Kim An.
+Thẩm Vĩnh Đàm có phần không phục. Triệu Kim An dẫu có đôi chút tài năng thì cũng mới chỉ là bước khởi đầu chập chững, bản thân ông lăn lộn nơi thương trường mấy chục năm trời, cớ sao cậu ta lại dám coi thường?
 
-Đêm nay, lục hồng tiêu cùng thẩm tử nói ngủ, hai mẹ con hàn huyên rất nhiều vốn riêng lời nói.
+Thẩm Tử Ngôn tiếp xúc với Triệu Kim An không quá nhiều, nhưng riêng điểm này thì cô nhìn nhận về anh vô cùng thấu đáo.
 
-Thẩm vĩnh đàm là nam nhân, hắn càng chú ý Triệu Kim An có hay không năng lực.
+Đêm hôm ấy, Lục Mai Tiêu ngủ chung phòng với Thẩm Tử Ngôn, hai mẹ con thủ thỉ tâm sự đủ thứ chuyện riêng tư của phái nữ.
 
-Xem như nữ nhân, lục hồng tiêu phần lớn là Vấn gia tòa, hỏi Triệu Kim An làm người như thế nào?
+Thẩm Vĩnh Đàm là đàn ông, ông quan tâm nhiều hơn đến việc Triệu Kim An có năng lực thực sự hay không.
 
-Thẩm tử nói liền đem mình biết nói cho mụ mụ, bao quát các nàng ký túc xá quan hệ hữu nghị, Triệu Kim An tiếp vào nãi nãi điện thoại, hướng các nàng thẳng thắn một con lợn bán 9 một trăm khối tiền.
+Còn ở góc độ của một người phụ nữ làm mẹ, Lục Mai Tiêu chủ yếu gặng hỏi về nếp nhà, về nhân cách và phẩm hạnh của Triệu Kim An ngoài đời thực.
 
-Hàn huyên tới đã khuya, cuối cùng lục hồng tiêu ôm nữ nhi nói, vậy ngươi sớm một chút đem Kim An mang về cho mụ mụ
+Thẩm Tử Ngôn đem tất cả những gì mình biết kể hết cho mẹ nghe, kể cả buổi liên hoan kết nghĩa giữa hai phòng ký túc xá, khi Triệu Kim An nhận được cuộc gọi của bà nội và thành thật thú nhận trước mặt mọi người rằng một con lợn ở quê chỉ bán được có chín trăm tệ.
+
+Hai mẹ con trò chuyện tới tận đêm khuya. Cuối cùng, Lục Mai Tiêu ôm chặt lấy con gái vào lòng, dặn dò: "Thế thì con liệu mà sớm dắt thằng bé Kim An về đây cho mẹ xem mặt đấy nhé."
