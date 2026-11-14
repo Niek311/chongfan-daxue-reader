@@ -75,7 +75,7 @@
       }
 
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=9.0`)
+        fetch(`data/chapters/${chapterId}.json?v=10.0`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -102,7 +102,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=9.0`;
+    script.src = `data/chapters/${chapterId}.js?v=10.0`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -123,7 +123,7 @@
       if (window.BOOK_DATA) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=9.0');
+        const res = await fetch('data/book.json?v=10.0');
         state.bookMeta = await res.json();
       }
 
