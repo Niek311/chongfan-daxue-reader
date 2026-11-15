@@ -16,13 +16,13 @@ Triệu Kim An cúi đầu lướt màn hình điện thoại, cất giọng d�
 
 "Vâng, thưa sếp."
 
-Đan Vĩ cầm lấy bộ đàm thông báo cho chiếc xe bám đuôi phía sau do Chu Hoa Phong và Lý Tân điều khiển.
+Đan Vĩ cầm lấy bộ đàm thông báo cho chiếc xe bám đuôi phía sau do Chu Phong Hoa và Lý Tân điều khiển.
 
 "Này, qua trạm hải quan xong chúng ta chạy thẳng sang hướng Đông Hoản nhé."
 
 "Rõ rồi, đã nhận lệnh!"
 
-Hiện tại Quan Văn Bách vẫn đang ở lại cắm chốt tại Quận Sa, Đặng Thần Bình thì chưa về nước, trong số năm tài xế kiêm cận vệ thân tín lúc này chỉ còn lại ba người là Đan Vĩ, Chu Hoa Phong và Lý Tân theo sát bên mình.
+Hiện tại Quan Văn Bách vẫn đang ở lại cắm chốt tại Quận Sa, Đặng Thần Bình thì chưa về nước, trong số năm tài xế kiêm cận vệ thân tín lúc này chỉ còn lại ba người là Đan Vĩ, Chu Phong Hoa và Lý Tân theo sát bên mình.
 
 Đàm Tử Kiều không cùng qua cửa khẩu.
 
@@ -30,7 +30,7 @@ Trước lúc chia tay, cô nàng bày ra vẻ mặt khẩn khoản nài nỉ: "
 
 Đi thực địa một chuyến sang tận vùng đất Guinea xa xôi, Đàm Tử Kiều còn điều gì mà không thấu tỏ? Người như Triệu Kim An tuyệt đối không phải là kẻ mà một đứa con gái như cô có thể tùy tiện trêu chọc hay đùa bỡn. Cứ nhìn những nhân vật thường xuyên qua lại, bắt tay hợp tác làm ăn với anh là đủ hiểu họ thuộc đẳng cấp nào: toàn là những tập đoàn khổng lồ đầu 'Trung' của nhà nước, là những tổng giám đốc quyền uy của Rio Tinto hay Winning... Nói một cách rợn tóc gáy, ở cái mảnh đất châu Phi hỗn loạn vô pháp vô thiên ấy, một khi có kẻ bị chôn sống vùi xác nơi rừng sâu thì cũng chẳng có ma nào rảnh rỗi đi điều tra tìm kiếm.
 
-Vừa qua khỏi trạm hải quan đại lục, Đan Vĩ và Chu Hoa Phong bất giác thở phào nhẹ nhõm một hơi dài. Đó chính là cảm giác bình yên và chở che độc nhất vô nhị mà chỉ có quê hương đất mẹ mới có thể mang lại.
+Vừa qua khỏi trạm hải quan đại lục, Đan Vĩ và Chu Phong Hoa bất giác thở phào nhẹ nhõm một hơi dài. Đó chính là cảm giác bình yên và chở che độc nhất vô nhị mà chỉ có quê hương đất mẹ mới có thể mang lại.
 
 Trên đường cao tốc.
 

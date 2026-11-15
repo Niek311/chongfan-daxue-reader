@@ -116,31 +116,31 @@ Cô bước xuống quầy lễ tân, quẹt thẻ gia hạn thêm mười ngày
 
 Mộc Dao không hề có ý định tìm tới "quấy rầy" cuộc sống của Từ Mạn Mạn. Ban ngày, cô một mình rảo bước đi thị sát các quầy hàng trưng bày sản phẩm của công ty mình tại các trung tâm thương mại lớn ở Quận Sa. Khi ghé chân qua siêu thị Trăn Hối Tuyển, cô cũng chỉ lặng lẽ đứng nhìn từ xa rồi rời đi, tuyệt nhiên không bước lên tầng lầu tìm Từ Mạn Mạn.
 
-Triệu Trí Dũng có ghé tới khách sạn tìm gặp Mộc Dao một lần, hai người hẹn nhau ra dùng bữa tại quán ăn của Lý Văn Húc.
+Triệu Chí Dũng có ghé tới khách sạn tìm gặp Mộc Dao một lần, hai người hẹn nhau ra dùng bữa tại quán ăn của Lý Văn Húc.
 
-Sau bao năm tháng xa cách trùng phùng, Mộc Dao giờ đây càng thêm phần kiều diễm, mặn mà và chín chắn hơn xưa rất nhiều. Trong lòng Triệu Trí Dũng dâng lên một cảm giác phức tạp không sao gọi thành tên. Mới ngày nào sau kỳ thi tốt nghiệp cấp ba của mùa hè năm ấy, bốn người bọn họ vẫn còn vô tư hò hét rủ nhau lội xuống khúc sông cạn ở thôn Triệu Gia bắt cá.
+Sau bao năm tháng xa cách trùng phùng, Mộc Dao giờ đây càng thêm phần kiều diễm, mặn mà và chín chắn hơn xưa rất nhiều. Trong lòng Triệu Chí Dũng dâng lên một cảm giác phức tạp không sao gọi thành tên. Mới ngày nào sau kỳ thi tốt nghiệp cấp ba của mùa hè năm ấy, bốn người bọn họ vẫn còn vô tư hò hét rủ nhau lội xuống khúc sông cạn ở thôn Triệu Gia bắt cá.
 
 Tiếng cười giòn tan, hồn nhiên của mùa hè năm 2006 dường như vẫn còn văng vẳng bên tai, chưa kịp tan biến vào hư không.
 
-Triệu Trí Dũng ngập ngừng, khéo léo gợi mở vài câu về tình hình của Triệu Kim An và Tô Miến.
+Triệu Chí Dũng ngập ngừng, khéo léo gợi mở vài câu về tình hình của Triệu Kim An và Tô Miến.
 
 Mộc Dao khẽ gật đầu, ra hiệu là mình đều đã nắm rõ mọi chuyện.
 
-"Triệu Trí Dũng, có phải cậu với Du Phi đều đinh ninh rằng tớ quay trở về nước lần này là để tranh giành cái gì đó với Từ Mạn Mạn đúng không? Tranh giành mấy cái công ty của Kim An sao?"
+"Triệu Chí Dũng, có phải cậu với Du Phi đều đinh ninh rằng tớ quay trở về nước lần này là để tranh giành cái gì đó với Từ Mạn Mạn đúng không? Tranh giành mấy cái công ty của Kim An sao?"
 
 "Không có..."
 
-Triệu Trí Dũng ngượng ngùng chẳng biết phải phân bua thế nào, nhưng trong bụng thầm nghĩ: 'Cậu lựa đúng cái thời điểm nhạy cảm chết người này mà đùng đùng quay về, bảo người ta không nghĩ ngợi lung tung sao cho đặng?'
+Triệu Chí Dũng ngượng ngùng chẳng biết phải phân bua thế nào, nhưng trong bụng thầm nghĩ: 'Cậu lựa đúng cái thời điểm nhạy cảm chết người này mà đùng đùng quay về, bảo người ta không nghĩ ngợi lung tung sao cho đặng?'
 
 "Tiền bạc, tự tay tớ kiếm ra cũng đã đủ cho bản thân tiêu xài cả đời rồi."
 
 Mộc Dao thản nhiên nhìn thẳng vào mắt bạn, cất giọng trầm buồn: "Trên cõi đời này chẳng có ai hiểu rõ Kim An hơn tớ đâu. Tớ chẳng bận tâm tới những người khác, điều duy nhất tớ lo lắng... chính là Kim An mà thôi..."
 
-Triệu Trí Dũng: "..."
+Triệu Chí Dũng: "..."
 
 "Vậy chẳng lẽ cậu quay về là để... giành lại con người của Kim An sao?"
 
-Hai người ngồi đối diện nhau mà suy nghĩ chẳng thể nào hòa chung một nhịp. Triệu Trí Dũng suýt chút nữa đã thốt lên rằng cậu hãy nhìn Thẩm Tử Ngôn mà xem, đến tận bây giờ người ta còn chưa buồn đặt chân trở lại Quận Sa kia kìa.
+Hai người ngồi đối diện nhau mà suy nghĩ chẳng thể nào hòa chung một nhịp. Triệu Chí Dũng suýt chút nữa đã thốt lên rằng cậu hãy nhìn Thẩm Tử Ngôn mà xem, đến tận bây giờ người ta còn chưa buồn đặt chân trở lại Quận Sa kia kìa.
 
 ...
 

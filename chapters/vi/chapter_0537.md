@@ -168,11 +168,11 @@ Triệu Kim An khẽ bảo: "Hai người các cậu bây giờ thích mua nhà 
 
 Phương Khiết khẽ gật đầu.
 
-Cái gã Lưu S闖 Phong tệ bạc kia, cả Lý Ngải Lan lẫn Vương Duy Đào đều biết rõ mười mươi chuyện Phương Khiết đã mòn mỏi cắm chốt ở Quận Sa chờ đợi hắn suốt mấy ngày qua. Lưu S闖 Phong giờ đây thực sự đã "đi quá xa" rồi, theo cái cung cách lao đi vun vút chẳng thèm ngoái đầu nhìn lại.
+Cái gã Lưu Sấm Phong tệ bạc kia, cả Lý Ngải Lan lẫn Vương Duy Đào đều biết rõ mười mươi chuyện Phương Khiết đã mòn mỏi cắm chốt ở Quận Sa chờ đợi hắn suốt mấy ngày qua. Lưu Sấm Phong giờ đây thực sự đã "đi quá xa" rồi, theo cái cung cách lao đi vun vút chẳng thèm ngoái đầu nhìn lại.
 
 Bên bàn ăn, "người bạn tâm tình của hội chị em" Vương Duy Đào vừa nặn bánh vừa hóng hớt buôn chuyện:
 
-"Lưu S闖 Phong không gọi điện về à?"
+"Lưu Sấm Phong không gọi điện về à?"
 
 Câu này là hắn hỏi bâng quơ Lý Ngải Lan hoặc Đường Hiểu Tình.
 
@@ -200,13 +200,13 @@ Trình diện! Báo danh!
 
 Thế nhưng vào lúc này...
 
-Lưu S闖 Phong đến một cuộc điện thoại cỏn con cũng không buồn gọi về. Liệu có phải đêm nay hắn cố tình làm ngơ cuộc gọi này?
+Lưu Sấm Phong đến một cuộc điện thoại cỏn con cũng không buồn gọi về. Liệu có phải đêm nay hắn cố tình làm ngơ cuộc gọi này?
 
 Đều chẳng còn là đứa con nít ba tuổi nữa.
 
 Đã lăn lộn ngoài thương trường xã hội bấy lâu nay, chút quy củ bến bãi giang hồ sơ đẳng ấy mà hắn lại không thông suốt hay sao?
 
-Tối nay không gọi cuộc điện thoại này, chứng tỏ Lưu S闖 Phong ở chốn Đông Hoản phồn hoa kia đã kết giao được với vô số "đại nhân vật" máu mặt. Hắn cảm thấy bản thân không cần thiết phải cúi đầu bái cái bến bãi của Triệu tổng Quận Sa nữa.
+Tối nay không gọi cuộc điện thoại này, chứng tỏ Lưu Sấm Phong ở chốn Đông Hoản phồn hoa kia đã kết giao được với vô số "đại nhân vật" máu mặt. Hắn cảm thấy bản thân không cần thiết phải cúi đầu bái cái bến bãi của Triệu tổng Quận Sa nữa.
 
 Hay nói cho đúng hơn là trong thâm tâm hắn không hề muốn!
 
@@ -218,7 +218,7 @@ Sự im lặng ấy đồng nghĩa với việc bọn họ đều ngầm thừa 
 
 Mấy cô gái một khi đã bước chân vào nhà Triệu Kim An thì chưa từng xem bản thân mình là khách khứa lạ lẫm, thấy có việc gì là tự giác xắn tay áo vào làm, đó cũng chính là một cách thể hiện thái độ và lập trường rõ ràng nhất. Nhìn Trịnh Như mà xem, vừa đặt chân đến cửa là đã chui tọt vào gian bếp làm quần quật từ trưa đến giờ.
 
-"Lưu S闖 Phong giờ tưởng mình đã tự dựng được bến bãi riêng rồi đấy."
+"Lưu Sấm Phong giờ tưởng mình đã tự dựng được bến bãi riêng rồi đấy."
 
 Vương Duy Đào bực bội lầm bầm một câu, giọng điệu hằn học ra mặt. Cái danh xưng "người đứng cách một mét" của hắn đâu phải tự dưng mà có. Chưa kể Vương Duy Đào còn nợ Tô Miến một món ân tình sâu nặng tựa thái sơn, từ trước tới nay hắn luôn cam tâm tình nguyện sắm vai "chân chạy trung thành" bên cạnh Triệu Kim An.
 
@@ -230,13 +230,13 @@ Cô liếc mắt nhìn về phía Phương Khiết đang ngồi cạnh bàn trà
 
 Đó hẳn là sự thật chăng?
 
-Lâm Thanh Tuyết biết rõ Quan Linh hiện đang làm việc trong tụ điểm của Lưu S闖 Phong. Cũng giống như trong nhóm trò chuyện WeChat của lớp Kế toán 1 năm ấy, những người như Lâm Xuyên, Lưu Chí Dân, Mạnh Hiến Giang... Phải chăng Lưu S闖 Phong giờ đây đã trở thành một "bến bãi" mới của đám bạn học lớp Kế toán 1 tại mảnh đất Đông Hoản?
+Lâm Thanh Tuyết biết rõ Quan Linh hiện đang làm việc trong tụ điểm của Lưu Sấm Phong. Cũng giống như trong nhóm trò chuyện WeChat của lớp Kế toán 1 năm ấy, những người như Lâm Xuyên, Lưu Chí Dân, Mạnh Hiến Giang... Phải chăng Lưu Sấm Phong giờ đây đã trở thành một "bến bãi" mới của đám bạn học lớp Kế toán 1 tại mảnh đất Đông Hoản?
 
-"Lưu S闖 Phong thực sự suy nghĩ như vậy sao?"
+"Lưu Sấm Phong thực sự suy nghĩ như vậy sao?"
 
 Lâm Thanh Tuyết trong lòng không khỏi thở dài, thật khó để nhìn thấu lòng người.
 
-Lý Ngải Lan lại càng chẳng thể nào hiểu nổi một Lưu S闖 Phong của ngày hôm nay. Trong ký ức của cô, Lưu S闖 Phong thuở còn ngồi trên ghế giảng đường đại học đến cả cô và Lâm Thanh Tuyết còn chẳng đối phó nổi, hễ bị mấy cô trêu ghẹo vài câu là mặt mũi đã đỏ gay, lúng túng luống cuống như gà mắc tóc, vốn dĩ chỉ là một chàng trai chất phác, khù khờ như thế...
+Lý Ngải Lan lại càng chẳng thể nào hiểu nổi một Lưu Sấm Phong của ngày hôm nay. Trong ký ức của cô, Lưu Sấm Phong thuở còn ngồi trên ghế giảng đường đại học đến cả cô và Lâm Thanh Tuyết còn chẳng đối phó nổi, hễ bị mấy cô trêu ghẹo vài câu là mặt mũi đã đỏ gay, lúng túng luống cuống như gà mắc tóc, vốn dĩ chỉ là một chàng trai chất phác, khù khờ như thế...
 
 Mấy cô gái bất giác đưa mắt nhìn về phía Từ Mạn Mạn đang đứng bên khung cửa kính sát đất lộng gió ở đằng xa, chiếc điện thoại trên tay cô reo chuông liên hồi không ngớt.
 

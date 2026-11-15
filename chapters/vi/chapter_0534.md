@@ -6,7 +6,7 @@ Khu Khai thác Kinh tế Kỹ thuật Đông Hồ, Công viên Phần mềm Quan
 
 Mấy chiếc xe sang Mercedes bóng loáng cùng một chiếc Toyota Prado địa hình hầm hố nối đuôi nhau táp vào lề đường, đỗ ngay ngắn trước sảnh một tòa nhà văn phòng nhỏ.
 
-Tất cả đều mang biển kiểm soát Tương A của tỉnh Hồ Nam.
+Tất cả đều mang biển kiểm soát Tương A của tỉnh Tương Nam.
 
 "Kìa, xe của Triệu tổng bên Quận Sa đấy!"
 

@@ -148,15 +148,15 @@ Triệu Kim An liếc nhìn một cái: "Khá đấy chứ, tậu xe mới rồi
 
 "He he, xe mới bấm biển cuối năm đấy, chiếc BYD cỏ chạy che mưa che nắng thôi." Vương Duy Đào dáo dác nhìn quanh quất: "Lý Ngải Lan vẫn chưa tới à?"
 
-Vừa dứt lời thì một chiếc taxi trờ tới, Lý Ngải Lan bước xuống, cái mồm đã liến thoắng không ngừng: "Hôm nay tôi cũng là lễ mừng tân gia dọn về nhà mới, cớ sao mọi người cứ kéo nhau sang nhà Triệu Trí Dũng mà chẳng thèm qua nhà tôi hả?"
+Vừa dứt lời thì một chiếc taxi trờ tới, Lý Ngải Lan bước xuống, cái mồm đã liến thoắng không ngừng: "Hôm nay tôi cũng là lễ mừng tân gia dọn về nhà mới, cớ sao mọi người cứ kéo nhau sang nhà Triệu Chí Dũng mà chẳng thèm qua nhà tôi hả?"
 
 "Xì~"
 
 Cả Vương Duy Đào lẫn Đường Hiểu Tình đều bĩu môi khinh bỉ ra mặt: "Lý Ngải Lan ơi là Lý Ngải Lan, bọn tôi lười chẳng buồn nói cô nữa đấy, cô làm ơn tự biết thân biết phận chút đi."
 
-"Mà này, cô đã chuẩn bị phong bì mừng tân gia chưa đấy?" Vương Duy Đào bản tính thích buôn chuyện, vừa hỏi vừa đưa ngón tay chỉ vào hai thùng trà sữa Ngu Quang và nước tăng lực Kim Ngưu mà Lý Ngải Lan đang khúm núm xách từ cốp taxi xuống: "Lý Ngải Lan, cô đừng có bảo với tôi là cô định xách hai cái thùng này sang mừng nhà mới của Triệu Trí Dũng đấy nhé?"
+"Mà này, cô đã chuẩn bị phong bì mừng tân gia chưa đấy?" Vương Duy Đào bản tính thích buôn chuyện, vừa hỏi vừa đưa ngón tay chỉ vào hai thùng trà sữa Ngu Quang và nước tăng lực Kim Ngưu mà Lý Ngải Lan đang khúm núm xách từ cốp taxi xuống: "Lý Ngải Lan, cô đừng có bảo với tôi là cô định xách hai cái thùng này sang mừng nhà mới của Triệu Chí Dũng đấy nhé?"
 
-"Triệu Trí Dũng hiện là giám đốc kinh doanh khu vực Nhạc Lộc của công ty Trăn Nhiên đấy, nhà cậu ta mà lại thiếu mấy cái thứ nước giải khát này chắc?"
+"Triệu Chí Dũng hiện là giám đốc kinh doanh khu vực Nhạc Lộc của công ty Trăn Nhiên đấy, nhà cậu ta mà lại thiếu mấy cái thứ nước giải khát này chắc?"
 
 Phùng Vũ Lam: (⊙_⊙)
 

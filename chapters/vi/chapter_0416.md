@@ -4,13 +4,13 @@ Quan Văn Bách lách xe sang làn bên cạnh, chạy song song với chiếc M
 
 Tiếng còi xe vang lên giục giã, cửa kính hạ xuống.
 
-Ngồi ở hàng ghế sau, Chu Hoa Phong thò đầu ra ngoài khoát tay liên tục, ra hiệu bảo cô rẽ vào trạm dừng chân tiếp theo.
+Ngồi ở hàng ghế sau, Chu Phong Hoa thò đầu ra ngoài khoát tay liên tục, ra hiệu bảo cô rẽ vào trạm dừng chân tiếp theo.
 
 Thẩm Tử Ngôn nghiêng đầu liếc nhìn một cái, gương mặt phẳng lặng không chút biểu cảm, thậm chí chẳng thèm hạ cửa kính xuống. Trái lại, cô còn nhấn sâu chân ga, chiếc Mercedes chồm lên xé gió lao đi.
 
 "Đừng đuổi gắt quá."
 
-Triệu Kim An nhìn chằm chằm vào biển số xe Mercedes phía trước. Du Phi ngồi bên vội vã bấm máy gọi cho Chu Hoa Phong, dặn dò phải đặt an toàn lên hàng đầu.
+Triệu Kim An nhìn chằm chằm vào biển số xe Mercedes phía trước. Du Phi ngồi bên vội vã bấm máy gọi cho Chu Phong Hoa, dặn dò phải đặt an toàn lên hàng đầu.
 
 Quả nhiên, hễ chiếc Audi giảm tốc không bám riết nữa thì chiếc Mercedes đằng trước cũng từ từ hạ tốc độ xuống.
 
@@ -56,7 +56,7 @@ Triệu Kim An cười khổ. Suốt hai kiếp người, đây là lần đầu
 
 Du Phi: "..."
 
-Ngay cả Chu Hoa Phong đứng gần đó cũng nghe đến cạn lời, chẳng hiểu hai người này đang diễn cái vở gì nữa.
+Ngay cả Chu Phong Hoa đứng gần đó cũng nghe đến cạn lời, chẳng hiểu hai người này đang diễn cái vở gì nữa.
 
 Thấy Thẩm Tử Ngôn tháo dây an toàn mở cửa bước xuống, Đan Vĩ và Quan Văn Bách mới thở phào nhẹ nhõm, tắt máy xe rồi đứng nhìn Triệu Kim An và Thẩm Tử Ngôn sóng bước đi về phía một góc vắng không bóng người.
 

@@ -136,7 +136,7 @@ Trong suy nghĩ của La Kiến Thành, sau Tết nguyên đán, Triệu Kim An 
 
 Đầu tư vào tập đoàn vũ trụ SpaceX.
 
-Hơn nữa, toàn bộ đội ngũ chuyên gia của Nhan Hy cùng Thiền Na Tề hiện vẫn đang được cắt cử cắm chốt ở lại Texas.
+Hơn nữa, toàn bộ đội ngũ chuyên gia của Nhan Hy cùng Đan Na Tề hiện vẫn đang được cắt cử cắm chốt ở lại Texas.
 
 Còn Hiệu trưởng Cung và Dư Tĩnh thì đang lăn lộn ở tận Tửu Tuyền xa xôi để khảo sát, lựa chọn địa điểm xây dựng căn cứ cho dự án thế kỷ "Khai Vật Cửu Chương".
 

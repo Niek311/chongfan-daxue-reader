@@ -8,7 +8,7 @@ Nào ngờ ngay trong ngày gã bị tống giam, đã có người bí mật tr
 
 Huyện trưởng Tô Quân Dương cũng không truy cứu sâu thêm. Nơi chốn quan trường có những chuyện thuộc về sự ngầm hiểu không cần nói thành lời. Nếu như không có chỗ dựa chống lưng ở phía sau, liệu một kẻ như Kiều Chính Nghiệp có thể một tay che trời, tác oai tác quái làm "địa đầu xà" ở đất Phụ Bình này suốt ngần ấy năm trời hay không? Miễn sao không làm ảnh hưởng tới đại cục chung, để dự án trọng điểm có thể thần tốc đẩy mạnh tiến độ là được.
 
-Đan Vĩ và Chu Hoa Phong đã tiếp nhận hai chiếc xe thương vụ Mercedes hoàn toàn mới cáu cạnh, vốn là tài sản tịch thu sung công từ công ty của Kiều Chính Nghiệp để bồi thường thiệt hại.
+Đan Vĩ và Chu Phong Hoa đã tiếp nhận hai chiếc xe thương vụ Mercedes hoàn toàn mới cáu cạnh, vốn là tài sản tịch thu sung công từ công ty của Kiều Chính Nghiệp để bồi thường thiệt hại.
 
 Trong suốt chuỗi ngày Triệu Kim An lưu lại Tô gia ở Kinh Đô, hai người bọn họ túc trực tại một khách sạn gần đó, còn Nhan Hi và Du Phi thì vẫn ở lại cảng Chu Sơn quán xuyến công việc.
 
@@ -162,13 +162,13 @@ Nhà khách Huyện ủy thông thường là do Chánh văn phòng Huyện ủy
 
 Đây là mô hình quản lý truyền thống và phổ biến nhất từ trước tới nay.
 
-Vị Chánh văn phòng liền ngỏ ý: Hay là để huyện chi ngân sách mời hai đầu bếp chuyên nghiệp từ tỉnh Hồ Nam về đây phục vụ riêng cho đoàn? Dù sao thì trang thiết bị ẩm thực của huyện miền núi nghèo cũng khó lòng sánh bằng các thành phố lớn.
+Vị Chánh văn phòng liền ngỏ ý: Hay là để huyện chi ngân sách mời hai đầu bếp chuyên nghiệp từ tỉnh Tương Nam về đây phục vụ riêng cho đoàn? Dù sao thì trang thiết bị ẩm thực của huyện miền núi nghèo cũng khó lòng sánh bằng các thành phố lớn.
 
 Lý Thụ Dũng lập tức gật đầu cái rụp, tuyên bố dứt khoát rằng hạn mức ngân sách tiếp đón có thể duyệt chi tăng thêm mà không cần phải đắn đo.
 
 ...
 
-Đến cuối tuần, cô giáo Dư Tĩnh lại đích thân đáp chuyến tàu cao tốc lặn lội tới Phụ Bình. Đi cùng chuyến tàu lần này còn có thêm vài vị giáo sư đầu ngành cùng một nhóm sinh viên ưu tú thuộc khoa Xây dựng Công trình (Thổ Mộc) của Đại học Trung Nam và Đại học Hồ Nam. Đại học Sư phạm không có chuyên ngành xây dựng dân dụng, thế nhưng Lý Ngải Lan cũng nhanh nhảu xách vali bám càng đi theo cho bằng được.
+Đến cuối tuần, cô giáo Dư Tĩnh lại đích thân đáp chuyến tàu cao tốc lặn lội tới Phụ Bình. Đi cùng chuyến tàu lần này còn có thêm vài vị giáo sư đầu ngành cùng một nhóm sinh viên ưu tú thuộc khoa Xây dựng Công trình (Thổ Mộc) của Đại học Trung Nam và Đại học Tương Nam. Đại học Sư phạm không có chuyên ngành xây dựng dân dụng, thế nhưng Lý Ngải Lan cũng nhanh nhảu xách vali bám càng đi theo cho bằng được.
 
 Chuyên môn nào thì phải để người trong ngành đó giải quyết.
 

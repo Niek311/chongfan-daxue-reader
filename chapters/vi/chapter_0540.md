@@ -24,7 +24,7 @@ Tô Cảnh Hành và Phùng Nhược Đan đáp chuyến bay ra Kinh Đô chúc 
 
 Mùng Hai Tết.
 
-Bé Triệu Tri Nặc và Tống Gia Nguyệt mỗi đứa được diện một chiếc áo bông dày cộp nhuộm màu đỏ thắm, Từ Mạn Mạn tấm tắc khen mặc như thế trông mới rực rỡ,喜庆 (hỉ khánh), tràn đầy phong vị ngày xuân.
+Bé Triệu Tri Nặc và Tống Gia Nguyệt mỗi đứa được diện một chiếc áo bông dày cộp nhuộm màu đỏ thắm, Từ Mạn Mạn tấm tắc khen mặc như thế trông mới rực rỡ, vui tươi, tràn đầy phong vị ngày xuân.
 
 Triệu Kim An nhìn mà không khỏi hoài nghi gu thẩm mỹ của Từ Mạn Mạn thực sự có vấn đề lớn.
 
@@ -38,7 +38,7 @@ Từ Mạn Mạn đã bắt đầu quay trở lại công ty giải quyết côn
 
 Triệu Kim An cũng không mảy may gặng hỏi chuyện đó làm gì.
 
-Đến trưa hôm ấy, chuông điện thoại của Lưu S闖 Phong bỗng gọi tới: "Kim An ơi, tớ gọi điện chúc Tết cậu đây!"
+Đến trưa hôm ấy, chuông điện thoại của Lưu Sấm Phong bỗng gọi tới: "Kim An ơi, tớ gọi điện chúc Tết cậu đây!"
 
 "Chúc cậu một năm mới vạn sự như ý, công việc làm ăn phát tài phát lộc, tiền vào như nước nhé!"
 
@@ -54,13 +54,13 @@ Mùng Bốn Tết.
 
 Mùng Năm Tết.
 
-Lưu S闖 Phong lái xe riêng quay trở lại đất Quận Sa. Lâm Thanh Tuyết nhắn tin kể rằng Phương Khiết đã cùng Lưu S闖 Phong về thăm bố mẹ đẻ của Phương Khiết rồi, dự kiến đến mùng Bảy Tết hai người sẽ cùng nhau ngược ra vùng Đông Bắc xa xôi để diện kiến gia đình nhà Lưu S闖 Phong, xem chừng trong năm nay chuyện trăm năm sẽ được định đoạt xong xuôi.
+Lưu Sấm Phong lái xe riêng quay trở lại đất Quận Sa. Lâm Thanh Tuyết nhắn tin kể rằng Phương Khiết đã cùng Lưu Sấm Phong về thăm bố mẹ đẻ của Phương Khiết rồi, dự kiến đến mùng Bảy Tết hai người sẽ cùng nhau ngược ra vùng Đông Bắc xa xôi để diện kiến gia đình nhà Lưu Sấm Phong, xem chừng trong năm nay chuyện trăm năm sẽ được định đoạt xong xuôi.
 
 Theo đúng trình tự thông thường thì là như vậy, chậm nhất thì sang năm sau hai người cũng sẽ tính chuyện cưới xin rình rang.
 
 Đây có thể xem là cặp đôi duy nhất của tập thể lớp Kế toán 1 năm nào nắm tay nhau đi tới được bến bờ hôn nhân viên mãn.
 
-Dọc đường thiên lý, Lưu S闖 Phong tiện tay chụp lại vài bức ảnh phong cảnh ven đường rồi gửi vào nhóm trò chuyện chung của lớp Kế toán 1.
+Dọc đường thiên lý, Lưu Sấm Phong tiện tay chụp lại vài bức ảnh phong cảnh ven đường rồi gửi vào nhóm trò chuyện chung của lớp Kế toán 1.
 
 Trong nhóm lập tức rộn rã những lời chúc tụng, tán dương nhiệt liệt.
 
@@ -76,7 +76,7 @@ Lời lẽ chúc tụng ấy nghe qua có chút gì đó như đang ám chỉ, b
 
 Ám chỉ ai cơ chứ? Lâm Thanh Tuyết? Hay là Từ Mạn Mạn?
 
-Nói một cách công tâm thì Phương Khiết quả thực là một cô gái vô cùng tuyệt vời. Lưu S闖 Phong có thể cưới được nàng Ủy viên văn nghệ đoan trang này về làm vợ, không ít chàng trai trong lớp Kế toán 1 năm ấy đều phải thầm ghen tị đến đỏ mắt. Phương Khiết ngoại hình ưa nhìn, tính tình chững chạc lại tháo vát kiếm tiền, hơn nữa bạn học cùng lớp với nhau từ thuở hàn vi nên gốc gác tính nết ai nấy đều thấu rõ như lòng bàn tay.
+Nói một cách công tâm thì Phương Khiết quả thực là một cô gái vô cùng tuyệt vời. Lưu Sấm Phong có thể cưới được nàng Ủy viên văn nghệ đoan trang này về làm vợ, không ít chàng trai trong lớp Kế toán 1 năm ấy đều phải thầm ghen tị đến đỏ mắt. Phương Khiết ngoại hình ưa nhìn, tính tình chững chạc lại tháo vát kiếm tiền, hơn nữa bạn học cùng lớp với nhau từ thuở hàn vi nên gốc gác tính nết ai nấy đều thấu rõ như lòng bàn tay.
 
 Có rất nhiều người sau khi tốt nghiệp cấp ba hay đại học bôn ba ngoài đời nhiều năm trời, trải qua bao lần mai mối hay xem mắt dở khóc dở cười, cuối cùng đi một vòng tròn lớn thì đối tượng kết hôn vẫn lại là người bạn học năm xưa.
 
@@ -236,7 +236,7 @@ Những lời gan ruột ấy của Quách Uyển Thanh thốt ra chính là s�
 
 Triệu Kim An quay trở lại gian phòng ngủ của Tô Miến, khẽ kéo ngăn kéo tủ đầu giường ra, rút từ trong túi áo mấy phong bao lì xì đỏ thắm đặt ngay ngắn vào bên trong.
 
-Tiền lì xì mừng tuổi cho Triệu Tri Hành và Triệu Tri Vi, Du Phi trước đó không hề giao lại cho Từ Mạn Mạn. Trước ngày hắn bay ra Kinh Đô, Đường Hiểu Tình, Lâm Thanh Tuyết cùng vợ chồng Vương Duy Đào, Triệu Trí Dũng đã âm thầm dúi những phong bao này vào tận tay Triệu Kim An, tha thiết dặn dò hắn nhất định phải mang ra Kinh Đô trao lại cho hai đứa trẻ Triệu Tri Hành và Triệu Tri Vi.
+Tiền lì xì mừng tuổi cho Triệu Tri Hành và Triệu Tri Vi, Du Phi trước đó không hề giao lại cho Từ Mạn Mạn. Trước ngày hắn bay ra Kinh Đô, Đường Hiểu Tình, Lâm Thanh Tuyết cùng vợ chồng Vương Duy Đào, Triệu Chí Dũng đã âm thầm dúi những phong bao này vào tận tay Triệu Kim An, tha thiết dặn dò hắn nhất định phải mang ra Kinh Đô trao lại cho hai đứa trẻ Triệu Tri Hành và Triệu Tri Vi.
 
 Triệu Kim An đứng lặng bên mép giường, chăm chú ngắm nhìn Tô Miến đang "say giấc nồng", rồi từ từ đẩy ngăn kéo khép lại.
 

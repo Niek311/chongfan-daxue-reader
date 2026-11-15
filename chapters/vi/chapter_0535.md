@@ -80,7 +80,7 @@ Là tin nhắn của Vương Phương Dụ gửi tới: "Triệu tổng, gần �
 
 "Triệu tổng ơi, lát nữa em xin phép không đi cùng anh nhé, em muốn tranh thủ bắt chuyến xe về quê sớm để ăn Tết với gia đình. Cũng hai cái Tết rồi em biền biệt nơi xứ người chẳng được về nhà đoàn tụ." Nhan Hi quay sang ngỏ ý.
 
-"Nhan sư tỷ, để anh Chu Hoa Phong lái xe đưa chị về tận quê nhé, hay chị muốn đi tàu cao tốc cho tiện?"
+"Nhan sư tỷ, để anh Chu Phong Hoa lái xe đưa chị về tận quê nhé, hay chị muốn đi tàu cao tốc cho tiện?"
 
 "Chỉ cần nghe Triệu tổng gọi một tiếng 'Nhan sư tỷ' ấm áp này là em mãn nguyện lắm rồi. Bác Đơn, lát nữa phía trước có chỗ nào tiện thì tấp vào lề cho em xuống nhé."
 

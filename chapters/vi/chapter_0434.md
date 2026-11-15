@@ -146,7 +146,7 @@ Từ trên chiếc BMW, một gã thanh niên để mái tóc dài lỉa chỉa 
 
 Đơn Vỹ ngồi ở ghế phụ lập tức xoay người lại cảnh giác: "Ông chủ..."
 
-Ở chiếc xe phía sau, Chu Hoa Phong và Đặng Thần Bình cùng người thứ ba đã nhanh chóng đạp cửa lao xuống, lập tức áp sát vây kín lấy gã thanh niên kia. Chỉ cần kẻ này có bất kỳ hành vi nào đe dọa tới sự an toàn của Triệu Kim An, bọn họ sẵn sàng ra tay hạ đo ván ngay tắp lự.
+Ở chiếc xe phía sau, Chu Phong Hoa và Đặng Thần Bình cùng người thứ ba đã nhanh chóng đạp cửa lao xuống, lập tức áp sát vây kín lấy gã thanh niên kia. Chỉ cần kẻ này có bất kỳ hành vi nào đe dọa tới sự an toàn của Triệu Kim An, bọn họ sẵn sàng ra tay hạ đo ván ngay tắp lự.
 
 Ở hàng ghế sau, Triệu Kim An hạ cửa kính xuống một khe nhỏ, lạnh lùng liếc nhìn gã thanh niên ngoài xe.
 
@@ -164,7 +164,7 @@ Nhan Hi mỉm cười đính chính lại: "Là địa đầu xà đấy ạ."
 
 Triệu Kim An nhàn nhạt nói: "Mấy mảng làm ăn đào đắp đất đá, san lấp mặt bằng hay cung ứng cát sỏi ở địa phương bao giờ cũng bị đám dân bản xứ này khoanh vùng chia chác địa bàn cả rồi."
 
-Gã thanh niên lúc này đã bị đám người Chu Hoa Phong áp sát bao vây tầng tầng lớp lớp, nhưng gã vẫn giơ hai tay lên cười cười nhăn nhở vẻ vô hại.
+Gã thanh niên lúc này đã bị đám người Chu Phong Hoa áp sát bao vây tầng tầng lớp lớp, nhưng gã vẫn giơ hai tay lên cười cười nhăn nhở vẻ vô hại.
 
 Đơn Vỹ đạp ga lái xe lướt đi.
 

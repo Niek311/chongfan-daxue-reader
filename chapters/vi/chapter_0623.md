@@ -156,7 +156,7 @@ Vương Phương Dụ đặt chiếc túi xách hàng hiệu xuống bàn, thả
 
 "Con bé này, lại đem mẹ ra làm trò đùa rồi."
 
-"Con nói thật lòng mà mẹ. Hồi ở Trường Sa con có chạm mặt cô Mạnh Song Viên rồi, mẹ ơi, cô ta chẳng bằng được một nửa nhan sắc của mẹ đâu. Bác trai năm xưa chẳng hiểu mắt mũi để đâu nữa?"
+"Con nói thật lòng mà mẹ. Hồi ở Quận Sa con có chạm mặt cô Mạnh Song Viên rồi, mẹ ơi, cô ta chẳng bằng được một nửa nhan sắc của mẹ đâu. Bác trai năm xưa chẳng hiểu mắt mũi để đâu nữa?"
 
 "Còn để đâu được nữa chứ, năm xưa mẹ nằng nặc từ chức nhảy ra ngoài kinh doanh làm ăn, ông ấy có bao giờ vừa mắt đồng tình đâu."
 

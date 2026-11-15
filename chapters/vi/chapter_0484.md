@@ -6,7 +6,7 @@ Nếu Thẩm Tử Ngôn vẫn còn ở lại công ty, về cơ bản chẳng c�
 
 Chiếc ghế nhân vật quyền lực thứ ba của Trăn Nhiên khi ấy sẽ chẳng có bất kỳ ai dám dị nghị.
 
-Triệu Trí Dũng lúc này chỉ mang danh một giám đốc khu vực nhỏ nhoi, lủi thủi đi thẳng xuống tận góc cuối cùng của chiếc bàn hội nghị dài ngoằng, lặng lẽ ngồi thu lu như một kẻ vô hình. Nếu không phải bản thân đang có mặt sẵn ở Quận Sa, e rằng cuộc họp cấp cao tầm cỡ thế này cậu ta còn chưa đủ tư cách để bước chân vào.
+Triệu Chí Dũng lúc này chỉ mang danh một giám đốc khu vực nhỏ nhoi, lủi thủi đi thẳng xuống tận góc cuối cùng của chiếc bàn hội nghị dài ngoằng, lặng lẽ ngồi thu lu như một kẻ vô hình. Nếu không phải bản thân đang có mặt sẵn ở Quận Sa, e rằng cuộc họp cấp cao tầm cỡ thế này cậu ta còn chưa đủ tư cách để bước chân vào.
 
 "Khách sạn này của Triệu tổng đỉnh thật đấy chứ..."
 

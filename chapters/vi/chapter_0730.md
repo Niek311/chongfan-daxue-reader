@@ -176,7 +176,7 @@ Triệu Tri Nặc hai tay ôm chặt lấy chiếc lọ thủy tinh đựng ki�
 
 "Chị ấy với anh Vương Duy Đào cứ hễ gặp mặt là lại xúm vào trêu chọc em."
 
-Ngập ngừng một lát, Đường Hiểu Tình lại thở dài: "Nhưng mà thỉnh thoảng không có chị ấy cũng thấy nhớ. Thiếu bàn tay chị ấy đứng ra bày vẽ, tụ tập, nhóm tụi em gồm anh Vương Duy Đào, chị Phùng Vũ Lam, anh Triệu Trí Dũng, chị Trịnh Như cũng ít có cơ hội tụ họp đông đủ hơn hẳn."
+Ngập ngừng một lát, Đường Hiểu Tình lại thở dài: "Nhưng mà thỉnh thoảng không có chị ấy cũng thấy nhớ. Thiếu bàn tay chị ấy đứng ra bày vẽ, tụ tập, nhóm tụi em gồm anh Vương Duy Đào, chị Phùng Vũ Lam, anh Triệu Chí Dũng, chị Trịnh Như cũng ít có cơ hội tụ họp đông đủ hơn hẳn."
 
 "Lại còn anh Vương Học Ân nữa, thỉnh thoảng chị Lâm Thanh Tuyết có mặt ở Quận Sa cũng nhập hội chung."
 

@@ -84,7 +84,7 @@ Duy chỉ có Lưu Sấm Phong là tươi cười hớn hở bước tới đon 
 
 "Bíp, bíp ——"
 
-Tiếng còi xe vang lên trầm hùng. Hai chiếc Mercedes thương vụ màu đen sang trọng từ từ tiến vào cổng, mang biển số Tương A của tỉnh Hồ Nam.
+Tiếng còi xe vang lên trầm hùng. Hai chiếc Mercedes thương vụ màu đen sang trọng từ từ tiến vào cổng, mang biển số Tương A của tỉnh Tương Nam.
 
 "Kim An tới rồi!" Phương Khiết và Quan Linh đồng thanh reo lên.
 

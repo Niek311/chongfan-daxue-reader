@@ -44,7 +44,7 @@ Cô cuống cuồng rút điện thoại ra bấm số gọi cho Du Phi: "Thư k
 
 Dưới tầng trệt.
 
-Đan Vĩ, Lý Tân và Chu Hoa Phong đã trang bị quân tư trang chỉnh tề, sẵn sàng lên đường.
+Đan Vĩ, Lý Tân và Chu Phong Hoa đã trang bị quân tư trang chỉnh tề, sẵn sàng lên đường.
 
 Đặng Thần Bình cũng dẫn theo vài gã thuộc hạ lầm lì bước tới.
 

@@ -70,11 +70,11 @@ Trên chuyến bay quốc tế cất cánh từ Kinh Đô hướng thẳng tới
 
 Triệu Kim An ngồi tĩnh lặng ở khoang hạng nhất. Mái tóc dài lòa xòa u uất đã được cắt tỉa ngắn gọn gàng, râu ria lởm chởm nơi cằm cũng đã được cạo sạch sẽ tinh tươm. Thế nhưng, đôi mắt phượng từng một thời trong veo không vướng bụi trần của anh giờ đây đã không còn nữa, thay vào đó là một vẻ thâm trầm, sắc lạnh và thấu triệt hồng trần đến rợn người.
 
-Chu Hoa Phong đứng nép một bên, cúi gằm mặt lí nhí: "Ông chủ, tôi..."
+Chu Phong Hoa đứng nép một bên, cúi gằm mặt lí nhí: "Ông chủ, tôi..."
 
-Đan Vĩ cùng Đặng Thần Bình đứng nghiêm trang phía sau, nín thở chờ đợi phán quyết cuối cùng của ông chủ giáng xuống đầu Chu Hoa Phong.
+Đan Vĩ cùng Đặng Thần Bình đứng nghiêm trang phía sau, nín thở chờ đợi phán quyết cuối cùng của ông chủ giáng xuống đầu Chu Phong Hoa.
 
-Triệu Kim An chầm chậm xoay đầu lại, đưa ánh mắt sắc lẹm nhìn thẳng vào mặt Chu Hoa Phong. Trong lồng ngực Chu Hoa Phong bỗng nổi lên từng hồi trống trận kinh hoàng, anh kinh hãi nhận ra ánh mắt của ông chủ giờ đây tựa như một lưỡi dao băng sắc nhọn, có thể xuyên thủng mọi tâm can toan tính.
+Triệu Kim An chầm chậm xoay đầu lại, đưa ánh mắt sắc lẹm nhìn thẳng vào mặt Chu Phong Hoa. Trong lồng ngực Chu Phong Hoa bỗng nổi lên từng hồi trống trận kinh hoàng, anh kinh hãi nhận ra ánh mắt của ông chủ giờ đây tựa như một lưỡi dao băng sắc nhọn, có thể xuyên thủng mọi tâm can toan tính.
 
 Phải một hồi lâu sau.
 
@@ -82,7 +82,7 @@ Triệu Kim An mới cất giọng lạnh tanh: "Cậu cứ việc thay mặt đ
 
 "..."
 
-Chu Hoa Phong há hốc mồm, trong lòng bối rối tột độ không biết nên đáp lời ra sao. Giới quyền quý cấp trên vốn dĩ xưa nay thích nhất là nói móc nói xỏ, rốt cuộc là bảo mình tiếp tục theo dõi hay là cấm tiệt đây?
+Chu Phong Hoa há hốc mồm, trong lòng bối rối tột độ không biết nên đáp lời ra sao. Giới quyền quý cấp trên vốn dĩ xưa nay thích nhất là nói móc nói xỏ, rốt cuộc là bảo mình tiếp tục theo dõi hay là cấm tiệt đây?
 
 Đan Vĩ và Đặng Thần Bình kín đáo liếc mắt nhìn nhau khẽ thở phào một hơi. Xem như tên họ Chu này phúc lớn mạng lớn, vừa thoát chết trong gang tấc và giữ lại được bát cơm manh áo.
 
@@ -212,7 +212,7 @@ Thế nhưng, cùng là phận nữ nhi với nhau, Bao Uyển Yên tuyệt nhi�
 
 Tại thành phố Quận Sa.
 
-Vương Duy Đào cùng Phùng Vũ Lam, Triệu Trí Dũng cùng Trịnh Như vừa nghe phong thanh tin tức đã vội vã hớt hải phóng xe lao thẳng tới trụ sở tập đoàn, nhưng vẫn chưa thấy bóng dáng Triệu Kim An đâu.
+Vương Duy Đào cùng Phùng Vũ Lam, Triệu Chí Dũng cùng Trịnh Như vừa nghe phong thanh tin tức đã vội vã hớt hải phóng xe lao thẳng tới trụ sở tập đoàn, nhưng vẫn chưa thấy bóng dáng Triệu Kim An đâu.
 
 Kể từ ngày tập đoàn chuyển dọn sang tòa cao ốc văn phòng năm mươi tầng mới toanh này, có quá nhiều nhân viên cấp dưới tuyển vào sau này chưa từng một lần được diện kiến dung nhan của vị đại boss tối cao.
 

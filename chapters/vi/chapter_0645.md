@@ -34,7 +34,7 @@ Dân lao động bình thường ai nấy đều xót tiền vé máy bay, lại
 
 Có quá nhiều, quá nhiều những bí ẩn chôn giấu theo năm tháng, không cách nào tháo gỡ, và vĩnh viễn chẳng tìm ra lời giải đáp.
 
-Triệu Kim An chỉ nhớ như in cuộc điện thoại định mệnh của thằng bạn thân Triệu Trí Dũng gọi tới trước khi anh trùng sinh quay ngược thời gian. Thằng Dũng bảo rằng Mộc Dao cũng đã ly hôn từ hai năm trước rồi, một thân một mình dắt díu cô con gái nhỏ mới lên hai tuổi lặn lội quay trở về nước.
+Triệu Kim An chỉ nhớ như in cuộc điện thoại định mệnh của thằng bạn thân Triệu Chí Dũng gọi tới trước khi anh trùng sinh quay ngược thời gian. Thằng Dũng bảo rằng Mộc Dao cũng đã ly hôn từ hai năm trước rồi, một thân một mình dắt díu cô con gái nhỏ mới lên hai tuổi lặn lội quay trở về nước.
 
 Kể từ ngày tốt nghiệp đại học, Mộc Dao dường như đã hoàn toàn "bốc hơi" khỏi thế giới này, bóng hình nàng hoa khôi lừng lẫy một thời của trường Trung học số 1 huyện Tư Tinh chỉ còn thi thoảng "sống lại" qua những mẩu chuyện phiếm lúc trà dư tửu hậu của đám bạn học cũ mà thôi.
 
@@ -160,9 +160,9 @@ Cả Trương Tuệ lẫn Mộc Dao đứng phía sau cũng đều trố mắt n
 
 Thế nhưng trong ánh mắt của Triệu Kim An lúc này lại ánh lên một tia thất vọng não nề. Anh còn kín đáo liếc mắt nhìn xuống vùng bụng dưới của Trương Vân Thiến, tuy nhiên tính toán lại thì mốc thời gian hiện tại cũng hoàn toàn không khớp. Cho dù lúc này có mang thai cộng thêm hai năm tuổi của đứa bé nữa thì so với mốc thời gian ở kiếp trước vẫn còn chênh lệch xa lắc xa lơ hàng mấy năm trời.
 
-Chẳng lẽ mọi chuyện thực sự đúng như những gì Triệu Trí Dũng đã từng kể lại qua điện thoại năm ấy, rằng đứa bé gái hai tuổi đó thực sự chính là giọt máu của Mộc Dao? Mộc Dao ở bên xứ Hàn xa xôi hay tin anh và Trần Thanh Trĩ đã chính thức ly hôn, nên mới quyết định dứt áo mang theo con gái nhỏ quay trở về nước để tìm anh?
+Chẳng lẽ mọi chuyện thực sự đúng như những gì Triệu Chí Dũng đã từng kể lại qua điện thoại năm ấy, rằng đứa bé gái hai tuổi đó thực sự chính là giọt máu của Mộc Dao? Mộc Dao ở bên xứ Hàn xa xôi hay tin anh và Trần Thanh Trĩ đã chính thức ly hôn, nên mới quyết định dứt áo mang theo con gái nhỏ quay trở về nước để tìm anh?
 
-Bởi vì sau khi đặt chân về nước, người đầu tiên mà Mộc Dao bấm máy gọi điện chính là Triệu Trí Dũng, câu đầu tiên cô hỏi chính là: "Kim An hiện giờ đang ở đâu?"
+Bởi vì sau khi đặt chân về nước, người đầu tiên mà Mộc Dao bấm máy gọi điện chính là Triệu Chí Dũng, câu đầu tiên cô hỏi chính là: "Kim An hiện giờ đang ở đâu?"
 
 "..."
 

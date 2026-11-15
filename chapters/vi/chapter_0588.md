@@ -6,7 +6,7 @@ Tại Cảng vụ Hoàn Vũ, Hiệu phó Cung, Dư Tĩnh cùng cả một dàn g
 
 Còn ở Bất động sản Trạch Vũ, việc làm cố vấn chẳng qua chỉ là hữu danh vô thực, đến tháng nhận một khoản thù lao tượng trưng cho có lệ mà thôi.
 
-Riêng về mảng Bất động sản Lâm Thịnh, Lâm Thanh Tuyết lại có cung cách làm việc thực tế và tỉnh táo hơn nhiều. Cô chỉ cần đội ngũ của Dư Tĩnh và Nhan Hi đứng ra "canh chừng" chặt chẽ mảng sổ sách tài chính của công ty, còn toàn bộ nhân sự chuyên môn kỹ thuật đều được đích thân cô chiêu mộ từ các trường Đại học Trung Nam, Đại học Hồ Nam và Đại học Bách khoa Quận Sa.
+Riêng về mảng Bất động sản Lâm Thịnh, Lâm Thanh Tuyết lại có cung cách làm việc thực tế và tỉnh táo hơn nhiều. Cô chỉ cần đội ngũ của Dư Tĩnh và Nhan Hi đứng ra "canh chừng" chặt chẽ mảng sổ sách tài chính của công ty, còn toàn bộ nhân sự chuyên môn kỹ thuật đều được đích thân cô chiêu mộ từ các trường Đại học Trung Nam, Đại học Tương Nam và Đại học Bách khoa Quận Sa.
 
 Những tòa cao ốc chọc trời sừng sững hàng chục tầng đâu thể đem so với những căn nhà cấp bốn tự xây ở nông thôn, từng khâu từng bước đều đòi hỏi kiến thức chuyên môn sâu của đủ mọi lĩnh vực.
 
@@ -58,7 +58,7 @@ Lưu Hiểu Tĩnh bước vào rót một chén trà nóng đặt lên bàn, sau
 
 Vương Phương Dụ xoay người lại cất tiếng hỏi, chủ động khơi mào câu chuyện.
 
-Giữa hai người bọn họ xưa nay chưa từng có ai thẳng thắn vạch trần mọi chuyện ra ánh sáng, những lần chạm mặt trước đây cũng chỉ dừng lại ở mức gật đầu chào hỏi xã giao như người dưng nước lã, và đầu mối gắn kết duy nhất giữa họ không ai khác chính là Trần Triệt.
+Giữa hai người bọn họ xưa nay chưa từng có ai thẳng thắn vạch trần mọi chuyện ra ánh sáng, những lần chạm mặt trước đây cũng chỉ dừng lại ở mức gật đầu chào hỏi xã giao như người dưng nước lã, và đầu mối gắn kết duy nhất giữa họ không ai khác chính là Trần Trạch.
 
 "Không có ở đây, Kim An có công việc riêng của anh ấy."
 
@@ -66,19 +66,19 @@ Từ Mạn Mạn biết rõ Triệu Kim An đã dẫn người tiến sâu vào 
 
 Toàn bộ những khoản chi phí khổng lồ ấy đều được thanh toán qua tài khoản của công ty Hoàn Vũ Thời Đại tại Hồng Kông.
 
-"Từ tổng, chuyện của Trần Triệt..."
+"Từ tổng, chuyện của Trần Trạch..."
 
-"Vương tổng, tôi và Trần Triệt đã chia tay nhau hơn ba năm rồi."
+"Vương tổng, tôi và Trần Trạch đã chia tay nhau hơn ba năm rồi."
 
 Từ Mạn Mạn thẳng thừng ngắt lời: "Hiện tại tôi đã có bé Nặc Nặc, hơn nữa cô lại là vị hôn thê danh chính ngôn thuận của anh ấy, cô không cần thiết phải nhắc đến tên anh ấy trước mặt tôi làm gì."
 
-"Nếu là Lâm Thanh Tuyết thì tôi tuyệt đối sẽ không bao giờ nhắc tới, chia tay thì coi như chấm dứt, tốt nghiệp đại học rồi đường ai nấy đi vốn là chuyện hết sức bình thường. Thế nhưng giữa cô và Trần Triệt..."
+"Nếu là Lâm Thanh Tuyết thì tôi tuyệt đối sẽ không bao giờ nhắc tới, chia tay thì coi như chấm dứt, tốt nghiệp đại học rồi đường ai nấy đi vốn là chuyện hết sức bình thường. Thế nhưng giữa cô và Trần Trạch..."
 
 "Chẳng có gì khác biệt cả!"
 
 Từ Mạn Mạn một lần nữa lạnh lùng lên tiếng cắt ngang.
 
-"Cô vội vàng ngắt lời tôi như vậy, điều đó càng chứng minh vị trí của Trần Triệt trong lòng cô vẫn có đôi chút khác biệt đấy thôi."
+"Cô vội vàng ngắt lời tôi như vậy, điều đó càng chứng minh vị trí của Trần Trạch trong lòng cô vẫn có đôi chút khác biệt đấy thôi."
 
 Vương Phương Dụ khẽ mỉm cười nói: "Tôi không có ý bóng gió gì khác, ý tôi là hai người vốn là hàng xóm sát vách, đối cửa với nhau từ thuở tấm bé, cùng nhau lớn lên suốt hơn hai mươi năm trời, mối ràng buộc ấy đương nhiên có chút khác biệt so với những cặp đôi yêu đương thời đại học bình thường, âu cũng là lẽ thường tình."
 
@@ -92,15 +92,15 @@ Cô im lặng chờ đợi phần nội dung then chốt tiếp theo.
 
 Vương Phương Dụ mỉm cười gật đầu: "Tôi không có ý khiêu khích gì đâu, đây chỉ là lời giải thích rõ ràng hơn cho những gì tôi vừa nói phía trước mà thôi."
 
-Từ Mạn Mạn trầm ngâm suy nghĩ giây lát, rồi khẽ gật đầu: "Vương Phương Dụ, cô căn bản chẳng hiểu gì về con người Trần Triệt cả... Hãy cứ an phận mà cùng Trần Triệt sống cho thật tốt những chuỗi ngày sau này đi."
+Từ Mạn Mạn trầm ngâm suy nghĩ giây lát, rồi khẽ gật đầu: "Vương Phương Dụ, cô căn bản chẳng hiểu gì về con người Trần Trạch cả... Hãy cứ an phận mà cùng Trần Trạch sống cho thật tốt những chuỗi ngày sau này đi."
 
-Đây là lần đầu tiên trong đời Vương Phương Dụ nghe thấy có người nói với mình câu: "Cô căn bản chẳng hiểu gì về con người Trần Triệt cả". Ở Dương Thành, từ Phương Khiết, Lưu Sấm Phong cho tới Cốc Siêu Thừa, chưa một ai từng thốt ra với cô những lời như vậy.
+Đây là lần đầu tiên trong đời Vương Phương Dụ nghe thấy có người nói với mình câu: "Cô căn bản chẳng hiểu gì về con người Trần Trạch cả". Ở Dương Thành, từ Phương Khiết, Lưu Sấm Phong cho tới Cốc Siêu Thừa, chưa một ai từng thốt ra với cô những lời như vậy.
 
 "Từ Mạn Mạn, cô..."
 
 "Chẳng có gì cả."
 
-Từ Mạn Mạn cũng chẳng dại gì mà đi bóc mẽ thói hư tật xấu: "Trần Triệt hễ gặp chuyện trắc trở là chỉ biết ru rú trong văn phòng dán mắt vào bảng điện tử chứng khoán". Tâm lý của cô lúc này cũng y hệt như Lâm Thanh Tuyết ngày trước, Vương Phương Dụ và Trần Triệt giờ đã đính hôn, đã là vợ chồng chưa cưới của nhau rồi.
+Từ Mạn Mạn cũng chẳng dại gì mà đi bóc mẽ thói hư tật xấu: "Trần Trạch hễ gặp chuyện trắc trở là chỉ biết ru rú trong văn phòng dán mắt vào bảng điện tử chứng khoán". Tâm lý của cô lúc này cũng y hệt như Lâm Thanh Tuyết ngày trước, Vương Phương Dụ và Trần Trạch giờ đã đính hôn, đã là vợ chồng chưa cưới của nhau rồi.
 
 Nói ra những chuyện quá khứ ấy lúc này hoàn toàn mang tính chất xúi bẩy, chia rẽ, hẹp hòi không muốn thấy người khác sống yên ổn.
 
@@ -120,13 +120,13 @@ Từ Mạn Mạn vẫn giữ im lặng.
 
 "Tôi chỉ muốn biết một điều duy nhất: Có phải Bất động sản Lâm Thịnh được lập ra là để nhắm thẳng vào Bất động sản Trạch Vũ hay không?"
 
-Vương Phương Dụ thẳng thắn trải lòng: "Tôi thực sự không muốn nổ ra bất kỳ cuộc xung đột đối đầu nào với Triệu Kim An cả. Nếu quả thực sự tình đúng như vậy, tôi và Trần Triệt sẵn sàng chủ động lựa chọn rút lui toàn diện khỏi thị trường Quận Sa này. Từ Mạn Mạn, cô có thể cho tôi một câu trả lời thành thật được không?"
+Vương Phương Dụ thẳng thắn trải lòng: "Tôi thực sự không muốn nổ ra bất kỳ cuộc xung đột đối đầu nào với Triệu Kim An cả. Nếu quả thực sự tình đúng như vậy, tôi và Trần Trạch sẵn sàng chủ động lựa chọn rút lui toàn diện khỏi thị trường Quận Sa này. Từ Mạn Mạn, cô có thể cho tôi một câu trả lời thành thật được không?"
 
 Từ Mạn Mạn khẽ lắc đầu: "Tôi không biết. Nghiệp vụ và các hoạt động của Bất động sản Lâm Thịnh xưa nay không hề qua tay tôi quản lý, toàn bộ đều do Lâm Thanh Tuyết độc lập chịu trách nhiệm."
 
 "Công ty chúng tôi đang chuẩn bị kế hoạch lấn sân tiến quân vào thị trường Thượng Hải, thế nhưng trong danh sách các doanh nghiệp tham gia đấu thầu quyền sử dụng đất đợt này, tôi lại nhìn thấy tên của Bất động sản Lâm Thịnh."
 
-Vương Phương Dụ nói: "Nếu như mục tiêu thực sự là nhắm vào chúng tôi, tôi sẵn sàng chủ động bỏ cuộc, rút lui khỏi đợt đấu giá đất lần này. Tôi nói thẳng thắn thật lòng, tôi rất sợ một khi các cổ đông khác trong công ty đánh hơi được chuyện này, họ sẽ dấy lên làn sóng bất mãn và chống đối dữ dội nhằm vào Trần Triệt. Từ Mạn Mạn à..."
+Vương Phương Dụ nói: "Nếu như mục tiêu thực sự là nhắm vào chúng tôi, tôi sẵn sàng chủ động bỏ cuộc, rút lui khỏi đợt đấu giá đất lần này. Tôi nói thẳng thắn thật lòng, tôi rất sợ một khi các cổ đông khác trong công ty đánh hơi được chuyện này, họ sẽ dấy lên làn sóng bất mãn và chống đối dữ dội nhằm vào Trần Trạch. Từ Mạn Mạn à..."
 
 "Người thông minh không nói chuyện mập mờ, rốt cuộc thì tại sao Triệu Kim An lại thành lập nên Bất động sản Lâm Thịnh?"
 
@@ -136,7 +136,7 @@ Vương Phương Dụ nói: "Nếu như mục tiêu thực sự là nhắm vào 
 
 "Cô đừng có bảo với tôi rằng cậu ta làm vậy là vì Lâm Thanh Tuyết nhé, lý do đó chẳng ai tin nổi đâu."
 
-Nói dứt lời, ánh mắt Vương Phương Dụ găm chặt nhìn chằm chằm vào Từ Mạn Mạn. Dẫu cho Trần Triệt hiện đang nắm giữ tới 46% cổ phần công ty, bản thân cô cũng có 1%, nhưng nếu để các cổ đông khác sinh lòng oán thán bất mãn thì hậu quả sau này sẽ vô cùng phiền phức và khó lường.
+Nói dứt lời, ánh mắt Vương Phương Dụ găm chặt nhìn chằm chằm vào Từ Mạn Mạn. Dẫu cho Trần Trạch hiện đang nắm giữ tới 46% cổ phần công ty, bản thân cô cũng có 1%, nhưng nếu để các cổ đông khác sinh lòng oán thán bất mãn thì hậu quả sau này sẽ vô cùng phiền phức và khó lường.
 
 Bất động sản Trạch Vũ hoàn toàn khác biệt so với Tập đoàn Hoàn Vũ.
 
@@ -144,7 +144,7 @@ Tập đoàn Hoàn Vũ gần như là giang sơn độc tôn của một mình T
 
 Nói một câu khó nghe, ở Tập đoàn Hoàn Vũ thì Triệu Kim An muốn tung hoành ngang dọc, muốn chơi bời quậy phá thế nào cũng được, cậu không cần phải chịu trách nhiệm hay giải trình với bất kỳ một ai.
 
-Còn Bất động sản Trạch Vũ thì buộc phải chịu trách nhiệm trước toàn thể hội đồng cổ đông, Trần Triệt bắt buộc phải định kỳ nộp lên những bản báo cáo tài chính và kết quả kinh doanh sáng sủa để làm vừa lòng họ.
+Còn Bất động sản Trạch Vũ thì buộc phải chịu trách nhiệm trước toàn thể hội đồng cổ đông, Trần Trạch bắt buộc phải định kỳ nộp lên những bản báo cáo tài chính và kết quả kinh doanh sáng sủa để làm vừa lòng họ.
 
 Hơn nữa...
 
@@ -158,11 +158,11 @@ Vương Phương Dụ có chút bất ngờ: "Lâm Thanh Tuyết không cần ph
 
 "Không cần."
 
-"Từ Mạn Mạn, cô có biết rằng nếu như Lâm Thanh Tuyết bất chấp mọi hậu quả và cái giá phải trả để dốc toàn lực chèn ép Bất động sản Trạch Vũ, thì dẫu cho Trần Triệt có nắm giữ quyền biểu quyết tuyệt đối nhờ số cổ phần trong tay đi chăng nữa, đám người trong hội đồng cổ đông kia cũng sẽ tìm đủ mọi thủ đoạn bẩn thỉu để ép anh ấy phải nhường lại chiếc ghế điều hành hay không?"
+"Từ Mạn Mạn, cô có biết rằng nếu như Lâm Thanh Tuyết bất chấp mọi hậu quả và cái giá phải trả để dốc toàn lực chèn ép Bất động sản Trạch Vũ, thì dẫu cho Trần Trạch có nắm giữ quyền biểu quyết tuyệt đối nhờ số cổ phần trong tay đi chăng nữa, đám người trong hội đồng cổ đông kia cũng sẽ tìm đủ mọi thủ đoạn bẩn thỉu để ép anh ấy phải nhường lại chiếc ghế điều hành hay không?"
 
 Từ Mạn Mạn không trực tiếp trả lời câu hỏi hóc búa đó, mà khẽ nghiêng đầu hỏi ngược lại Vương Phương Dụ:
 
-"Bản thân Trần Triệt có tự ý thức được điều đó không?"
+"Bản thân Trần Trạch có tự ý thức được điều đó không?"
 
 "Vương Phương Dụ, cô nên để cho chính bản thân anh ấy nhìn nhận và hiểu rõ tường tận mọi chuyện thì hơn."
 
@@ -172,7 +172,7 @@ Vương Phương Dụ thoáng ngẩn người chết lặng.
 
 "Hiện tại người ngồi ở vị trí này là tôi, là tôi đang ngồi trên chiếc ghế này. Để tôi nói cho một mình cô biết điều này nhé, Thẩm Tử Ngôn, chắc cô cũng từng nghe qua cái tên này rồi chứ?"
 
-"Biết chứ, Trần Triệt từng nhắc qua với tôi rồi. Chuỗi đồ ăn vặt Ba Chú Sóc Quế Hoa, nghe nói vừa mới hoàn tất vòng gọi vốn Series A thì phải."
+"Biết chứ, Trần Trạch từng nhắc qua với tôi rồi. Chuỗi đồ ăn vặt Ba Chú Sóc Quế Hoa, nghe nói vừa mới hoàn tất vòng gọi vốn Series A thì phải."
 
 Vương Phương Dụ lẩm bẩm trong miệng, vẫn chưa thực sự hiểu vì sao Từ Mạn Mạn lại đột ngột nhắc tới cái tên Thẩm Tử Ngôn vào lúc này.
 
@@ -194,7 +194,7 @@ Nếu đến nước này mà cô còn không hiểu nổi hàm ý sâu xa bên 
 
 Giọng điệu của Từ Mạn Mạn bỗng nhiên trở nên lạnh lùng, dứt khoát lạ thường:
 
-"Một kẻ như Trần Triệt, cô nghĩ có đủ tầm để Thẩm Tử Ngôn vờn bóp trong lòng bàn tay không?"
+"Một kẻ như Trần Trạch, cô nghĩ có đủ tầm để Thẩm Tử Ngôn vờn bóp trong lòng bàn tay không?"
 
 "..."
 
@@ -202,7 +202,7 @@ Vương Phương Dụ lại một lần nữa sững sờ chết lặng. Cô là
 
 Từ Mạn Mạn không hề nhắc tới bản thân mình, cũng không thèm đả kích Vương Phương Dụ, cô chỉ muốn vạch rõ một thực tế trần trụi: Nếu như người đang ngồi trên chiếc ghế Phó Tổng giám đốc của Tập đoàn Hoàn Vũ lúc này là Thẩm Tử Ngôn...
 
-—— Thì một gã như Trần Triệt căn bản chẳng đủ tư cách để Thẩm Tử Ngôn buồn bận tâm ra tay vùi dập!
+—— Thì một gã như Trần Trạch căn bản chẳng đủ tư cách để Thẩm Tử Ngôn buồn bận tâm ra tay vùi dập!
 
 Còn việc bản thân cô, Vương Phương Dụ, bản lĩnh cao cường đến đâu, cô hãy tự mình suy ngẫm, tự mình cân đo đong đếm xem khi đặt cạnh Thẩm Tử Ngôn thì hơn kém ra sao?
 
@@ -210,21 +210,21 @@ Căn phòng rơi vào một khoảng im lặng đến nghẹt thở, có lẽ ph
 
 Vương Phương Dụ bừng tỉnh khỏi cơn chấn động tâm lý, khẽ lẩm bẩm: "Các cô... hình như ngày trước từng là hai phòng ký túc xá kết nghĩa với nhau thì phải."
 
-Cô còn nhớ mang máng lúc công ty của Thẩm Tử Ngôn gọi vốn thành công, Trần Triệt thậm chí còn chu đáo nhắn một tin nhắn gửi lời chúc mừng chân thành.
+Cô còn nhớ mang máng lúc công ty của Thẩm Tử Ngôn gọi vốn thành công, Trần Trạch thậm chí còn chu đáo nhắn một tin nhắn gửi lời chúc mừng chân thành.
 
 "Ký túc xá kết nghĩa sao? Thế nên tôi mới bảo các người căn bản chẳng hiểu chút gì về Thẩm Tử Ngôn cả."
 
 Từ Mạn Mạn chậm rãi đứng dậy bước tới, đứng sóng vai cùng Vương Phương Dụ trước khung cửa kính sát đất nhìn xuống dòng xe cộ tấp nập bên dưới.
 
-"Vương Phương Dụ, tôi thực sự rất vui mừng khi thấy cô có thể hết lòng nghĩ cho Trần Triệt đến mức ấy. Trần Triệt tìm được một người như cô làm vợ quả thực là phúc phận tu mấy kiếp của anh ấy. Tôi cũng xin nói thật lòng mình, tôi luôn hy vọng Trần Triệt và dì Dương Thù Mỹ sẽ có được một cuộc sống êm ấm, tốt đẹp."
+"Vương Phương Dụ, tôi thực sự rất vui mừng khi thấy cô có thể hết lòng nghĩ cho Trần Trạch đến mức ấy. Trần Trạch tìm được một người như cô làm vợ quả thực là phúc phận tu mấy kiếp của anh ấy. Tôi cũng xin nói thật lòng mình, tôi luôn hy vọng Trần Trạch và dì Dương Thù Mỹ sẽ có được một cuộc sống êm ấm, tốt đẹp."
 
 Vương Phương Dụ hiểu rất rõ tâm lý của Từ Mạn Mạn. Bản thân cô nếu đối diện với người yêu cũ cũng chưa chắc đã muốn nhìn thấy người ta rơi vào cảnh khốn cùng, bệ rạc.
 
-Trần Triệt không phải là mối tình đầu của Vương Phương Dụ, thời còn học đại học cô cũng từng trải qua một mối tình sâu đậm.
+Trần Trạch không phải là mối tình đầu của Vương Phương Dụ, thời còn học đại học cô cũng từng trải qua một mối tình sâu đậm.
 
 Và sự trưởng thành vượt bậc của Từ Mạn Mạn lúc này thể hiện rõ qua việc trong lời nói của cô đã có thêm sự xuất hiện của hai chữ "dì Dương Thù Mỹ".
 
-"Vẫn là câu nói lúc nãy, cô không nên tìm đến tôi làm gì, mà chính bản thân Trần Triệt mới là người phải tự mình tỉnh ngộ và nhìn nhận mọi chuyện cho thật sáng suốt."
+"Vẫn là câu nói lúc nãy, cô không nên tìm đến tôi làm gì, mà chính bản thân Trần Trạch mới là người phải tự mình tỉnh ngộ và nhìn nhận mọi chuyện cho thật sáng suốt."
 
 Ngừng lại một thoáng, Từ Mạn Mạn phóng ánh mắt nhìn ra ngoài khung cửa sổ rồi thản nhiên buông lời tiễn khách: "Được rồi, cô có thể về được rồi đấy."
 

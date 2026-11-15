@@ -78,7 +78,7 @@ Dương Thù Mỹ và Vương Phương Dụ bước về phòng riêng thay đ�
 
 "Ai mà biết được."
 
-Thực ra chỉ là ngâm suối nước nóng giải tỏa mệt mỏi thôi mà. Trong trường đại học cũng có bể bơi, nhiều đứa từng đi bơi suốt, thậm chí còn kéo nhau sang bể bơi ngoài trời ở cơ sở phía Bắc Đại học Hồ Nam nô đùa, chẳng hiểu sao hôm nay tụi con trai lại phấn khích đến thế.
+Thực ra chỉ là ngâm suối nước nóng giải tỏa mệt mỏi thôi mà. Trong trường đại học cũng có bể bơi, nhiều đứa từng đi bơi suốt, thậm chí còn kéo nhau sang bể bơi ngoài trời ở cơ sở phía Bắc Đại học Tương Nam nô đùa, chẳng hiểu sao hôm nay tụi con trai lại phấn khích đến thế.
 
 "Vãi thật!!!"
 

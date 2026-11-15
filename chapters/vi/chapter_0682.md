@@ -1,12 +1,12 @@
 # Chương 682: Thật là quá quắt
 
-Từ Mạn Mạn nói: "Vương Duy Đào với Triệu Trí Dũng ghé qua một chuyến, hai người bọn họ dọn sạch sành sanh đi rồi."
+Từ Mạn Mạn nói: "Vương Duy Đào với Triệu Chí Dũng ghé qua một chuyến, hai người bọn họ dọn sạch sành sanh đi rồi."
 
 Lương Tuệ Trân nghe mà tiếc hùi hụi: "..."
 
 Lãng phí quá, toàn đồ xịn sò đắt tiền cả đấy chứ!
 
-Từ Mạn Mạn mỉm cười kể tiếp: "Kim An, hai người bọn họ lúc chia đồ còn đánh nhau một trận nữa đấy, Phùng Vũ Lam kể với em. Sau đó Triệu Trí Dũng được ưu tiên chọn trước, vì cậu ấy với Trịnh Như chuẩn bị dọn vào nhà mới."
+Từ Mạn Mạn mỉm cười kể tiếp: "Kim An, hai người bọn họ lúc chia đồ còn đánh nhau một trận nữa đấy, Phùng Vũ Lam kể với em. Sau đó Triệu Chí Dũng được ưu tiên chọn trước, vì cậu ấy với Trịnh Như chuẩn bị dọn vào nhà mới."
 
 "..."
 

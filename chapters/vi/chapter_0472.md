@@ -78,9 +78,9 @@ Tô Miến liếc nhìn màn hình điện thoại, vẫn không thấy tin nh�
 
 Cô chọn một quán cà phê trang nhã, ngồi ngoài ban công lộng gió hướng mặt ra biển để sưởi nắng.
 
-Thực tế, nếu Thẩm Tử Ngôn muốn tìm tới đây thì quá đỗi dễ dàng. Mấy chiếc xe sang mang biển số Tương A (Hồ Nam) đỗ sừng sững bên ngoài, hơn nữa Thẩm Tử Ngôn lại quen mặt hầu hết người trong công ty.
+Thực tế, nếu Thẩm Tử Ngôn muốn tìm tới đây thì quá đỗi dễ dàng. Mấy chiếc xe sang mang biển số Tương A (Tương Nam) đỗ sừng sững bên ngoài, hơn nữa Thẩm Tử Ngôn lại quen mặt hầu hết người trong công ty.
 
-Đan Vĩ và Chu Hoa Phong giữ một khoảng cách an toàn, túc trực quan sát từ xa.
+Đan Vĩ và Chu Phong Hoa giữ một khoảng cách an toàn, túc trực quan sát từ xa.
 
 Tô Miến khẽ bảo Tô Mặc lui ra ngoài dạo quanh, rồi cất tiếng gọi Diêu Sân lại gần.
 
@@ -110,7 +110,7 @@ Trời vừa sập tối, Tô Miến lại muốn ra bãi cát trải dài phía
 
 Không có ai đi cùng, chẳng ai có thể yên tâm nổi.
 
-Đặng Thần Bình cùng Chu Hoa Phong đành phải đứng canh gác từ đằng xa, ánh mắt không rời một giây nào.
+Đặng Thần Bình cùng Chu Phong Hoa đành phải đứng canh gác từ đằng xa, ánh mắt không rời một giây nào.
 
 Đây là bãi biển thuộc quyền quản lý riêng của khách sạn, không mở cửa cho người ngoài, nhưng vẫn có lác đác vài vị khách lưu trú tản bộ ngắm cảnh. Điều kiện như vậy quả thực vô cùng thích hợp.
 
@@ -190,7 +190,7 @@ Phía xa xa.
 
 Đồng hồ điểm đúng 22 giờ 12 phút.
 
-Triệu Kim An quay trở lại khách sạn, cùng Quách Uyển Thanh sải bước về phía bãi cát đón Tô Miến. Triệu Kim An nhẹ nhàng đẩy xe lăn đưa cô quay về phòng nghỉ, Tô Mặc và Diêu Sân lẳng lặng theo sau, nhóm Đặng Thần Bình cùng Chu Hoa Phong cũng từ tốn khép lại đội hình bảo vệ.
+Triệu Kim An quay trở lại khách sạn, cùng Quách Uyển Thanh sải bước về phía bãi cát đón Tô Miến. Triệu Kim An nhẹ nhàng đẩy xe lăn đưa cô quay về phòng nghỉ, Tô Mặc và Diêu Sân lẳng lặng theo sau, nhóm Đặng Thần Bình cùng Chu Phong Hoa cũng từ tốn khép lại đội hình bảo vệ.
 
 Tô Miến không hề dáo dác nhìn quanh tìm kiếm, trên gương mặt cũng chẳng lộ ra chút hụt hẫng hay thất vọng nào.
 

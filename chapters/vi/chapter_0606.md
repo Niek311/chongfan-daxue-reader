@@ -44,7 +44,7 @@ Thế nhưng, Từ Mạn Mạn và Thẩm Tử Ngôn lại coi như không nhìn
 
 Lão Lý và lão Tôn ở quầy bên cạnh nhìn sang mà trố mắt kinh ngạc. Ăn một bữa đồ nướng vỉa hè thôi mà làm cái bộ tịch lớn thế này sao?
 
-Lý Tân và Chu Hoa Phong đưa mắt nhìn nhau, rồi cùng sải bước tiến về phía một bàn khách đang ngồi nán lại "xem kịch vui".
+Lý Tân và Chu Phong Hoa đưa mắt nhìn nhau, rồi cùng sải bước tiến về phía một bàn khách đang ngồi nán lại "xem kịch vui".
 
 "Thật ngại quá, bữa này chúng tôi xin phép mời các anh. Phiền các anh..."
 

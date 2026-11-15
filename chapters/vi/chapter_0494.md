@@ -10,7 +10,7 @@ Quách Uyển Thanh lại vào thăm con gái.
 
 Khương Phức Hàm bước vào phòng, khẽ cất tiếng hỏi Triệu Kim An: "Kim An, em vẫn chưa sang nhìn Triệu Tri Hành và Triệu Tri Vi lần nào, sang ngắm hai đứa nhỏ một chút đi em."
 
-Triệu Trí Dũng và Vương Duy Đào ngồi túc trực ngoài hành lang, hai người ngồi bệt dưới đất.
+Triệu Chí Dũng và Vương Duy Đào ngồi túc trực ngoài hành lang, hai người ngồi bệt dưới đất.
 
 Đầu cúi gục xuống, im lặng không nói nửa lời.
 
@@ -40,7 +40,7 @@ Tiếng khóc nghẹn ngào vọng cả ra ngoài hành lang.
 
 Y tá vội bước vào nhắc nhở giữ trật tự.
 
-Bên ngoài hành lang, Triệu Trí Dũng và Vương Duy Đào ngồi bệt dưới sàn cũng lén quẹt nước mắt, bờ vai run lên bần bật theo từng tiếng nấc nghẹn.
+Bên ngoài hành lang, Triệu Chí Dũng và Vương Duy Đào ngồi bệt dưới sàn cũng lén quẹt nước mắt, bờ vai run lên bần bật theo từng tiếng nấc nghẹn.
 
 Y tá có nhắc nhở cũng vô ích, Vương Kim Như chẳng tài nào ngăn nổi dòng nước mắt tuôn rơi.
 

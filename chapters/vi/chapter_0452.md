@@ -24,7 +24,7 @@ Trương Tuệ và Trương Vân Thiến đưa mắt nhìn nhau, hoàn toàn kh�
 
 Trương Tuệ ngước lên nhìn góc nghiêng tuấn tú của chàng trai trẻ, môi mấp máy như muốn nói thêm điều gì nhưng lại thôi.
 
-Triệu Kim An vừa rảo bước vừa quan sát các dòng sản phẩm mẫu. Anh tự hỏi liệu mình có hỏi quá sớm hay không. Trong ký ức kiếp trước, Mộc Dao sau này đã kết hôn và có một cô con gái hai tuổi. Nhưng trong cuộc điện thoại cuối cùng ấy, Triệu Trí Dũng tuyệt nhiên không hề đả động gì đến từ "con lai".
+Triệu Kim An vừa rảo bước vừa quan sát các dòng sản phẩm mẫu. Anh tự hỏi liệu mình có hỏi quá sớm hay không. Trong ký ức kiếp trước, Mộc Dao sau này đã kết hôn và có một cô con gái hai tuổi. Nhưng trong cuộc điện thoại cuối cùng ấy, Triệu Chí Dũng tuyệt nhiên không hề đả động gì đến từ "con lai".
 
 "Dì nhỏ."
 
@@ -52,9 +52,9 @@ Du Phi càng ngơ ngác hơn cả anh. Chuyện này làm sao cô biết đượ
 
 Trần Thanh Trĩ thì không có "ẩn số" nào.
 
-Nhưng cuộc điện thoại cuối cùng của Triệu Trí Dũng ở kiếp trước luôn khiến Triệu Kim An day dứt không hiểu: vì sao Mộc Dao vừa về nước đã lập tức tìm đến anh, lại còn dẫn theo một đứa bé gái mới hai tuổi? Ngay cả Triệu Trí Dũng khi ấy cũng không tài nào hiểu nổi.
+Nhưng cuộc điện thoại cuối cùng của Triệu Chí Dũng ở kiếp trước luôn khiến Triệu Kim An day dứt không hiểu: vì sao Mộc Dao vừa về nước đã lập tức tìm đến anh, lại còn dẫn theo một đứa bé gái mới hai tuổi? Ngay cả Triệu Chí Dũng khi ấy cũng không tài nào hiểu nổi.
 
-Bao nhiêu năm làm bạn học thời cấp ba rồi cùng nhau trải qua thời thanh xuân, Mộc Dao đâu phải người có vấn đề về đầu óc. Cho dù lúc đó Triệu Kim An và Trần Thanh Trĩ đã ly hôn, anh cũng tuyệt đối không thể nào chấp nhận một đứa trẻ do Mộc Dao sinh ra với người đàn ông khác. Đạo lý đơn giản ấy, đến kẻ bộc trực như Triệu Trí Dũng còn thấu suốt.
+Bao nhiêu năm làm bạn học thời cấp ba rồi cùng nhau trải qua thời thanh xuân, Mộc Dao đâu phải người có vấn đề về đầu óc. Cho dù lúc đó Triệu Kim An và Trần Thanh Trĩ đã ly hôn, anh cũng tuyệt đối không thể nào chấp nhận một đứa trẻ do Mộc Dao sinh ra với người đàn ông khác. Đạo lý đơn giản ấy, đến kẻ bộc trực như Triệu Chí Dũng còn thấu suốt.
 
 Hơn nữa, mốc thời gian hoàn toàn không khớp.
 

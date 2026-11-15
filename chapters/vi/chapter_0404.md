@@ -1,12 +1,12 @@
 # Chương 404: Không đánh nữa.
 
-Triệu Trí Dũng liếc nhìn bố mẹ mình đang cười nói rôm rả với bà con lối xóm, bất giác rùng mình ớn lạnh một cái. Đám cưới của Triệu Hữu Tài bị người ta trêu là "trâu già gặm cỏ non", còn mình nếu cưới Trịnh Như thì dân làng sau lưng sẽ xì xào bàn tán tới mức nào nữa?
+Triệu Chí Dũng liếc nhìn bố mẹ mình đang cười nói rôm rả với bà con lối xóm, bất giác rùng mình ớn lạnh một cái. Đám cưới của Triệu Hữu Tài bị người ta trêu là "trâu già gặm cỏ non", còn mình nếu cưới Trịnh Như thì dân làng sau lưng sẽ xì xào bàn tán tới mức nào nữa?
 
-Triệu Kim An đưa tay vỗ vỗ vai Triệu Trí Dũng: "Đã tính kỹ xem làm cách nào để trộm sổ hộ khẩu ra chưa?"
+Triệu Kim An đưa tay vỗ vỗ vai Triệu Chí Dũng: "Đã tính kỹ xem làm cách nào để trộm sổ hộ khẩu ra chưa?"
 
 "..."
 
-Triệu Trí Dũng thoáng ngớ người: "Kim An, mày... mày đang xúi bẩy tao đấy à?"
+Triệu Chí Dũng thoáng ngớ người: "Kim An, mày... mày đang xúi bẩy tao đấy à?"
 
 "Làm gì có!"
 
@@ -14,7 +14,7 @@ Triệu Kim An kiên quyết chối bay chối biến: "Mày đừng có hòng b
 
 "..."
 
-Triệu Trí Dũng bán tín bán nghi, nhưng ngẫm đi nghĩ lại thấy đây quả thực là một diệu kế. Cứ lén đi đăng ký kết hôn xong xuôi, ván đã đóng thuyền rồi thì bố mẹ chẳng lẽ lại ép mình với Trịnh Như ly hôn hay sao? Lúc đó thì mình cũng thành kẻ mang tiếng hai đời vợ như Triệu Hữu Tài rồi còn đâu.
+Triệu Chí Dũng bán tín bán nghi, nhưng ngẫm đi nghĩ lại thấy đây quả thực là một diệu kế. Cứ lén đi đăng ký kết hôn xong xuôi, ván đã đóng thuyền rồi thì bố mẹ chẳng lẽ lại ép mình với Trịnh Như ly hôn hay sao? Lúc đó thì mình cũng thành kẻ mang tiếng hai đời vợ như Triệu Hữu Tài rồi còn đâu.
 
 Thằng Kim An này thông minh thật, đúng là thông minh tuyệt đỉnh!
 

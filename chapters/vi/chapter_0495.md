@@ -72,7 +72,7 @@ Thế nhưng Trăn Hối Tuyển và Cảng vụ Hoàn Vũ lại có quá nhiề
 
 Lạc Cẩn Chi từng lặn lội bay ra Bắc Kinh một chuyến, tìm đến tận bệnh viện nhưng không thể gặp được Triệu Kim An.
 
-Dưới sảnh bệnh viện, cô bị Đan Vĩ và Chu Hoa Phong cản bước. Du Phi đi xuống nói nhỏ: "Lạc tổng, Triệu tổng không muốn gặp bất kỳ ai."
+Dưới sảnh bệnh viện, cô bị Đan Vĩ và Chu Phong Hoa cản bước. Du Phi đi xuống nói nhỏ: "Lạc tổng, Triệu tổng không muốn gặp bất kỳ ai."
 
 Lạc Cẩn Chi không hề nổi giận, chỉ nghiêm giọng hỏi: "Cậu ấy không cần công ty nữa sao?"
 

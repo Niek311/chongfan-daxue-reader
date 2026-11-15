@@ -150,7 +150,7 @@ Chỉ trong chốc lát, đã có tới gần một nửa số ngôi sao giải 
 
 Đây gần như là nhận định chung không cần bàn cãi của các ông trùm thương trường. Mọi dấu hiệu đều đã quá rõ ràng.
 
-Trần Trạch và Lưu S闯 Phong thì chưa đủ tầm để xếp vào hàng ngũ đại lão kinh doanh, đầu óc đương nhiên không nhảy số nhanh đến thế. Trông thấy bài đăng Weibo của Triệu Kim An, hai người họ chỉ ngây thơ nghĩ rằng chắc Kim An vừa gọi một suất cơm hộp rồi tiện tay chụp choẹt đăng lên dòng thời gian khoe bạn bè mà thôi.
+Trần Trạch và Lưu Sấm Phong thì chưa đủ tầm để xếp vào hàng ngũ đại lão kinh doanh, đầu óc đương nhiên không nhảy số nhanh đến thế. Trông thấy bài đăng Weibo của Triệu Kim An, hai người họ chỉ ngây thơ nghĩ rằng chắc Kim An vừa gọi một suất cơm hộp rồi tiện tay chụp choẹt đăng lên dòng thời gian khoe bạn bè mà thôi.
 
 Chẳng khác gì đăng một tấm ảnh lên Khoảnh khắc WeChat.
 

@@ -1,6 +1,6 @@
 # Chương 460: Hận rất công bằng
 
-Triệu Bác Lan và Triệu Trí Dũng đến thăm, Trịnh Như dắt theo cả bé Triệu Niệm Khả.
+Triệu Bác Lan và Triệu Chí Dũng đến thăm, Trịnh Như dắt theo cả bé Triệu Niệm Khả.
 
 Chuyến đi này là việc bắt buộc phải đến.
 
@@ -10,19 +10,19 @@ Triệu Kim An vô cùng coi trọng, nâng niu hết mực, đứa con đầu l
 
 "Tri Nặc, Tri Nặc ơi?"
 
-Cả đám người chen chúc đứng đầy trong phòng ngủ, Triệu Trí Dũng và Triệu Bác Lan cười toe toét cất tiếng gọi nựng đứa bé.
+Cả đám người chen chúc đứng đầy trong phòng ngủ, Triệu Chí Dũng và Triệu Bác Lan cười toe toét cất tiếng gọi nựng đứa bé.
 
 Triệu Kim An quay phắt sang trừng mắt nhìn bọn họ: "Gọi lại mau!"
 
 "..."
 
-Triệu Trí Dũng há hốc mồm: "Kim An, chẳng lẽ mày bắt tụi tao phải gọi cái Tri Nặc là em gái xưng anh chắc?"
+Triệu Chí Dũng há hốc mồm: "Kim An, chẳng lẽ mày bắt tụi tao phải gọi cái Tri Nặc là em gái xưng anh chắc?"
 
 Từ Mạn Mạn vừa lúi húi lắc bình sữa vừa đảo tròn tròng mắt, cái vẻ mặt như thể vừa phát hiện ra chuyện gì buồn cười và thú vị lắm.
 
 "..."
 
-Triệu Trí Dũng mặt mày méo xệch vẻ khó xử: "Cái Tri Nặc còn đỏ hỏn, bé tí teo thế kia cơ mà."
+Triệu Chí Dũng mặt mày méo xệch vẻ khó xử: "Cái Tri Nặc còn đỏ hỏn, bé tí teo thế kia cơ mà."
 
 Triệu Bác Lan ngồi thụp xuống bên mép nôi khẽ nựng má bé Triệu Tri Nặc, rồi cùng Trịnh Như lén lút nhét một phong bao lì xì đỏ chót vào dưới gối em bé.
 

@@ -8,19 +8,19 @@ Nước ép hoa quả, rượu vang đỏ, cùng những lon nước tăng lực
 
 Từ Mạn Mạn và Phùng Vũ Lam đánh bạo gắp một đũa thịt chuột nứa rừng, sau khi đưa vào miệng nhai kỹ liền không tiếc lời khen ngợi.
 
-Tay nghề nấu nướng của cả Triệu Trí Dũng lẫn Trịnh Như đều thuộc hàng cự phách. Trịnh Như còn chu đáo ép riêng cho bé Triệu Tri Nặc và Triệu Niệm Khả hai ly nước hoa quả tươi nguyên chất. Đây vốn là thói quen khắt khe của Từ Mạn Mạn, bé Triệu Tri Nặc từ nhỏ chỉ được phép uống nước trái cây tươi tự ép mà thôi.
+Tay nghề nấu nướng của cả Triệu Chí Dũng lẫn Trịnh Như đều thuộc hàng cự phách. Trịnh Như còn chu đáo ép riêng cho bé Triệu Tri Nặc và Triệu Niệm Khả hai ly nước hoa quả tươi nguyên chất. Đây vốn là thói quen khắt khe của Từ Mạn Mạn, bé Triệu Tri Nặc từ nhỏ chỉ được phép uống nước trái cây tươi tự ép mà thôi.
 
-Vương Duy Đào và Triệu Trí Dũng là hai người bạn thân thiết nhất của Triệu Kim An, dẫu là kiếp trước hay kiếp này vẫn vẹn nguyên như vậy.
+Vương Duy Đào và Triệu Chí Dũng là hai người bạn thân thiết nhất của Triệu Kim An, dẫu là kiếp trước hay kiếp này vẫn vẹn nguyên như vậy.
 
-Triệu Trí Dũng khẽ ghé tai nói với Triệu Kim An rằng Triệu Bác Lan và Du Phi đã ghé qua chơi, rồi còn thì thầm báo thêm: Mộc Dao cũng nhờ Du Phi gửi một phong bao lì xì sáu trăm tệ chúc mừng.
+Triệu Chí Dũng khẽ ghé tai nói với Triệu Kim An rằng Triệu Bác Lan và Du Phi đã ghé qua chơi, rồi còn thì thầm báo thêm: Mộc Dao cũng nhờ Du Phi gửi một phong bao lì xì sáu trăm tệ chúc mừng.
 
-Triệu Kim An vỗ nhẹ lên vai Triệu Trí Dũng, hỏi cậu tính khi nào thì thưa chuyện với bố mẹ dưới quê.
+Triệu Kim An vỗ nhẹ lên vai Triệu Chí Dũng, hỏi cậu tính khi nào thì thưa chuyện với bố mẹ dưới quê.
 
-Triệu Trí Dũng gãi đầu bảo Trịnh Như đang bồi bổ chuẩn bị mang thai, hễ có tin vui là sẽ lập tức dẫn về quê ra mắt người lớn.
+Triệu Chí Dũng gãi đầu bảo Trịnh Như đang bồi bổ chuẩn bị mang thai, hễ có tin vui là sẽ lập tức dẫn về quê ra mắt người lớn.
 
-Triệu Kim An khẽ gật đầu, nhìn người bạn nối khố quanh năm suốt tháng chẳng biết lười biếng là gì. Kiếp trước, chính thằng bạn này là người khuyên anh nên hàn gắn, tái hôn với Trần Thanh Trĩ; còn "người vợ kiếp trước" của Triệu Trí Dũng giờ này chẳng biết đang phiêu dạt phương trời nào.
+Triệu Kim An khẽ gật đầu, nhìn người bạn nối khố quanh năm suốt tháng chẳng biết lười biếng là gì. Kiếp trước, chính thằng bạn này là người khuyên anh nên hàn gắn, tái hôn với Trần Thanh Trĩ; còn "người vợ kiếp trước" của Triệu Chí Dũng giờ này chẳng biết đang phiêu dạt phương trời nào.
 
-Có lẽ ở kiếp sống này, Triệu Trí Dũng sẽ vĩnh viễn không còn gặp lại "người ấy" nữa.
+Có lẽ ở kiếp sống này, Triệu Chí Dũng sẽ vĩnh viễn không còn gặp lại "người ấy" nữa.
 
 Thấy thằng bạn thân tìm được niềm vui trọn vẹn bên cạnh Trịnh Như, tình cảm đôi lứa sắt son hòa thuận, Triệu Kim An phá lệ chủ động nâng ly rượu lên chúc phúc cho bạn mình.
 

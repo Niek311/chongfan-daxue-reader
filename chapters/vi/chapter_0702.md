@@ -54,7 +54,7 @@ Ngập ngừng trong giây lát, Quách Uyển Thanh bước lên phía trước
 
 "Bà nội thằng bé còn tự tay làm bánh giầy gửi từ dưới quê lên cho hai đứa nhỏ nữa đấy..."
 
-Phía ngoài cổng khu đại viện gia quyến, Lý Tân, Chu Hoa Phong và Đan Vĩ cùng hai chiếc xe chuyên dụng đã túc trực chờ sẵn từ sớm.
+Phía ngoài cổng khu đại viện gia quyến, Lý Tân, Chu Phong Hoa và Đan Vĩ cùng hai chiếc xe chuyên dụng đã túc trực chờ sẵn từ sớm.
 
 Những người lính cảnh vệ đứng gác tại cổng doanh trại đều biết rõ vị Triệu tổng khét tiếng của đất Quận Sa vừa tới thăm nhà họ Tô ở Kinh Đô.
 
@@ -74,7 +74,7 @@ Từng bước chân hằn sâu trên nền tuyết trắng xóa, Triệu Kim An
 
 Anh đã thong thả tản bộ suốt hai mươi phút đồng hồ.
 
-Chu Hoa Phong nhanh nhẹn bước tới mở toang cửa xe, đứng nghiêm trang sang một bên: "Triệu tổng."
+Chu Phong Hoa nhanh nhẹn bước tới mở toang cửa xe, đứng nghiêm trang sang một bên: "Triệu tổng."
 
 Triệu Kim An khom người chui vào khoang xe ấm áp, khẽ khép chặt vạt áo khoác dạ: "Đi thôi."
 

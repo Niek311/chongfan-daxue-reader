@@ -160,7 +160,7 @@ Ngoài hành lang vang lên tiếng gào thét thất thanh của Bao Uyển Nh�
 
 "Ông chủ! Ông chủ ơi!"
 
-Nhóm người Đan Vĩ và Chu Hoa Phong bò lê bò càng xông tới trước cửa phòng anh. Thuở ở trong quân ngũ họ từng lái xe tăng tung hoành trận địa chứ đời nào đã nếm trải mùi vị đi tàu biển bão bùng thế này bao giờ!
+Nhóm người Đan Vĩ và Chu Phong Hoa bò lê bò càng xông tới trước cửa phòng anh. Thuở ở trong quân ngũ họ từng lái xe tăng tung hoành trận địa chứ đời nào đã nếm trải mùi vị đi tàu biển bão bùng thế này bao giờ!
 
 Triệu Kim An gạt chốt đẩy cửa bước ra ngoài, ánh mắt vẫn rực sáng muốn chiêm ngưỡng những ngọn sóng thần đang gầm thét ngoài khơi xa.
 

@@ -54,7 +54,7 @@ Nhìn Triệu Kim An gần như phát tiết điên cuồng giật đứt từng
 
 "Ông chủ."
 
-Chu Hoa Phong chẳng biết từ lúc nào đã tiến lại gần, trong tay rút ra một con dao găm sắc lẹm đưa tới. Triệu Kim An giật lấy con dao, cắt đứt phăng những sợi dây đai còn sót lại rồi quẳng mạnh xuống đất, điên cuồng vung dao chém lia lịa!
+Chu Phong Hoa chẳng biết từ lúc nào đã tiến lại gần, trong tay rút ra một con dao găm sắc lẹm đưa tới. Triệu Kim An giật lấy con dao, cắt đứt phăng những sợi dây đai còn sót lại rồi quẳng mạnh xuống đất, điên cuồng vung dao chém lia lịa!
 
 Chát! Chát! Chát!
 
@@ -80,7 +80,7 @@ Quách Uyển Thanh dịu dàng đưa tay che mắt hai đứa nhỏ lại. Gi�
 
 Nếu chỉ nhìn thấu được một tầng nông cạn bên ngoài, Quách Uyển Thanh đã chẳng đủ bản lĩnh để ngồi vững ở vị trí phu nhân của Tô Minh Tùng ngần ấy năm trời.
 
-Triệu Kim An xoay ngược chuôi dao đưa trả lại, cúi đầu hít một hơi thật sâu để điều chỉnh lại cảm xúc hỗn loạn. Chu Hoa Phong nhận lấy con dao, giấu biến đi trong nháy mắt như thể chưa từng có chuyện gì xảy ra.
+Triệu Kim An xoay ngược chuôi dao đưa trả lại, cúi đầu hít một hơi thật sâu để điều chỉnh lại cảm xúc hỗn loạn. Chu Phong Hoa nhận lấy con dao, giấu biến đi trong nháy mắt như thể chưa từng có chuyện gì xảy ra.
 
 Đứng ở vòng ngoài, Đan Vĩ và Lý Tân cũng giữ nét mặt thản nhiên như không.
 

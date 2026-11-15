@@ -2,7 +2,7 @@
 
 "Trần Trạch, bạn học của con đấy à?"
 
-Bà Dương Xu Mỹ ghé tai con trai khẽ cất tiếng hỏi.
+Bà Dương Thù Mỹ ghé tai con trai khẽ cất tiếng hỏi.
 
 "Dạ..."
 
@@ -20,13 +20,13 @@ Trần Trạch bước lại gần, nở nụ cười rạng rỡ:
 
 Đó hoàn toàn là lời nói thật lòng.
 
-Mộc Dao thay đổi quá nhiều, từ phong thái, khí chất cho tới cung cách ăn mặc thường ngày. Kiểu tóc đuôi ngựa buộc cao vốn dĩ không phải phong cách quen thuộc của cô trước đây. Cô khẽ mỉm cười chào Trần Trạch một tiếng lấy lệ, rồi quay sang gật đầu với Dương Xu Mỹ:
+Mộc Dao thay đổi quá nhiều, từ phong thái, khí chất cho tới cung cách ăn mặc thường ngày. Kiểu tóc đuôi ngựa buộc cao vốn dĩ không phải phong cách quen thuộc của cô trước đây. Cô khẽ mỉm cười chào Trần Trạch một tiếng lấy lệ, rồi quay sang gật đầu với Dương Thù Mỹ:
 
 "Dì, cháu chào dì ạ."
 
 "Ừ, chào cháu."
 
-Dương Xu Mỹ đưa mắt săm soi đánh giá Mộc Dao từ đầu đến chân:
+Dương Thù Mỹ đưa mắt săm soi đánh giá Mộc Dao từ đầu đến chân:
 
 "Sao cháu lại ở tận Dương Châu thế này?"
 
@@ -56,9 +56,9 @@ Mộc Dao khẽ mỉm cười gật đầu:
 
 "Vâng."
 
-Trần Trạch hào hứng muốn bắt chuyện thêm, nhưng Mộc Dao thì chẳng mảy may có hứng thú tiếp lời. Cô khẽ mỉm cười gật đầu chào Dương Xu Mỹ một tiếng, rồi quay người rảo bước đi tìm một hàng ghế trống cách đó không xa ngồi xuống.
+Trần Trạch hào hứng muốn bắt chuyện thêm, nhưng Mộc Dao thì chẳng mảy may có hứng thú tiếp lời. Cô khẽ mỉm cười gật đầu chào Dương Thù Mỹ một tiếng, rồi quay người rảo bước đi tìm một hàng ghế trống cách đó không xa ngồi xuống.
 
-"Con bé không vào công ty của Kim An làm việc à?" Dương Xu Mỹ lộ rõ vẻ ngạc nhiên thắc mắc.
+"Con bé không vào công ty của Kim An làm việc à?" Dương Thù Mỹ lộ rõ vẻ ngạc nhiên thắc mắc.
 
 "..."
 
@@ -68,7 +68,7 @@ Trần Trạch mấp máy môi:
 
 Cậu ta luôn cảm thấy cách xưng hô của mẹ mình đối với Triệu Kim An dạo này có phần thân thiết quá mức cần thiết.
 
-Dương Xu Mỹ liếc nhìn con trai một cái rồi buông một câu:
+Dương Thù Mỹ liếc nhìn con trai một cái rồi buông một câu:
 
 "Con bé trông xinh xắn, đĩnh đạc ra phết đấy."
 
@@ -80,13 +80,13 @@ Một lát sau, bà lại thở dài nói thêm:
 
 Trần Trạch cứng họng không biết đối đáp làm sao. Đúng thật, có Từ Mạn Mạn và Lâm Thanh Tuyết đứng ở phía trước làm chuẩn mực, thử hỏi điều kiện như Lâm Thanh Tuyết: hoa khôi của lớp, sinh viên đại học trọng điểm thuộc dự án 211, lại có năng lực quản lý công việc xuất sắc, đã vượt trội hơn khối người ngoài xã hội rồi.
 
-Năng lực làm việc của Lâm Thanh Tuyết đã được chính Dương Xu Mỹ gật đầu thừa nhận.
+Năng lực làm việc của Lâm Thanh Tuyết đã được chính Dương Thù Mỹ gật đầu thừa nhận.
 
-Xưởng may Tinh Sa vốn dĩ thuộc quyền sở hữu của Dương Xu Mỹ, công nhân bên trong phần lớn đều là người làm cũ của bà, tình hình sản xuất và lợi nhuận ra sao bà chỉ cần nhấc máy hỏi thăm một câu là nắm rõ như lòng bàn tay.
+Xưởng may Tinh Sa vốn dĩ thuộc quyền sở hữu của Dương Thù Mỹ, công nhân bên trong phần lớn đều là người làm cũ của bà, tình hình sản xuất và lợi nhuận ra sao bà chỉ cần nhấc máy hỏi thăm một câu là nắm rõ như lòng bàn tay.
 
 Bà cũng từng đích thân lướt xem số liệu đơn hàng và đánh giá của khách trên mấy gian hàng trực tuyến do Lâm Thanh Tuyết vận hành.
 
-Kinh tế toàn cầu chưa hoàn toàn hồi phục, Dương Xu Mỹ từng nhen nhóm ý định chuyển dịch từ thị trường xuất khẩu sang tiêu thụ nội địa. Ngặt nỗi vì rào cản tuổi tác nên tư duy của bà có phần bị xơ cứng, bảo Trần Trạch tập trung học hỏi phụ giúp thì tính khí cậu ta lại quá ham chơi bời lêu lổng.
+Kinh tế toàn cầu chưa hoàn toàn hồi phục, Dương Thù Mỹ từng nhen nhóm ý định chuyển dịch từ thị trường xuất khẩu sang tiêu thụ nội địa. Ngặt nỗi vì rào cản tuổi tác nên tư duy của bà có phần bị xơ cứng, bảo Trần Trạch tập trung học hỏi phụ giúp thì tính khí cậu ta lại quá ham chơi bời lêu lổng.
 
 Thêm vào đó, mảng bán hàng trên Taobao bây giờ cạnh tranh khốc liệt hơn nhiều, đâu còn dễ hái ra tiền như thời điểm Lưu Sấm Phong mới chập chững bước vào hai năm trước nữa.
 
@@ -104,9 +104,9 @@ Còn bây giờ... ngay đến một kẻ keo kiệt như Lưu Sấm Phong cũng
 
 Con người ta ai rồi cũng phải đổi thay.
 
-Chẳng biết tận đáy lòng Mộc Dao có từng cảm thấy ân hận hay không. Trước kia cô từng vô cùng ghen tị với Từ Mạn Mạn vì có được một người bạn trai giàu sang như Trần Trạch, vậy mà giờ đây bản thân cô đã trở thành Trần Trạch của ngày đó, à không, phải nói là cô đã vươn lên thành một bà chủ như Dương Xu Mỹ mới đúng.
+Chẳng biết tận đáy lòng Mộc Dao có từng cảm thấy ân hận hay không. Trước kia cô từng vô cùng ghen tị với Từ Mạn Mạn vì có được một người bạn trai giàu sang như Trần Trạch, vậy mà giờ đây bản thân cô đã trở thành Trần Trạch của ngày đó, à không, phải nói là cô đã vươn lên thành một bà chủ như Dương Thù Mỹ mới đúng.
 
-Lâm Thanh Tuyết cũng đã tự biến mình thành một phiên bản Dương Xu Mỹ thứ hai.
+Lâm Thanh Tuyết cũng đã tự biến mình thành một phiên bản Dương Thù Mỹ thứ hai.
 
 Chỉ còn Lưu Sấm Phong, Phương Khiết và Cốc Siêu Thừa là vẫn chưa có xưởng sản xuất của riêng mình.
 

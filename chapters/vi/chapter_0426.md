@@ -90,7 +90,7 @@ Chiếc xe không dừng lại.
 
 Mộc Dao từ từ áp má vào khung cửa kính, tựa đầu nhìn ra ngoài. Xe chầm chậm lướt qua cổng trường thân thương, lướt qua trạm xe buýt cũ kỹ ven đường. Những năm tháng học sinh nội trú cấp ba, mỗi tháng chỉ được nghỉ phép về nhà một lần, Triệu Kim An ngày ấy cứ luôn đứng lặng lẽ ở trạm này để đón chuyến xe buýt trở về thôn Triệu Gia.
 
-Triệu Trí Dũng thì dung mạo bình thường, còn Triệu Kim An đứng chờ xe ở trạm lúc nào cũng thu hút bao ánh nhìn trộm của các cô nữ sinh. Thậm chí có những cô bạn dù hoàn toàn ngược đường vẫn cứ cố tình chen lên xe buýt đi cùng Triệu Kim An vài trạm rồi mới chịu xuống.
+Triệu Chí Dũng thì dung mạo bình thường, còn Triệu Kim An đứng chờ xe ở trạm lúc nào cũng thu hút bao ánh nhìn trộm của các cô nữ sinh. Thậm chí có những cô bạn dù hoàn toàn ngược đường vẫn cứ cố tình chen lên xe buýt đi cùng Triệu Kim An vài trạm rồi mới chịu xuống.
 
 "Kim An, cậu đúng là một khúc gỗ ngốc nghếch... Lúc nào cũng chỉ biết cúi gằm mặt, hễ ngẩng đầu lên là lại cười với người ta."
 

@@ -40,7 +40,7 @@ Lâm Thanh Tuyết không hề giấu giếm. Vấn đề cốt lõi không ph�
 
 Kỳ thực, đợt này Tập đoàn Cảng vụ Hoàn Vũ cũng chẳng tung ra mấy vị trí tuyển dụng. Từ Mạn Mạn từng phân tích rất rành mạch: "Người của trường Sư phạm ở công ty các anh hiện giờ đã quá đông rồi, rất dễ dẫn đến tình trạng kéo bè kết phái bài xích người từ các trường khác, điều đó hoàn toàn bất lợi cho sự phát triển dài hạn của tập đoàn."
 
-Tốt nhất là nên tuyển thêm người từ Đại học Hồ Nam, Đại học Trung Nam và các trường đại học lớn ở các tỉnh ngoài.
+Tốt nhất là nên tuyển thêm người từ Đại học Tương Nam, Đại học Trung Nam và các trường đại học lớn ở các tỉnh ngoài.
 
 Quyết định này không hề mang hàm ý nhắm vào Đường Hiểu Tình hay Lý Ngải Lan, dẫu cho nhóm nhân viên xuất thân từ trường Sư phạm khi bước chân vào tập đoàn hầu như đều lấy Đường Hiểu Tình làm hạt nhân nòng cốt.
 

@@ -42,7 +42,7 @@ Kỳ thực Lưu Sấm Phong cũng chẳng có bụng dạ muốn nuốt trọn 
 
 Từ Mạn Mạn thì khỏi cần phải bàn tới làm gì.
 
-Thương hiệu "Ba Chú Gấu Mèo" của Thẩm Tử Ngôn đã rầm rộ tiến tới vòng gọi vốn Series B.
+Thương hiệu "Ba Chú Gấu Trúc" của Thẩm Tử Ngôn đã rầm rộ tiến tới vòng gọi vốn Series B.
 
 Trần Trạch có trong tay Địa ốc Trạch Vũ, tiền đồ xán lạn hơn hẳn cái chốn Đăng Phong Tạo Cực phức tạp này.
 

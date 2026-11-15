@@ -172,7 +172,7 @@ Bản thân Lưu Mạn Lệ cũng mở quán bar kinh doanh bao năm, mọi ngó
 
 "Duy chỉ có con bé Mộc Dao này... là bình phàm nhất, tính cách giống một cô thiếu nữ nhỏ nhắn bình thường nhất. Nhưng mà nói đi cũng phải nói lại, nó cũng chẳng tầm thường đâu, dám vung dao đâm người cơ mà, việc kinh doanh riêng cũng coi như có chút thành tựu bước đầu."
 
-"Thế nhưng... đó cũng đã là cực hạn tột cùng của Mộc Dao rồi. Con bé Tử Ngôn có thể sát cánh kề vai cùng Kim An gầy dựng nên một đế chế Trăn Nhiên lừng lẫy, rồi tự mình quay về đất Tô Thành sáng lập nên Ba Chú Gấu Mèo đưa lên sàn chứng khoán rung chuông. Còn Mộc Dao thì cùng lắm cũng chỉ dừng lại ở tầm mức này mà thôi."
+"Thế nhưng... đó cũng đã là cực hạn tột cùng của Mộc Dao rồi. Con bé Tử Ngôn có thể sát cánh kề vai cùng Kim An gầy dựng nên một đế chế Trăn Nhiên lừng lẫy, rồi tự mình quay về đất Tô Thành sáng lập nên Ba Chú Gấu Trúc đưa lên sàn chứng khoán rung chuông. Còn Mộc Dao thì cùng lắm cũng chỉ dừng lại ở tầm mức này mà thôi."
 
 "Vài ba cái gian hàng bán lẻ trên mạng, một xưởng sản xuất gia công nho nhỏ, đó chính là 'giới hạn trần' trong cuộc đời của con bé rồi."
 

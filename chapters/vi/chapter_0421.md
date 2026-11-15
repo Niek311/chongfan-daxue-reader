@@ -178,7 +178,7 @@ Từ Mạn Mạn bật cười khúc khích.
 
 "Hồi nghỉ hè anh với bà nội bày sạp dưa hấu bán ở ven đường lộ... kiếm được nhiều tiền không anh?"
 
-"Hôm nào khấm khá nhất thì vặt lông được của chị Cẩn Chi mấy trăm tệ. Chị ấy lái hẳn con Land Rover đến mở hàng, vừa tới nơi thì Triệu Trí Dũng đòi mua bao thuốc lá, con bé Thiên Thiên nằng nặc đòi que kem, sạp còn chưa kịp khai trương đã phải bổ phăng một quả dưa hấu ra ăn trước rồi..."
+"Hôm nào khấm khá nhất thì vặt lông được của chị Cẩn Chi mấy trăm tệ. Chị ấy lái hẳn con Land Rover đến mở hàng, vừa tới nơi thì Triệu Chí Dũng đòi mua bao thuốc lá, con bé Thiên Thiên nằng nặc đòi que kem, sạp còn chưa kịp khai trương đã phải bổ phăng một quả dưa hấu ra ăn trước rồi..."
 
 Từ Mạn Mạn lắng tai nghe từng lời anh kể một cách chăm chú, khóe môi lại nở một nụ cười rạng rỡ.
 

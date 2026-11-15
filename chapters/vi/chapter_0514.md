@@ -150,7 +150,7 @@ Ngoài ra còn có thêm một nhân vật nữa, chính là Đàm Tử Kiều.
 
 Năm xưa, cô gái này từng giúp Triệu Kim An làm thủ tục đăng ký một công ty bình phong tại Hương Cảng.
 
-Mãi cho tới tận thời gian gần đây, cô mới bàng hoàng vỡ lẽ ra rằng chàng nam sinh trẻ tuổi năm ấy từng tìm đến mình nhờ đổi một món tiền đô la Mỹ chính là vị Triệu tổng lừng lẫy, quyền uy khét tiếng ở Quận Sa. Cô chưa từng một lần đặt chân tới Quận Sa, trong trí nhớ của cô chỉ mơ hồ biết rằng đó là thủ phủ của tỉnh Hồ Nam.
+Mãi cho tới tận thời gian gần đây, cô mới bàng hoàng vỡ lẽ ra rằng chàng nam sinh trẻ tuổi năm ấy từng tìm đến mình nhờ đổi một món tiền đô la Mỹ chính là vị Triệu tổng lừng lẫy, quyền uy khét tiếng ở Quận Sa. Cô chưa từng một lần đặt chân tới Quận Sa, trong trí nhớ của cô chỉ mơ hồ biết rằng đó là thủ phủ của tỉnh Tương Nam.
 
 Thế nhưng tại sao suốt mấy tháng ròng rã vừa qua, số điện thoại của anh ta luôn trong tình trạng tò te tí không thể nào liên lạc nổi?
 

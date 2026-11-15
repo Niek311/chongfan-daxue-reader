@@ -4,7 +4,7 @@ Diêu Sân đã mua nhà ở Quận Sa, còn Mộc Dao thì chưa.
 
 Diêu Sân từng nhắn tin hỏi Mộc Dao, khi ấy Mộc Dao quả quyết bảo sẽ không trở lại Quận Sa nữa.
 
-Kiếp trước Mộc Dao cũng chưa từng mua nhà ở Quận Sa. Cô có tiền, chỉ là không mua, sang nước H cho đến tận khi Triệu Trí Dũng gọi một cuộc điện thoại, cô mới ly hôn rồi dắt theo đứa con gái hai tuổi trở về nước.
+Kiếp trước Mộc Dao cũng chưa từng mua nhà ở Quận Sa. Cô có tiền, chỉ là không mua, sang nước H cho đến tận khi Triệu Chí Dũng gọi một cuộc điện thoại, cô mới ly hôn rồi dắt theo đứa con gái hai tuổi trở về nước.
 
 Lần này, Mộc Dao về nước và chọn dừng chân tại Khách sạn Quốc tế Hoàn Vũ Bồ Đề.
 
@@ -74,7 +74,7 @@ Trong thâm tâm Lý Ngải Lan, cô nàng tự xếp mình ở vị trí "cô b
 
 Chính Lý Ngải Lan từng nói với Mộc Dao một câu: "Một người yêu cũ đạt chuẩn thì nên im hơi lặng tiếng như thể đã 'chết' rồi vậy."
 
-"Chuẩn bị một phần đồ ăn khuya thật tinh tế mang lên phòng cho cô ấy. À phải rồi, cô ấy là người Hồ Nam, ăn được cay đấy."
+"Chuẩn bị một phần đồ ăn khuya thật tinh tế mang lên phòng cho cô ấy. À phải rồi, cô ấy là người Tương Nam, ăn được cay đấy."
 
 Xuất phát từ sự chuyên nghiệp trong công việc, Lý Ngải Lan cất tiếng dặn dò nhân viên cấp dưới. Giờ đây cô nàng thậm chí còn bập bẹ nói được vài câu tiếng Pháp và tiếng Ả Rập bồi.
 
@@ -88,7 +88,7 @@ Lý Ngải Lan chẳng biết là ngốc nghếch thật hay khôn lỏi giả v
 
 'Chỉ cần mình mặt dày mày dạn, biết co biết duỗi, không ôm cái lòng tự tôn cao ngất ngưởng như bọn họ, thì người thắng cuộc sau cùng chắc chắn là mình rồi.'
 
-Về đến phòng, Mộc Dao châm một điếu Hoàng Phù Dung. Thứ thuốc lá đặc trưng của đất Hồ Nam này hoàn toàn không thể mua được ở bên nước H.
+Về đến phòng, Mộc Dao châm một điếu Hoàng Phù Dung. Thứ thuốc lá đặc trưng của đất Tương Nam này hoàn toàn không thể mua được ở bên nước H.
 
 Cô đứng lặng bên khung cửa sổ sát đất nhìn ra xa, đăm đăm ngắm nhìn ánh đèn neon rực rỡ muôn màu của màn đêm Quận Sa.
 

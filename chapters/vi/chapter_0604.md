@@ -78,7 +78,7 @@ Dù chưa cầm trên tay tờ giấy đăng ký kết hôn, nhưng Từ Mạn M
 
 Thẩm Tử Ngôn cũng chẳng chịu kém cạnh. Dẫu chưa có danh phận gì, nhưng lần đầu tiên đến thăm nhà cũng nên mua chút quà biếu.
 
-"Này, bốn món đặc sản nổi tiếng của Hồ Nam ấy, cá Đông Giang, vịt Lâm Vũ... hình như hồi mới nhập học năm nhất, mẹ của Dao Dao đến phòng ký túc xá chúng ta có bảo mấy món này hơi đắt, đều là đặc sản nức tiếng của vùng các cậu."
+"Này, bốn món đặc sản nổi tiếng của Tương Nam ấy, cá Đông Giang, vịt Lâm Vũ... hình như hồi mới nhập học năm nhất, mẹ của Dao Dao đến phòng ký túc xá chúng ta có bảo mấy món này hơi đắt, đều là đặc sản nức tiếng của vùng các cậu."
 
 "Không cần phải mua đâu, bà ấy không có ở nhà, đang ở sạp đồ nướng rồi."
 
@@ -194,7 +194,7 @@ Từ Mạn Mạn không thể chờ đợi thêm một giây nào nữa, dứt k
 
 Thẩm Tử Ngôn cũng lập tức bước theo sát ngay sau lưng.
 
-Cùng bước xuống xe còn có Đan Vĩ, Lý Tân và Chu Hoa Phong. Dáng vẻ của ba người bọn họ quá đỗi ra dáng những tay tài xế kiêm vệ sĩ chuyên nghiệp, đứng sừng sững bên cạnh xe, hoàn toàn tách biệt, chẳng hề giống những người bạn bè rủ nhau đi ăn đêm cùng Từ Mạn Mạn và Thẩm Tử Ngôn.
+Cùng bước xuống xe còn có Đan Vĩ, Lý Tân và Chu Phong Hoa. Dáng vẻ của ba người bọn họ quá đỗi ra dáng những tay tài xế kiêm vệ sĩ chuyên nghiệp, đứng sừng sững bên cạnh xe, hoàn toàn tách biệt, chẳng hề giống những người bạn bè rủ nhau đi ăn đêm cùng Từ Mạn Mạn và Thẩm Tử Ngôn.
 
 Khoan hãy nói đến chuyện Từ Mạn Mạn là Phó Tổng giám đốc của Tập đoàn Hoàn Vũ, bản thân Thẩm Tử Ngôn cũng chính là Thẩm tổng quyền uy của Thẩm thị.
 

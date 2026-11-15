@@ -114,13 +114,13 @@ Tô Mặc thức thời đẩy xe lăn của Tô Miến ra xa một chút. Cả 
 
 Quận Sa.
 
-Triệu Trí Dũng ghé sát lỗ tai vào chiếc điện thoại di động của Triệu Kim An, nghe lỏm từ đầu chí cuối.
+Triệu Chí Dũng ghé sát lỗ tai vào chiếc điện thoại di động của Triệu Kim An, nghe lỏm từ đầu chí cuối.
 
 "Kim An, mày... mày thật sự được lên chức bố rồi đấy à?"
 
 Triệu Kim An vừa cúp máy liền quay sang vặc lại một câu: "Thế chẳng lẽ mày chưa làm bố từ tám hoánh nào rồi à?"
 
-Triệu Trí Dũng: "..."
+Triệu Chí Dũng: "..."
 
 Cái này... sao mà giống nhau cho được chứ hả?!
 
@@ -128,17 +128,17 @@ Cái này... sao mà giống nhau cho được chứ hả?!
 
 "Làm gì có, làm gì có chuyện đó!"
 
-Triệu Kim An chẳng buồn đôi co với Triệu Trí Dũng nữa, anh đưa tay gãi đầu gãi tai, tự bật cười ngây ngô một tràng dài.
+Triệu Kim An chẳng buồn đôi co với Triệu Chí Dũng nữa, anh đưa tay gãi đầu gãi tai, tự bật cười ngây ngô một tràng dài.
 
 "Hì hì, phen này thì đúng là phải cày cuốc kiếm tiền cật lực rồi, gánh trên vai tận hai đứa con cơ mà."
 
 "Kim An này, thế mày với Tô Miến định khi nào mới tổ chức đám cưới đãi rượu đây?"
 
-Một câu hỏi bâng quơ của Triệu Trí Dũng chẳng khác nào gáo nước lạnh tạt thẳng vào mặt, "đánh thức" Triệu Kim An khỏi cơn mê. Anh cứng họng không sao thốt nên lời, nhưng thâm tâm lại hiểu rõ mình sớm muộn cũng phải dũng cảm đối diện.
+Một câu hỏi bâng quơ của Triệu Chí Dũng chẳng khác nào gáo nước lạnh tạt thẳng vào mặt, "đánh thức" Triệu Kim An khỏi cơn mê. Anh cứng họng không sao thốt nên lời, nhưng thâm tâm lại hiểu rõ mình sớm muộn cũng phải dũng cảm đối diện.
 
 "Thế mày thì sao? Vẫn chưa dám dắt Trịnh Như với Triệu Niệm Khả về ra mắt ở thôn Triệu Gia à?"
 
-Triệu Trí Dũng: "..."
+Triệu Chí Dũng: "..."
 
 Quả này thì Triệu Kim An đúng là phải gánh trọn cái mác "tra nam" trên lưng thật rồi.
 

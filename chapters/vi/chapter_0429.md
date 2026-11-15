@@ -150,7 +150,7 @@ Từ bên trong phòng truyền ra một giọng phụ nữ cất tiếng hỏi,
 
 Mấy người đứng bên ngoài cửa bỗng chốc cảm thấy căng thẳng tột độ, người run rẩy nhất chính là Lương Tuệ Trân, bàn tay bà nắm chặt lấy vạt áo đến trắng bệch cả khớp ngón tay. Bà và Từ Tắc Đống đều biết chắc chắn bên trong là Từ Mạn Mạn.
 
-Lưu Mỹ Nga ghé mắt nhìn qua mắt mèo quan sát một lát, rồi cánh cửa từ từ mở ra. Đứng chắn ngay sau lưng bà là Quan Văn Bách và Chu Hoa Phong — hai thân hình cao lớn, vững chãi như bàn thạch.
+Lưu Mỹ Nga ghé mắt nhìn qua mắt mèo quan sát một lát, rồi cánh cửa từ từ mở ra. Đứng chắn ngay sau lưng bà là Quan Văn Bách và Chu Phong Hoa — hai thân hình cao lớn, vững chãi như bàn thạch.
 
 "Xin hỏi các vị tìm ai?"
 
@@ -162,15 +162,15 @@ Lương Tuệ Trân cất tiếng gọi thất thanh, giọng nói run rẩy ngh
 
 "..."
 
-Quan Văn Bách và Chu Hoa Phong đưa mắt nhìn nhau một cái là lập tức hiểu ngay đầu đuôi câu chuyện. Quan Văn Bách nhanh chóng rút điện thoại ra bấm số báo cáo tình hình trực tiếp cho Triệu Kim An.
+Quan Văn Bách và Chu Phong Hoa đưa mắt nhìn nhau một cái là lập tức hiểu ngay đầu đuôi câu chuyện. Quan Văn Bách nhanh chóng rút điện thoại ra bấm số báo cáo tình hình trực tiếp cho Triệu Kim An.
 
 "Con Mạn Mạn thật sự ở bên trong sao?" Cô cả và cô hai vẫn bán tín bán nghi.
 
-Chu Hoa Phong quay đầu liếc nhìn Từ tổng đang ngồi ăn cơm trong phòng ăn, rồi lại bước lên nửa bước đứng chắn sừng sững ngay giữa cửa, tuyệt đối không cho phép bất kỳ ai bước chân vào trong.
+Chu Phong Hoa quay đầu liếc nhìn Từ tổng đang ngồi ăn cơm trong phòng ăn, rồi lại bước lên nửa bước đứng chắn sừng sững ngay giữa cửa, tuyệt đối không cho phép bất kỳ ai bước chân vào trong.
 
 "Mạn Mạn!"
 
-Lương Tuệ Trân nhoài người định lách qua khe cửa bước vào, Chu Hoa Phong mặt không chút cảm xúc giơ tay chặn lại.
+Lương Tuệ Trân nhoài người định lách qua khe cửa bước vào, Chu Phong Hoa mặt không chút cảm xúc giơ tay chặn lại.
 
 Anh không nói một lời nào, ánh mắt sắc lạnh liếc nhìn Từ Tắc Đống: "Xin lỗi hai bác, xin đừng làm khó chúng tôi."
 

@@ -58,7 +58,7 @@ Lý Ngải Lan lập tức cười khúc khích bóc mẽ: "Có người nào đ
 
 Vương Duy Đào đỏ bừng cả mặt từ tai đến cổ: "Mấy... mấy người làm sao mà ai cũng biết hết thế hả?"
 
-Chẳng qua là nhìn thấy bé Triệu Tri Nặc đáng yêu kháu khỉnh quá đỗi, Vương Duy Đào và Phùng Vũ Lam đang rục rịch bước vào giai đoạn chuẩn bị mang thai. Mà đã tính chuyện thụ thai sinh nở thì tuyệt đối phải kiêng khem bia rượu. Triệu Trí Dũng dạo trước từng gặng hỏi Vương Duy Đào, Vương Duy Đào liền bảo cậu với Mạnh Hiến Giang là đồng nghiệp cùng một công ty, Mạnh Hiến Giang cũng đang cắm chốt bên Úc, cái món biệt dược ấy công hiệu thần kỳ lắm. Triệu Trí Dũng làm việc ở Trăn Nhiên, vốn dĩ chẳng mấy thân thiết với Mạnh Hiến Giang hay Lưu Chí Dân, thế mà cũng mặt dày bấm máy gọi sang nhờ Mạnh Hiến Giang lùng mua bằng được gửi về, hại Trịnh Như mấy hôm nay có chút chịu không thấu sức lực của chồng...
+Chẳng qua là nhìn thấy bé Triệu Tri Nặc đáng yêu kháu khỉnh quá đỗi, Vương Duy Đào và Phùng Vũ Lam đang rục rịch bước vào giai đoạn chuẩn bị mang thai. Mà đã tính chuyện thụ thai sinh nở thì tuyệt đối phải kiêng khem bia rượu. Triệu Chí Dũng dạo trước từng gặng hỏi Vương Duy Đào, Vương Duy Đào liền bảo cậu với Mạnh Hiến Giang là đồng nghiệp cùng một công ty, Mạnh Hiến Giang cũng đang cắm chốt bên Úc, cái món biệt dược ấy công hiệu thần kỳ lắm. Triệu Chí Dũng làm việc ở Trăn Nhiên, vốn dĩ chẳng mấy thân thiết với Mạnh Hiến Giang hay Lưu Chí Dân, thế mà cũng mặt dày bấm máy gọi sang nhờ Mạnh Hiến Giang lùng mua bằng được gửi về, hại Trịnh Như mấy hôm nay có chút chịu không thấu sức lực của chồng...
 
 "Phương Khiết, gắp thức ăn đi cậu, đừng có ngại ngùng khách sáo nhé."
 
@@ -170,7 +170,7 @@ Vương Duy Đào vừa nhận lấy vừa tò mò rút hé mép phong bao ra d�
 
 Triệu Kim An chỉ tay về phía bàn tiệc trêu chọc, cả đám người lại cười ồ lên nghiêng ngả. Người thì cúi đầu xỏ giày, kẻ thì vội vã chỉnh lại vạt áo khoác. Mấy phong bao lì xì này chỉ là chút lộc đầu năm mang ý nghĩa may mắn, ai nấy cất công đến nhà Triệu Kim An tụ họp sum vầy đâu phải vì dăm ba đồng tiền mừng tuổi ấy.
 
-Lưu S闖 Phong rốt cuộc đến tận phút chót cũng không buồn gọi lấy một cuộc điện thoại nào, dẫu chỉ là một cuộc gọi hỏi thăm người yêu Phương Khiết.
+Lưu Sấm Phong rốt cuộc đến tận phút chót cũng không buồn gọi lấy một cuộc điện thoại nào, dẫu chỉ là một cuộc gọi hỏi thăm người yêu Phương Khiết.
 
 "Nặc Nặc ngoan, cảm ơn bao lì xì may mắn của con gái nhé, thơm một miếng nào, chụt!"
 

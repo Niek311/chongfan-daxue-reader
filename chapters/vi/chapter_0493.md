@@ -94,7 +94,7 @@ Cô không chỉ là thư ký của Triệu Kim An, mà còn là người bạn 
 
 Phải rất lâu sau, cô mới run rẩy bấm gọi số tiếp theo.
 
-"Triệu Trí Dũng, cậu với Vương Duy Đào có quan hệ tốt với Tô Miến như vậy, hai người... có muốn ra Bắc Kinh một chuyến không..."
+"Triệu Chí Dũng, cậu với Vương Duy Đào có quan hệ tốt với Tô Miến như vậy, hai người... có muốn ra Bắc Kinh một chuyến không..."
 
 Cuộc gọi thứ hai, Du Phi không hề gọi cho Mộc Dao đang ở tận Hàn Quốc. Một mình trốn trong lối thoát hiểm nghĩ đến Tô Miến, nghĩ đến dáng vẻ tàn tạ của Triệu Kim An lúc này, cô không kìm nổi mà òa khóc nức nở.
 
@@ -104,11 +104,11 @@ Quận Sa.
 
 Mọi thứ rối tung lên như một mớ bòng bong. Triệu Kim An nhiều ngày liền không ăn không uống, giờ cũng đã phải nằm bẹp trên giường bệnh để truyền dịch glucose.
 
-Triệu Trí Dũng sốt ruột cuống cuồng đặt vé máy bay, tức giận tự vung tay tát vào mặt mình mấy cái nảy lửa.
+Triệu Chí Dũng sốt ruột cuống cuồng đặt vé máy bay, tức giận tự vung tay tát vào mặt mình mấy cái nảy lửa.
 
 Vương Duy Đào bắt taxi lao như bay ra sân bay Hoàng Hoa.
 
-Vừa chạm mặt nhau ở sảnh, Triệu Trí Dũng đã vung tay giáng cho Vương Duy Đào một cái tát trời giáng.
+Vừa chạm mặt nhau ở sảnh, Triệu Chí Dũng đã vung tay giáng cho Vương Duy Đào một cái tát trời giáng.
 
 "Chát!"
 
@@ -116,7 +116,7 @@ Vương Duy Đào hốc mắt đỏ hoe.
 
 Hành khách qua lại trong sảnh chờ sân bay nhìn hai người đầy vẻ ngơ ngác, kinh ngạc.
 
-Triệu Trí Dũng cổ họng nghẹn đắng, gằn từng chữ: "Vương phó khoa, hai thằng mình đúng là đồ súc sinh..."
+Triệu Chí Dũng cổ họng nghẹn đắng, gằn từng chữ: "Vương phó khoa, hai thằng mình đúng là đồ súc sinh..."
 
 Vương Duy Đào tự vung tay tát liên tiếp hai cái vào mặt mình. Họ vẫn còn nhớ như in mùa đông năm ấy, lần đầu tiên nhìn thấy Tô Miến, Triệu Kim An ngồi xổm ở bờ tây quảng trường khu Đại học tỉ mẩn bóc từng miếng khoai lang nướng nóng hổi đút cho cô ăn.
 
@@ -126,7 +126,7 @@ Tô Miến mua cho họ những bộ quần áo hàng hiệu đắt tiền mà c
 
 "Bốp! Bốp!"
 
-Cậu ta lại tự giáng thêm hai cái tát nảy lửa vào mặt mình, chẳng cần đợi Triệu Trí Dũng phải ra tay.
+Cậu ta lại tự giáng thêm hai cái tát nảy lửa vào mặt mình, chẳng cần đợi Triệu Chí Dũng phải ra tay.
 
 Hai người họ hiểu lòng nhau hơn ai hết. Tô Miến không ở Quận Sa, họ từng thề với nhau chỉ nhận một mình "tiểu thẩm thẩm" Tô Miến, tuyệt đối không nhận Từ Mạn Mạn. Nhưng thâm tâm họ cảm thấy bản thân đã ngấm ngầm "thừa nhận" Từ Mạn Mạn rồi, làm thế này trong lòng mới vơi bớt cảm giác tội lỗi cắn rứt.
 
@@ -134,7 +134,7 @@ Tự tát càng đau thì lương tâm mới bớt giày vò.
 
 "A... Hu hu...!"
 
-Vương Duy Đào ngồi thụp xuống nền sảnh chờ òa khóc thảm thiết, đau đớn đến tột cùng. Triệu Trí Dũng vừa quẹt nước mắt vừa cúi nhìn bạn mình.
+Vương Duy Đào ngồi thụp xuống nền sảnh chờ òa khóc thảm thiết, đau đớn đến tột cùng. Triệu Chí Dũng vừa quẹt nước mắt vừa cúi nhìn bạn mình.
 
 Mấy hôm trước Vương Duy Đào bỗng nhiên được đặc cách cất nhắc lên thẳng chức phó khoa, con đường thăng tiến mà người khác phải trầy trật phấn đấu mấy năm trời, Vương Học Ân hiện vẫn đang chật vật ôn thi công chức... Tô Miến à, đến cả những người bạn chí cốt của Triệu Kim An mà cô cũng chẳng hề bỏ quên.
 
@@ -144,7 +144,7 @@ Năm ấy, Tô Miến từng nói với Triệu Kim An: "Em muốn gặp những
 
 Đại tiểu thư kiêu kỳ lại bá đạo, không cho phép anh chối từ.
 
-Triệu Kim An đã đưa Vương Duy Đào và Triệu Trí Dũng đến gặp mặt.
+Triệu Kim An đã đưa Vương Duy Đào và Triệu Chí Dũng đến gặp mặt.
 
 Ba chàng sinh viên năm nhất ngây ngô thuở nào...
 

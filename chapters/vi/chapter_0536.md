@@ -78,19 +78,19 @@ Căn phòng 303 năm ấy... ôi chao.
 
 Quận Sa, nhà máy dệt may Tinh Sa.
 
-Phương Khiết ghì chặt chiếc điện thoại bên tai, ngọn lửa giận dữ bốc lên ngùn ngụt: "Lưu S闖 Phong, chính miệng anh đã hứa như đinh đóng cột là sẽ lái xe về đón em cơ mà!"
+Phương Khiết ghì chặt chiếc điện thoại bên tai, ngọn lửa giận dữ bốc lên ngùn ngụt: "Lưu Sấm Phong, chính miệng anh đã hứa như đinh đóng cột là sẽ lái xe về đón em cơ mà!"
 
 "Tiểu Khiết, anh xin lỗi, anh thực sự không dứt ra nổi."
 
-Đầu dây bên kia truyền đến giọng nói đầy vẻ bất lực của Lưu S闖 Phong.
+Đầu dây bên kia truyền đến giọng nói đầy vẻ bất lực của Lưu Sấm Phong.
 
 "Lão Cốc đã về quê ăn Tết rồi, Đoạn tổng thì xưa nay chẳng bao giờ mó tay vào chuyện quản lý vận hành, điều này em thừa biết mà."
 
 "Chúng mình đã hẹn ước từ trước là năm nay sẽ cùng về diện kiến bố mẹ hai bên, em cũng đã thưa chuyện đâu ra đấy với bố mẹ em rồi. Giờ anh bảo em phải ăn nói làm sao đây? Chẳng lẽ lại bảo với bố mẹ là anh bận trăm công nghìn việc nên không có thời gian rảnh rỗi chắc?"
 
-Phương Khiết lần này thực sự nổi trận lôi đình. Cô đã nán lại Quận Sa chờ đợi suốt mấy ngày ròng rã chỉ mong cùng Lưu S闖 Phong sóng bước về quê. Hai người họ đã lên kế hoạch tỉ mỉ, trước tiên sẽ ghé về nhà cô ra mắt, sau đó tiện đường chạy ngược ra vùng Đông Bắc ghé qua nhà Lưu S闯 Phong một chuyến cho trọn vẹn nghĩa tình.
+Phương Khiết lần này thực sự nổi trận lôi đình. Cô đã nán lại Quận Sa chờ đợi suốt mấy ngày ròng rã chỉ mong cùng Lưu Sấm Phong sóng bước về quê. Hai người họ đã lên kế hoạch tỉ mỉ, trước tiên sẽ ghé về nhà cô ra mắt, sau đó tiện đường chạy ngược ra vùng Đông Bắc ghé qua nhà Lưu Sấm Phong một chuyến cho trọn vẹn nghĩa tình.
 
-Nào ngờ đến tận chiều ba mươi Tết, Lưu S闖 Phong vẫn còn kẹt cứng lại chốn Đông Hoản phù hoa.
+Nào ngờ đến tận chiều ba mươi Tết, Lưu Sấm Phong vẫn còn kẹt cứng lại chốn Đông Hoản phù hoa.
 
 "Tiểu Khiết, anh ngàn lần xin lỗi em, hay là chúng mình lùi lại mấy hôm được không? Đợi lão Cốc ăn Tết xong quay lại xưởng..."
 
@@ -104,9 +104,9 @@ Phương Khiết siết chặt ống nghe, nén giọng gắt gỏng từng lờ
 
 Cách đó không xa.
 
-Lâm Thanh Tuyết đang thong thả vin một cành cây khẳng khiu bên đường. Chẳng cần đợi tới lúc xe Lưu S闖 Phong không xuất hiện, cô đã sớm đoán trước được kết cục này. Tính ra thì bọn họ cũng chỉ vừa mới tốt nghiệp đại học, tuổi đời còn phơi phới thanh xuân, những chuyện như gặp gỡ phụ huynh hay bàn tính hôn nhân đại sự chung quy vẫn còn quá sớm.
+Lâm Thanh Tuyết đang thong thả vin một cành cây khẳng khiu bên đường. Chẳng cần đợi tới lúc xe Lưu Sấm Phong không xuất hiện, cô đã sớm đoán trước được kết cục này. Tính ra thì bọn họ cũng chỉ vừa mới tốt nghiệp đại học, tuổi đời còn phơi phới thanh xuân, những chuyện như gặp gỡ phụ huynh hay bàn tính hôn nhân đại sự chung quy vẫn còn quá sớm.
 
-Thế nhưng Phương Khiết và Lưu S闖 Phong đã gắn bó mặn nồng từ thuở giảng đường, giờ đây cả hai đều đã gầy dựng được sự nghiệp vững vàng, thành đạt.
+Thế nhưng Phương Khiết và Lưu Sấm Phong đã gắn bó mặn nồng từ thuở giảng đường, giờ đây cả hai đều đã gầy dựng được sự nghiệp vững vàng, thành đạt.
 
 Lâm Thanh Tuyết không hề có ý cười cợt Phương Khiết.
 
@@ -114,7 +114,7 @@ Cảnh tượng ấy chỉ khiến cô bất giác chạnh lòng nhớ về bả
 
 Một lát sau.
 
-Phương Khiết hậm hực dập máy, bước chân hầm hầm đi tới: "Lưu S闖 Phong không về được rồi!!"
+Phương Khiết hậm hực dập máy, bước chân hầm hầm đi tới: "Lưu Sấm Phong không về được rồi!!"
 
 "Bây giờ ra bến còn mua được vé xe không? Hay là cậu cứ lái xe của tớ mà chạy về quê?"
 
@@ -132,7 +132,7 @@ Lâm Thanh Tuyết mỉm cười xua tay: "Quà cáp làm cái gì cho vẽ chuy
 
 Phương Khiết ngẫm nghĩ một chút: "Không phải chỉ có mỗi bé Tri Nặc thôi sao? Còn có cả Triệu Tri Hành với Triệu Tri Vi nữa à?"
 
-"Một bao cho bé Tri Nặc, một bao cho đứa em gái của Kim An đang ở cùng, với lại một bao cho con gái nhỏ của Triệu Trí Dũng và Trịnh Như nữa."
+"Một bao cho bé Tri Nặc, một bao cho đứa em gái của Kim An đang ở cùng, với lại một bao cho con gái nhỏ của Triệu Chí Dũng và Trịnh Như nữa."
 
 "Mỗi bao bao nhiêu tiền thì vừa?"
 
@@ -152,7 +152,7 @@ Phương Khiết bật cười thành tiếng: "Nó mà cũng dám mở mồm k�
 
 "Tính nết nó tiêu pha hoang phí bạt mạng, cậu còn lạ lẫm gì nữa?"
 
-Lâm Thanh Tuyết bấm mở khóa xe, lắc đầu cười: "Kiếm được đồng nào là dồn hết vào việc váy vóc phấn son, chưng diện cho sướng cái thân. Suốt bốn năm đại học, có bao giờ cậu thấy trong túi nó giữ nổi một đồng cắc nào không? Tiền mua vé tàu lần trước vay của Lưu S闖 Phong, hình như đến tận bây giờ nó vẫn còn lờ đi chưa thèm trả đâu đấy?"
+Lâm Thanh Tuyết bấm mở khóa xe, lắc đầu cười: "Kiếm được đồng nào là dồn hết vào việc váy vóc phấn son, chưng diện cho sướng cái thân. Suốt bốn năm đại học, có bao giờ cậu thấy trong túi nó giữ nổi một đồng cắc nào không? Tiền mua vé tàu lần trước vay của Lưu Sấm Phong, hình như đến tận bây giờ nó vẫn còn lờ đi chưa thèm trả đâu đấy?"
 
 "Tiền mua vé tàu hỏa ấy hả?"
 
@@ -168,17 +168,17 @@ Phương Khiết lúc này chẳng còn tâm trạng nào để đùa cợt nữ
 
 Những ngày Tết cận kề, cả thành phố Quận Sa dường như đã vắng lặng hẳn đi.
 
-Đường sá thưa thớt bóng xe qua lại. Lâm Thanh Tuyết liếc mắt nhìn sang Phương Khiết đang ngồi lặng lẽ ở ghế phụ, trong lòng không khỏi dâng lên niềm tiếc nuối thay cho Lưu S闖 Phong.
+Đường sá thưa thớt bóng xe qua lại. Lâm Thanh Tuyết liếc mắt nhìn sang Phương Khiết đang ngồi lặng lẽ ở ghế phụ, trong lòng không khỏi dâng lên niềm tiếc nuối thay cho Lưu Sấm Phong.
 
-Nếu không có Phương Khiết, không có bàn tay cô ngày đêm "kìm cương", uốn nắn và quản thúc, Lưu S闖 Phong chưa chắc đã gầy dựng nên cơ đồ rạng rỡ như ngày hôm nay. Thuở trước, Phương Khiết từng hỏi vay Lâm Thanh Tuyết năm mươi vạn tệ, nhưng hễ vừa kiếm ra tiền là cô lập tức thanh toán sòng phẳng không thiếu một xu.
+Nếu không có Phương Khiết, không có bàn tay cô ngày đêm "kìm cương", uốn nắn và quản thúc, Lưu Sấm Phong chưa chắc đã gầy dựng nên cơ đồ rạng rỡ như ngày hôm nay. Thuở trước, Phương Khiết từng hỏi vay Lâm Thanh Tuyết năm mươi vạn tệ, nhưng hễ vừa kiếm ra tiền là cô lập tức thanh toán sòng phẳng không thiếu một xu.
 
 Bây giờ, toàn bộ nguồn tiền thu về từ các cửa hàng trực tuyến của xưởng dệt may đều nằm gọn trong tay Phương Khiết quản lý.
 
-Còn nguồn lợi nhuận khổng lồ từ chuỗi câu lạc bộ giải trí, Lưu S闖 Phong lại tự mình nắm giữ lấy.
+Còn nguồn lợi nhuận khổng lồ từ chuỗi câu lạc bộ giải trí, Lưu Sấm Phong lại tự mình nắm giữ lấy.
 
-Nó chẳng còn giống như cái thuở hai đứa chung lưng đấu cật mở "tiệm tạp hóa nhỏ" trong ký túc xá đại học năm nào, khi Lưu S闖 Phong hễ kiếm được dăm đồng bạc lẻ là đều ngoan ngoãn dâng hết cho Phương Khiết cất giữ.
+Nó chẳng còn giống như cái thuở hai đứa chung lưng đấu cật mở "tiệm tạp hóa nhỏ" trong ký túc xá đại học năm nào, khi Lưu Sấm Phong hễ kiếm được dăm đồng bạc lẻ là đều ngoan ngoãn dâng hết cho Phương Khiết cất giữ.
 
-Tất nhiên, cuộc đời vốn khó đoán, cũng chẳng thể loại trừ khả năng nếu không bị Phương Khiết kìm cặp, biết đâu Lưu S闯 Phong còn vùng vẫy dữ dội và lăn lộn ghê gớm hơn cả hiện tại nữa kia.
+Tất nhiên, cuộc đời vốn khó đoán, cũng chẳng thể loại trừ khả năng nếu không bị Phương Khiết kìm cặp, biết đâu Lưu Sấm Phong còn vùng vẫy dữ dội và lăn lộn ghê gớm hơn cả hiện tại nữa kia.
 
 ***
 
@@ -186,7 +186,7 @@ Tòa cao ốc Quảng trường Thời đại Hoàn Vũ.
 
 Tầng 50 lộng gió.
 
-Triệu Trí Dũng, Trịnh Như, Vương Duy Đào, Phùng Vũ Lam, Lý Ngải Lan, Đường Hiểu Tình, Lý Đình Đình và bà Lưu Mỹ Nga từ sáng sớm tinh mơ đã ríu rít xúm xít trong gian bếp rộng lớn. Từ Mạn Mạn lật đật mở tủ lạnh ngó nghiêng hồi lâu nhưng tuyệt nhiên không tìm ra việc gì để mình nhúng tay vào.
+Triệu Chí Dũng, Trịnh Như, Vương Duy Đào, Phùng Vũ Lam, Lý Ngải Lan, Đường Hiểu Tình, Lý Đình Đình và bà Lưu Mỹ Nga từ sáng sớm tinh mơ đã ríu rít xúm xít trong gian bếp rộng lớn. Từ Mạn Mạn lật đật mở tủ lạnh ngó nghiêng hồi lâu nhưng tuyệt nhiên không tìm ra việc gì để mình nhúng tay vào.
 
 Trịnh Như đã dắt con sang từ đầu giờ chiều, từ lúc đến giờ cứ cặm cụi cùng bà Lưu Mỹ Nga nấu nướng dưới bếp.
 

@@ -104,7 +104,7 @@ Lý Ngải Lan lén lút tìm một góc khuất vắng bóng người, còn kh�
 
 "Để cháu làm cho thím."
 
-Giọng nói này là của Trịnh Như. Vương Kim Như vừa hào phóng mừng cho Triệu Niệm Khả một phong bao đỏ thắm tận hai nghìn tệ, hiếm hoi lắm mới thấy bà thím này rộng rãi đến thế. Triệu Trí Dũng từng bảo Vương Kim Như chính là bà thím ruột chân chính danh bất hư truyền của Triệu Kim An, độc nhất vô nhị.
+Giọng nói này là của Trịnh Như. Vương Kim Như vừa hào phóng mừng cho Triệu Niệm Khả một phong bao đỏ thắm tận hai nghìn tệ, hiếm hoi lắm mới thấy bà thím này rộng rãi đến thế. Triệu Chí Dũng từng bảo Vương Kim Như chính là bà thím ruột chân chính danh bất hư truyền của Triệu Kim An, độc nhất vô nhị.
 
 Đây mà chỉ là bà thím thôi sao? Trịnh Như nhìn qua là hiểu ngay, đây đích thị là vị Thái hậu nương nương nắm quyền sinh sát!
 

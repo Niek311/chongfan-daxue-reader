@@ -36,17 +36,17 @@ Cuối cùng, cô nắm chặt tay Tô Minh Tùng, vừa tha thiết van nài v�
 
 Duy chỉ có Triệu Kim An là cô không để lại lấy nửa lời trăng trối.
 
-Đan Vĩ và Chu Hoa Phong bước xuống lầu, ngồi bệt bên ngoài hút những điếu thuốc trầm lặng.
+Đan Vĩ và Chu Phong Hoa bước xuống lầu, ngồi bệt bên ngoài hút những điếu thuốc trầm lặng.
 
 "Là tôi."
 
-Chu Hoa Phong cất tiếng: "Người ngầm báo tin đó... chính là tôi..."
+Chu Phong Hoa cất tiếng: "Người ngầm báo tin đó... chính là tôi..."
 
 "Tôi biết."
 
 Đan Vĩ đáp: "Ai cũng biết cả rồi, sếp cũng biết... ai ở vị trí đó cũng vậy thôi... dù sao cũng phải có một người đứng ra gánh vác."
 
-Chu Hoa Phong khẽ gật đầu: "Ừ..."
+Chu Phong Hoa khẽ gật đầu: "Ừ..."
 
 Lát sau, anh ta ôm mặt nghẹn ngào: "Tô tiểu thư là vì thật lòng quan tâm đến sếp, chứ không phải giám sát... Cô ấy làm vậy tuyệt đối không phải để theo dõi sếp..."
 
@@ -54,9 +54,9 @@ Lát sau, anh ta ôm mặt nghẹn ngào: "Tô tiểu thư là vì thật lòng 
 
 Đan Vĩ im lặng hồi lâu.
 
-Tô Miến đã ra nông nỗi này, Chu Hoa Phong cũng chẳng còn người nào để mà "mật báo" nữa.
+Tô Miến đã ra nông nỗi này, Chu Phong Hoa cũng chẳng còn người nào để mà "mật báo" nữa.
 
-Dù với bất kỳ lý do gì, Chu Hoa Phong cũng đã vi phạm đạo đức nghề nghiệp.
+Dù với bất kỳ lý do gì, Chu Phong Hoa cũng đã vi phạm đạo đức nghề nghiệp.
 
 Đan Vĩ chỉ biết ngẩng đầu nhìn vầng thái dương buổi sớm: "Cứ đợi đã, sếp đang suy sụp như thế này... Lúc này làm sao anh mở lời từ chức với sếp được?"
 

@@ -44,7 +44,7 @@ Chức vụ Chủ tịch Hội sinh viên của Triệu Kim An từ lâu đã b�
 
 Thậm chí, dù mới chỉ bước sang tuổi hai mươi tư, dọc theo hành lang của một tòa nhà giảng đường lớn, bức ảnh chân dung của Triệu Kim An đã được nhà trường lồng khung kính trang trọng, xếp ngang hàng cùng những thế hệ cựu sinh viên kiệt xuất nhất qua các thời kỳ lịch sử của trường Sư đại.
 
-Đại học Sư phạm dẫu sao cũng không giống như Đại học Hồ Nam bên cạnh, nơi người ta có thể đường hoàng treo chân dung của những vĩ nhân lịch sử tầm cỡ như Tăng Quốc Phiên lên để làm rạng danh truyền thống.
+Đại học Sư phạm dẫu sao cũng không giống như Đại học Tương Nam bên cạnh, nơi người ta có thể đường hoàng treo chân dung của những vĩ nhân lịch sử tầm cỡ như Tăng Quốc Phiên lên để làm rạng danh truyền thống.
 
 ...
 

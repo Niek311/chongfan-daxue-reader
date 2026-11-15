@@ -104,7 +104,7 @@ Từ Mạn Mạn, Thẩm Tử Ngôn và Diêu Sân đồng loạt quay đầu l�
 
 Diêu Sân khẽ lẩm bẩm một cái tên bên tai bạn.
 
-Từ Mạn Mạn nói nhỏ: "Khác nhau chứ, Niệm Khả khi ấy còn nhỏ xíu, vả lại Triệu Trí Dũng đối xử với con bé thật lòng không chê vào đâu được."
+Từ Mạn Mạn nói nhỏ: "Khác nhau chứ, Niệm Khả khi ấy còn nhỏ xíu, vả lại Triệu Chí Dũng đối xử với con bé thật lòng không chê vào đâu được."
 
 "Mọi người là...?"
 

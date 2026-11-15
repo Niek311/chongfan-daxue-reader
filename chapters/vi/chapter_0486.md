@@ -24,7 +24,7 @@ Cô chỉ đơn thuần đang “tiếp nối” Thẩm Tử Ngôn mà thôi.
 
 Cả hội trường nín thở.
 
-Ánh mắt Lý Ngải Lan nhanh chóng lướt qua Triệu Trí Dũng và Đường Hiểu Tình. Từ Mạn Mạn đã bắt đầu lần lượt xướng lên từng số liệu một.
+Ánh mắt Lý Ngải Lan nhanh chóng lướt qua Triệu Chí Dũng và Đường Hiểu Tình. Từ Mạn Mạn đã bắt đầu lần lượt xướng lên từng số liệu một.
 
 Giọng điệu cô trầm bổng nhịp nhàng, lại phảng phất vẻ bình thản dịu dàng.
 

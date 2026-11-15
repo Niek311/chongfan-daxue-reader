@@ -118,7 +118,7 @@ Mộc Dao dần dần bình tĩnh trở lại, theo thói quen vô thức đưa 
 
 Mộc Dao giãi bày rất nhiều, rất dài, và đây cũng là lần đầu tiên ở kiếp này Triệu Kim An có đủ kiên nhẫn để ngồi yên lắng nghe cô trút hết bầu tâm sự.
 
-Anh chợt nhớ lại kiếp trước, Triệu Trí Dũng từng gọi điện báo tin rằng Mộc Dao bên Hàn Quốc cũng đã ly hôn, dẫn theo đứa con gái nhỏ mới hai tuổi về nước. Vừa bước chân ra khỏi sảnh sân bay, việc đầu tiên cô làm là bấm máy gọi cho Trí Dũng, chỉ để hỏi một câu: "Kim An hiện đang ở đâu?"
+Anh chợt nhớ lại kiếp trước, Triệu Chí Dũng từng gọi điện báo tin rằng Mộc Dao bên Hàn Quốc cũng đã ly hôn, dẫn theo đứa con gái nhỏ mới hai tuổi về nước. Vừa bước chân ra khỏi sảnh sân bay, việc đầu tiên cô làm là bấm máy gọi cho Trí Dũng, chỉ để hỏi một câu: "Kim An hiện đang ở đâu?"
 
 Ly hôn ư? Cho nên mới tìm lại được thân phận để đi gặp anh sao?
 

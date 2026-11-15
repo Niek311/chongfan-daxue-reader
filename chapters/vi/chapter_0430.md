@@ -64,7 +64,7 @@ Không có bất kỳ sắc thái biểu cảm nồng nhiệt hay oán trách n�
 
 "Mạn Mạn..."
 
-Xác nhận rồi! Lần này thì hoàn toàn được xác nhận trăm phần trăm rồi! Lương Tuệ Trân định nhào tới bước vào cửa, nhưng lại bị cánh tay rắn chắc như thép nguội của Chu Hoa Phong và Quan Văn Bách giơ ra chặn đứng lại.
+Xác nhận rồi! Lần này thì hoàn toàn được xác nhận trăm phần trăm rồi! Lương Tuệ Trân định nhào tới bước vào cửa, nhưng lại bị cánh tay rắn chắc như thép nguội của Chu Phong Hoa và Quan Văn Bách giơ ra chặn đứng lại.
 
 "Chuyện gì thế này? Con Mạn Mạn... có bầu rồi ư!?"
 
@@ -76,7 +76,7 @@ Từ Tắc Đống hùng hổ muốn xông thẳng vào trong nhà. Từ Mạn M
 
 "Các người tránh hết ra cho tôi!"
 
-Từ Tắc Đống tức giận đến run cả người, muốn dùng vũ lực thì biết chắc mình không tài nào đọ nổi hai gã vệ sĩ cao to lực lưỡng này, chỉ đành trừng mắt gầm lên với Quan Văn Bách và Chu Hoa Phong: "Tôi là bố đẻ của nó, bố ruột bằng xương bằng thịt đấy!! Bố ruột đến tận cửa nhà con gái, có cái đạo lý nào trên đời lại chặn bố ở ngoài cửa như thế không hả? Các người đi mà hỏi thằng ông chủ của các người xem!!"
+Từ Tắc Đống tức giận đến run cả người, muốn dùng vũ lực thì biết chắc mình không tài nào đọ nổi hai gã vệ sĩ cao to lực lưỡng này, chỉ đành trừng mắt gầm lên với Quan Văn Bách và Chu Phong Hoa: "Tôi là bố đẻ của nó, bố ruột bằng xương bằng thịt đấy!! Bố ruột đến tận cửa nhà con gái, có cái đạo lý nào trên đời lại chặn bố ở ngoài cửa như thế không hả? Các người đi mà hỏi thằng ông chủ của các người xem!!"
 
 "Ở cái đất này có phong tục tập quán và loại người nào hành xử như vậy không?"
 
@@ -86,7 +86,7 @@ Từ Tắc Đống chỉ tay về phía Từ Mạn Mạn, lớn tiếng chất v
 
 "Tôi... tôi dẫu sao cũng là ông ngoại ruột thịt của đứa bé cơ mà!!!"
 
-Quan Văn Bách và Chu Hoa Phong vẫn đứng sừng sững như hai bức tường thành vững chãi, không hề xê dịch nửa phân, chỉ khẽ nghiêng đầu đưa mắt nhìn về phía Từ Mạn Mạn đứng sau lưng.
+Quan Văn Bách và Chu Phong Hoa vẫn đứng sừng sững như hai bức tường thành vững chãi, không hề xê dịch nửa phân, chỉ khẽ nghiêng đầu đưa mắt nhìn về phía Từ Mạn Mạn đứng sau lưng.
 
 "Từ tổng..."
 

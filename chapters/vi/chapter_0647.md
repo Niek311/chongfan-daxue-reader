@@ -30,7 +30,7 @@ Nếu như cả ông ngoại của Vương Phương Dụ cũng ngầm cho phép 
 
 Bước chân ra khỏi hội sở tư nhân, Triệu Kim An vẫn cảm thấy lồng ngực mình nghẹn lại, hơi thở có phần ngột ngạt khó khăn.
 
-Thế giới này xưa nay làm gì có ranh giới rạch ròi giữa phe chính phái và tà phái. Trần Trạch và Dương Xu Mỹ từ nơi khác bôn ba chạy tới đất Dương Thành, mang thân phận của kẻ "ngụ cư chân ướt chân ráo", vậy mà Trần Trạch vẫn ảo tưởng ôm mộng Bất động sản Trạch Vũ của mình một ngày nào đó sẽ vượt mặt tập đoàn Hoàn Vũ của Triệu Kim An.
+Thế giới này xưa nay làm gì có ranh giới rạch ròi giữa phe chính phái và tà phái. Trần Trạch và Dương Thù Mỹ từ nơi khác bôn ba chạy tới đất Dương Thành, mang thân phận của kẻ "ngụ cư chân ướt chân ráo", vậy mà Trần Trạch vẫn ảo tưởng ôm mộng Bất động sản Trạch Vũ của mình một ngày nào đó sẽ vượt mặt tập đoàn Hoàn Vũ của Triệu Kim An.
 
 Cậu ta nào có hay biết bản thân đang rước sói vào nhà. Nếu Trạch Vũ thuận buồm xuôi gió không xảy ra chuyện gì thì coi như may mắn, mọi chuyện cứ thế êm xuôi tiếp diễn.
 
@@ -68,7 +68,7 @@ Chuông reo một hồi khá lâu bên kia mới có người nhấc máy.
 
 "Kim An đấy à?"
 
-Dương Xu Mỹ đang say giấc nồng thì bị đánh thức, nhìn thấy tên người gọi đến hiện trên màn hình, trong lòng không khỏi nảy sinh một thoáng rạo rực thầm nghĩ: Chẳng lẽ cuối cùng Kim An cũng chịu gọi mình đến khách sạn rồi sao?
+Dương Thù Mỹ đang say giấc nồng thì bị đánh thức, nhìn thấy tên người gọi đến hiện trên màn hình, trong lòng không khỏi nảy sinh một thoáng rạo rực thầm nghĩ: Chẳng lẽ cuối cùng Kim An cũng chịu gọi mình đến khách sạn rồi sao?
 
 "Dì à, cháu hỏi dì một câu."
 
@@ -76,7 +76,7 @@ Triệu Kim An cất giọng: "Dì đã rót bao nhiêu tiền vào Trạch Vũ 
 
 "Hồi đầu lúc thằng Trạch lập nghiệp dựng công ty, tiền tích cóp của riêng dì cộng thêm các khoản vay mượn tất cả là ba mươi triệu."
 
-Dương Xu Mỹ nằm sấp trên giường, hai tay nâng niu chiếc điện thoại, khuôn mặt tràn đầy vẻ thắc mắc. Nửa đêm nửa hôm Kim An gọi điện đến chỉ để hỏi chuyện này thôi sao? Có chuyện gì hệ trọng chẳng lẽ không thể đợi đến khách sạn rồi hỏi trực tiếp hay sao chứ? Dẫu vậy bà vẫn thật thà khai hết.
+Dương Thù Mỹ nằm sấp trên giường, hai tay nâng niu chiếc điện thoại, khuôn mặt tràn đầy vẻ thắc mắc. Nửa đêm nửa hôm Kim An gọi điện đến chỉ để hỏi chuyện này thôi sao? Có chuyện gì hệ trọng chẳng lẽ không thể đợi đến khách sạn rồi hỏi trực tiếp hay sao chứ? Dẫu vậy bà vẫn thật thà khai hết.
 
 "Về sau công ty thằng Trạch kẹt vốn lưu động, dì lại phải đưa thêm cho nó sáu triệu nữa. Nhưng mấy dự án mở bán đợt trước nó đã hoàn trả lại hết cho dì rồi."
 
@@ -86,17 +86,17 @@ Dương Xu Mỹ nằm sấp trên giường, hai tay nâng niu chiếc điện t
 
 "Ồ, vậy thì tốt."
 
-Triệu Kim An thầm nghĩ trong bụng, xem ra tình hình vẫn chưa đến mức tồi tệ nhất. Trần Trạch chí ít vẫn chưa ngu xuẩn tới bến, còn Vương Phương Dụ có lẽ thực sự không hay biết chuyện gì, đối xử với Trần Trạch là thật lòng thật dạ, bằng không số tiền mồ hôi nước mắt này Dương Xu Mỹ đời nào lấy lại được.
+Triệu Kim An thầm nghĩ trong bụng, xem ra tình hình vẫn chưa đến mức tồi tệ nhất. Trần Trạch chí ít vẫn chưa ngu xuẩn tới bến, còn Vương Phương Dụ có lẽ thực sự không hay biết chuyện gì, đối xử với Trần Trạch là thật lòng thật dạ, bằng không số tiền mồ hôi nước mắt này Dương Thù Mỹ đời nào lấy lại được.
 
 "Kim An à, đợt trước cháu gọi điện cho dì, dì đã mắng thằng Trạch một trận tơi bời rồi, thật đấy, dì mắng nó té tát luôn. Chắc nó không dám chọc ghẹo gì cháu nữa đâu."
 
-Giọng Dương Xu Mỹ ngập ngừng, ấp úng cầu xin: "Kim An, cháu có thể giơ cao đánh khẽ, đừng ra tay đối phó với Trần Trạch được không?"
+Giọng Dương Thù Mỹ ngập ngừng, ấp úng cầu xin: "Kim An, cháu có thể giơ cao đánh khẽ, đừng ra tay đối phó với Trần Trạch được không?"
 
-Chuyến đi thị sát thôn Dương Cơ vừa rồi của Triệu Kim An khiến trái tim của cả Dương Xu Mỹ lẫn Vương Phương Dụ đều treo lơ lửng trên cành cây. Đừng nói chi hai người phụ nữ bọn họ, ngay cả Diệp Lục Du đêm nay cũng phải tìm đủ mọi cách để hẹn gặp nói chuyện cho rõ ràng với Triệu Kim An kia kìa.
+Chuyến đi thị sát thôn Dương Cơ vừa rồi của Triệu Kim An khiến trái tim của cả Dương Thù Mỹ lẫn Vương Phương Dụ đều treo lơ lửng trên cành cây. Đừng nói chi hai người phụ nữ bọn họ, ngay cả Diệp Lục Du đêm nay cũng phải tìm đủ mọi cách để hẹn gặp nói chuyện cho rõ ràng với Triệu Kim An kia kìa.
 
 "..."
 
-Thấy thái độ khép nép hạ mình đến nhường này của Dương Xu Mỹ, Triệu Kim An thực sự chẳng biết phải nói sao cho phải: "Dì à, cháu chưa từng có ý định nhắm vào ai cả."
+Thấy thái độ khép nép hạ mình đến nhường này của Dương Thù Mỹ, Triệu Kim An thực sự chẳng biết phải nói sao cho phải: "Dì à, cháu chưa từng có ý định nhắm vào ai cả."
 
 "Với lại..."
 
@@ -104,37 +104,37 @@ Thấy thái độ khép nép hạ mình đến nhường này của Dương Xu 
 
 "Kim An, dì hiểu mà, dì biết chứ."
 
-Điểm này thì Dương Xu Mỹ hoàn toàn nắm rõ, bản thân bà xưa nay cũng là dân lăn lộn trên thương trường làm ăn buôn bán.
+Điểm này thì Dương Thù Mỹ hoàn toàn nắm rõ, bản thân bà xưa nay cũng là dân lăn lộn trên thương trường làm ăn buôn bán.
 
 Bà đâu có ngốc nghếch đến mức công ty đã chuyển đổi thành công ty cổ phần có người ngoài nhảy vào mà bản thân mình lại đi móc tiền túi ra bù lỗ.
 
-Thế nhưng nghe những lời dặn dò đầy quan tâm ấy của Triệu Kim An, trong lòng Dương Xu Mỹ vẫn dâng lên một niềm xúc động nghẹn ngào. Bà hồi hộp ôm chặt lấy chiếc điện thoại, nín thở chờ đợi Triệu Kim An nói ra câu tiếp theo: "Dì ơi, cháu đang đợi dì ở khách sạn XXX nhé."
+Thế nhưng nghe những lời dặn dò đầy quan tâm ấy của Triệu Kim An, trong lòng Dương Thù Mỹ vẫn dâng lên một niềm xúc động nghẹn ngào. Bà hồi hộp ôm chặt lấy chiếc điện thoại, nín thở chờ đợi Triệu Kim An nói ra câu tiếp theo: "Dì ơi, cháu đang đợi dì ở khách sạn XXX nhé."
 
 "Dì à, thế dì ngủ tiếp đi nhé, cháu cúp máy đây... Tút... tút... tút..."
 
 Triệu Kim An đã có được câu trả lời mình mong muốn. Thứ nhất, Vương Phương Dụ đối với Trần Trạch là thật lòng, niềm tin vào tình cảm lứa đôi của anh vẫn chưa hoàn toàn sụp đổ.
 
-Thứ hai, nhân tiện nhắc nhở Dương Xu Mỹ một tiếng.
+Thứ hai, nhân tiện nhắc nhở Dương Thù Mỹ một tiếng.
 
-Tránh cho một ngày nào đó Trạch Vũ vỡ nợ bung bét, Dương Xu Mỹ vì xót con trai mà đem cả cơ nghiệp cả đời của mình dâng nộp vào miệng cọp.
+Tránh cho một ngày nào đó Trạch Vũ vỡ nợ bung bét, Dương Thù Mỹ vì xót con trai mà đem cả cơ nghiệp cả đời của mình dâng nộp vào miệng cọp.
 
-Kể từ lần đầu tiên hai người gặp mặt, Dương Xu Mỹ tuy thỉnh thoảng có nhắn vài dòng tin nhắn mập mờ bóng gió, nhưng người đàn bà này tuyệt đối chưa bao giờ có dã tâm muốn hại Triệu Kim An. Việc nào ra việc đó, ân oán phân minh. Sau cuộc gặp gỡ với Diệp Lục Du, tâm thế của Triệu Kim An đã có sự thay đổi.
+Kể từ lần đầu tiên hai người gặp mặt, Dương Thù Mỹ tuy thỉnh thoảng có nhắn vài dòng tin nhắn mập mờ bóng gió, nhưng người đàn bà này tuyệt đối chưa bao giờ có dã tâm muốn hại Triệu Kim An. Việc nào ra việc đó, ân oán phân minh. Sau cuộc gặp gỡ với Diệp Lục Du, tâm thế của Triệu Kim An đã có sự thay đổi.
 
 Ở đầu dây bên kia.
 
-Dương Xu Mỹ ngồi thừ người trên giường, ngơ ngác nhìn màn hình điện thoại đã vang lên những tiếng tút tút kéo dài đơn điệu.
+Dương Thù Mỹ ngồi thừ người trên giường, ngơ ngác nhìn màn hình điện thoại đã vang lên những tiếng tút tút kéo dài đơn điệu.
 
 Hết... hết rồi sao!?
 
 Nửa đêm nửa hôm dựng người ta dậy, chỉ có bấy nhiêu thôi ư!?
 
-Kể từ khoảnh khắc nhận được cuộc gọi của Triệu Kim An, ngọn lửa hưng phấn rạo rực trong lòng Dương Xu Mỹ đã bùng cháy dữ dội, ở cái tuổi này của bà thì làm sao mà chợp mắt ngủ lại được nữa?
+Kể từ khoảnh khắc nhận được cuộc gọi của Triệu Kim An, ngọn lửa hưng phấn rạo rực trong lòng Dương Thù Mỹ đã bùng cháy dữ dội, ở cái tuổi này của bà thì làm sao mà chợp mắt ngủ lại được nữa?
 
 Bà đâu còn là đứa trẻ ranh đôi mươi, đặt lưng xuống giường là ngáy o o được ngay.
 
-Từ ngày Triệu Kim An đặt chân đến Dương Thành, Dương Xu Mỹ ngày đêm ngóng trông cuộc gọi này, mòn mỏi đợi chờ một lời triệu tập.
+Từ ngày Triệu Kim An đặt chân đến Dương Thành, Dương Thù Mỹ ngày đêm ngóng trông cuộc gọi này, mòn mỏi đợi chờ một lời triệu tập.
 
-Dẫu cho Trần Trạch và Vương Phương Dụ đang ngủ say ngay trên tầng hai, vạn nhất nếu thằng Trạch có tình cờ phát hiện ra, Dương Xu Mỹ cũng có thể đường hoàng đứng thẳng lưng mà mắng thẳng vào mặt nó: "Nếu không có bốn triệu tệ năm xưa của thằng Kim An đưa cho, cái nhà này đã sạt nghiệp phá sản từ tám đời rồi!"
+Dẫu cho Trần Trạch và Vương Phương Dụ đang ngủ say ngay trên tầng hai, vạn nhất nếu thằng Trạch có tình cờ phát hiện ra, Dương Thù Mỹ cũng có thể đường hoàng đứng thẳng lưng mà mắng thẳng vào mặt nó: "Nếu không có bốn triệu tệ năm xưa của thằng Kim An đưa cho, cái nhà này đã sạt nghiệp phá sản từ tám đời rồi!"
 
 "Lấy đâu ra ba mươi triệu sau này cho mày mượn, lấy đâu ra cái công ty Bất động sản Trạch Vũ vẻ vang như hôm nay của mày nữa hả con?"
 
@@ -142,7 +142,7 @@ Bên ngoài cửa phòng, nơi hành lang vắng lặng.
 
 Vương Phương Dụ vừa xuống tầng dưới tìm nước uống, lúc đi ngang qua cửa phòng mẹ chồng nghe thấy tiếng chuông điện thoại reo bèn tò mò nép sát tai vào cánh cửa nghe ngóng.
 
-Ban đầu cô cứ ngỡ Dương Xu Mỹ kiếm được người đàn ông nào bên ngoài, chỉ là ngại ngùng chưa tiện mở lời với cô và Trần Trạch.
+Ban đầu cô cứ ngỡ Dương Thù Mỹ kiếm được người đàn ông nào bên ngoài, chỉ là ngại ngùng chưa tiện mở lời với cô và Trần Trạch.
 
 Thế nhưng cô nằm mơ cũng không ngờ tới, đầu dây bên kia lại chính là Triệu Kim An.
 
@@ -160,7 +160,7 @@ Trước đây Vương Phương Dụ không để tâm lắm, còn bênh mẹ b�
 
 Vương Phương Dụ cúi đầu nhìn ly nước thủy tinh trên tay. Cánh cửa phòng ngủ của căn biệt thự có khả năng cách âm khá tốt, khiến cô không thể nghe trọn vẹn từng câu từng chữ trong cuộc trò chuyện giữa Triệu Kim An và mẹ chồng.
 
-May mắn là Dương Xu Mỹ lúc này không vội vã thay quần áo bước ra ngoài, bằng không nếu cánh cửa đột ngột mở toang thì tình cảnh sẽ ngượng ngùng đến mức nào không biết.
+May mắn là Dương Thù Mỹ lúc này không vội vã thay quần áo bước ra ngoài, bằng không nếu cánh cửa đột ngột mở toang thì tình cảnh sẽ ngượng ngùng đến mức nào không biết.
 
 Vương Phương Dụ không hay biết cuộc gọi đã kết thúc từ lúc nào, vẫn kiên nhẫn nép tai vào cánh cửa rình rập thêm một lát.
 
@@ -168,7 +168,7 @@ Mãi đến khi không còn nghe thấy bất kỳ động tĩnh nào bên trong
 
 Nhìn Trần Trạch đang nằm ngáy như sấm trên giường, Vương Phương Dụ lúc này cũng hoàn toàn mất ngủ.
 
-Cô vắt óc suy nghĩ cũng không thể tìm ra bất kỳ lý do chính đáng nào để hai người bọn họ gọi điện cho nhau vào giờ này. Triệu Kim An và Dương Xu Mỹ hoàn toàn không có bất kỳ mối quan hệ làm ăn buôn bán nào cả.
+Cô vắt óc suy nghĩ cũng không thể tìm ra bất kỳ lý do chính đáng nào để hai người bọn họ gọi điện cho nhau vào giờ này. Triệu Kim An và Dương Thù Mỹ hoàn toàn không có bất kỳ mối quan hệ làm ăn buôn bán nào cả.
 
 Mấu chốt là thời điểm: ba giờ rưỡi sáng!
 
@@ -194,7 +194,7 @@ Thậm chí cậu ta còn có thể điên cuồng gọi điện mắng thẳng 
 
 Nằm trằn trọc trên giường, Vương Phương Dụ lật qua lật lại mãi không sao chợp mắt nổi. Trong đầu cô không ngừng hồi tưởng lại những lần trước đây mỗi khi nhắc đến Triệu Kim An, biểu cảm và cử chỉ của mẹ chồng mình khác lạ ra sao. Chẳng lẽ bấy lâu nay không phải do Trần Trạch quá nhạy cảm hay sao?
 
-Cô chợt nhớ lại cái đêm ở khách sạn suối nước nóng tại Dương Thành dạo trước, lúc đó nhóm Phương Khiết cũng có mặt. Dương Xu Mỹ mặc bộ áo tắm gợi cảm cùng cô bước xuống bể ngâm, rồi cả những biểu hiện kỳ lạ của mẹ chồng trong phòng xông hơi nữa.
+Cô chợt nhớ lại cái đêm ở khách sạn suối nước nóng tại Dương Thành dạo trước, lúc đó nhóm Phương Khiết cũng có mặt. Dương Thù Mỹ mặc bộ áo tắm gợi cảm cùng cô bước xuống bể ngâm, rồi cả những biểu hiện kỳ lạ của mẹ chồng trong phòng xông hơi nữa.
 
 Lúc ở trong phòng khách sạn thay đồ bơi, cô còn chu đáo hỏi: "Mẹ ơi, tụi con toàn là đám trẻ tuổi, nếu mẹ thấy ngại không muốn đi cùng thì cũng không sao đâu ạ."
 

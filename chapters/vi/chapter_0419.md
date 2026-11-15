@@ -92,7 +92,7 @@ Du Phi khẽ mỉm cười đáp: "Cậu nhận cũng đâu có ít, mười b�
 
 "Đương nhiên rồi!"
 
-Ngải Manh Manh đắc ý vênh mặt lên. Cô là một trong hai người bạn cấp ba hiếm hoi may mắn được đi theo phò tá Triệu Kim An. Triệu Trí Dũng thì không tính vào đây làm gì, bởi Trí Dũng là bạn nối khố từ thuở cởi truồng tắm mưa, học chung một lớp với Kim An từ những năm tiểu học.
+Ngải Manh Manh đắc ý vênh mặt lên. Cô là một trong hai người bạn cấp ba hiếm hoi may mắn được đi theo phò tá Triệu Kim An. Triệu Chí Dũng thì không tính vào đây làm gì, bởi Trí Dũng là bạn nối khố từ thuở cởi truồng tắm mưa, học chung một lớp với Kim An từ những năm tiểu học.
 
 "Tớ có thăm dò mấy đứa bạn học cấp ba cũ rồi, lương chúng nó tháng nào cũng chỉ lẹt đẹt quanh quẩn hai nghìn tệ, đào đâu ra khái niệm thưởng Tết. Hỏi đến thưởng Tết tụi nó còn ngơ ngác hỏi ngược lại xem thưởng Tết là cái giống gì cơ đấy!"
 

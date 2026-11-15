@@ -112,17 +112,17 @@ Giá nhà đất ngày nào chả tăng ầm ầm, mỗi tháng một mức giá
 
 Đây đã là lần thứ hai Triệu Kim An lên tiếng cảnh tỉnh Trần Trạch. Anh thực tâm không muốn nhìn thấy cái phòng ký túc xá 303 năm nào cuối cùng chỉ còn trơ trọi lại mỗi một mình bản thân anh đơn độc bước tiếp trên cõi đời này; mà bản thân anh hiện tại biết đâu chừng cũng đang chạm vào miếng bánh lợi ích của không ít thế lực ngầm.
 
-Hơn nữa, người mẹ của Trần Trạch - dì Dương Xu Mỹ thực sự là một người phụ nữ quá đỗi hiền hậu và tử tế.
+Hơn nữa, người mẹ của Trần Trạch - dì Dương Thù Mỹ thực sự là một người phụ nữ quá đỗi hiền hậu và tử tế.
 
 Mới ban chiều, bà ấy vừa gửi cho Triệu Kim An liên tiếp mấy dòng tin nhắn đầy vẻ áy náy:
 
-Dương Xu Mỹ: [Kim An à, cháu đã vào tới Dương Thành rồi đấy ư?]
+Dương Thù Mỹ: [Kim An à, cháu đã vào tới Dương Thành rồi đấy ư?]
 
-Dương Xu Mỹ: [Kim An, cháu đang ở đâu thế? Liệu có chút thời gian rảnh nào không cháu?]
+Dương Thù Mỹ: [Kim An, cháu đang ở đâu thế? Liệu có chút thời gian rảnh nào không cháu?]
 
-Dương Xu Mỹ: [Kim An này, thằng Trần Trạch nhà dì nó có trót dại gây chuyện gì mạo phạm đến cháu không? Cháu là đứa hiểu chuyện, ngàn vạn lần đừng chấp nhặt với cái tính trẻ con của nó nhé. Có điều gì nó làm sai, cháu cứ nói thẳng với dì, để dì mắng cho nó một trận nên thân, dì xin thay mặt nó cúi đầu nhận lỗi với cháu.]
+Dương Thù Mỹ: [Kim An này, thằng Trần Trạch nhà dì nó có trót dại gây chuyện gì mạo phạm đến cháu không? Cháu là đứa hiểu chuyện, ngàn vạn lần đừng chấp nhặt với cái tính trẻ con của nó nhé. Có điều gì nó làm sai, cháu cứ nói thẳng với dì, để dì mắng cho nó một trận nên thân, dì xin thay mặt nó cúi đầu nhận lỗi với cháu.]
 
-Hãy nhìn mà xem! Bản thân Trần Trạch thực chất chẳng hề làm điều gì quá quắt, vậy mà thái độ của bà Dương Xu Mỹ đã lập tức chủ động hạ mình nhận phần sai về phía con trai mình.
+Hãy nhìn mà xem! Bản thân Trần Trạch thực chất chẳng hề làm điều gì quá quắt, vậy mà thái độ của bà Dương Thù Mỹ đã lập tức chủ động hạ mình nhận phần sai về phía con trai mình.
 
 "Có được một người mẹ tần tảo, hết lòng vì con cái như thế đứng ra che chắn, gánh vác mọi phong ba bão táp cho mình, cái thằng Trần Trạch này đúng là kiếp trước đã thắp hương thơm phúc đức mấy đời."
 

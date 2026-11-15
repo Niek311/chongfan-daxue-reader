@@ -60,7 +60,7 @@ Hai ông bác Tô Cảnh Ngôn và Tô Cảnh Hành gọi điện chúc Tết m�
 
 "Gượng gạo cái nỗi gì chứ?!"
 
-Bà Quách Uyển Thanh vừa áp điện thoại bên tai vừa đưa mắt tìm kiếm bóng dáng Triệu Kim An, cười rạng rỡ nói: "Làm gì có chuyện câu nệ! Thằng Kim An với thằng Quân Dương đang xúm vào chuốc rượu bố chúng mày kìa, hai đứa thanh niên hợp sức lại đối phó với một mình ông già. Con Tô Miến ăn lưng bát cơm là đã rời bàn trước rồi, thằng Kim An thấy thế lại lăng xăng chạy tót vào bếp bảo để nó xào thêm đĩa thức ăn cay nồng kiểu Hồ Nam cho bố chúng mày nhắm rượu. Ông già chúng mày nãy giờ đang uống đến độ phấn chấn lắm."
+Bà Quách Uyển Thanh vừa áp điện thoại bên tai vừa đưa mắt tìm kiếm bóng dáng Triệu Kim An, cười rạng rỡ nói: "Làm gì có chuyện câu nệ! Thằng Kim An với thằng Quân Dương đang xúm vào chuốc rượu bố chúng mày kìa, hai đứa thanh niên hợp sức lại đối phó với một mình ông già. Con Tô Miến ăn lưng bát cơm là đã rời bàn trước rồi, thằng Kim An thấy thế lại lăng xăng chạy tót vào bếp bảo để nó xào thêm đĩa thức ăn cay nồng kiểu Tương Nam cho bố chúng mày nhắm rượu. Ông già chúng mày nãy giờ đang uống đến độ phấn chấn lắm."
 
 "Có điều ông ấy cứ càu nhàu mắng thằng Kim An khôn lỏi giở trò trốn rượu, bảo là muốn né uống nên mới viện cớ chui vào bếp xào nấu lăng xăng, chứ trong nhà này thiếu gì người giúp việc đâu."
 
@@ -104,7 +104,7 @@ Tô Miến nở nụ cười đầy vẻ kiêu hãnh: "Anh ấy cố tình bỏ 
 
 "Tiểu cô không biết đấy thôi, măng xào mà thiếu vị ớt cay nồng thì ăn mất cả ngon."
 
-Khang Văn Đông vốn quen ăn cay kiểu Tứ Xuyên. Người đời thường bảo món ăn Hồ Nam ngon hơn ẩm thực Xuyên thục bởi lẽ đồ Tứ Xuyên thiên về dầu mỡ và vị tê cay của hoa tiêu, còn món Hồ Nam lại đậm đà cái vị cay thơm nồng nàn. Cô liếc nhìn các món ngon bày trên bàn, ngước lên bảo: "Ông nội ơi, cho cháu ăn thêm một bát cơm nữa nhé."
+Khang Văn Đông vốn quen ăn cay kiểu Tứ Xuyên. Người đời thường bảo món ăn Tương Nam ngon hơn ẩm thực Xuyên thục bởi lẽ đồ Tứ Xuyên thiên về dầu mỡ và vị tê cay của hoa tiêu, còn món Tương Nam lại đậm đà cái vị cay thơm nồng nàn. Cô liếc nhìn các món ngon bày trên bàn, ngước lên bảo: "Ông nội ơi, cho cháu ăn thêm một bát cơm nữa nhé."
 
 "Cháu muốn ăn thì tự mình vào bếp mà xới."
 

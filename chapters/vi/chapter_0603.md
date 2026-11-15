@@ -10,11 +10,11 @@ Vị trưởng đồn nở nụ cười hiền hậu, hòa nhã dặn dò: "Cô 
 
 Mấy ngày bị tạm giữ ở đồn công an, Mộc Dao thực ra không phải chịu khổ sở gì. Cơm nước đã có Du Phi cùng Ngải Manh Manh đưa tới tận nơi, lại còn mang sẵn quần áo sạch để cô tắm rửa thay đổi mỗi ngày.
 
-Triệu Trí Dũng thì mê tín, giữa trưa hè nắng chang chang lại hì hục bê một chậu than củi đặt ngay dưới chân tòa nhà.
+Triệu Chí Dũng thì mê tín, giữa trưa hè nắng chang chang lại hì hục bê một chậu than củi đặt ngay dưới chân tòa nhà.
 
 Du Phi, Ngải Manh Manh, Âu Cường cùng Điền Vũ Hạo đứng tụ tập ở sảnh dưới khu tập thể chờ Mộc Dao về.
 
-"Triệu Trí Dũng, mày học cái trò dở hơi này ở đâu ra đấy?"
+"Triệu Chí Dũng, mày học cái trò dở hơi này ở đâu ra đấy?"
 
 "Bao giờ chúng mày có ngày bị xích vào trong đó, tao cũng lập cho một chậu y hệt."
 
@@ -26,7 +26,7 @@ Du Phi, Ngải Manh Manh, Âu Cường cùng Điền Vũ Hạo đứng tụ tậ
 
 Du Phi và Ngải Manh Manh bật cười khúc khích: "Lớp trưởng à, hóa ra cậu còn có cái thú vui tao nhã này cơ đấy?"
 
-Triệu Trí Dũng tay cầm một nhánh cây chẳng rõ là cành bưởi hay cành dâu, miệng liến thoắng bảo lát nữa phải quất nhẹ lên người Mộc Dao mấy cái thì mới xua đuổi hết tà khí, hóa giải vận xui.
+Triệu Chí Dũng tay cầm một nhánh cây chẳng rõ là cành bưởi hay cành dâu, miệng liến thoắng bảo lát nữa phải quất nhẹ lên người Mộc Dao mấy cái thì mới xua đuổi hết tà khí, hóa giải vận xui.
 
 "..."
 
@@ -40,15 +40,15 @@ Trương Tuệ cùng Trương Vân Thiến hộ tống Mộc Dao bước xuống
 
 "Dao Dao, mau, bước qua đây!"
 
-Triệu Trí Dũng vung vẩy nhành cây, khẽ quất nhẹ lên người Mộc Dao, trong miệng lầm rầm khấn vái như thầy cúng.
+Triệu Chí Dũng vung vẩy nhành cây, khẽ quất nhẹ lên người Mộc Dao, trong miệng lầm rầm khấn vái như thầy cúng.
 
-Mộc Dao nhấc chân bước qua chậu lửa đang bốc khói nghi ngút, ngước mắt nhìn Triệu Trí Dũng: "Trí Dũng, cảm ơn cậu."
+Mộc Dao nhấc chân bước qua chậu lửa đang bốc khói nghi ngút, ngước mắt nhìn Triệu Chí Dũng: "Trí Dũng, cảm ơn cậu."
 
-Triệu Trí Dũng xua xua tay: "Xì, giữa chúng mình với nhau còn khách khí thế làm gì."
+Triệu Chí Dũng xua xua tay: "Xì, giữa chúng mình với nhau còn khách khí thế làm gì."
 
 "Cảm ơn cháu nhé, bạn học."
 
-Cả Trương Tuệ lẫn Trương Vân Thiến đều chân thành nói lời cảm ơn Triệu Trí Dũng. Phụ nữ gặp chuyện bao giờ cũng có chút kiêng kỵ tâm linh, dẫu sao làm thế này cũng để cầu lấy một sự thanh thản, an lòng.
+Cả Trương Tuệ lẫn Trương Vân Thiến đều chân thành nói lời cảm ơn Triệu Chí Dũng. Phụ nữ gặp chuyện bao giờ cũng có chút kiêng kỵ tâm linh, dẫu sao làm thế này cũng để cầu lấy một sự thanh thản, an lòng.
 
 "Dao Dao... Em bình an vô sự là tốt rồi."
 

@@ -72,7 +72,7 @@ Nhân viên trong tập đoàn vốn dĩ đã biết chuyện Tô Miến có tha
 
 Máu tò mò, hóng hớt của đám nhân viên lớn đến mức nào, khỏi nói cũng hình dung ra được.
 
-Chu Hoa Phong đứng một góc điềm tĩnh nhả khói thuốc.
+Chu Phong Hoa đứng một góc điềm tĩnh nhả khói thuốc.
 
 Quan Văn Bách túc trực 24/24 bảo vệ quanh khu chung cư của Từ Mạn Mạn, quay sang hỏi Đan Vĩ bên cạnh: "Lão Đan, anh bảo xem sau chuyện này, vị thế của bé Triệu Tri Nặc sẽ tăng lên hay giảm đi?"
 

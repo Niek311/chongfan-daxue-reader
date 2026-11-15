@@ -112,7 +112,7 @@ Triệu Kim An đứng dậy bước vào phòng, rút từ trong túi xách ra 
 
 Anh xếp chúng theo đúng thứ tự thời gian.
 
-Kể từ ngày Triệu Tri Hành và Triệu Tri Vi cất tiếng khóc chào đời, ngày đầy tháng, thôi nôi cho đến các dịp Tết Nguyên Đán, Từ Mạn Mạn và Thẩm Tử Ngôn chưa từng để sót một phong bao nào; rồi cả Đường Hiểu Tình, Lâm Thanh Tuyết, Triệu Trí Dũng, Vương Duy Đào, Triệu Bác Lan, Du Phi...
+Kể từ ngày Triệu Tri Hành và Triệu Tri Vi cất tiếng khóc chào đời, ngày đầy tháng, thôi nôi cho đến các dịp Tết Nguyên Đán, Từ Mạn Mạn và Thẩm Tử Ngôn chưa từng để sót một phong bao nào; rồi cả Đường Hiểu Tình, Lâm Thanh Tuyết, Triệu Chí Dũng, Vương Duy Đào, Triệu Bác Lan, Du Phi...
 
 Duy chỉ có Mộc Dao kể từ ngày chuyển hẳn về Dương Thành sinh sống thì không còn nhờ Du Phi gửi bao lì xì cho hai bé nữa.
 

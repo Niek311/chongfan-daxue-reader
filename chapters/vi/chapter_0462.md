@@ -46,7 +46,7 @@ Nó hoàn toàn khác biệt với mô hình kinh doanh trên nền tảng Inter
 
 Doãn Hiểu Lan trông thấy Triệu Kim An và Từ Mạn Mạn đang mải mê bàn chuyện làm ăn, bèn dịu dàng bế bé Triệu Tri Nặc ra ngoài phòng khách. Doãn Hiểu Lan không hiểu gì về những guồng quay thương trường phức tạp của Triệu Kim An. Cô và Từ Mạn Mạn giống như hai thái cực đối lập nhau chan chát: Từ Mạn Mạn thì kỹ năng quán xuyến việc nhà gần như bằng không, trong khi Doãn Hiểu Lan lại đạt điểm tuyệt đối về khoản đảm đang tề gia nội trợ.
 
-Trước đó, Triệu Trí Dũng có kể với Triệu Kim An rằng chị dâu Hiểu Lan vừa mừng tuổi cho con bé Triệu Niệm Khả một phong bao đỏ một nghìn tệ.
+Trước đó, Triệu Chí Dũng có kể với Triệu Kim An rằng chị dâu Hiểu Lan vừa mừng tuổi cho con bé Triệu Niệm Khả một phong bao đỏ một nghìn tệ.
 
 Mức lương của Doãn Hiểu Lan ở trường mầm non mỗi tháng vỏn vẹn chỉ có bốn nghìn tệ.
 

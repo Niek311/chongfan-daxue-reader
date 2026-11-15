@@ -126,7 +126,7 @@ Chỉ có điều khi doanh nghiệp vươn buồm ra biển lớn, những gã 
 
 Chỉ cần dòng vốn của Triệu Kim An gặp trục trặc, sẽ chẳng có bất kỳ ai buồn nhắc lại chuyện ân tình ngày cũ: Trên bàn đàm phán sẽ chỉ còn trơ trọi một bản hợp đồng chuyển nhượng ép cậu phải đặt bút ký tên.
 
-Điều này, nếu chỉ ru rú ở trong nước sẽ chẳng bao giờ thấm thía sâu sắc đến vậy. Đợt khủng hoảng tài chính vừa rồi, Trần Triệt cũng từng phải chạy vạy khắp nơi, quỳ lụy van xin vay mượn từng đồng bạc.
+Điều này, nếu chỉ ru rú ở trong nước sẽ chẳng bao giờ thấm thía sâu sắc đến vậy. Đợt khủng hoảng tài chính vừa rồi, Trần Trạch cũng từng phải chạy vạy khắp nơi, quỳ lụy van xin vay mượn từng đồng bạc.
 
 Thực ra cuộc đời vốn rất công bằng. Khi anh đã tận hưởng những tháng ngày nhung lụa lắm tiền nhiều của, thì anh cũng phải chuẩn bị sẵn tâm lý đón nhận rủi ro.
 

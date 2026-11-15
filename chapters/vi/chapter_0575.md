@@ -68,7 +68,7 @@ Cô gái từng là nữ thần vạn người mê của Đại học Trung Nam 
 
 Thẩm Tử Ngôn đưa mắt nhìn qua một dãy dài biển số xe đỗ la liệt ngoài sân, đủ mọi loại biển số từ khắp các tỉnh thành đổ về: "Bên kia có chuyện gì thế, hình như mọi người đang tranh cãi gay gắt lắm thì phải?"
 
-"Nào là Bảo Vũ, An Cương, Hà Cương, rồi cả Thép Hoa Lăng của tỉnh Hồ Nam mình, hay Thép Sa Cương bên phía quê cậu nữa..."
+"Nào là Bảo Vũ, An Cương, Hà Cương, rồi cả Thép Hoa Lăng của tỉnh Tương Nam mình, hay Thép Sa Cương bên phía quê cậu nữa..."
 
 Diêu Sân hạ thấp giọng thì thào: "Bao nhiêu vị tổng giám đốc tai to mặt lớn đều đích thân bay đến đây cả rồi, tất cả đang sốt ruột ngồi chờ Kim An tới để phân chia số quặng sắt tồn kho ở cảng Chu Sơn đấy."
 

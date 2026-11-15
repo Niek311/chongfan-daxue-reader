@@ -32,7 +32,7 @@ Toàn thân Đan Vĩ bê bết bùn đất đỏ quạch, anh thật lòng khôn
 
 Tắm rửa gột sạch bụi đường tại văn phòng đại diện xong xuôi, giáo sư Lương kéo Triệu Kim An cùng tản bộ dạo quanh con đường đất bên ngoài.
 
-Chu Hoa Phong và Đặng Thần Bình cùng mấy tay súng bảo an mỗi người lăm lăm một khẩu súng trường "chân lý" dài ngoằng trên tay, chia nhau cảnh giới nghiêm ngặt trước sau. Hễ Triệu Kim An bước chân ra ngoài quá một quãng ngắn là đội ngũ an ninh của công ty đều lập tức bám sát hộ tống.
+Chu Phong Hoa và Đặng Thần Bình cùng mấy tay súng bảo an mỗi người lăm lăm một khẩu súng trường "chân lý" dài ngoằng trên tay, chia nhau cảnh giới nghiêm ngặt trước sau. Hễ Triệu Kim An bước chân ra ngoài quá một quãng ngắn là đội ngũ an ninh của công ty đều lập tức bám sát hộ tống.
 
 Mỗi người một khẩu "chân lý" thép lạnh lùng.
 
@@ -96,13 +96,13 @@ Nghe đến đây, đám người Dương Tuệ Quỳnh đưa mắt nhìn nhau, 
 
 Lúc đầu bọn họ cứ ngỡ giáo sư muốn báo cáo chuyên sâu về chất lượng quặng sắt Simandou, bụng bảo dạ phen này phải thể hiện thật tốt trước mặt ông chủ trẻ.
 
-"Chu Hoa Phong."
+"Chu Phong Hoa."
 
 "Có tôi, ông chủ."
 
-Chu Hoa Phong vội vã chạy lại gần. Triệu Kim An chìa bàn tay ra.
+Chu Phong Hoa vội vã chạy lại gần. Triệu Kim An chìa bàn tay ra.
 
-Chu Hoa Phong liếc nhìn khẩu "chân lý" đang khoác trên vai mình, lập tức tháo xuống, cung kính đặt vào tay Triệu Kim An.
+Chu Phong Hoa liếc nhìn khẩu "chân lý" đang khoác trên vai mình, lập tức tháo xuống, cung kính đặt vào tay Triệu Kim An.
 
 "Ông chủ, kéo cái chốt này ra phía sau."
 
@@ -112,7 +112,7 @@ Triệu Kim An nâng khẩu súng trường thép nguội ngắt lên, nhắm th
 
 Tiếng súng nổ ròn rã chát chúa xé toạc không gian tĩnh mịch, chỉ trong một hơi thở anh đã trút sạch toàn bộ băng đạn.
 
-Chu Hoa Phong túc trực ngay sát bên cạnh, đề phòng lực giật của súng làm anh mất thăng bằng.
+Chu Phong Hoa túc trực ngay sát bên cạnh, đề phòng lực giật của súng làm anh mất thăng bằng.
 
 "A——!"
 

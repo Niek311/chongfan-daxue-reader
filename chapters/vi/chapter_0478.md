@@ -152,19 +152,19 @@ Triệu Kim An vươn ngón tay trỏ khẽ chọc nhẹ vào cổ con gái, c�
 
 Thế nhưng Triệu Tri Nặc chẳng thèm nể mặt ông bố trẻ chút nào, con bé vẫn nằm ngủ say sưa ngon lành.
 
-Triệu Trí Dũng đứng bên cạnh nhìn mà phát sốt ruột: "Kim An ơi là Kim An, mày ngồi xổm như thế cả nửa tiếng đồng hồ rồi đấy."
+Triệu Chí Dũng đứng bên cạnh nhìn mà phát sốt ruột: "Kim An ơi là Kim An, mày ngồi xổm như thế cả nửa tiếng đồng hồ rồi đấy."
 
-Trịnh Như vỗ nhẹ vào vai Triệu Trí Dũng một cái: "Sao Vương Duy Đào với Phùng Vũ Lam vẫn chưa thấy tới nhỉ?"
+Trịnh Như vỗ nhẹ vào vai Triệu Chí Dũng một cái: "Sao Vương Duy Đào với Phùng Vũ Lam vẫn chưa thấy tới nhỉ?"
 
 "Bọn nó chưa hết giờ làm việc."
 
-Triệu Trí Dũng rút điện thoại ra bấm số: "Alo, Đào tử hả? Mày với Vũ Lam đang ở cái xó nào thế? Mày còn định để Triệu tổng phải đứng chờ mày nữa à? Không muốn sống nữa đúng không? Đã bảo là tối nay kéo nhau sang quán của đứa bạn cùng lớp chúng mày ăn cơm rồi cơ mà..."
+Triệu Chí Dũng rút điện thoại ra bấm số: "Alo, Đào tử hả? Mày với Vũ Lam đang ở cái xó nào thế? Mày còn định để Triệu tổng phải đứng chờ mày nữa à? Không muốn sống nữa đúng không? Đã bảo là tối nay kéo nhau sang quán của đứa bạn cùng lớp chúng mày ăn cơm rồi cơ mà..."
 
 Từ Mạn Mạn ngồi đoan trang phía sau bàn làm việc xử lý tài liệu, thỉnh thoảng lại ngước mắt lên ngắm nhìn vẻ mặt ngập tràn cưng chiều của Triệu Kim An khi trêu đùa con gái, khóe môi cô khẽ cong lên một nét cười dịu ngọt. Trong lòng cô thầm nghĩ, tất cả những vất vả nhọc nhằn đã qua thực sự đều xứng đáng.
 
 Cách đối đãi với con cái của Triệu Kim An và Từ Tắc Đống quả thực là hai thái cực hoàn toàn đối lập.
 
-"Kim An, thằng Đào tử tới rồi kìa! Mạn Mạn ơi, em tạm gác công việc lại đi đã!" Triệu Trí Dũng oang oang giục giã.
+"Kim An, thằng Đào tử tới rồi kìa! Mạn Mạn ơi, em tạm gác công việc lại đi đã!" Triệu Chí Dũng oang oang giục giã.
 
 "Tao trừ lương mày bây giờ, dám rủ rê trốn việc về sớm hả!"
 
@@ -190,7 +190,7 @@ Triệu Kim An gật đầu lắng nghe, hai tay đang bận nâng niu con gái 
 
 "Sếp...?" Đặng Thần Bình đứng ngoài cửa chủ động cất tiếng hỏi.
 
-Triệu Kim An ôm Triệu Tri Nặc cẩn thận bước ra ngoài. Từ Mạn Mạn sánh bước một bên, Triệu Trí Dũng và Trịnh Như đi theo phía sau. Triệu Kim An chăm chú nhìn con gái từng li từng tí chẳng rảnh mắt ngó sang Đặng Thần Bình, trong mắt lúc này chỉ có độc mỗi Triệu Tri Nặc, anh buông lời phân phó:
+Triệu Kim An ôm Triệu Tri Nặc cẩn thận bước ra ngoài. Từ Mạn Mạn sánh bước một bên, Triệu Chí Dũng và Trịnh Như đi theo phía sau. Triệu Kim An chăm chú nhìn con gái từng li từng tí chẳng rảnh mắt ngó sang Đặng Thần Bình, trong mắt lúc này chỉ có độc mỗi Triệu Tri Nặc, anh buông lời phân phó:
 
 "Cậu lái xe xuống Sâm Thành đón một chuyến đi."
 

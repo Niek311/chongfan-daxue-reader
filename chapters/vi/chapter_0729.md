@@ -140,7 +140,7 @@ Nói cho cùng, thời điểm bọn họ "ly hôn" khi ấy quả thực rất 
 
 Mãi cho tới tận trước ngày trùng sinh, Trần Thanh Trĩ vẫn một thân một mình, chưa từng đi bước nữa với ai.
 
-Triệu Trí Dũng từng không ít lần mở miệng khuyên can Triệu Kim An nên quay lại tái hôn với Trần Thanh Trĩ, lý do đưa ra vừa đơn giản lại vừa trần trụi: Lấy vợ mới lại tốn thêm một đống tiền sính lễ cỗ bàn, quay lại với Trần Thanh Trĩ thì chẳng mất thêm một đồng bạc nào cả.
+Triệu Chí Dũng từng không ít lần mở miệng khuyên can Triệu Kim An nên quay lại tái hôn với Trần Thanh Trĩ, lý do đưa ra vừa đơn giản lại vừa trần trụi: Lấy vợ mới lại tốn thêm một đống tiền sính lễ cỗ bàn, quay lại với Trần Thanh Trĩ thì chẳng mất thêm một đồng bạc nào cả.
 
 Lý do nghe có vẻ thô thiển bỗ bã thật, nhưng ngẫm lại thì vô cùng thực tế.
 
@@ -164,7 +164,7 @@ Sau khi tốt nghiệp ra trường, người con gái duy nhất trong số h�
 
 Hai người chưa từng kết bạn WeChat với nhau, Từ Mạn Mạn khi ấy đã là người phụ nữ thành đạt lái chiếc Mercedes sang trọng, còn thu nhập một năm của Triệu Kim An cày cuốc cật lực cũng chỉ vỏn vẹn hơn hai trăm nghìn tệ. Khoảng cách địa vị quá xa xôi, công việc giữa hai người lại càng không có bất kỳ điểm giao thoa nào.
 
-Triệu Trí Dũng rất thích chạy sang căn hộ của Triệu Kim An tụ tập uống rượu, căn hộ mà Triệu Kim An thuê ở chỉ cách công ty của Trần Trạch ở trung tâm thành phố chừng hai trăm mét.
+Triệu Chí Dũng rất thích chạy sang căn hộ của Triệu Kim An tụ tập uống rượu, căn hộ mà Triệu Kim An thuê ở chỉ cách công ty của Trần Trạch ở trung tâm thành phố chừng hai trăm mét.
 
 Thế nhưng trên đường đi làm về mỗi ngày, Triệu Kim An chưa từng một lần vô tình bắt gặp Từ Mạn Mạn, cũng chưa từng nhìn thấy chiếc xe Mercedes quen thuộc kia.
 

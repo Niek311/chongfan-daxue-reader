@@ -152,7 +152,7 @@ Tâm trí của cả Từ Mạn Mạn lẫn Triệu Kim An xưa nay vốn chẳn
 
 "Tết này còn có những ai đến chơi nữa không chị?" Lý Đình Đình lại tò mò gặng hỏi.
 
-"Chính chị cũng không nắm rõ nữa. Anh Triệu Trí Dũng với vợ chồng anh Vương Duy Đào thì đã hẹn trước từ sớm rồi; chị Ngải Manh Manh năm nay cũng ở lại Quận Sa đón Tết; à phải rồi, hôm trước cô giáo Dư Tĩnh cũng có ghé qua chơi, mang tặng cho bé Nặc Nặc một món quà mừng năm mới..."
+"Chính chị cũng không nắm rõ nữa. Anh Triệu Chí Dũng với vợ chồng anh Vương Duy Đào thì đã hẹn trước từ sớm rồi; chị Ngải Manh Manh năm nay cũng ở lại Quận Sa đón Tết; à phải rồi, hôm trước cô giáo Dư Tĩnh cũng có ghé qua chơi, mang tặng cho bé Nặc Nặc một món quà mừng năm mới..."
 
 Những ngày cuối năm cận kề, Từ Mạn Mạn dường như dồn hết tâm trí vào "thiên chức gia đình".
 

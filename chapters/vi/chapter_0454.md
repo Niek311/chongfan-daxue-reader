@@ -152,7 +152,7 @@ Không riêng gì Từ Tắc Đống, mà toàn thể những người có mặt
 
 Đến cả bà nội cũng run rẩy chống gậy bước hẳn ra ngoài cổng đón. Đây là lần đầu tiên Triệu Kim An và Từ Mạn Mạn cùng nhau quay trở về nơi này. Đã hai năm ròng rã trôi qua, mãi cho đến tận bây giờ, khi cái thai trong bụng đã sắp đến ngày khai hoa nở nhụy, Từ Mạn Mạn mới chịu bước chân về lại.
 
-Thấy đoàn xe sang trọng từ từ dừng bánh, mọi người tự giác dạt sang hai bên nhường lối. Đan Vĩ liếc nhìn gương chiếu hậu, trong khi Chu Hoa Phong đã nhanh chóng đẩy cửa bước xuống từ chiếc Mercedes để vòng ra mở cửa xe sau. Mọi người đều vươn dài cổ ngóng đợi, nào ngờ người đầu tiên nhảy tót xuống từ chiếc Rolls-Royce lại là cô bé Lý Đình Đình với chiếc ba lô to tướng trên vai.
+Thấy đoàn xe sang trọng từ từ dừng bánh, mọi người tự giác dạt sang hai bên nhường lối. Đan Vĩ liếc nhìn gương chiếu hậu, trong khi Chu Phong Hoa đã nhanh chóng đẩy cửa bước xuống từ chiếc Mercedes để vòng ra mở cửa xe sau. Mọi người đều vươn dài cổ ngóng đợi, nào ngờ người đầu tiên nhảy tót xuống từ chiếc Rolls-Royce lại là cô bé Lý Đình Đình với chiếc ba lô to tướng trên vai.
 
 Dượng hai đứng bên cạnh cười toe toét ngoác cả mồm.
 

@@ -110,7 +110,7 @@ Lưu Hiểu Tĩnh nhanh nhẹn đặt lên mặt bàn hội nghị trước mặ
 
 "..."
 
-Ngồi tít tận góc cuối bàn hội nghị, Triệu Trí Dũng không kìm được rụt cổ lại một cái.
+Ngồi tít tận góc cuối bàn hội nghị, Triệu Chí Dũng không kìm được rụt cổ lại một cái.
 
 "Mẹ kiếp, cứ tưởng đến đây chỉ để ngồi chém gió bốc phét cho qua bữa, tiện thể cọ xát ăn chực vài bữa thịnh soạn ở khách sạn năm sao."
 

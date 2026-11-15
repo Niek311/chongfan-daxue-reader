@@ -14,7 +14,7 @@ Nếu đổi lại là loại người như Lý Ngải Lan, vác chiếc bụng 
 
 Chỉ cần một cuộc điện thoại của Tô Miến.
 
-Chu Hoa Phong không dám từ chối, sẽ có người khác sẵn sàng ra tay. Mà Chu Hoa Phong liệu có gan dám không làm sao?
+Chu Phong Hoa không dám từ chối, sẽ có người khác sẵn sàng ra tay. Mà Chu Phong Hoa liệu có gan dám không làm sao?
 
 Chuyện làm ầm ĩ lên đến mức ai ai cũng tường tận, thật sự coi Tô Cảnh Hành và Phùng Nhược Đan ở Quận Sa này chỉ là thứ tượng gỗ trưng cho đẹp mắt chắc?
 

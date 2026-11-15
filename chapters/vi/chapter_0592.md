@@ -150,7 +150,7 @@ Triệu Kim An khẽ gật đầu.
 
 Lưu Mỹ Nga xoa xoa hai bàn tay, đứng chờ một lát thấy ông chủ không có chỉ thị gì thêm mới xoay người khép cửa lui ra ngoài.
 
-Năm đó khi Trăn Nhiên mới thành lập để mở rộng thị trường, ngoài hai tỉnh Tương Nam và Thiểm Tây, công ty còn chọn thêm mấy địa cấp thị giáp ranh với Tương Nam để tự mình khai phá. Đường Hiểu Thanh mấy năm nay vẫn luôn bền bỉ làm nhân viên giám sát trưng bày thị trường, mưa nắng chẳng quản ngại.
+Năm đó khi Trăn Nhiên mới thành lập để mở rộng thị trường, ngoài hai tỉnh Tương Nam và Thiểm Tây, công ty còn chọn thêm mấy địa cấp thị giáp ranh với Tương Nam để tự mình khai phá. Đường Hiểu Tình mấy năm nay vẫn luôn bền bỉ làm nhân viên giám sát trưng bày thị trường, mưa nắng chẳng quản ngại.
 
 Triệu Kim An với lấy bao thuốc lá Hoàng Phù Dung Vương trên bàn, rút ra một điếu châm lửa. Từ khi có bé Triệu Tri Nặc, phòng đọc sách là nơi duy nhất trong nhà anh cho phép mình hút thuốc.
 

@@ -144,7 +144,7 @@ Phương Khiết chỉ biết loại bật lửa ấy có giá khá đắt đỏ
 
 Triệu Kim An khẽ bật cười, nghiêng đầu nhìn sang Phương Khiết.
 
-"Từng mua hai cái rồi, nhưng đều bị Vương Duy Đào với Triệu Trí Dũng thó mất tiêu."
+"Từng mua hai cái rồi, nhưng đều bị Vương Duy Đào với Triệu Chí Dũng thó mất tiêu."
 
 Cả hai đều hiểu đây chỉ là câu chuyện khơi mào cho bớt ngột ngạt. Triệu Kim An lẳng lặng chờ đợi lời nói tiếp theo của Phương Khiết. Anh không rõ rốt cuộc có chuyện hệ trọng gì mà cô phải đích thân lao xe bạt mạng tới trạm cao tốc để nói với anh, thay vì trao đổi qua điện thoại.
 

@@ -88,7 +88,7 @@ Thế nhưng điều khiến người ta bất ngờ nhất chính là bố mẹ
 
 Khang Văn Đông đã tâm sự tỉ mỉ với bố mẹ mình rằng, Triệu Kim An ở nhà họ Tô nắm giữ một vị thế vô cùng đặc biệt, thậm chí có thể nói là có phần "ngang tàng, bạt mạng". Thế nhưng cả ông Tô Minh Tùng lẫn bà Quách Uyển Thanh đều quý mến anh như báu vật trong nhà; bất kể Triệu Kim An có phát ngôn điều gì, ông Tô Minh Tùng cũng chẳng bao giờ chấp nhặt, ngược lại còn rất thích tung hứng những câu nói đùa tỉnh bơ với anh.
 
-Quan Văn Bách và Chu Hoa Phong đã quay trở lại Quận Sa từ sớm, luôn túc trực trong tư thế sẵn sàng nổ máy xe chạy ra ga tàu cao tốc đón Triệu Kim An bất cứ lúc nào.
+Quan Văn Bách và Chu Phong Hoa đã quay trở lại Quận Sa từ sớm, luôn túc trực trong tư thế sẵn sàng nổ máy xe chạy ra ga tàu cao tốc đón Triệu Kim An bất cứ lúc nào.
 
 Kể từ khi có mạng lưới đường sắt cao tốc, Triệu Kim An rất hiếm khi lựa chọn di chuyển bằng máy bay, đó đơn thuần chỉ là thói quen và sở thích cá nhân của anh.
 

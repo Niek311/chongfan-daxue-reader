@@ -118,7 +118,7 @@ Trước đây Du Phi từng nói đùa với Triệu Kim An một câu: Kim An 
 
 Chưa kể cấp dưới đến báo cáo công việc cho Mạn Mạn, Tri Nặc nằm bên cạnh đều nghe thấy hết, sau này muốn tầm thường e rằng cũng khó.
 
-Triệu Trí Dũng trước kia cũng từng nói với Triệu Kim An những lời tương tự như vậy.
+Triệu Chí Dũng trước kia cũng từng nói với Triệu Kim An những lời tương tự như vậy.
 
 Mỗi lần nghe thấy, Triệu Kim An đều cười tươi rói đầy vẻ tự hào.
 

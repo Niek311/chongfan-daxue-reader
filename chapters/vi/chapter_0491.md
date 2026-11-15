@@ -22,7 +22,7 @@ Du Phi nhìn thấy.
 
 Đan Vĩ nhìn thấy.
 
-Chu Hoa Phong cũng nhìn thấy.
+Chu Phong Hoa cũng nhìn thấy.
 
 Không một ai dám lên tiếng, chỉ biết lặng câm dõi theo.
 
@@ -138,7 +138,7 @@ Chỉ cần còn một tia hy vọng mong manh, các bác sĩ đã không bướ
 
 Du Phi chỉ biết ngồi thụp xuống đất, ôm chặt lấy Triệu Kim An đang run rẩy vì khóc nghẹn, hốc mắt cô cũng đỏ hoe.
 
-Đan Vĩ và Chu Hoa Phong không dám bước lên.
+Đan Vĩ và Chu Phong Hoa không dám bước lên.
 
 Cả ba người đều chìm trong cảm giác bất lực đến nghẹt thở.
 
@@ -164,7 +164,7 @@ Tô Mặc bước ra, khẽ nói một câu: "...Xong rồi."
 
 Khương Phức Hàm và Phùng Nhược Đan rảo bước đi vào.
 
-Du Phi dùng cả hai tay kéo Triệu Kim An dậy, đưa mắt nhìn Đan Vĩ đang đứng ngẩn ngơ. Đan Vĩ và Chu Hoa Phong vội vàng chạy lại, đỡ Triệu Kim An đứng dậy, dìu anh bước vào phòng chăm sóc đặc biệt.
+Du Phi dùng cả hai tay kéo Triệu Kim An dậy, đưa mắt nhìn Đan Vĩ đang đứng ngẩn ngơ. Đan Vĩ và Chu Phong Hoa vội vàng chạy lại, đỡ Triệu Kim An đứng dậy, dìu anh bước vào phòng chăm sóc đặc biệt.
 
 Triệu Kim An hai mắt đỏ ngầu như nhỏ máu, quần áo nhăn nhúm tả tơi.
 
@@ -214,4 +214,4 @@ Phùng Nhược Đan không thể nói tiếp được nữa, vội đưa tay b�
 
 Du Phi cắn chặt môi, bờ vai run rẩy bần bật, khẽ cất tiếng gọi: "Tiểu thẩm thẩm..."
 
-Cô gọi theo Triệu Trí Dũng và Triệu Bác Lan, dường như lúc này, gọi một tiếng "Tiểu thẩm thẩm" mới là xót xa và trọn vẹn nhất.
+Cô gọi theo Triệu Chí Dũng và Triệu Bác Lan, dường như lúc này, gọi một tiếng "Tiểu thẩm thẩm" mới là xót xa và trọn vẹn nhất.

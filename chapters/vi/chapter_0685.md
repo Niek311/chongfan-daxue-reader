@@ -22,7 +22,7 @@ Vương Duy Đào: "..."
 
 "Kim An à, mày cứ làm thế có phải là quá đáng lắm không?"
 
-"Nghe đồn dạo này mày với Triệu Trí Dũng hễ rảnh rỗi là lại rủ nhau đi mát-xa ngâm chân?"
+"Nghe đồn dạo này mày với Triệu Chí Dũng hễ rảnh rỗi là lại rủ nhau đi mát-xa ngâm chân?"
 
 "Ngâm chân lành mạnh đàng hoàng nhé! Tuyệt đối không phải cái trò bậy bạ mờ ám của Lưu Sấm Phong với Cốc Siêu Thừa đâu."
 
@@ -36,7 +36,7 @@ Hai cô gái cứ thế đuổi bắt, trêu đùa nhau rôm rả cả một gó
 
 Ven đường lúc này đang đỗ một chiếc Cadillac sang trọng, bên cạnh là chiếc Mercedes thanh lịch của Lâm Thanh Tuyết, chiếc BYD bình dân của Vương Duy Đào, cùng chiếc BMW bóng bẩy của Lý Văn Húc. Đường Hiểu Tình chẳng có nhu cầu mua sắm xe cộ làm gì, còn Lý Ngải Lan thì đơn giản là không có tiền mà mua.
 
-Triệu Trí Dũng không phải là sinh viên tốt nghiệp trường Sư Đại. Lâm Thanh Tuyết và Lý Ngải Lan vốn dĩ chẳng có lý do gì để phải đích thân đi mừng tân gia nhà cậu ta, nhưng bởi vì Triệu Kim An đi, nên bọn họ mới nô nức rủ nhau cùng đi theo góp vui.
+Triệu Chí Dũng không phải là sinh viên tốt nghiệp trường Sư Đại. Lâm Thanh Tuyết và Lý Ngải Lan vốn dĩ chẳng có lý do gì để phải đích thân đi mừng tân gia nhà cậu ta, nhưng bởi vì Triệu Kim An đi, nên bọn họ mới nô nức rủ nhau cùng đi theo góp vui.
 
 "Còn chờ ai nữa không?"
 
@@ -62,7 +62,7 @@ Cách đây hai năm, khi Phương Khiết, Lưu Sấm Phong và Cốc Siêu Th�
 
 "Hả?"
 
-Lý Văn Húc thoáng ngẩn người: "À, Triệu Trí Dũng vừa chạy qua chỗ tớ xách thịt bò rồi, thịt bò Angus chuẩn xịn đàng hoàng nhé, cậu ấy bảo sợ mua ngoài chợ không có được vị bò tươi ngon nguyên chất."
+Lý Văn Húc thoáng ngẩn người: "À, Triệu Chí Dũng vừa chạy qua chỗ tớ xách thịt bò rồi, thịt bò Angus chuẩn xịn đàng hoàng nhé, cậu ấy bảo sợ mua ngoài chợ không có được vị bò tươi ngon nguyên chất."
 
 Thịt bò trên đời thì nổi tiếng nhất vẫn là "vua của các loại bò" — bò Wagyu Nhật Bản hay bò Wagyu Úc. Chỉ có điều mức giá của chúng đắt đỏ ngút trời, quán buffet của Lý Văn Húc không thể nào gánh nổi chi phí, nhưng thịt bò Angus thì danh tiếng cũng lẫy lừng chẳng kém cạnh là bao.
 
@@ -86,7 +86,7 @@ Phùng Vũ Lam đưa tay che kín mặt. Thảo nào hôm kia Vương Duy Đào 
 
 "Lại còn làm được cái trò này nữa cơ à!?"
 
-Duy chỉ có đôi mắt của Lý Ngải Lan là sáng quắc lên như đèn pha ô tô. Sao mình lại ngốc nghếch đến thế không biết, chẳng nghĩ ra sớm cơ chứ? Vẫn là Vương Duy Đào với Triệu Trí Dũng khôn ngoan lõi đời! Bản thân mình trước giờ chỉ biết chăm chăm nghĩ đến chuỗi siêu thị Trăn Hối Tuyển.
+Duy chỉ có đôi mắt của Lý Ngải Lan là sáng quắc lên như đèn pha ô tô. Sao mình lại ngốc nghếch đến thế không biết, chẳng nghĩ ra sớm cơ chứ? Vẫn là Vương Duy Đào với Triệu Chí Dũng khôn ngoan lõi đời! Bản thân mình trước giờ chỉ biết chăm chăm nghĩ đến chuỗi siêu thị Trăn Hối Tuyển.
 
 Phen này mâm cỗ mấy ngày Tết ở nhà coi như đã ấm êm giải quyết xong xuôi!!
 
@@ -168,7 +168,7 @@ Cô khẽ hất cằm ra hiệu về phía sau: "Trong hộc xe của tôi có p
 
 "Tôi với Lý Văn Húc đã bàn bạc thống nhất với nhau cả rồi, mỗi người đi mừng sáu trăm tệ thôi. Cô đừng có mặt dày mà vác hai thùng nước ngọt của Trăn Nhiên lên nhà người ta thật đấy nhé."
 
-"Triệu Trí Dũng với Kim An là bạn nối khố từ thuở cởi truồng tắm mưa đấy."
+"Triệu Chí Dũng với Kim An là bạn nối khố từ thuở cởi truồng tắm mưa đấy."
 
 "Mà này, Lý Ngải Lan, cô không chuẩn bị tiền mừng thật đấy à? Chỉ định xách hai thùng nước ngọt của Trăn Nhiên đi thật sao?"
 

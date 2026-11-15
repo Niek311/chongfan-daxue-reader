@@ -12,7 +12,7 @@ Triệu Hữu Hằng vừa nghe ngóng được phong thanh tin tức đã là n
 
 Triệu Bằng Vũ là người thứ hai sang góp vui, còn sốt sắng hỏi có cần lên rừng đào măng mùa đông không để anh ta đi lấy.
 
-Bố mẹ Triệu Trí Dũng cũng tất tả kéo sang, ngó nghiêng chuồng gà nhà họ Triệu một lượt rồi dặn dò khi nào cần cứ ới một tiếng, ông bà sẽ lại bắt thêm mang sang.
+Bố mẹ Triệu Chí Dũng cũng tất tả kéo sang, ngó nghiêng chuồng gà nhà họ Triệu một lượt rồi dặn dò khi nào cần cứ ới một tiếng, ông bà sẽ lại bắt thêm mang sang.
 
 Người làng thôn Triệu Gia ai nấy đều ngóng cổ chờ mong ngày cô thím út Tô Miến về thăm quê, thành thử đám cưới tập hai của Triệu Hữu Tài ngược lại chẳng còn mấy ai đoái hoài, chú ý nữa.
 
@@ -90,11 +90,11 @@ Bên cạnh giếng nước người thì làm lông gà, người thì mổ cá
 
 Điều khiến anh bối rối nhất là, Doãn Hiểu Lan đang ngồi xổm bên mép bể nước, cặm cụi cúi đầu làm sạch bộ lòng mề gà.
 
-Thấy Triệu Kim An và Triệu Trí Dũng bước xuống xe, Doãn Hiểu Lan ngẩng đầu lên, cố nở một nụ cười gượng gạo với Triệu Kim An.
+Thấy Triệu Kim An và Triệu Chí Dũng bước xuống xe, Doãn Hiểu Lan ngẩng đầu lên, cố nở một nụ cười gượng gạo với Triệu Kim An.
 
 "Chị dâu!"
 
-Triệu Trí Dũng bộc trực cất tiếng chào một câu rồi te tót chạy tọt vào bếp.
+Triệu Chí Dũng bộc trực cất tiếng chào một câu rồi te tót chạy tọt vào bếp.
 
 "..."
 
@@ -120,7 +120,7 @@ Và cũng là người phụ nữ ở kiếp trước sau khi lặn lội vào D
 
 ...
 
-Triệu Trí Dũng ở trong bếp đang nhét từng cái bánh giầy vào miệng nhồm nhoàm.
+Triệu Chí Dũng ở trong bếp đang nhét từng cái bánh giầy vào miệng nhồm nhoàm.
 
 Triệu Kim An xoay người đi xuống con dốc thoai thoải trước nhà, châm một điếu thuốc lá phả khói vào gió lạnh, rảo bước đi về phía trường tiểu học trong thôn đón em gái Triệu Duyệt Thiên tan trường.
 
@@ -216,6 +216,6 @@ Giọng Thẩm Tử Ngôn nghẹn ngào nén chặt từng tiếng gằn ra từ
 
 "..."
 
-Diêu Thần vừa đi tới hành lang, cách cửa phòng chừng bốn năm mét thì khựng bước lại.
+Diêu Sân vừa đi tới hành lang, cách cửa phòng chừng bốn năm mét thì khựng bước lại.
 
-Ở phía đối diện, cô bạn học cùng lớp Du Phi cũng dừng bước, đưa mắt nhìn Diêu Thần...
+Ở phía đối diện, cô bạn học cùng lớp Du Phi cũng dừng bước, đưa mắt nhìn Diêu Sân...

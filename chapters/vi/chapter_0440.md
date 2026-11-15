@@ -2,7 +2,7 @@
 
 Đội ngũ giáo sư và sinh viên được mời từ các trường đại học xuống quả nhiên làm việc vô cùng đâu ra đấy, tác phong vững vàng, chắc chắn.
 
-Điều này phần nhiều có lẽ xuất phát từ uy tín và sự sàng lọc của cô giáo Dư Tĩnh. Đại học Trung Nam, Đại học Hồ Nam và Đại học Sư phạm vốn cùng nằm chung trong một khu đô thị đại học dưới chân núi Nhạc Lộc. Dư Tĩnh đã đích thân liên hệ, chọn lựa những vị giáo sư đầu ngành có tính cách cẩn trọng, làm việc thực tế nhất để ngỏ lời mời về Phụ Bình hỗ trợ.
+Điều này phần nhiều có lẽ xuất phát từ uy tín và sự sàng lọc của cô giáo Dư Tĩnh. Đại học Trung Nam, Đại học Tương Nam và Đại học Sư phạm vốn cùng nằm chung trong một khu đô thị đại học dưới chân núi Nhạc Lộc. Dư Tĩnh đã đích thân liên hệ, chọn lựa những vị giáo sư đầu ngành có tính cách cẩn trọng, làm việc thực tế nhất để ngỏ lời mời về Phụ Bình hỗ trợ.
 
 Còn đám sinh viên đi theo thì đóng vai trò như những trợ lý đắc lực phụ giúp các thầy.
 
@@ -130,7 +130,7 @@ Dư Tĩnh và Nhan Hi hôm nay cũng diện sơ mi trắng phối cùng áo vest
 
 Nhan Hi buông một câu vạch trần bản chất: "Chẳng thế mà vì sao phong trào thi tuyển công chức sau khi tốt nghiệp đại học xưa nay lại luôn là cơn sốt nóng bỏng nhất chứ lỵ."
 
-Đan Vĩ và Chu Hoa Phong vững vàng cầm lái hai chiếc xe dẫn đường. Vừa thấy đoàn xe tiến vào sân, Bí thư Lý Thụ Dũng cùng Huyện trưởng Tô Quân Dương đã túc trực sẵn ở sảnh để đón tiếp nồng nhiệt. Tô Quân Dương nhanh chân rảo bước chạy xuống bậc tam cấp trước, đứng nghiêng mình bên cạnh tháp tùng Triệu Kim An từng bước bước lên tiền sảnh.
+Đan Vĩ và Chu Phong Hoa vững vàng cầm lái hai chiếc xe dẫn đường. Vừa thấy đoàn xe tiến vào sân, Bí thư Lý Thụ Dũng cùng Huyện trưởng Tô Quân Dương đã túc trực sẵn ở sảnh để đón tiếp nồng nhiệt. Tô Quân Dương nhanh chân rảo bước chạy xuống bậc tam cấp trước, đứng nghiêng mình bên cạnh tháp tùng Triệu Kim An từng bước bước lên tiền sảnh.
 
 Triệu Kim An còn bất ngờ nhìn thấy cả sự xuất hiện của Khang Văn Đông.
 

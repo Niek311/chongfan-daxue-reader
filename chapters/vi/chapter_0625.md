@@ -38,9 +38,9 @@ Du Phi khẽ dặn:
 
 Du Phi nói không sai một chút nào. Thường dân bá tánh bình thường không nhớ mặt nhớ tên toàn bộ dàn lãnh đạo chủ chốt của thành phố là chuyện rất đỗi bình thường, có mấy ai nhớ nổi hết đâu? Trừ phi là người ôn thi công chức, bằng không số người nhớ được chính xác tên Bí thư và Thị trưởng cũng chẳng có là bao.
 
-Thế nhưng những người làm việc tại Văn phòng Tổng giám đốc của một tập đoàn tầm cỡ như Hoàn Vũ, nếu ngay cả ban lãnh đạo đầu ngành của Trường Sa mà cũng không nắm rõ, thì đúng là quá tắc trách.
+Thế nhưng những người làm việc tại Văn phòng Tổng giám đốc của một tập đoàn tầm cỡ như Hoàn Vũ, nếu ngay cả ban lãnh đạo đầu ngành của Quận Sa mà cũng không nắm rõ, thì đúng là quá tắc trách.
 
-Nói theo một cách dân dã nhất, Phùng Nhược Đan lúc này chẳng khác nào "Đệ nhất phu nhân của thành phố Trường Sa" cả.
+Nói theo một cách dân dã nhất, Phùng Nhược Đan lúc này chẳng khác nào "Đệ nhất phu nhân của thành phố Quận Sa" cả.
 
 Lần này, Đồng Nghệ Mẫn đã phải nỗ lực rất nhiều mới tranh thủ được một suất đi công tác cùng Triệu Kim An.
 
@@ -156,7 +156,7 @@ Ngày ấy, khi chiếc xe cấp cứu 120 lao đi trong đêm, Tô Miến khôn
 
 Triệu Kim An lấy từ trong túi xách ra mấy phong bao lì xì đỏ thắm, kéo ngăn kéo tủ đầu giường đặt cẩn thận vào bên trong.
 
-"Đại tiểu thư, đây là phong bao lì xì của bà nội gửi cho hai cháu này, đây là của thím, còn đây là của Đoạn Thu Bình. Cả thằng Vương Duy Đào với Triệu Trí Dũng cũng nằng nặc nhờ anh mang phong bao lên cho hai đứa nhỏ nữa."
+"Đại tiểu thư, đây là phong bao lì xì của bà nội gửi cho hai cháu này, đây là của thím, còn đây là của Đoạn Thu Bình. Cả thằng Vương Duy Đào với Triệu Chí Dũng cũng nằng nặc nhờ anh mang phong bao lên cho hai đứa nhỏ nữa."
 
 "Chiếc này là của Từ Mạn Mạn, còn chiếc này là của Thẩm Tử Ngôn..."
 
@@ -164,9 +164,9 @@ Bên trong ngăn kéo vẫn còn xếp ngay ngắn những phong bao lì xì đ�
 
 "Đại tiểu thư, thằng Vương Duy Đào với Phùng Vũ Lam dạo này tình cảm thắm thiết lắm."
 
-"Thằng Triệu Trí Dũng thì tính nhát gan, vẫn chưa dám thú thật mọi chuyện cho bố mẹ dưới quê biết..."
+"Thằng Triệu Chí Dũng thì tính nhát gan, vẫn chưa dám thú thật mọi chuyện cho bố mẹ dưới quê biết..."
 
-"À đúng rồi, trước kia em hay quan tâm hỏi han chuyện Triệu Hữu Tài. Cậu ta vừa mới đưa vợ lên Trường Sa để chuẩn bị sinh con rồi đấy."
+"À đúng rồi, trước kia em hay quan tâm hỏi han chuyện Triệu Hữu Tài. Cậu ta vừa mới đưa vợ lên Quận Sa để chuẩn bị sinh con rồi đấy."
 
 Triệu Kim An không biết liệu Tô Miến có thể nghe thấy những lời này hay không, anh cứ thế tỉ mỉ kể lại từng câu chuyện, từng biến cố diễn ra trong suốt một năm qua cho cô nghe, như thể cô chỉ đang say sưa trong một giấc ngủ trưa dài mà thôi.
 

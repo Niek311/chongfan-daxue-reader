@@ -86,7 +86,7 @@ Lưu Sấm Phong ngửa cổ cười ha hả sảng khoái.
 
 Câu nói ấy nghe qua thật trơ trẽn, thô bỉ đến gai người, nhưng lại lột trần cái bản chất hiện thực trần trụi và nhơ nhớp của cái chốn bùn lầy này.
 
-Đan Vĩ cùng Chu Hoa Phong và Lý Tân lặng lẽ giữ khoảng cách, sải bước bám sát ngay phía sau.
+Đan Vĩ cùng Chu Phong Hoa và Lý Tân lặng lẽ giữ khoảng cách, sải bước bám sát ngay phía sau.
 
 Triệu Kim An dừng chân nơi bậc thềm trước cửa sảnh lớn, đưa mắt ngắm nhìn khung cảnh bốn phía xung quanh rồi cất giọng: "Chờ một chút đã."
 

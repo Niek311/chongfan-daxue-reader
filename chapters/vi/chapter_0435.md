@@ -72,11 +72,11 @@ Du Phi và Nhan Hi mặt mày ngơ ngác, thấy đám người Đơn Vỹ căng
 
 "Ông chủ, có mùi xăng nồng nặc!"
 
-Chu Hoa Phong đánh bạo rón rén tiến lại gần chiếc xe thương vụ Mercedes đang đỗ bên lề đường.
+Chu Phong Hoa đánh bạo rón rén tiến lại gần chiếc xe thương vụ Mercedes đang đỗ bên lề đường.
 
 "Lão Chu, cúi xuống nhìn dưới gầm xe xem!"
 
-Chu Hoa Phong lập tức nằm rạp xuống đất, thò tay quệt một vệt chất lỏng dưới gầm rồi đưa lên mũi ngửi: "Không giống như bị rò rỉ bình xăng đâu!"
+Chu Phong Hoa lập tức nằm rạp xuống đất, thò tay quệt một vệt chất lỏng dưới gầm rồi đưa lên mũi ngửi: "Không giống như bị rò rỉ bình xăng đâu!"
 
 Đặng Thần Bình cũng nhanh chóng bò vào kiểm tra một lượt: "Ông chủ, có kẻ cố tình hắt một vệt xăng vào đây, mục đích là để dằn mặt, dọa dẫm chúng ta thôi."
 
@@ -120,7 +120,7 @@ Kim An đang làm cái trò điên rồ gì thế này?!
 
 "Bùng!"
 
-Ngọn lửa trong chớp mắt bốc lên ngùn ngụt, bén nhanh như chớp liếm thẳng vào bình xăng! Chu Hoa Phong và Đặng Thần Bình hoảng hồn vội vã phi thân giật lùi về phía sau.
+Ngọn lửa trong chớp mắt bốc lên ngùn ngụt, bén nhanh như chớp liếm thẳng vào bình xăng! Chu Phong Hoa và Đặng Thần Bình hoảng hồn vội vã phi thân giật lùi về phía sau.
 
 "Ông chủ, còn chiếc xe phía sau..."
 
@@ -138,7 +138,7 @@ Triệu Kim An lùi lại vài bước, đưa mắt nhìn ngọn lửa đang b�
 
 "Phải diễn theo đúng tình tiết trong phim truyền hình sao? Như thế chẳng phải sẽ có người chết thật à?"
 
-Đơn Vỹ và Chu Hoa Phong đưa mắt nhìn nhau thảng thốt. Ông chủ ơi là ông chủ, bọn em đâu có muốn chơi lớn đến mức liều mạng thế này đâu, nhiều nhất cũng chỉ tính làm cho bản thân trông nhếch nhác, tơi tả một chút thôi chứ. Dù sao người ngoài muốn thêu dệt, đồn đoán thế nào thì đó là việc của họ.
+Đơn Vỹ và Chu Phong Hoa đưa mắt nhìn nhau thảng thốt. Ông chủ ơi là ông chủ, bọn em đâu có muốn chơi lớn đến mức liều mạng thế này đâu, nhiều nhất cũng chỉ tính làm cho bản thân trông nhếch nhác, tơi tả một chút thôi chứ. Dù sao người ngoài muốn thêu dệt, đồn đoán thế nào thì đó là việc của họ.
 
 Cả đám người lùi xa ra một khoảng an toàn, lặng lẽ đứng nhìn ngọn lửa đang liếm láp chiếc xe. Chiếc xe phía trước đã cháy bùng bùng như một bó đuốc khổng lồ nhưng vẫn chưa thấy phát nổ.
 
@@ -150,7 +150,7 @@ Nhưng vì chạy chưa đủ xa nên nam chính lấy thân mình che chắn ch
 
 Lúc này đây, tất cả mọi người có mặt đều đang nín thở ngóng trông chiếc xe mau chóng nổ tung, động tĩnh gây ra càng chấn động đất trời bao nhiêu thì càng tốt bấy nhiêu.
 
-Đơn Vỹ vẫn trung thành đứng chắn ngay trước người Triệu Kim An, Chu Hoa Phong và Đặng Thần Bình đứng nhích lên phía trước một chút. Nếu như đang quay một bộ phim điện ảnh bom tấn thì hào quang của Triệu Kim An lúc này ắt hẳn đã bị Đơn Vỹ cướp sạch mất rồi.
+Đơn Vỹ vẫn trung thành đứng chắn ngay trước người Triệu Kim An, Chu Phong Hoa và Đặng Thần Bình đứng nhích lên phía trước một chút. Nếu như đang quay một bộ phim điện ảnh bom tấn thì hào quang của Triệu Kim An lúc này ắt hẳn đã bị Đơn Vỹ cướp sạch mất rồi.
 
 Và rồi, một tiếng nổ long trời lở đất vang lên xé toạc không gian!
 
@@ -158,7 +158,7 @@ Và rồi, một tiếng nổ long trời lở đất vang lên xé toạc khôn
 
 "Á!"
 
-Du Phi và Nhan Hi dẫu đã chuẩn bị tâm lý từ trước nhưng vẫn bị chấn động kinh hoàng làm cho giật nảy mình hét toáng lên. Chu Hoa Phong và Đặng Thần Bình vội vã chạy nhào về phía trước.
+Du Phi và Nhan Hi dẫu đã chuẩn bị tâm lý từ trước nhưng vẫn bị chấn động kinh hoàng làm cho giật nảy mình hét toáng lên. Chu Phong Hoa và Đặng Thần Bình vội vã chạy nhào về phía trước.
 
 Bọn họ phải diễn cho thật đạt cái nét mặt bàng hoàng, bộ dạng tơi tả, nhếch nhác của những nạn nhân vừa thoát chết trong gang tấc.
 

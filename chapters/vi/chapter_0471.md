@@ -90,7 +90,7 @@ Tiêu Kim Dũng cuống quýt xua tay, trong lòng mừng thầm tự nhủ th�
 
 Những chuyện khác chẳng cần nói nhiều, một tay lão luyện lọc lõi nơi thương trường như Tiêu Kim Dũng thì chuyện gì mà không tỏ tường, nhất định sẽ thu xếp đâu vào đấy, chu toàn vẹn vẻ.
 
-Chu Hoa Phong lái chiếc Mercedes thương vụ dẫn đường phía trước, Đặng Thần Bình lái xe bọc hậu theo sau. Họ đã tới cảng Chu Sơn trước một ngày, bộ đàm luôn bật thông suốt, Chu Hoa Phong chạy trước tuyệt đối không dám đạp phanh gấp.
+Chu Phong Hoa lái chiếc Mercedes thương vụ dẫn đường phía trước, Đặng Thần Bình lái xe bọc hậu theo sau. Họ đã tới cảng Chu Sơn trước một ngày, bộ đàm luôn bật thông suốt, Chu Phong Hoa chạy trước tuyệt đối không dám đạp phanh gấp.
 
 Phía Cảng vụ Hoàn Vũ vẫn chưa cử người xuống, Triệu Kim An liền nhấc máy gọi cho Từ Mạn Mạn.
 

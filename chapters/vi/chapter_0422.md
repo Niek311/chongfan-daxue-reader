@@ -38,7 +38,7 @@ Phương Khiết khẽ đưa tay đẩy lại gọng kính cận màu đen trên
 
 Dùng lại đúng một câu nhận xét chí lý của Vương Học Ân, thì Lưu Sấm Phong dẫu nay đã rủng rỉnh tiền bạc thật đấy, nhưng xét về phương diện khí chất toát ra bên ngoài thì vẫn còn thiếu hụt một chút cốt cách trầm ổn.
 
-Triệu Trí Dũng thì lái chiếc xe van của công ty lộc cộc trở về làng, chuyến này cậu chàng vẫn không dẫn Trịnh Như và bé Triệu Niệm Khả theo cùng. Vừa bước chân vào cổng, mẹ cậu là bà Lưu Đồng Hoa đã hớn hở cười tươi roi rói: "Trí Dũng à, thằng Kim An sắp sửa lên chức bố trẻ con rồi đấy nhé!"
+Triệu Chí Dũng thì lái chiếc xe van của công ty lộc cộc trở về làng, chuyến này cậu chàng vẫn không dẫn Trịnh Như và bé Triệu Niệm Khả theo cùng. Vừa bước chân vào cổng, mẹ cậu là bà Lưu Đồng Hoa đã hớn hở cười tươi roi rói: "Trí Dũng à, thằng Kim An sắp sửa lên chức bố trẻ con rồi đấy nhé!"
 
 "Mấy ngày nay bà nội với thím Kim Như của mày ngày nào cũng cười tít mắt, vui đến mức chẳng khép nổi miệng kia kìa."
 
@@ -54,7 +54,7 @@ Lưu Đồng Hoa thực lòng cảm thấy mừng rỡ khôn xiết cho cụ th�
 
 "..."
 
-Triệu Trí Dũng lập tức co vòi tắt đài, ngoan ngoãn vác thang tre ra sân cặm cụi leo lên dán lại câu đối Tết.
+Triệu Chí Dũng lập tức co vòi tắt đài, ngoan ngoãn vác thang tre ra sân cặm cụi leo lên dán lại câu đối Tết.
 
 Câu đối ở vùng nông thôn bao giờ cũng chuộng loại khổ lớn, dán trang trọng tít trên mép xà ngang cao ngất ngưởng.
 

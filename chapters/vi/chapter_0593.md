@@ -180,7 +180,7 @@ Mộc Dao chẳng biết phải tìm đến ai, cũng chẳng biết mình muố
 
 Ngoại trừ Triệu Kim An ra, Mộc Dao thực sự chẳng biết phải tìm đến ai nữa.
 
-Diêu Thần sao?
+Diêu Sân sao?
 
 Về nước rồi, cô mới cay đắng nhận ra mình chẳng biết tìm đến ai để giãi bày.
 

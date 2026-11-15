@@ -212,7 +212,7 @@ Cuộc gọi nhanh chóng được kết nối ở đầu dây bên kia.
 
 "Tô tiểu thư..."
 
-Âm thanh trầm đục vang lên từ ống nghe là giọng của Chu Hoa Phong, chứ tuyệt nhiên không phải là Đan Vĩ.
+Âm thanh trầm đục vang lên từ ống nghe là giọng của Chu Phong Hoa, chứ tuyệt nhiên không phải là Đan Vĩ.
 
 Sau khi ngắt máy, Tô Miến khẽ nghiêng người với tay lấy cuốn sổ tay bìa da cùng cây bút mực đặt nơi đầu giường, cắm cúi đặt bút viết những dòng chữ gì đó.
 

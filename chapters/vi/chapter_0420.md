@@ -36,7 +36,7 @@ Từ Mạn Mạn gật đầu vâng dạ. Khung cảnh này nom hệt như một
 
 Đợt này Triệu Kim An sắp sửa phải khăn gói bay ra Kinh Đô đón năm mới, có cô Lưu Mỹ Nga túc trực nấu nướng chăm sóc là yên tâm nhất, bởi lẽ Từ Mạn Mạn thực sự mù tịt chuyện bếp núc. Lại thêm có Đường Hiểu Tình và Lưu Mỹ Nga ở cạnh sớm hôm bầu bạn, Từ Mạn Mạn một mình ở nhà trong mấy ngày Tết cũng sẽ không đến mức phải chịu cảnh cô đơn hiu quạnh.
 
-"Hôm nay không ăn cơm ở nhà nữa. Em là người gốc gác Quận Sa chính cống, tìm lấy một quán ăn mang hương vị Hồ Nam chuẩn chỉ bản địa nhất xem nào?"
+"Hôm nay không ăn cơm ở nhà nữa. Em là người gốc gác Quận Sa chính cống, tìm lấy một quán ăn mang hương vị Tương Nam chuẩn chỉ bản địa nhất xem nào?"
 
 "Vâng ạ."
 
@@ -58,7 +58,7 @@ Từ Mạn Mạn thì chẳng mảy may để bụng, hồi ở Hứa Đô cô v
 
 Đường Hiểu Tình lấy một chiếc hộp nhựa xếp ít hoa quả tươi mang theo lên xe ăn dọc đường. Triệu Kim An vừa cầm lái vừa liếc nhìn qua gương chiếu hậu, ừ thì trong lòng anh cũng luôn cảm thấy cô bé Hiểu Tình này vô cùng trong sáng, thánh thiện và sạch sẽ, cô bé muốn ngủ ở đâu thì cứ việc để cho cô bé ngủ ở đấy.
 
-Dưới sự chỉ đường rành rẽ của Từ Mạn Mạn, chiếc xe bon bon lăn bánh rồi dừng lại trước một quán ăn món Hồ Nam bình dân, đượm nồng khói lửa nhân gian.
+Dưới sự chỉ đường rành rẽ của Từ Mạn Mạn, chiếc xe bon bon lăn bánh rồi dừng lại trước một quán ăn món Tương Nam bình dân, đượm nồng khói lửa nhân gian.
 
 Chiếc Rolls-Royce Phantom thân dài thượt quả thực rất khó tìm chỗ đỗ. Từ Mạn Mạn một tay đỡ nhẹ lấy bụng bầu bước xuống xe, hồ hởi giới thiệu: "Kim An, quán này mở ở đây hơn mười năm rồi đấy, giá cả bình dân lắm, nước sốt thịt hầm nồi áp suất của họ mà đem chan với cơm trắng thì ngon tuyệt đỉnh luôn."
 

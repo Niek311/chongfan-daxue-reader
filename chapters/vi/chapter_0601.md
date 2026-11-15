@@ -8,7 +8,7 @@ Thẩm Tử Ngôn liếc nhìn Từ Mạn Mạn, nói tiếp với vẻ mặt kh
 
 Triệu Kim An vừa hớp ngụm nước cam liền phun thẳng ra ngoài.
 
-Triệu Trí Dũng thì hóa đá tại chỗ, mồm ngập dầu mỡ đang nhai dở miếng thịt hun khói cũng phải dừng sững lại.
+Triệu Chí Dũng thì hóa đá tại chỗ, mồm ngập dầu mỡ đang nhai dở miếng thịt hun khói cũng phải dừng sững lại.
 
 Quan sát học hỏi? Thẩm tổng nhà ta dũng mãnh tới mức này cơ à?!
 
@@ -30,7 +30,7 @@ Triệu Kim An còn cố tình nhấn mạnh thêm hai chữ "ròng rã" để t
 
 "..."
 
-Triệu Trí Dũng nín cười đến nghẹn cả họng. Đàn ông đúng là trên đời này thua cái gì cũng được, duy chỉ có bản lĩnh ở phương diện này là quyết không bao giờ chịu cúi đầu nhận thua.
+Triệu Chí Dũng nín cười đến nghẹn cả họng. Đàn ông đúng là trên đời này thua cái gì cũng được, duy chỉ có bản lĩnh ở phương diện này là quyết không bao giờ chịu cúi đầu nhận thua.
 
 Diêu Sân chớp chớp đôi mắt tròn xoe, các người đang nói cái quái gì thế này?
 
@@ -60,7 +60,7 @@ Xì! Đồ tra nam chết giẫm!
 
 "Còn chơi được cả bài này nữa cơ à? Mặt dày vô sỉ đến thế là cùng."
 
-Triệu Trí Dũng và Diêu Sân liếc nhau một cái, trong lòng đều thầm nhủ phen này đúng là mở mang tầm mắt.
+Triệu Chí Dũng và Diêu Sân liếc nhau một cái, trong lòng đều thầm nhủ phen này đúng là mở mang tầm mắt.
 
 Triệu Kim An dứt lời liền chẳng thèm ngoảnh đầu lại, ung dung sải bước đi thẳng về phía quầy thu ngân. Còn muốn gây sự cãi cọ nữa không? Có giỏi thì tối nay về phòng khách sạn mà tha hồ đôi co.
 
@@ -122,7 +122,7 @@ Khóe môi Thẩm Tử Ngôn thoảng hiện một nét tinh quái giảo hoạt
 
 ...
 
-Lúc này, Triệu Trí Dũng cũng đã sang nhà Mộc Dao, cả Âu Cường và Điền Vũ Hạo đều đang có mặt ở đó.
+Lúc này, Triệu Chí Dũng cũng đã sang nhà Mộc Dao, cả Âu Cường và Điền Vũ Hạo đều đang có mặt ở đó.
 
 Trương Tuệ lần lượt nói lời cảm ơn chân thành tới từng người bạn học cấp ba cũ của Mộc Dao.
 

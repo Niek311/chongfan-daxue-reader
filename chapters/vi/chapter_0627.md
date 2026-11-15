@@ -176,7 +176,7 @@ Lần này ra ngoài, Triệu Kim An còn đưa cả Tô Miến theo cùng để
 
 "Ông chủ."
 
-Chu Hoa Phong nhanh nhẹn đẩy chiếc xe lăn chuyên dụng tiến lại gần. Người đàn ông này chính là "kẻ mật báo" trung thành năm xưa của Tô Miến.
+Chu Phong Hoa nhanh nhẹn đẩy chiếc xe lăn chuyên dụng tiến lại gần. Người đàn ông này chính là "kẻ mật báo" trung thành năm xưa của Tô Miến.
 
 Tô Mặc cầm một sợi dây đai định vị tựa như dây thòng lọng tiến lại, ngồi thụp xuống toan thắt chặt vào người Tô Miến.
 

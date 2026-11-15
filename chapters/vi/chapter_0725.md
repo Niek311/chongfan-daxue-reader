@@ -192,7 +192,7 @@ Dùng đúng câu nói đùa mà Vương Duy Đào thường dùng để chế g
 
 Gã thậm chí chỉ mong ngày nào Lý Ngải Lan cũng dẫn xác đến quán ăn của gã ăn uống no nê rồi quỵt tiền chuồn thẳng.
 
-Bởi chỉ cần Lý Ngải Lan tới quán, cô ả chắc chắn sẽ ới gọi cả Đường Hiểu Tình lẫn Vương Duy Đào, rồi kéo theo cả Triệu Trí Dũng cùng Trịnh Như tới tụ tập đông vui. Thiếu vắng đi bóng dáng của Lý Ngải Lan, cả Vương Duy Đào lẫn Lý Văn Húc đều phải than thở rằng đất Quận Sa bỗng chốc trở nên vắng vẻ, đìu hiu hẳn đi.
+Bởi chỉ cần Lý Ngải Lan tới quán, cô ả chắc chắn sẽ ới gọi cả Đường Hiểu Tình lẫn Vương Duy Đào, rồi kéo theo cả Triệu Chí Dũng cùng Trịnh Như tới tụ tập đông vui. Thiếu vắng đi bóng dáng của Lý Ngải Lan, cả Vương Duy Đào lẫn Lý Văn Húc đều phải than thở rằng đất Quận Sa bỗng chốc trở nên vắng vẻ, đìu hiu hẳn đi.
 
 "Hắt... xì...!"
 

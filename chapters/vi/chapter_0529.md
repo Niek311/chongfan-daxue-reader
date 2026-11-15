@@ -204,7 +204,7 @@ Triệu Kim An cười nhạt tiếp lời: "Cái ngữ chúng mày, một đứ
 
 Vương Duy Đào ở đầu dây bên kia ngượng chín mặt, vội vã cúp phụt máy.
 
-Triệu Trí Dũng cũng gọi điện tới, bảo muốn dắt Trịnh Như qua nhà Triệu Kim An chơi.
+Triệu Chí Dũng cũng gọi điện tới, bảo muốn dắt Trịnh Như qua nhà Triệu Kim An chơi.
 
 Lúc này Triệu Kim An đang đứng ở văn phòng tầng 48, vừa nghe điện thoại vừa tiện tay bế bổng bé Triệu Tri Nặc đặt ngồi ngay ngắn lên mặt bàn làm việc.
 

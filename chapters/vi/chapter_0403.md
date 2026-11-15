@@ -6,7 +6,7 @@ Lưu Hiểu Tĩnh nhìn đống tài liệu rơi vãi ngổn ngang trên sàn nh
 
 Triệu tổng nhà bọn họ... đúng là đồ đại tra nam thứ thiệt.
 
-Lưu Hiểu Tĩnh vốn là trợ lý đắc lực của Từ Mạn Mạn, còn Du Phi lại đảm nhiệm vị trí thư ký riêng của Triệu Kim An. Diêu Thần lặng lẽ bước vào phòng, khom lưng nhặt từng tập hồ sơ vương vãi, Du Phi ngập ngừng giây lát rồi cũng ngồi xổm xuống nhặt phụ một tay. Những lúc như thế này, thử hỏi biết an ủi câu gì cho đặng?
+Lưu Hiểu Tĩnh vốn là trợ lý đắc lực của Từ Mạn Mạn, còn Du Phi lại đảm nhiệm vị trí thư ký riêng của Triệu Kim An. Diêu Sân lặng lẽ bước vào phòng, khom lưng nhặt từng tập hồ sơ vương vãi, Du Phi ngập ngừng giây lát rồi cũng ngồi xổm xuống nhặt phụ một tay. Những lúc như thế này, thử hỏi biết an ủi câu gì cho đặng?
 
 Các cô thực sự chẳng biết phải lựa lời thế nào để xoa dịu Thẩm Tử Ngôn.
 
@@ -14,7 +14,7 @@ Biết trước sự tồn tại của Tô Miến thì đã sao? Rơi vào cản
 
 "Một người thì bỏ chạy sang tận Hàn Quốc, một người thì biến mất tăm mất tích chẳng thấy tăm hơi đâu."
 
-Diêu Thần và Du Phi ngồi xổm dưới sàn, ghé sát đầu vào nhau thì thầm to nhỏ.
+Diêu Sân và Du Phi ngồi xổm dưới sàn, ghé sát đầu vào nhau thì thầm to nhỏ.
 
 "..."
 
@@ -28,13 +28,13 @@ Nào ai có thể ngờ được tới nông nỗi này, chỉ còn sót lại d
 
 Nói sao bây giờ nhỉ?
 
-Đại địch buông màn trước mắt, Diêu Thần bỗng nảy sinh một ảo giác xót xa rằng Thẩm Tử Ngôn đang phải một mình đơn thương độc mã giữa vòng vây hỗn chiến. Xét về công hay tư, luận theo lý hay tình, cô có chết cũng vạn lần không muốn nhìn thấy Thẩm Tử Ngôn phải uất ức rời khỏi công ty này.
+Đại địch buông màn trước mắt, Diêu Sân bỗng nảy sinh một ảo giác xót xa rằng Thẩm Tử Ngôn đang phải một mình đơn thương độc mã giữa vòng vây hỗn chiến. Xét về công hay tư, luận theo lý hay tình, cô có chết cũng vạn lần không muốn nhìn thấy Thẩm Tử Ngôn phải uất ức rời khỏi công ty này.
 
 Vị trí đứng quyết định lập trường của mỗi con người.
 
 Lưu Hiểu Tĩnh dĩ nhiên đứng hẳn về phía Từ Mạn Mạn.
 
-Diêu Thần thì đứng về phía Thẩm Tử Ngôn, Từ Mạn Mạn hay Mộc Dao — tóm lại ai trong ba người họ chiến thắng cũng đều được cả.
+Diêu Sân thì đứng về phía Thẩm Tử Ngôn, Từ Mạn Mạn hay Mộc Dao — tóm lại ai trong ba người họ chiến thắng cũng đều được cả.
 
 Nhưng trong tình thế ngặt nghèo này, cô chỉ có thể dốc lòng đứng về phía Thẩm Tử Ngôn.
 
@@ -142,9 +142,9 @@ Ban đầu tiệc cưới của Triệu Hữu Tài chỉ dự tính làm gói g�
 
 Vì có bà nội tọa trấn, Triệu Kim An không đến lượt phải ngồi ở hai mâm thượng tọa kê sát bàn thờ gia tiên trong gian nhà chính. Anh thảnh thơi rút điện thoại ra chụp lại quang cảnh tiệc cưới đậm chất thôn quê rồi gửi tin nhắn đa phương tiện cho cả Tô Miến lẫn Từ Mạn Mạn, xem như chia sẻ chút không khí ngày vui chốn làng quê rộn rã.
 
-Triệu Trí Dũng thì tất bật chạy đôn chạy đáo bưng bê mâm cỗ, miệng vẫn không quên ngậm chặt điếu thuốc lá.
+Triệu Chí Dũng thì tất bật chạy đôn chạy đáo bưng bê mâm cỗ, miệng vẫn không quên ngậm chặt điếu thuốc lá.
 
-Vương Kim Như đi ngang qua lườm cho một cái sắc lẹm, Triệu Trí Dũng mới cuống cuồng nhổ vội điếu thuốc xuống đất lấy chân di tắt.
+Vương Kim Như đi ngang qua lườm cho một cái sắc lẹm, Triệu Chí Dũng mới cuống cuồng nhổ vội điếu thuốc xuống đất lấy chân di tắt.
 
 "Kim An ơi, vợ mới của anh Triệu Hữu Tài trông mặt mũi thế nào hả anh?"
 
@@ -218,13 +218,13 @@ Trước khi sang đây họ cũng từng nghe phong thanh thiên hạ đồn đ
 
 "Kim An này, thằng cha Triệu Hữu Tài đúng là trâu già thích gặm cỏ non."
 
-Triệu Trí Dũng vẻ mặt nham nhở ghé sát tai trêu chọc: "Cả làng người ta đang xì xào bàn tán kìa, đã nhiều tuổi thế rồi còn rước một bà vợ hơn bốn mươi tuổi về làm gì không biết."
+Triệu Chí Dũng vẻ mặt nham nhở ghé sát tai trêu chọc: "Cả làng người ta đang xì xào bàn tán kìa, đã nhiều tuổi thế rồi còn rước một bà vợ hơn bốn mươi tuổi về làm gì không biết."
 
 "Thế mày thì sao? Là cỏ non thích gặm trâu già à?"
 
 Triệu Kim An điềm nhiên nói thẳng sự thật.
 
-Triệu Trí Dũng nghẹn họng tức tối: "Kim An, mày... cái thằng này..."
+Triệu Chí Dũng nghẹn họng tức tối: "Kim An, mày... cái thằng này..."
 
 "Mày thấy thích là được rồi, Trịnh Như là một người phụ nữ rất tốt."
 
@@ -238,6 +238,6 @@ Triệu Kim An vẫn giữ thái độ khách quan, thực tế, trong đầu b�
 
 "Thật á!?"
 
-Đôi mắt Triệu Trí Dũng sáng rực lên như đèn pha: "Thế thì tao chẳng thèm khách sáo đâu đấy nhé, tao sẽ lựa toàn đồ đắt tiền nhất mà sắm!"
+Đôi mắt Triệu Chí Dũng sáng rực lên như đèn pha: "Thế thì tao chẳng thèm khách sáo đâu đấy nhé, tao sẽ lựa toàn đồ đắt tiền nhất mà sắm!"
 
 "Chẳng lẽ mày cũng định về làng dựng rạp mở tiệc linh đình à? Thế thì tao tạm hoãn chưa tặng vội đâu, đợi tới ngày mày chính thức đãi tiệc tao sẽ mừng cho một phong bao đỏ thật dày, thấy thế nào?"

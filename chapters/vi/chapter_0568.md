@@ -126,27 +126,27 @@ Dương Thù Mỹ chỉ buông lại một câu hỏi ấy, rồi không buồn 
 
 Bên kia tháp đôi Twin Towers, tầng 50.
 
-Lạc Cẩn Chi liếc xéo Triệu Kim An mấy lần, dở khóc dở cười cằn nhằn: "Kim An à, tôi lạy cậu đấy! Làm ơn bế cục cưng của cậu ra ghế sofa ngồi chơi giùm tôi cái. Đây là văn phòng làm việc của tôi, cậu cứ hễ thò mặt sang là lại đặt ngay cái mông con bé Nặc Nặc lên bàn làm việc của tôi thế này..."
+Lạc Cẩn Chi liếc xéo Triệu Kim An mấy lần, dở khóc dở cười cằn nhằn: "Kim An à, chị lạy em đấy! Làm ơn bế cục cưng của em ra ghế sofa ngồi chơi giùm chị cái. Đây là văn phòng làm việc của chị, em cứ hễ thò mặt sang là lại đặt ngay cái mông con bé Nặc Nặc lên bàn làm việc của chị thế này..."
 
-"Tầng 49 với tầng 48 bên kia của cậu thì tôi không can thiệp được rồi đấy."
+"Tầng 49 với tầng 48 bên kia của em thì chị không can thiệp được rồi đấy."
 
 Nói thì nói vậy, nhưng Lạc Cẩn Chi vẫn không kìm được mỉm cười, đưa tay véo nhẹ vào đôi má phúng phính của Triệu Tri Nặc: "Con bé này đúng là được bố cưng chiều đến tận trời xanh rồi. Từ lúc mới lọt lòng đã tung hoành ngang dọc trên tầng 50 này, ghế da tổng giám đốc không thèm ngồi, cứ nằng nặc đòi ngồi chễm chệ trên bàn làm việc mới chịu cơ!"
 
 Triệu Kim An nở nụ cười đầy đắc ý, khoe khoang: "Nó ngoan lắm, không làm phiền chị làm việc đâu. Chị nhìn xem con bé ngồi im thin thít thế này cơ mà."
 
-"Đấy là con gái rượu của cậu, chứ có phải con gái tôi đâu!" Lạc Cẩn Chi hờn dỗi lườm hắn một cái sắc lẹm.
+"Đấy là con gái rượu của em, chứ có phải con gái chị đâu!" Lạc Cẩn Chi hờn dỗi lườm anh một cái sắc lẹm.
 
 Triệu Kim An: "..."
 
 "Cậu đã tiện đường sang đây rồi thì ký tên vào đây giùm cái. Ông chủ Lưu Xuyên cứ cách ba ngày lại gọi điện giục một lần, cũng đến lúc phải giải ngân thanh toán bớt một phần công nợ cho người ta rồi đấy."
 
-Lạc Cẩn Chi đẩy sang trước mặt hắn một tập tài liệu, bên trên phần chữ ký của bà đã được hoàn tất gọn gàng.
+Lạc Cẩn Chi đẩy sang trước mặt anh một tập tài liệu, bên trên phần chữ ký của chị đã được hoàn tất gọn gàng.
 
 "Chẳng phải đợt trước vừa mới quyết toán ba mươi triệu tệ rồi sao?"
 
 "Thế cậu không chịu nghĩ xem đã giam nợ người ta bao lâu rồi à? Đến giờ vẫn còn nợ ông ấy bao nhiêu tiền công nợ nữa cơ chứ?"
 
-Lạc Cẩn Chi ném chiếc bút sang phía hắn: "Một chiếc tủ mát đơn giá bốn đến năm trăm tệ, loại hai cánh mở là tám trăm tệ một chiếc. Đại lý cứ nhập lượng hàng đạt mức quy định là lập tức được tặng tủ mát miễn phí. Cửa hàng tiện lợi ngoài kia thì cứ mọc lên rồi dẹp tiệm, dẹp tiệm rồi lại có cái khác mở ra..."
+Lạc Cẩn Chi ném chiếc bút sang phía anh: "Một chiếc tủ mát đơn giá bốn đến năm trăm tệ, loại hai cánh mở là tám trăm tệ một chiếc. Đại lý cứ nhập lượng hàng đạt mức quy định là lập tức được tặng tủ mát miễn phí. Cửa hàng tiện lợi ngoài kia thì cứ mọc lên rồi dẹp tiệm, dẹp tiệm rồi lại có cái khác mở ra..."
 
 "Cửa hàng tiện lợi đóng cửa thì tủ mát cũng thất thoát theo, nhu cầu thị trường vĩnh viễn chẳng bao giờ bão hòa được."
 

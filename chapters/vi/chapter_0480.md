@@ -1,8 +1,8 @@
 # Chương 480: Hoa hoa thế giới mê hoặc mắt người, men rượu đèn màu dễ khiến kẻ say
 
-Vương Duy Đào quay sang Phùng Vũ Lam buông một tiếng thở dài thườn thượt: "Trong cái đám này hai đứa mình là nghèo rớt mồng tơi nhất, lương của thằng Triệu Trí Dũng nó gấp mấy lần lương công chức của anh đấy."
+Vương Duy Đào quay sang Phùng Vũ Lam buông một tiếng thở dài thườn thượt: "Trong cái đám này hai đứa mình là nghèo rớt mồng tơi nhất, lương của thằng Triệu Chí Dũng nó gấp mấy lần lương công chức của anh đấy."
 
-Triệu Trí Dũng ngồi bên dưới thò chân đá nhẹ vào cẳng chân Vương Duy Đào một cái: "Thằng Đào tử kia, mày bớt cái thói được voi đòi tiên đi nhé!"
+Triệu Chí Dũng ngồi bên dưới thò chân đá nhẹ vào cẳng chân Vương Duy Đào một cái: "Thằng Đào tử kia, mày bớt cái thói được voi đòi tiên đi nhé!"
 
 Ở đất Tương Nam này thì còn đỡ, chứ như Lưu Sấm Phong từng kể, nếu ở đất Sơn Đông quê cậu ta thì mức thu nhập hàng năm bạc triệu trên thị trường mai mối xem mắt vẫn chẳng thể nào đắt giá và danh giá bằng một chân có biên chế nhà nước ổn định. Chẳng rõ thực hư ra sao, nhưng thi công chức quả thực là sự lựa chọn hàng đầu của đại đa số sinh viên đại học sau khi ra trường.
 
@@ -52,7 +52,7 @@ Phùng Vũ Lam chớp chớp mắt cười híp mí: "Em nói có sai đâu, ngo
 
 Lý Văn Húc nghe thấy thế liền vội vàng đứng bật dậy: "Từ tổng, để tôi đi lấy thêm ngay ạ!"
 
-Đúng lúc này, bố của Lý Văn Húc từ tốn bước lại gần, rút bao thuốc lá ra mời bằng một chất giọng phương ngữ địa phương đặc sệt. Triệu Kim An nghe câu được câu mất không hiểu hết, nhưng anh vốn có nguyên tắc không bao giờ hút thuốc trước mặt Tô Miến và con gái nhỏ Triệu Tri Nặc. Chỉ cần ở đâu có sự hiện diện của Triệu Tri Nặc thì cả Vương Duy Đào lẫn Triệu Trí Dũng cũng đều tuyệt đối không bén mảng tới khói thuốc.
+Đúng lúc này, bố của Lý Văn Húc từ tốn bước lại gần, rút bao thuốc lá ra mời bằng một chất giọng phương ngữ địa phương đặc sệt. Triệu Kim An nghe câu được câu mất không hiểu hết, nhưng anh vốn có nguyên tắc không bao giờ hút thuốc trước mặt Tô Miến và con gái nhỏ Triệu Tri Nặc. Chỉ cần ở đâu có sự hiện diện của Triệu Tri Nặc thì cả Vương Duy Đào lẫn Triệu Chí Dũng cũng đều tuyệt đối không bén mảng tới khói thuốc.
 
 Mẹ của Lý Văn Húc với nụ cười rạng rỡ nở như hoa trên gương mặt phúc hậu, ân cần bưng mấy đĩa thịt gà tươi và thịt bò thái lát đầy đặn đặt lên bàn.
 

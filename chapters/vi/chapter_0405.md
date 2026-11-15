@@ -216,7 +216,7 @@ Giang Công Kỳ sợ run lẩy bẩy như cầy sấy, mùa đông giá rét bu
 
 ...
 
-Lúc này ở Kinh Đô, Triệu Kim An đang xắn tay áo vào bếp nấu nướng cho Tô Miến ăn. Người bảo mẫu trong nhà chưa từng nấu món măng mùa đông xào theo khẩu vị vùng Hồ Nam bao giờ, Triệu Kim An liền tự mình đích thân xuống bếp. Tô Mặc đứng bên cạnh tò mò học lỏm, bà Quách Uyển Thanh gắp một đũa nếm thử liền tấm tắc khen không ngớt lời.
+Lúc này ở Kinh Đô, Triệu Kim An đang xắn tay áo vào bếp nấu nướng cho Tô Miến ăn. Người bảo mẫu trong nhà chưa từng nấu món măng mùa đông xào theo khẩu vị vùng Tương Nam bao giờ, Triệu Kim An liền tự mình đích thân xuống bếp. Tô Mặc đứng bên cạnh tò mò học lỏm, bà Quách Uyển Thanh gắp một đũa nếm thử liền tấm tắc khen không ngớt lời.
 
 "Kim An à, cháu nấu ăn khéo tay thế cơ đấy."
 

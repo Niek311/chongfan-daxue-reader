@@ -94,7 +94,7 @@ Nói khó nghe một chút, anh tưởng cô em họ Mạn Mạn của anh là n
 
 Tháng Tư.
 
-Phong tục tập quán của mảnh đất Hồ Nam xưa nay thường có thói quen đi tảo mộ sớm trước tết Thanh minh. Từ Mạn Mạn vẫn kiên quyết không đưa Triệu Tri Nặc về lại nhà nội bên kia. Toàn thể bà con dòng họ bên nhà họ Hứa đều tề tựu đông đủ, Từ Tắc Đống đường đường là anh cả trong gia đình.
+Phong tục tập quán của mảnh đất Tương Nam xưa nay thường có thói quen đi tảo mộ sớm trước tết Thanh minh. Từ Mạn Mạn vẫn kiên quyết không đưa Triệu Tri Nặc về lại nhà nội bên kia. Toàn thể bà con dòng họ bên nhà họ Hứa đều tề tựu đông đủ, Từ Tắc Đống đường đường là anh cả trong gia đình.
 
 "Mạn Mạn với bé Nặc Nặc năm nay lại không về à bác?" Có người trong họ cất tiếng hỏi.
 

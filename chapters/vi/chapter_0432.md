@@ -4,13 +4,13 @@ Từ Mạn Mạn không về.
 
 Một tiếng rưỡi sau, Từ Tắc Đống cùng các cô lái xe quay trở lại.
 
-Cùng đi còn có Chu Hoa Phong lái chiếc xe bảo mẫu thương vụ hiệu Mercedes.
+Cùng đi còn có Chu Phong Hoa lái chiếc xe bảo mẫu thương vụ hiệu Mercedes.
 
 Trên xe không chở theo ai khác, tất cả các khoang đều chất đầy ắp quà cáp.
 
 Tại sao không lái xe van thông thường? Công ty đâu có thiếu gì loại xe đó.
 
-Đây là quyết định chung của Chu Hoa Phong và Quan Văn Bách. Sau phen này, bọn họ đã nắm thấu đáo chân tướng mối quan hệ giữa Từ Mạn Mạn và gia đình nhà đẻ. Trước kia nhiều nhất cũng chỉ là phỏng đoán, giờ thì họ đã biết rõ mười mươi nên hành xử thế nào cho phải phép.
+Đây là quyết định chung của Chu Phong Hoa và Quan Văn Bách. Sau phen này, bọn họ đã nắm thấu đáo chân tướng mối quan hệ giữa Từ Mạn Mạn và gia đình nhà đẻ. Trước kia nhiều nhất cũng chỉ là phỏng đoán, giờ thì họ đã biết rõ mười mươi nên hành xử thế nào cho phải phép.
 
 Lái chiếc xe gì là chuyện nhỏ, Từ Mạn Mạn sẽ chẳng bao giờ bận tâm gặng hỏi, mà bọn họ lại càng không đời nào đem chuyện cỏn con này đi thỉnh thị Triệu Kim An.
 
@@ -34,7 +34,7 @@ Lương Tuệ Trân từ lúc bước xuống xe đến giờ vẫn không ngừ
 
 "Bíp ——"
 
-Lại một tiếng còi xe nữa vang lên. Chiếc Mercedes bảo mẫu từ từ tiến vào sân. Chu Hoa Phong đẩy cửa bước xuống, mở toang cả cốp sau lẫn cửa trượt hàng ghế hành khách, rồi thoăn thoắt bê từng thùng quà xuống đất.
+Lại một tiếng còi xe nữa vang lên. Chiếc Mercedes bảo mẫu từ từ tiến vào sân. Chu Phong Hoa đẩy cửa bước xuống, mở toang cả cốp sau lẫn cửa trượt hàng ghế hành khách, rồi thoăn thoắt bê từng thùng quà xuống đất.
 
 "Thưa cụ, đây là chút lễ nghĩa ngày Tết Nguyên Tiêu mà Từ tổng chúng cháu kính gửi tặng cụ."
 
@@ -42,7 +42,7 @@ Lại một tiếng còi xe nữa vang lên. Chiếc Mercedes bảo mẫu từ t
 
 Tất cả mọi người trố mắt nhìn cảnh tượng trước mặt, quà cáp nhiều đến mức hoa cả mắt.
 
-Chu Hoa Phong không ngừng tay chuyển đồ xuống, cả khoang ghế sau bị nhét chật ních từ trước.
+Chu Phong Hoa không ngừng tay chuyển đồ xuống, cả khoang ghế sau bị nhét chật ních từ trước.
 
 "Toàn là hàng của Trăn Hối Tuyển cả đấy."
 
@@ -102,7 +102,7 @@ Thậm chí lúc ngồi trên xe, ông đã nghiêm khắc cảnh cáo Lương T
 
 Từ Tắc Đống đang bảo bọc lấy danh tiếng của con gái hệt như đang bảo vệ một "tác phẩm tâm huyết" cả đời của chính mình vậy.
 
-Chu Hoa Phong lái xe rời đi, để lại trong sân cả một đống quà cáp chất cao như ngọn núi nhỏ.
+Chu Phong Hoa lái xe rời đi, để lại trong sân cả một đống quà cáp chất cao như ngọn núi nhỏ.
 
 Lần này Quan Văn Bách đã dặn dò cẩn mật, đề phòng bất trắc có kẻ họ hàng nào manh động tìm đến quấy rối.
 

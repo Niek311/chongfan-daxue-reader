@@ -14,7 +14,7 @@ Triệu Kim An khi ấy vẫn giữ cái lối ăn nói thẳng đuột, ngây n
 
 Mộc Dao khẽ trêu chọc Triệu Kim An, khiến cho mấy bạn nữ bàn bên của lớp 209 rúc rích cười vang.
 
-"Triệu Kim An này, lớp mình sắp tổ chức đi cắm trại dã ngoại mùa xuân đấy, mỗi người đóng năm mươi tệ tiền quỹ lớp, cậu với Triệu Trí Dũng có đi không?"
+"Triệu Kim An này, lớp mình sắp tổ chức đi cắm trại dã ngoại mùa xuân đấy, mỗi người đóng năm mươi tệ tiền quỹ lớp, cậu với Triệu Chí Dũng có đi không?"
 
 "Thầy chủ nhiệm bảo mỗi năm chỉ có một lần duy nhất thôi, tất cả mọi người đều phải tham gia đầy đủ đấy nhé."
 

@@ -166,9 +166,9 @@ Sáng hôm sau.
 
 Vậy là trong phòng chỉ còn sót lại mỗi Dao Dao thôi sao?
 
-Khoan đã, 406 vẫn còn một Diêu Thần nữa cơ mà.
+Khoan đã, 406 vẫn còn một Diêu Sân nữa cơ mà.
 
-Du Phi ngẫm nghĩ một chốc rồi tự động gạt phắt Diêu Thần ra ngoài, nhan sắc cô nàng không đủ chuẩn để lọt vào vòng này.
+Du Phi ngẫm nghĩ một chốc rồi tự động gạt phắt Diêu Sân ra ngoài, nhan sắc cô nàng không đủ chuẩn để lọt vào vòng này.
 
 Trong suy nghĩ của Đan Na Tề, Từ Mạn Mạn và Thẩm Tử Ngôn vốn dĩ đã là chuyện ván đã đóng thuyền từ lâu.
 

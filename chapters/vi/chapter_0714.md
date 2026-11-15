@@ -10,7 +10,7 @@ Thẩm Tử Ngôn lại được một phen phóng túng cuồng nhiệt, khiế
 
 “Kim An, anh… anh cấm có được nhúc nhích!”
 
-Triệu Kim An: 凸(-_-)凸
+Triệu Kim An: (biểu cảm giơ ngón giữa)
 
 Vừa bước ra khỏi phòng tắm, trên người Thẩm Tử Ngôn không một mảnh vải che thân. Diêu Sân từng có lần buột miệng khen ngợi Tử Ngôn chính là hoa khôi khoa, hồi đợt duyệt binh huấn luyện quân sự năm nhất đại học, cô nàng từng vinh dự làm khối trưởng dẫn đầu đội hình của cả lớp, sở hữu vóc dáng cao ráo, cân đối chuẩn mực đến từng mi-li-mét.
 
@@ -126,7 +126,7 @@ Nhìn thấy dòng tin nhắn ấy, Du Phi chết lặng mất hồi lâu. Hóa 
 
 Chỉ có điều, giọng điệu của Dao Dao dường như quá đỗi chắc nịch, dường như trong tiềm thức cô luôn mong mỏi cuộc hôn nhân giữa Triệu Kim An và Trần Thanh Trĩ sẽ không êm ấm. Có lẽ đó chính là niềm hy vọng le lói, ích kỷ cuối cùng còn sót lại trong trái tim người con gái bị tổn thương. Du Phi hoàn toàn có thể cảm thông cho nỗi đau của Mộc Dao.
 
-Mèo Cà Phê: [Dao Dao, hay cậu nhắn tin hỏi Triệu Trí Dũng xem sao. Trí Dũng cũng bám trụ lại Quận Sa, chắc cậu ấy nắm rõ tình hình hơn.]
+Mèo Cà Phê: [Dao Dao, hay cậu nhắn tin hỏi Triệu Chí Dũng xem sao. Trí Dũng cũng bám trụ lại Quận Sa, chắc cậu ấy nắm rõ tình hình hơn.]
 
 Mạch Thượng Yên Vũ Dao: [Tớ hỏi rồi, cậu ấy bảo cũng tạm.]
 
@@ -224,7 +224,7 @@ Sáng sớm hôm sau.
 
 Thẩm Tử Ngôn dù có quyến luyến đến mấy cũng đành phải cắn răng thu xếp hành lý đáp chuyến bay sớm trở về Tô Thành.
 
-Tập đoàn Thẩm Thị dẫu có cha Thẩm Vĩnh Đàm và mẹ Lục Mai Tiêu chống đỡ, nhưng thương hiệu Ba Chú Gấu Mèo đang trong giai đoạn phát triển thần tốc, cô không thể vắng mặt quá lâu được. Ban đầu cô từng dự tính sẽ nán lại cho tới khi Triệu Kim An và Elon Musk đàm phán ngã ngũ rồi mới cùng nhau sánh bước về nước.
+Tập đoàn Thẩm Thị dẫu có cha Thẩm Vĩnh Đàm và mẹ Lục Mai Tiêu chống đỡ, nhưng thương hiệu Ba Chú Gấu Trúc đang trong giai đoạn phát triển thần tốc, cô không thể vắng mặt quá lâu được. Ban đầu cô từng dự tính sẽ nán lại cho tới khi Triệu Kim An và Elon Musk đàm phán ngã ngũ rồi mới cùng nhau sánh bước về nước.
 
 “Triệu tổng, cái này… anh có giữ lại không ạ?”
 

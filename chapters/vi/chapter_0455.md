@@ -60,7 +60,7 @@ Triệu Kim An đích thân bước tới phân phát cho từng người một,
 
 "Đến nơi chẳng hề ra vẻ ta đây, không làm cao hay bày vẽ chút nào cả."
 
-Đây vốn là phong tục đón khách quen thuộc của đất Tam Tương. Với vùng Trường Sa - Chu Châu - Tương Đàm thì hôm nay chỉ thiếu mỗi một món ăn kèm truyền thống là miếng trầu cau mà thôi.
+Đây vốn là phong tục đón khách quen thuộc của đất Tam Tương. Với vùng Quận Sa - Chu Châu - Tương Đàm thì hôm nay chỉ thiếu mỗi một món ăn kèm truyền thống là miếng trầu cau mà thôi.
 
 Từ Mạn Mạn một tay nhẹ nhàng xoa lên bụng bầu, lặng lẽ dõi mắt nhìn theo từng cử chỉ của anh, chẳng ai đoán biết được sâu trong thâm tâm cô đang nghĩ ngợi điều gì, chỉ thấy bàn tay còn lại đang bấm thật mạnh vào đùi mình.
 
@@ -170,7 +170,7 @@ Triệu Kim An và Từ Mạn Mạn đến lúc mười một giờ rưỡi trư
 
 Cô chỉ kín đáo đưa thêm cho Tôn Cảnh Phong một phong bao đỏ mừng cưới thật dày.
 
-Tôn Cúc Lệ đã chu đáo sắp xếp riêng một bàn tiệc thịnh soạn cho Đan Vĩ, Quan Văn Bách, Chu Hoa Phong và Lưu Hiểu Tĩnh ngồi ăn cơm, thức ăn cũng giống hệt như mâm cỗ trên nhà.
+Tôn Cúc Lệ đã chu đáo sắp xếp riêng một bàn tiệc thịnh soạn cho Đan Vĩ, Quan Văn Bách, Chu Phong Hoa và Lưu Hiểu Tĩnh ngồi ăn cơm, thức ăn cũng giống hệt như mâm cỗ trên nhà.
 
 Lưu Hiểu Tĩnh xách túi giúp Từ Mạn Mạn, Đan Vĩ chỉ cần nhìn ánh mắt của Từ Mạn Mạn là lập tức bước tới mở sẵn cửa chiếc Rolls-Royce chờ cô bước lên.
 

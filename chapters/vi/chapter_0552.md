@@ -18,7 +18,7 @@ Cơm nước no say, mấy vị "đại lão" cùng nhau ngồi bệt trước m
 
 Mấy vị lãnh đạo phụ trách bên Trung Giao, Trung Điện Kiến và Trung Thiết đóng quân gần đó cũng rất khoái chạy sang văn phòng của Hoàn Vũ Thời Đại để la cà, chuyện trò.
 
-Du Phi bàn bạc ăn ý với Ngải Manh Manh ở hậu phương, từ đất Quận Sa gửi sang cơ man nào là đồ đạc nhu yếu phẩm, toàn bộ đều đi bằng đường hàng không hỏa tốc, do đích thân Đan Vĩ và Chu Hoa Phong lái xe bán tải chạy thẳng ra sân bay đón về.
+Du Phi bàn bạc ăn ý với Ngải Manh Manh ở hậu phương, từ đất Quận Sa gửi sang cơ man nào là đồ đạc nhu yếu phẩm, toàn bộ đều đi bằng đường hàng không hỏa tốc, do đích thân Đan Vĩ và Chu Phong Hoa lái xe bán tải chạy thẳng ra sân bay đón về.
 
 "Bên Dinh Liên Minh của các cậu với Lý tổng đã đàm phán xong xuôi với chính quyền Guinea chưa?"
 
@@ -86,7 +86,7 @@ Cách đó không xa, Du Phi và Đàm Tử Kiều đang cầm một túi bánh 
 
 "Người dân ở xứ này... sống lạc hậu và cơ cực quá."
 
-Chu Hoa Phong đứng cạnh khẽ buông tiếng thở dài đầy xót xa.
+Chu Phong Hoa đứng cạnh khẽ buông tiếng thở dài đầy xót xa.
 
 Bao Uyển Yên thì lại ngồi vắt vẻo trên thành ghế xe việt dã, gương mặt lạnh tanh, tuyệt nhiên chẳng có lấy một chút cảm xúc hay phản ứng nào.
 

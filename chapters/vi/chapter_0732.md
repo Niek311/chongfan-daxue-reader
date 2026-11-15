@@ -6,7 +6,7 @@ Trương Chí Huy vừa đáp chuyến bay về nước, nhưng gã chẳng bu�
 
 "Mẹ kiếp, Kim An à, cậu đúng thật là Triệu tổng chúa tể Quận Sa rồi!"
 
-Chu Hoa Phong đích thân lái xe sang ra sân bay đón Trương Chí Huy về thẳng tổng bộ Hoàn Vũ Thời Đại. Tòa tháp đôi Song Tử Tinh nguy nga sừng sững chọc thẳng lên trời xanh khiến gã công tử mỏ không khỏi choáng ngợp tột độ.
+Chu Phong Hoa đích thân lái xe sang ra sân bay đón Trương Chí Huy về thẳng tổng bộ Hoàn Vũ Thời Đại. Tòa tháp đôi Song Tử Tinh nguy nga sừng sững chọc thẳng lên trời xanh khiến gã công tử mỏ không khỏi choáng ngợp tột độ.
 
 Xuống tới tầng hầm đỗ xe, gã lại được phen lác mắt khi nhìn thấy cả một dàn xe siêu sang xếp thành hàng dài ngay ngắn, biển số từ Tương A·11111 trải dài cho tới Tương A·99999.
 

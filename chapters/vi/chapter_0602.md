@@ -4,7 +4,7 @@ Một lát sau.
 
 "Cốc, cốc."
 
-Triệu Trí Dũng gõ cửa, khẽ đẩy vào rồi hạ giọng: "Kim An, tụi tao qua đồn công an đem quần áo giặt đổi cho Dao Dao đây."
+Triệu Chí Dũng gõ cửa, khẽ đẩy vào rồi hạ giọng: "Kim An, tụi tao qua đồn công an đem quần áo giặt đổi cho Dao Dao đây."
 
 "Được."
 

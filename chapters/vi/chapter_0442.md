@@ -188,7 +188,7 @@ Chị bảo mẫu trong nhà cuối cùng cũng được tận mắt chiêm ngư
 
 Tại nhà khách huyện.
 
-Du Phi bắt đầu thoăn thoắt thu dọn hành lý chuẩn bị cho chuyến hồi hương. Chu Hoa Phong và Đặng Thần Bình nhận lệnh lái xe ô tô về Quận Sa trước.
+Du Phi bắt đầu thoăn thoắt thu dọn hành lý chuẩn bị cho chuyến hồi hương. Chu Phong Hoa và Đặng Thần Bình nhận lệnh lái xe ô tô về Quận Sa trước.
 
 Du Phi đã chu đáo đặt sẵn vé tàu cao tốc, bởi ngồi xe đường dài ròng rã thực sự quá đỗi mệt mỏi.
 

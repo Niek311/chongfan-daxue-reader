@@ -34,7 +34,7 @@ Chuyện lần này đụng chạm tới Triệu tổng lừng lẫy của Quậ
 
 Cùng lúc đó.
 
-Tại thị trấn huyện, một chiếc Cadillac vừa nhận được điện thoại chỉ thị. Chu Hoa Phong lập tức bẻ lái, lao vút về hướng Tưởng Gia Ao.
+Tại thị trấn huyện, một chiếc Cadillac vừa nhận được điện thoại chỉ thị. Chu Phong Hoa lập tức bẻ lái, lao vút về hướng Tưởng Gia Ao.
 
 Kế hoạch ban đầu vốn dĩ là muốn trực tiếp "áp giải" Lư Kiều Vĩ ra ngoài huyện.
 
@@ -138,7 +138,7 @@ Cũng giống như Đan Vĩ ban nãy, khi chiếc xe lướt qua khoảng sân n
 
 "Tít... tít...!"
 
-Chiếc Cadillac bọc thép nặng tới 7,8 tấn khẽ bấm còi. Ánh đèn pha công suất lớn rọi thẳng về phía trước, biến cả một góc làng Tưởng Gia Ao sáng rực như ban ngày. Những người đứng ven đường phải giơ tay lên che mắt cho đỡ chói. Chu Hoa Phong liền gạt cần, chuyển sang chế độ đèn chiếu gần.
+Chiếc Cadillac bọc thép nặng tới 7,8 tấn khẽ bấm còi. Ánh đèn pha công suất lớn rọi thẳng về phía trước, biến cả một góc làng Tưởng Gia Ao sáng rực như ban ngày. Những người đứng ven đường phải giơ tay lên che mắt cho đỡ chói. Chu Phong Hoa liền gạt cần, chuyển sang chế độ đèn chiếu gần.
 
 "Chắc chắn là chị ấy rồi."
 

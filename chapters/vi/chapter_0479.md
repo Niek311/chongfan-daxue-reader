@@ -1,20 +1,20 @@
 # Chương 479: Khởi nghiệp của lớp Kế toán 1
 
-Triệu Trí Dũng còn phải lái xe chạy đi đón bé Triệu Niệm Khả tan trường.
+Triệu Chí Dũng còn phải lái xe chạy đi đón bé Triệu Niệm Khả tan trường.
 
 Cậu cùng Trịnh Như đã đăng ký cho Triệu Niệm Khả theo học vài lớp bồi dưỡng năng khiếu ngoài giờ.
 
-Bản thân Trịnh Như năm xưa ít học, ít chữ, nên chị luôn thủ thỉ với Triệu Trí Dũng rằng trẻ con thời nay nhất định phải được học hành đến nơi đến chốn đàng hoàng, cứ nhìn tấm gương của Từ tổng và Thẩm tổng thì rõ.
+Bản thân Trịnh Như năm xưa ít học, ít chữ, nên chị luôn thủ thỉ với Triệu Chí Dũng rằng trẻ con thời nay nhất định phải được học hành đến nơi đến chốn đàng hoàng, cứ nhìn tấm gương của Từ tổng và Thẩm tổng thì rõ.
 
-Thế nên ngày ngày Triệu Trí Dũng đều đặn đưa đón bé Niệm Khả đi học, ngay cả tiền học phí lớp thư pháp cũng là do một tay Triệu Trí Dũng tự nguyện móc túi chi trả.
+Thế nên ngày ngày Triệu Chí Dũng đều đặn đưa đón bé Niệm Khả đi học, ngay cả tiền học phí lớp thư pháp cũng là do một tay Triệu Chí Dũng tự nguyện móc túi chi trả.
 
-Trịnh Như lớn hơn Trí Dũng tới mười ba tuổi, năm nay dường như đã bước sang tuổi ba mươi lăm. Vương Duy Đào từng lén lút kéo Triệu Trí Dũng ra một góc thì thào khuyên nhủ: "Anh Dũng này, nếu anh thật lòng muốn cùng chị Trịnh Như nắm tay nhau đi đến đầu bạc răng long, thì chi bằng mau mau tính chuyện sinh lấy một mụn con chung đi!"
+Trịnh Như lớn hơn Trí Dũng tới mười ba tuổi, năm nay dường như đã bước sang tuổi ba mươi lăm. Vương Duy Đào từng lén lút kéo Triệu Chí Dũng ra một góc thì thào khuyên nhủ: "Anh Dũng này, nếu anh thật lòng muốn cùng chị Trịnh Như nắm tay nhau đi đến đầu bạc răng long, thì chi bằng mau mau tính chuyện sinh lấy một mụn con chung đi!"
 
-Hai người họ là anh em chí cốt vào sinh ra tử, Triệu Trí Dũng xưa nay chẳng bao giờ gọi Duy Đào bằng cái danh "Vương khoa trưởng" quan cách.
+Hai người họ là anh em chí cốt vào sinh ra tử, Triệu Chí Dũng xưa nay chẳng bao giờ gọi Duy Đào bằng cái danh "Vương khoa trưởng" quan cách.
 
-Vương Duy Đào thực lòng sốt ruột và lo nghĩ cho hạnh phúc tương lai của Triệu Trí Dũng.
+Vương Duy Đào thực lòng sốt ruột và lo nghĩ cho hạnh phúc tương lai của Triệu Chí Dũng.
 
-Chuyện qua một lần đò thì có hề gì, Triệu Trí Dũng rõ ràng đã một lòng một dạ gắn bó với Trịnh Như. Lý lẽ của Vương Duy Đào đưa ra vô cùng hợp tình hợp lý: Trí Dũng thì còn trẻ trung phơi phới, nhưng Trịnh Như năm nay đã ba mươi lăm rồi, chẳng lẽ lại đợi đến năm bốn mươi tuổi mới bắt đầu tính chuyện sinh nở hay sao?
+Chuyện qua một lần đò thì có hề gì, Triệu Chí Dũng rõ ràng đã một lòng một dạ gắn bó với Trịnh Như. Lý lẽ của Vương Duy Đào đưa ra vô cùng hợp tình hợp lý: Trí Dũng thì còn trẻ trung phơi phới, nhưng Trịnh Như năm nay đã ba mươi lăm rồi, chẳng lẽ lại đợi đến năm bốn mươi tuổi mới bắt đầu tính chuyện sinh nở hay sao?
 
 ...
 
@@ -54,7 +54,7 @@ Triệu Kim An thoáng ngẩn người, rồi cũng bật cười sặc sụa tr
 
 Trẻ sơ sinh như Triệu Tri Nặc mỗi ngày cần phải ngủ ít nhất từ mười tám tiếng trở lên.
 
-Đúng lúc này, Triệu Trí Dũng lái chiếc xe van đưa bé Triệu Niệm Khả vừa tới nơi. Vương Duy Đào rút điện thoại gọi cho Lý Văn Húc, chỉ lát sau đã thấy Lý Văn Húc hớt hải chạy vội từ trong quán ra đón.
+Đúng lúc này, Triệu Chí Dũng lái chiếc xe van đưa bé Triệu Niệm Khả vừa tới nơi. Vương Duy Đào rút điện thoại gọi cho Lý Văn Húc, chỉ lát sau đã thấy Lý Văn Húc hớt hải chạy vội từ trong quán ra đón.
 
 "Kim An, Từ tổng...!"
 
@@ -72,9 +72,9 @@ Phải, chính xác phải dùng từ "mời".
 
 Bởi Từ Mạn Mạn giờ đây đã là một Từ tổng danh xứng với thực, phía trước danh xưng ấy không còn bị đóng khung trong ba chữ "Trăn Hối Tuyển" nữa, mà là vị Từ tổng quyền lực bao quát cả Trăn Nhiên, Trăn Hối Tuyển lẫn Hoàn Vũ Cảng Vụ!
 
-Triệu Trí Dũng và Trịnh Như trước đó cũng đã từng tới đây ăn một lần. Phùng Vũ Lam dắt tay bé Triệu Niệm Khả bước vào: "Niệm Khả ngoan, con có muốn ăn kem que không? Cô mua cho con nhé."
+Triệu Chí Dũng và Trịnh Như trước đó cũng đã từng tới đây ăn một lần. Phùng Vũ Lam dắt tay bé Triệu Niệm Khả bước vào: "Niệm Khả ngoan, con có muốn ăn kem que không? Cô mua cho con nhé."
 
-Dù không có Triệu Kim An ở Quận Sa thì Triệu Trí Dũng và Vương Duy Đào vẫn thường xuyên tụ tập ăn uống bù khú với nhau, nên Phùng Vũ Lam và Trịnh Như từ lâu đã vô cùng thân thiết. Cặp đôi Phùng Vũ Lam - Vương Duy Đào hay qua nhà Trí Dũng ăn cơm, tay nghề nấu nướng của cả Trịnh Như lẫn Triệu Trí Dũng đều thuộc hàng thượng thừa.
+Dù không có Triệu Kim An ở Quận Sa thì Triệu Chí Dũng và Vương Duy Đào vẫn thường xuyên tụ tập ăn uống bù khú với nhau, nên Phùng Vũ Lam và Trịnh Như từ lâu đã vô cùng thân thiết. Cặp đôi Phùng Vũ Lam - Vương Duy Đào hay qua nhà Trí Dũng ăn cơm, tay nghề nấu nướng của cả Trịnh Như lẫn Triệu Chí Dũng đều thuộc hàng thượng thừa.
 
 Lý Văn Húc cẩn thận đi trước dẫn đường.
 
@@ -106,7 +106,7 @@ Từ Mạn Mạn ngẫm nghĩ một chốc rồi mỉm cười gật gù tán th
 
 Cả Trịnh Như lẫn Phùng Vũ Lam đều không làm việc trong các công ty của Triệu Kim An, nên mối quan hệ giữa ba người phụ nữ hoàn toàn là tình bạn bè thân thiết, thoải mái.
 
-Triệu Trí Dũng cẩn thận đẩy chiếc xe đẩy trẻ em cao cấp có giá bán lên tới năm ngàn tệ tại siêu thị Trăn Hối Tuyển đi vào.
+Triệu Chí Dũng cẩn thận đẩy chiếc xe đẩy trẻ em cao cấp có giá bán lên tới năm ngàn tệ tại siêu thị Trăn Hối Tuyển đi vào.
 
 Quán ăn của Lý Văn Húc không quá lớn, chỉ vỏn vẹn mười bốn bộ bàn ghế. Khu vực bếp được thiết kế theo không gian mở, hoàn toàn không có các món xào nấu dầu mỡ ồn ào.
 
@@ -126,9 +126,9 @@ Triệu Kim An đứng bên ngoài, giơ tay chỉ về phía vỉ nướng than
 
 Vương Duy Đào lập tức tấm tắc: "Kim An, cánh gà nướng ở đây phải nói là đỉnh nhất tao từng ăn đấy, vị ngon vượt xa mấy cái quán nướng vỉa hè đêm ngoài phố gấp mấy lần."
 
-Triệu Trí Dũng cũng gật đầu phụ họa: "Cho tao năm cái nhé, Niệm Khả ăn hai cái."
+Triệu Chí Dũng cũng gật đầu phụ họa: "Cho tao năm cái nhé, Niệm Khả ăn hai cái."
 
-Ngay cả khi gọi đồ ăn, Triệu Trí Dũng cũng chưa từng quên phần của bé Triệu Niệm Khả, điều đó đã ăn sâu vào tiềm thức tự nhiên của cậu.
+Ngay cả khi gọi đồ ăn, Triệu Chí Dũng cũng chưa từng quên phần của bé Triệu Niệm Khả, điều đó đã ăn sâu vào tiềm thức tự nhiên của cậu.
 
 Triệu Kim An quay sang hỏi: "Lý Văn Húc, cánh gà nướng này bán bao nhiêu tiền một cái thế?"
 
@@ -182,4 +182,4 @@ Lý Văn Húc chẳng hề giấu giếm nửa lời. Ngồi ở đây đều l�
 
 Vương Duy Đào giơ nắm đấm thụi nhẹ vào vai Lý Văn Húc một cú: "Mẹ kiếp, một ngày mày kiếm bằng cả tháng lương công chức của tao rồi đấy!"
 
-Lý Văn Húc không hề tỏ ra kiêu ngạo, điềm đạm phân bua: "Cậu với Vũ Lam thì khác, hai người là công chức nhà nước có biên chế ổn định lâu dài. Còn Triệu Trí Dũng người ta nay đã là giám đốc phụ trách toàn bộ phân vùng Nhạc Lộc của Trăn Nhiên rồi cơ đấy..."
+Lý Văn Húc không hề tỏ ra kiêu ngạo, điềm đạm phân bua: "Cậu với Vũ Lam thì khác, hai người là công chức nhà nước có biên chế ổn định lâu dài. Còn Triệu Chí Dũng người ta nay đã là giám đốc phụ trách toàn bộ phân vùng Nhạc Lộc của Trăn Nhiên rồi cơ đấy..."

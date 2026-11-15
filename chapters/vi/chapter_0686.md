@@ -14,7 +14,7 @@ Thứ hai, một khi đã quyết định cho vay, tốt nhất đừng ôm hy v
 
 Bằng không thì ngay từ đầu đừng cho mượn.
 
-Mấy ngày trước thềm năm mới, cả nhóm cùng kéo nhau đến nhà Triệu Trí Dũng, đứng chờ thang máy lên lầu.
+Mấy ngày trước thềm năm mới, cả nhóm cùng kéo nhau đến nhà Triệu Chí Dũng, đứng chờ thang máy lên lầu.
 
 Nói cho chính xác thì đây là nhà của Trịnh Như, tiền trả trước mua nhà hoàn toàn là tiền túi của chị ấy.
 
@@ -30,7 +30,7 @@ Bản thân ăn mặc phối đồ thời thượng bao nhiêu, hễ đụng t�
 
 Ngặt nỗi Triệu Kim An cũng y như thế, gu thẩm mỹ của cả hai người dường như đều rơi rụng sạch sành sanh sau khi có con.
 
-Trong cả đám bạn, duy chỉ có Triệu Kim An là đã làm cha. Triệu Trí Dũng không tính, con bé Triệu Niệm Khả đâu phải do cậu ta sinh ra. Lâm Thanh Tuyết liếc nhìn Từ Mạn Mạn, đáy lòng dâng lên niềm ngưỡng mộ khôn nguôi; cô không hề ghen tị với vị trí Phó Tổng giám đốc tập đoàn của Mạn Mạn, mà chỉ thèm muốn cái cảm giác Từ Mạn Mạn và Triệu Kim An đã có với nhau một mụn con gái đáng yêu nhường này.
+Trong cả đám bạn, duy chỉ có Triệu Kim An là đã làm cha. Triệu Chí Dũng không tính, con bé Triệu Niệm Khả đâu phải do cậu ta sinh ra. Lâm Thanh Tuyết liếc nhìn Từ Mạn Mạn, đáy lòng dâng lên niềm ngưỡng mộ khôn nguôi; cô không hề ghen tị với vị trí Phó Tổng giám đốc tập đoàn của Mạn Mạn, mà chỉ thèm muốn cái cảm giác Từ Mạn Mạn và Triệu Kim An đã có với nhau một mụn con gái đáng yêu nhường này.
 
 "Giá mà mình cũng có một đứa, thì đời này chẳng còn gì phải nghĩ, chỉ việc cắm đầu vào kiếm tiền thôi."
 
@@ -54,7 +54,7 @@ Trong lòng các bạn học lớp Kế toán 1, cặp đôi này quả thực r
 
 Liệu sau khi tốt nghiệp, cậu bạn trai ấy có tìm nổi một công việc tử tế để bám trụ lại mảnh đất Quận Sa này không?
 
-Lý Ngải Lan và Vương Duy Đào vốn là hai cái loa phát thanh nhiều chuyện nhất hội. Vừa bước chân vào nhà Triệu Trí Dũng, họ chẳng buồn bàn chuyện công việc hay kiếm tiền, mà rúc rích kể chuyện Lý Lộ đi làm kiếm được bao nhiêu tiền đều đem nộp học phí và lo chi phí sinh hoạt cho cậu bạn trai khóa dưới.
+Lý Ngải Lan và Vương Duy Đào vốn là hai cái loa phát thanh nhiều chuyện nhất hội. Vừa bước chân vào nhà Triệu Chí Dũng, họ chẳng buồn bàn chuyện công việc hay kiếm tiền, mà rúc rích kể chuyện Lý Lộ đi làm kiếm được bao nhiêu tiền đều đem nộp học phí và lo chi phí sinh hoạt cho cậu bạn trai khóa dưới.
 
 "Lý Lộ tốt đến thế cơ à?"
 
@@ -68,7 +68,7 @@ Biết đâu mẹ cậu ta chẳng phải bỏ trốn, mà đã bị vùi xác d
 
 "Cứ tự nhiên nhé, muốn ăn gì thì cứ việc lấy! Đĩa đó là hạt thông Brazil đấy, tao cắn răng chi đậm hai trăm tệ một cân đấy nhé!"
 
-Triệu Trí Dũng thò đầu ra khỏi bếp, niềm nở chào mọi người.
+Triệu Chí Dũng thò đầu ra khỏi bếp, niềm nở chào mọi người.
 
 Triệu Kim An đang ngồi xổm trước kệ tivi liền ngoái đầu lại hỏi: "Ở đây có đứa nào biết nấu ăn không?"
 
@@ -100,19 +100,19 @@ Triệu Niệm Khả ngoan ngoãn toan đi lấy dao gọt hoa quả.
 
 Trên bàn trà bày sẵn hai bao thuốc lá Trung Hoa cùng một gói trầu cau Bàn Ca ba mươi tệ.
 
-Tổ ấm ba người như thế này, nếu là vài năm về trước, tuyệt nhiên chẳng ai tin họ có thể đi đường dài cùng nhau. Thế nhưng thấm thoắt Triệu Trí Dũng và Trịnh Như đã gắn bó bên nhau suốt năm năm trời, Trịnh Như năm nay cũng đã ba mươi sáu tuổi.
+Tổ ấm ba người như thế này, nếu là vài năm về trước, tuyệt nhiên chẳng ai tin họ có thể đi đường dài cùng nhau. Thế nhưng thấm thoắt Triệu Chí Dũng và Trịnh Như đã gắn bó bên nhau suốt năm năm trời, Trịnh Như năm nay cũng đã ba mươi sáu tuổi.
 
-Triệu Trí Dũng không hề đứng núi này trông núi nọ, càng không trở thành kẻ phụ bạc.
+Triệu Chí Dũng không hề đứng núi này trông núi nọ, càng không trở thành kẻ phụ bạc.
 
-Giờ đây cậu đã là Quản lý tiêu thụ khu Nhạc Lộc của Trăn Nhiên, thu nhập mỗi tháng hơn một vạn tệ, lại có thêm khoản tiền thưởng cuối năm béo bở, lại còn là bạn nối khố chí cốt của Triệu tổng Quận Sa. Trong công ty, có không biết bao nhiêu cô gái từng ngỏ ý đưa đẩy với Triệu Trí Dũng.
+Giờ đây cậu đã là Quản lý tiêu thụ khu Nhạc Lộc của Trăn Nhiên, thu nhập mỗi tháng hơn một vạn tệ, lại có thêm khoản tiền thưởng cuối năm béo bở, lại còn là bạn nối khố chí cốt của Triệu tổng Quận Sa. Trong công ty, có không biết bao nhiêu cô gái từng ngỏ ý đưa đẩy với Triệu Chí Dũng.
 
 Trong số đó chẳng thiếu những cô nàng sở hữu nhan sắc mặn mà, xinh đẹp.
 
-Thế nhưng Triệu Trí Dũng chưa từng một lần dao động. Cậu thẳng thắn từ chối tất cả, dõng dạc tuyên bố mình đã có bạn gái và con gái rồi.
+Thế nhưng Triệu Chí Dũng chưa từng một lần dao động. Cậu thẳng thắn từ chối tất cả, dõng dạc tuyên bố mình đã có bạn gái và con gái rồi.
 
 Cậu cũng chẳng hề giấu giếm thân phận của Trịnh Như, luôn bảo rằng Trịnh Như đang mở một quán súp cay ở khu trường đại học.
 
-Trịnh Như tuổi ba mươi sáu nơi khóe mắt đã hằn lên những nếp chân chim, còn Triệu Trí Dũng tuổi hai mươi tư thì đang phơi phới sức trẻ. Con bé Triệu Niệm Khả nay đã học lớp 5, mở miệng ra là ngọt ngào gọi Triệu Trí Dũng một tiếng ba, hai tiếng cũng ba.
+Trịnh Như tuổi ba mươi sáu nơi khóe mắt đã hằn lên những nếp chân chim, còn Triệu Chí Dũng tuổi hai mươi tư thì đang phơi phới sức trẻ. Con bé Triệu Niệm Khả nay đã học lớp 5, mở miệng ra là ngọt ngào gọi Triệu Chí Dũng một tiếng ba, hai tiếng cũng ba.
 
 "Nhìn cái gì mà nhìn, tự đi mà đẻ một đứa!"
 
@@ -142,7 +142,7 @@ Lý Ngải Lan bĩu môi chê bai ra mặt.
 
 Lý Ngải Lan ngoài miệng chê hạt thông chẳng ra gì, nhưng cái tay thì thoăn thoắt không ngừng, vừa bóc cho mình một hạt, vừa nhét một hạt vào miệng Triệu Tri Nặc: "Nặc Nặc ngoan, há miệng ra nào, hi hi, có ngon không con?"
 
-Triệu Trí Dũng trong bếp vọng ra: "Sắp dọn cơm rồi nhé!"
+Triệu Chí Dũng trong bếp vọng ra: "Sắp dọn cơm rồi nhé!"
 
 Cậu lại giục Triệu Niệm Khả đi lấy nước ngọt, xếp bát đũa, hai vợ chồng bận rộn tíu tít quanh bếp lửa.
 
@@ -154,7 +154,7 @@ Từ Mạn Mạn và Phùng Vũ Lam nghe thấy thế liền giật thót mình,
 
 "Toàn đồ đặc sản ở Triệu gia thôn bọn anh mang lên đấy, chắc mấy đứa chưa từng được nếm thử bao giờ đâu!"
 
-Triệu Trí Dũng đang nấu nướng cũng phải chạy ra khoe khoang một phen: "Đào trên núi đấy nhé, thường là ở mấy cánh rừng trúc trên đồi. Không phải cái loại chuột cống bẩn thỉu trong cống rãnh thành phố đâu, thịt thơm ngon ngọt lịm, lát nữa nếm thử là biết tay nghề anh ngay!"
+Triệu Chí Dũng đang nấu nướng cũng phải chạy ra khoe khoang một phen: "Đào trên núi đấy nhé, thường là ở mấy cánh rừng trúc trên đồi. Không phải cái loại chuột cống bẩn thỉu trong cống rãnh thành phố đâu, thịt thơm ngon ngọt lịm, lát nữa nếm thử là biết tay nghề anh ngay!"
 
 "Đúng là đồ nhà quê chưa thấy sự đời, món này có tiền cũng chưa chắc mua được đâu, phải may mắn gặp đúng phiên chợ quê người ta mới đem bán đấy."
 

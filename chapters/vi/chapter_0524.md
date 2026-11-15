@@ -166,7 +166,7 @@ Dư Tĩnh mỉm cười gật đầu: "Ký xong xuôi cả rồi, chốt hạ co
 
 Cung hiệu trưởng thở phào trút ra một hơi dài nhẹ nhõm: "Cuối cùng cũng chịu quay về rồi. Cổ nhân nói cấm có sai, 'anh hùng khó qua ải mỹ nhân'. Chỉ cần người chịu trở về là vạn sự bình an. Kim An đã trở lại, con thuyền lớn Hoàn Vũ Cảng Vụ này coi như lại chính thức giương buồm rẽ sóng ra khơi rồi!"
 
-Lâm Thanh Tuyết lại một lần nữa tìm đến sảnh tòa nhà. Những người bạn năm xưa như Vương Duy Đào, Phùng Vũ Lam, Triệu Trí Dũng, Trịnh Như... đã quá lâu rồi không được tận mắt nhìn thấy Triệu Kim An.
+Lâm Thanh Tuyết lại một lần nữa tìm đến sảnh tòa nhà. Những người bạn năm xưa như Vương Duy Đào, Phùng Vũ Lam, Triệu Chí Dũng, Trịnh Như... đã quá lâu rồi không được tận mắt nhìn thấy Triệu Kim An.
 
 "Thư ký Du có nhắn về bảo Kim An gầy rộc đi nhiều lắm..." Trịnh Như thực lòng xót xa cho người chú họ này, trong thâm tâm cô bé đã không biết bao nhiêu lần chắp tay cầu nguyện cho cô Tô Miến mau chóng tỉnh lại.
 

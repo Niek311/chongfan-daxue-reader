@@ -150,7 +150,7 @@ Vả lại...
 
 Chẳng lẽ sau này lại để ông chủ gọi mình một tiếng "bố vợ" thật sao?
 
-Nếu thế thì đám chó má như Chu Hoa Phong với Lý Tân không biết sẽ trêu chọc, cà khịa ông đến mức nào nữa.
+Nếu thế thì đám chó má như Chu Phong Hoa với Lý Tân không biết sẽ trêu chọc, cà khịa ông đến mức nào nữa.
 
 Đan Vĩ bây giờ nhận mức lương một vạn sáu, Na Tề đang thời gian thực tập cũng kiếm được sáu nghìn mỗi tháng, đi công tác lại được thanh toán trọn gói mọi chi phí. Hai cha con cuối cùng cũng qua được những ngày tháng cơ cực, thử hỏi làm sao Đan Vĩ không mừng cho được?
 

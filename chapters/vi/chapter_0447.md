@@ -188,9 +188,9 @@ Cả hai bên trong lòng đều tự nhủ: ván này cầm chắc phần thắ
 
 Du Phi hào hứng giơ điện thoại lên chuẩn bị quay video, khua khua nắm đấm nhỏ cổ vũ: "Triệu tổng, cố lên!"
 
-Đứng bên cạnh, Chu Hoa Phong cười sằng sặc dọa nạt: "Lão Đơn, lão Đặng, thua một điểm là trừ thẳng vào tiền lương đấy nhé!"
+Đứng bên cạnh, Chu Phong Hoa cười sằng sặc dọa nạt: "Lão Đơn, lão Đặng, thua một điểm là trừ thẳng vào tiền lương đấy nhé!"
 
-Đặng Thần Bình vừa vờ vịt khởi động vừa giơ ngón tay giữa về phía Chu Hoa Phong: "Lão Đơn, tí nữa hai thằng mình cứ phải kèm chặt lấy sếp, tuyệt đối không để ai va chạm vào người sếp nghe chưa?"
+Đặng Thần Bình vừa vờ vịt khởi động vừa giơ ngón tay giữa về phía Chu Phong Hoa: "Lão Đơn, tí nữa hai thằng mình cứ phải kèm chặt lấy sếp, tuyệt đối không để ai va chạm vào người sếp nghe chưa?"
 
 "Kèm sếp thì chơi bời cái nỗi gì nữa? Đứng vây quanh sếp thì ai phòng thủ đối phương? Để sếp một mình chấp năm người ta à?"
 
@@ -226,7 +226,7 @@ Thế nhưng Du Phi luôn làm tròn bổn phận của mình. Trước hết c�
 
 Nửa tiếng đồng hồ sau, cả Tô Miến lẫn Từ Mạn Mạn đều cười đến đau cả ruột. Cứ hễ Triệu Kim An chạm tay vào bóng là y như rằng Đan Vĩ và Đặng Thần Bình lại hùng hổ lao tới "bảo vệ" sếp một cách mù quáng, rốt cuộc lại thành ra cản trở chính Triệu Kim An, khiến anh tức tối đến mức phải bật cười chửi đổng ngay trên sân.
 
-Trong video, tiếng Du Phi hò hét cổ vũ lảnh lót hòa cùng tiếng Chu Hoa Phong đứng bên đường biên chỉ đạo bậy bạ rộn vang cả một góc trời.
+Trong video, tiếng Du Phi hò hét cổ vũ lảnh lót hòa cùng tiếng Chu Phong Hoa đứng bên đường biên chỉ đạo bậy bạ rộn vang cả một góc trời.
 
 ...
 

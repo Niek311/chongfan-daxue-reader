@@ -166,7 +166,7 @@ Cái tính Lý Ngải Lan là hễ ké cẩm được là ké tới cùng, mà L
 
 Ngoài đồ công sở ra, mỗi lần Lý Ngải Lan lái xe sang nhà xưởng Tinh Sa, em trai của Lâm Thanh Tuyết chưa bao giờ lấy của cô nửa cắc, miệng luôn liến thoắng gọi "chị Lan", mặc cho cô tha hồ lựa chọn mẫu mã mang về.
 
-Kể cả bạn gái của Vương Duy Đào, Phùng Vũ Lam, cho đến đám Triệu Trí Dũng, Trịnh Như cũng đều được hưởng đãi ngộ như vậy.
+Kể cả bạn gái của Vương Duy Đào, Phùng Vũ Lam, cho đến đám Triệu Chí Dũng, Trịnh Như cũng đều được hưởng đãi ngộ như vậy.
 
 Đó là sự dặn dò riêng của Lâm Thanh Tuyết.
 

@@ -30,7 +30,7 @@ Từ Mạn Mạn nghe vậy khẽ mỉm cười, nơi đáy mắt đong đầy v
 
 Lưu Hiểu Tĩnh liếc nhìn màn hình điện thoại rồi nhanh nhảu báo cáo: "Từ tổng, Triệu tổng lại bế bé Nặc Nặc xuống trung tâm thương mại dạo chơi rồi ạ."
 
-Triệu Bác Lan tranh thủ tiếp lời: "Kim An bảo tiền thưởng cuối năm của Đường Hiểu Tình nâng lên mức kịch trần là mười bảy tháng lương. Mạn Mạn, cô xem qua xem trường hợp của Du Phi, Ngải Manh Manh với cả Triệu Trí Dũng thì tính thế nào? Phòng tài chính bọn tôi dự kiến để Du Phi và Triệu Trí Dũng ở mức mười lăm tháng lương."
+Triệu Bác Lan tranh thủ tiếp lời: "Kim An bảo tiền thưởng cuối năm của Đường Hiểu Tình nâng lên mức kịch trần là mười bảy tháng lương. Mạn Mạn, cô xem qua xem trường hợp của Du Phi, Ngải Manh Manh với cả Triệu Chí Dũng thì tính thế nào? Phòng tài chính bọn tôi dự kiến để Du Phi và Triệu Chí Dũng ở mức mười lăm tháng lương."
 
 "Ngải Manh Manh mới vào công ty chưa được bao lâu, phòng tài chính đề xuất mười ba tháng."
 
@@ -54,7 +54,7 @@ Từ Mạn Mạn: "Giám đốc Triệu, trường hợp của Diêu Sân cứ n
 
 Triệu Bác Lan: "Vâng, tôi rõ rồi, Từ tổng."
 
-Nói cho cùng, Từ Mạn Mạn dẫu sao cũng là bậc "thím nhỏ" danh chính ngôn thuận của Triệu Bác Lan và Triệu Trí Dũng. Triệu Bác Lan là người công tư phân minh, nhìn nhận một cách khách quan thì Từ Mạn Mạn quán xuyến công việc nội bộ của tập đoàn cực kỳ có tâm và nhẫn nại.
+Nói cho cùng, Từ Mạn Mạn dẫu sao cũng là bậc "thím nhỏ" danh chính ngôn thuận của Triệu Bác Lan và Triệu Chí Dũng. Triệu Bác Lan là người công tư phân minh, nhìn nhận một cách khách quan thì Từ Mạn Mạn quán xuyến công việc nội bộ của tập đoàn cực kỳ có tâm và nhẫn nại.
 
 Gần như chưa từng để xảy ra bất kỳ sai sót nào. Còn Thẩm Tử Ngôn thì rõ ràng lại thích hợp hơn cho việc xông pha trận mạc, "khai cương thác thổ" cho tập đoàn.
 
@@ -84,7 +84,7 @@ Dịp Tết Nguyên đán này Diêu Sân không được nghỉ phép. Bên nư
 
 Tại siêu thị Trăn Hối Tuyển.
 
-Lạc Cẩn Chi đang tươi cười bế bé Triệu Tri Nặc trên tay. Con bé này tính tình dạn dĩ, ai bế cũng ngoan ngoãn chẳng thèm khóc nhè lấy một tiếng. Lạc Cẩn Chi cất giọng nhắc nhở: "Kim An này, cậu đã hứa với tôi là bên Trăn Nhiên sẽ tung ra dòng sản phẩm mới rồi đấy nhé. Bây giờ phải bắt tay vào lên ý tưởng dần đi là vừa, ra Giêng ăn Tết xong là phải cho ra mắt thị trường ngay đấy."
+Lạc Cẩn Chi đang tươi cười bế bé Triệu Tri Nặc trên tay. Con bé này tính tình dạn dĩ, ai bế cũng ngoan ngoãn chẳng thèm khóc nhè lấy một tiếng. Lạc Cẩn Chi cất giọng nhắc nhở: "Kim An này, em đã hứa với chị là bên Trăn Nhiên sẽ tung ra dòng sản phẩm mới rồi đấy nhé. Bây giờ phải bắt tay vào lên ý tưởng dần đi là vừa, ra Giêng ăn Tết xong là phải cho ra mắt thị trường ngay đấy."
 
 Hạng mục công việc này Từ Mạn Mạn quả thực không thể nào gánh vác nổi; tất cả các dòng sản phẩm làm mưa làm gió trên thị trường của Trăn Nhiên từ trước tới nay đều do một tay Triệu Kim An đứng sau định hình và chỉ đạo.
 
@@ -92,17 +92,17 @@ Hạng mục công việc này Từ Mạn Mạn quả thực không thể nào g
 
 "Tôi cứ thơm đấy, thơm mãi đấy, thơm vào má một tí thì ảnh hưởng gì nào?"
 
-Lạc Cẩn Chi nhịn không được bật cười khanh khách: "Kim An à, con gái cậu công nhận đáng yêu, dễ thương quá chừng."
+Lạc Cẩn Chi nhịn không được bật cười khanh khách: "Kim An à, con gái em công nhận đáng yêu, dễ thương quá chừng."
 
 "Thích thì tự mình đi mà đẻ một đứa." Triệu Kim An thản nhiên buông một câu.
 
-Lạc Cẩn Chi chớp chớp đôi mắt lúng liếng, ghé sát tai anh hạ thấp giọng thì thầm: "Thế cậu có chịu sinh con với tôi không?"
+Lạc Cẩn Chi chớp chớp đôi mắt lúng liếng, ghé sát tai anh hạ thấp giọng thì thầm: "Thế em có chịu sinh con với chị không?"
 
 Triệu Kim An: "..."
 
 "Lạc tổng à, với điều kiện và nhan sắc của chị bây giờ, ngoài kia khối gã đàn ông xếp hàng dài xin được sinh con cùng chị đấy. Nếu chị không có hứng thú với mấy lão già bụng phệ, thì bên trường đại học của tôi có cả một dàn sinh viên thể thao trẻ trung, vạm vỡ, chị cứ việc thoải mái mà lựa chọn."
 
-Lạc Cẩn Chi chẳng thèm bận tâm tới lời mỉa mai ấy, tiếp tục rỉ tai đầy ma mị: "Cậu cứ yên tâm đi, miệng tôi kín như bưng, sinh con ra khắc mang theo họ Lạc của tôi, tuyệt đối không để lộ ra ngoài nửa lời cho ai biết, thấy thế nào hả?"
+Lạc Cẩn Chi chẳng thèm bận tâm tới lời mỉa mai ấy, tiếp tục rỉ tai đầy ma mị: "Em cứ yên tâm đi, miệng chị kín như bưng, sinh con ra khắc mang theo họ Lạc của chị, tuyệt đối không để lộ ra ngoài nửa lời cho ai biết, thấy thế nào hả?"
 
 "Chẳng ra cái thể thống gì cả."
 
@@ -114,7 +114,7 @@ Triệu Kim An há hốc mồm: "... Phù sa cái nỗi gì ở đây?"
 
 "Thương hiệu Trăn Nhiên chứ còn cái gì nữa! Cậu nghĩ đầu óc tôi đen tối ám chỉ cái gì hả?"
 
-Lạc Cẩn Chi lườm anh một cái sắc lẹm: "Đứa bé mang họ Lạc, nhưng bố nó chẳng phải vẫn là cậu hay sao? Thế thì cơ nghiệp Trăn Nhiên làm sao mà lọt vào tay kẻ ngoài được chứ?"
+Lạc Cẩn Chi lườm anh một cái sắc lẹm: "Đứa bé mang họ Lạc, nhưng bố nó chẳng phải vẫn là em hay sao? Thế thì cơ nghiệp Trăn Nhiên làm sao mà lọt vào tay kẻ ngoài được chứ?"
 
 Triệu Kim An dở khóc dở cười: "..."
 
@@ -140,7 +140,7 @@ Lạc Cẩn Chi dẫm trên đôi giày cao gót mười phân cộp cộp, mộ
 
 Triệu Kim An đột nhiên hạ giọng nói nhỏ.
 
-Lạc Cẩn Chi liền liếc xéo anh một cái đầy hờn dỗi: "Cậu tự mình nói xem đã chiếm của tôi bao nhiêu món hời rồi hả? Mấy năm trời ròng rã rồi, tôi mới chỉ được chia cổ tức vỏn vẹn có hai trăm triệu tệ."
+Lạc Cẩn Chi liền liếc xéo anh một cái đầy hờn dỗi: "Em tự mình nói xem đã chiếm của chị bao nhiêu món hời rồi hả? Mấy năm trời ròng rã rồi, chị mới chỉ được chia cổ tức vỏn vẹn có hai trăm triệu tệ."
 
 "Hai trăm triệu tệ tiền mặt mà còn chưa đủ cho chị tiêu xài hay sao?"
 
@@ -154,7 +154,7 @@ Triệu Kim An bắt đầu giở giọng cùn: "Chị Cẩn Chi, chị tự đ�
 
 Lạc Cẩn Chi lại bắt đầu giở trò lả lơi. Mấy chuyện phân chia tiền nong nhạy cảm thế này bắt buộc Triệu Kim An phải đích thân đứng ra đàm phán với Lạc Cẩn Chi, chứ Từ Mạn Mạn mà mở lời thì Lạc Cẩn Chi đời nào chịu nhượng bộ.
 
-"Chiếm của tôi biết bao nhiêu món hời béo bở, tính riêng tiền lãi thôi cũng đủ để tôi bao trọn gói mấy dàn người mẫu nam trẻ đẹp rồi đấy nhé."
+"Chiếm của chị biết bao nhiêu món hời béo bở, tính riêng tiền lãi thôi cũng đủ để chị bao trọn gói mấy dàn người mẫu nam trẻ đẹp rồi đấy nhé."
 
 "Chị Cẩn Chi này, rốt cuộc thì chị đã có..."
 
@@ -168,11 +168,11 @@ Lạc Cẩn Chi lại bắt đầu giở trò lả lơi. Mấy chuyện phân ch
 
 Triệu Kim An vội vàng bế xốc Triệu Tri Nặc lại về lòng mình, nhìn Lạc Cẩn Chi với ánh mắt đầy vẻ ngờ vực, bán tín bán nghi. Cuối cùng, Lạc Cẩn Chi rút từ trong túi xách ra một phong bao lì xì đỏ chót nhét vào tay bé Triệu Tri Nặc, rồi lại rút thêm hai phong bao lì xì nữa đưa sang cho Triệu Kim An.
 
-"Gửi cho cặp long phụng ở Kinh Đô của cậu đấy, chút lòng thành của bà chị này."
+"Gửi cho cặp long phụng ở Kinh Đô của em đấy, chút lòng thành của bà chị này."
 
 Triệu Kim An đưa tay vân vê mép phong bao: "Hơi mỏng đấy nhé."
 
-Lạc Cẩn Chi bật cười tươi rói: "Năm nay mà cậu lại giở quẻ không chịu chia cổ tức cho tôi, thì đến một cắc bạc tôi cũng chẳng thèm bố thí đâu đấy."
+Lạc Cẩn Chi bật cười tươi rói: "Năm nay mà em lại giở quẻ không chịu chia cổ tức cho chị, thì đến một cắc bạc chị cũng chẳng thèm bố thí đâu đấy."
 
 "Nặc Nặc ơi, bố con đúng là đồ ki bo kẹt xỉ hết phần thiên hạ."
 

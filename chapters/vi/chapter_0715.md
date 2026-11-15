@@ -154,7 +154,7 @@ Trần Nhuế suy nghĩ hồi lâu mà vẫn chẳng thể nào tìm ra được
 
 “Cậu chẳng khác nào một con mãnh sư đang thu mình ẩn nấp nơi thành phố miền Trung thổ, thu liễm nanh vuốt kín kẽ đến mức khiến cả thiên hạ chẳng ai hay biết. Để rồi mai này khi cậu thức giấc vươn vai, tất cả bọn họ đều sẽ phải phủ phục xưng thần dưới chân cậu mà thôi.”
 
-Trên bàn làm việc của Trần Nhuế lúc này đang đặt một tập hồ sơ tuyệt mật, liệt kê chi tiết theo trình tự thời gian danh sách những doanh nghiệp mà Triệu Kim An từng rót vốn đầu tư: DJI Đại Cương, Tam Khoái Trực Tuyến (Meituan), Đấu Ngư (Douyu), Ba Chú Gấu Mèo, Bản đồ Cao Đức, và ByteDance.
+Trên bàn làm việc của Trần Nhuế lúc này đang đặt một tập hồ sơ tuyệt mật, liệt kê chi tiết theo trình tự thời gian danh sách những doanh nghiệp mà Triệu Kim An từng rót vốn đầu tư: DJI Đại Cương, Tam Khoái Trực Tuyến (Meituan), Đấu Ngư (Douyu), Ba Chú Gấu Trúc, Bản đồ Cao Đức, và ByteDance.
 
 Phần lớn những cái tên này ở thời điểm hiện tại đều chưa thực sự bùng nổ vươn mình xưng bá.
 

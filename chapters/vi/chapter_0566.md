@@ -50,7 +50,7 @@ Hiệu trưởng Cung khẽ lùi lại nửa bước, nghiêng đầu trò chuy�
 
 Đại học Sư phạm là trường trọng điểm cấp quốc gia thuộc diện Đề án 211, bản thân Hiệu trưởng Cung mang hàm Chính sảnh.
 
-Còn Đại học Trung Nam và Đại học Hồ Nam là các trường thuộc Đề án 985, hiệu trưởng bên đó còn được hưởng đãi ngộ cấp Phó bộ.
+Còn Đại học Trung Nam và Đại học Tương Nam là các trường thuộc Đề án 985, hiệu trưởng bên đó còn được hưởng đãi ngộ cấp Phó bộ.
 
 Lý Đình Đình mới là sinh viên năm nhất có lẽ chưa hiểu hết những điều này. Cũng giống như đám người Lâm Thanh Tuyết thời đại học năm xưa, đừng nói đến Hiệu trưởng Cung, ngay cả những giáo sư đại học cỡ như cô Dư Tĩnh đã là những nhân vật có hàm cấp hành chính cao nhất mà đa phần sinh viên cả đời này có cơ hội tiếp xúc.
 
@@ -188,7 +188,7 @@ Triệu Kim An chưa từng có ý định ra tay chèn ép hay trả thù Trầ
 
 Dứt lời, Triệu Kim An sải bước dứt khoát quay lưng rời đi. Ở kiếp trước, khi hai người ly hôn, căn nhà bán đi chia đôi sòng phẳng mỗi người một nửa đã là kết cục quá đỗi êm đẹp và thể diện. Sau đó Trần Thanh Trĩ mua lại một căn hộ chung cư hai phòng ngủ rộng chừng bảy mươi mét vuông ở Quận Sa.
 
-Triệu Trí Dũng năm đó còn đôi ba lần đứng ra vun vén, khuyên nhủ hắn rằng đàn ông kiếm được một tấm vợ đâu phải chuyện dễ dàng gì.
+Triệu Chí Dũng năm đó còn đôi ba lần đứng ra vun vén, khuyên nhủ hắn rằng đàn ông kiếm được một tấm vợ đâu phải chuyện dễ dàng gì.
 
 Cưới người khác chẳng phải lại tốn thêm một khoản tiền sính lễ hay sao?
 

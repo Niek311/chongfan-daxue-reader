@@ -84,7 +84,7 @@ Tất cả những người có mặt trong phòng bao đều trợn tròn mắt
 
 Quan Linh sợ đến mức vội vã đưa hai tay níu chặt lấy cánh tay Triệu Kim An, toàn thân run rẩy vì hoảng loạn.
 
-Duy chỉ có ba người Đan Vĩ, Chu Hoa Phong và Lý Tân là sắc mặt vẫn thản nhiên như không có chuyện gì xảy ra. Những ngày tháng lăn lộn bên Guinea khói lửa ngập trời, chuyện súng đạn đối với bọn họ chẳng khác nào cơm ăn nước uống thường nhật.
+Duy chỉ có ba người Đan Vĩ, Chu Phong Hoa và Lý Tân là sắc mặt vẫn thản nhiên như không có chuyện gì xảy ra. Những ngày tháng lăn lộn bên Guinea khói lửa ngập trời, chuyện súng đạn đối với bọn họ chẳng khác nào cơm ăn nước uống thường nhật.
 
 Phải mất một hồi lâu sau.
 

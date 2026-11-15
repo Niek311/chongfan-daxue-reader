@@ -150,7 +150,7 @@ Bốn cô gái đồng thanh cúi gập người chào đón. Những kẻ làm 
 
 "Nói chuyện Trạch Vũ đi."
 
-Trong điện thoại của Triệu Kim An vẫn còn lưu tin nhắn của Dương Xu Mỹ và Vương Phương Dụ. Anh thực sự tò mò về chuyện Diệp Lục Du nhảy vào góp vốn ở Bất động sản Trạch Vũ, muốn biết rốt cuộc gã đóng vai trò gì trong ván cờ này.
+Trong điện thoại của Triệu Kim An vẫn còn lưu tin nhắn của Dương Thù Mỹ và Vương Phương Dụ. Anh thực sự tò mò về chuyện Diệp Lục Du nhảy vào góp vốn ở Bất động sản Trạch Vũ, muốn biết rốt cuộc gã đóng vai trò gì trong ván cờ này.
 
 Một cô gái sườn xám quỳ gối bên bàn trà, bắt đầu pha trà, động tác uyển chuyển thuần thục như nước chảy mây trôi. Đôi chân dài trắng nõn nà, thẳng tắp lộ ra dưới làn vải xẻ, lấp ló chiếc quần tất mỏng manh.
 

@@ -124,7 +124,7 @@ Giữa trưa hè tháng Bảy, mặt đường bê tông của thủ đô bỏng
 
 — Phải giữ bằng được người lớn... Tút... tút... tút...
 
-Cổ họng Triệu Kim An nghẹn đắng, trong cơn bàng hoàng tột độ anh chỉ có thể thốt ra được đúng sáu chữ ngắn ngủi ấy thì đầu dây bên kia đã ngắt kết nối. Du Phi và Đan Vĩ đứng bên cạnh đều hoảng hồn tái mét mặt mày. Đan Vĩ và Chu Hoa Phong bất chấp tất cả lao thẳng ra giữa làn đường xe chạy để chặn một chiếc taxi lại:
+Cổ họng Triệu Kim An nghẹn đắng, trong cơn bàng hoàng tột độ anh chỉ có thể thốt ra được đúng sáu chữ ngắn ngủi ấy thì đầu dây bên kia đã ngắt kết nối. Du Phi và Đan Vĩ đứng bên cạnh đều hoảng hồn tái mét mặt mày. Đan Vĩ và Chu Phong Hoa bất chấp tất cả lao thẳng ra giữa làn đường xe chạy để chặn một chiếc taxi lại:
 
 — Bác tài làm ơn, chúng tôi đang có việc gấp cứu mạng người...
 

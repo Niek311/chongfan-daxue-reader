@@ -58,7 +58,7 @@ Nhân viên đứng cạnh khẽ cất lời nhắc nhở. Một tràng đạn x
 
 Lý Tân trừng mắt quắc sang một cái. Quan Văn Bách thì bị cụt mất một ngón tay, còn Lý Tân là kẻ có diện mạo hung tợn, bặm trợn nhất đám. Trước kia gã chỉ phụ trách lái xe, giờ Đặng Thần Bình vắng mặt, Lý Tân đã trở thành cái bóng như hình với bóng bên cạnh Triệu Kim An.
 
-Nếu Chu Hoa Phong là tay "mật thám" của Tô Miến, thì Lý Tân lại là mẫu người ra tay tàn nhẫn mà lời nói chẳng có mấy câu.
+Nếu Chu Phong Hoa là tay "mật thám" của Tô Miến, thì Lý Tân lại là mẫu người ra tay tàn nhẫn mà lời nói chẳng có mấy câu.
 
 Tay gã lúc nào cũng đút trong túi áo, mà đáy túi thì luôn khoét sẵn một lỗ hổng.
 

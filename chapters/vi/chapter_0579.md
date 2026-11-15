@@ -164,7 +164,7 @@ Diêu Sân chắc nịch: "Tớ cược Tử Ngôn nhất định sẽ quay về
 
 Du Phi bĩu môi: "Tử Ngôn đã có sự nghiệp Ba Chú Sóc Quế Hoa của riêng mình rồi, cô ấy sẽ không bao giờ quay lại công ty nữa đâu."
 
-Phía đằng xa, ba bóng người Đan Vĩ, Chu Hoa Phong và Lý Tân vẫn đang đứng túc trực. Duy chỉ có ánh mắt Lý Tân là luôn căng thẳng, giữ vẻ cảnh giác cao độ.
+Phía đằng xa, ba bóng người Đan Vĩ, Chu Phong Hoa và Lý Tân vẫn đang đứng túc trực. Duy chỉ có ánh mắt Lý Tân là luôn căng thẳng, giữ vẻ cảnh giác cao độ.
 
 "Kim An, đi dạo một lát nhé?"
 

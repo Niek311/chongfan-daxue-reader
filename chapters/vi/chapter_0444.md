@@ -76,7 +76,7 @@ Triệu Kim An cười bảo: "Sáng mai anh bảo tài xế đánh xe đưa em 
 
 "..."
 
-Lý Đình Đình đưa mắt nhìn sang chiếc bàn bên cạnh, nơi Chu Hoa Phong và Đan Vĩ vừa ngồi xuống... Lại có thêm hai người tài xế nữa xuất hiện. Rốt cuộc vị anh rể này có bao nhiêu tài xế riêng vậy trời?
+Lý Đình Đình đưa mắt nhìn sang chiếc bàn bên cạnh, nơi Chu Phong Hoa và Đan Vĩ vừa ngồi xuống... Lại có thêm hai người tài xế nữa xuất hiện. Rốt cuộc vị anh rể này có bao nhiêu tài xế riêng vậy trời?
 
 Ngoảnh đầu lại, cô bé thấy Triệu Kim An và Từ Mạn Mạn đang kề tai thủ thỉ to nhỏ với nhau.
 

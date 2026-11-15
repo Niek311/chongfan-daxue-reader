@@ -76,7 +76,7 @@ Nói một cách phũ phàng, Đường Hiểu Tình có thể nể tình bạn 
 
 Bước ra khỏi cổng sân bay, Trương Vân Thiến đã đánh xe tới đón từ sớm.
 
-Mộc Dao cũng chẳng thèm khách khí mở lời mời hai mẹ con Trần Trạch và Dương Xu Mỹ đi nhờ xe về thành phố.
+Mộc Dao cũng chẳng thèm khách khí mở lời mời hai mẹ con Trần Trạch và Dương Thù Mỹ đi nhờ xe về thành phố.
 
 "Kia chẳng phải là..."
 
@@ -88,7 +88,7 @@ Mộc Dao lạnh lùng nói:
 
 "Không phải chứ..."
 
-Trương Vân Thiến sực nhớ ra câu chuyện năm xưa. Lúc này Dương Xu Mỹ và Trần Trạch đang vẫy tay gọi một chiếc taxi đỗ lại. Mộc Dao khẽ nhếch môi, giọng điệu băng lãnh:
+Trương Vân Thiến sực nhớ ra câu chuyện năm xưa. Lúc này Dương Thù Mỹ và Trần Trạch đang vẫy tay gọi một chiếc taxi đỗ lại. Mộc Dao khẽ nhếch môi, giọng điệu băng lãnh:
 
 "Nợ ngập đầu ngập cổ, phải bán tống bán tháo căn biệt thự đi trả nợ đấy ạ."
 
@@ -182,7 +182,7 @@ Chiếc áo phao vẫn trùm kín lấy gương mặt đẫm lệ, Mộc Dao n�
 
 "Hai tệ bạc... hu hu hu..."
 
-"Về sau Triệu Trí Dũng mới lén nói cho cháu biết... hôm đó trong túi Kim An chỉ có đúng một tệ... anh ấy phải muối mặt vay thêm Triệu Trí Dũng một tệ nữa mới đủ hai tệ để phát bài hát đó tặng cháu... hu hu hu..."
+"Về sau Triệu Chí Dũng mới lén nói cho cháu biết... hôm đó trong túi Kim An chỉ có đúng một tệ... anh ấy phải muối mặt vay thêm Triệu Chí Dũng một tệ nữa mới đủ hai tệ để phát bài hát đó tặng cháu... hu hu hu..."
 
 Mộc Dao ôm mặt khóc nấc lên từng hồi tức tưởi. Giờ đây trong tay cô có thể dễ dàng rút ra hai mươi vạn tệ tiền mặt mà chẳng cần chớp mắt, thế nhưng chàng trai Triệu Kim An của năm tháng ngây ngô nghèo khó ấy... đã vĩnh viễn không còn thuộc về cô nữa rồi.
 
@@ -190,35 +190,35 @@ Thời gian: 23 giờ 15 phút đêm.
 
 Nhiệt độ tại Dương Châu đang là 16 độ C, trong khi ở Quận Sa lúc này chỉ vỏn vẹn 1 độ C buốt giá.
 
-Chiếc taxi chầm chậm lăn bánh rẽ vào khu tập thể cũ kỹ năm nào. Căn biệt thự khang trang đã phải bán tống bán tháo để gán nợ, mẹ con Dương Xu Mỹ chỉ còn cách muối mặt quay về chốn này nương thân. Bước chân xuống xe, bà đi vòng ra sau cốp kéo chiếc vali hành lý, việc đầu tiên là ngửa cổ ngước mắt nhìn chăm chú lên ô cửa sổ tầng 3.
+Chiếc taxi chầm chậm lăn bánh rẽ vào khu tập thể cũ kỹ năm nào. Căn biệt thự khang trang đã phải bán tống bán tháo để gán nợ, mẹ con Dương Thù Mỹ chỉ còn cách muối mặt quay về chốn này nương thân. Bước chân xuống xe, bà đi vòng ra sau cốp kéo chiếc vali hành lý, việc đầu tiên là ngửa cổ ngước mắt nhìn chăm chú lên ô cửa sổ tầng 3.
 
 "Không biết vợ chồng lão Từ với Tuệ Trân đã ngủ chưa con nhỉ?"
 
-Dương Xu Mỹ phải gom đủ bốn mươi vạn tệ đem trả lại cho Từ Tắc Đống rồi mới dám vác mặt quay trở về nơi này. Trần Trạch hiểu rất rõ mẹ mình đang ngước nhìn điều gì.
+Dương Thù Mỹ phải gom đủ bốn mươi vạn tệ đem trả lại cho Từ Tắc Đống rồi mới dám vác mặt quay trở về nơi này. Trần Trạch hiểu rất rõ mẹ mình đang ngước nhìn điều gì.
 
 "Mẹ ơi, sau này con kiếm tiền mua lại căn biệt thự khác đền cho mẹ."
 
 Trần Trạch mở lời an ủi, sau đó tay xách nách mang đống hành lý lớn nhỏ rảo bước leo lên cầu thang.
 
-Ngay tại hòm thư dưới chân cầu thang bộ, Dương Xu Mỹ bắt gặp mấy tờ báo gửi cho phòng 301 vẫn nằm nguyên vẹn chưa ai buồn lấy lên. Căn 301 chính là nhà của Từ Tắc Đống, ông Từ vốn có thói quen đặt báo dài hạn. Dương Xu Mỹ rút mấy tờ báo ra lật xem ngày tháng, đã đọng lại báo của hai ngày nay không có người động tới.
+Ngay tại hòm thư dưới chân cầu thang bộ, Dương Thù Mỹ bắt gặp mấy tờ báo gửi cho phòng 301 vẫn nằm nguyên vẹn chưa ai buồn lấy lên. Căn 301 chính là nhà của Từ Tắc Đống, ông Từ vốn có thói quen đặt báo dài hạn. Dương Thù Mỹ rút mấy tờ báo ra lật xem ngày tháng, đã đọng lại báo của hai ngày nay không có người động tới.
 
 "Mẹ ơi, mau lên nhà đi mẹ, ngoài trời rét buốt thế này."
 
 Trần Trạch lại lật đật quay ngược xuống tầng dưới xách nốt chỗ hành lý còn lại.
 
-Dương Xu Mỹ cầm mấy tờ báo trên tay, rơi vào trầm ngâm suy nghĩ. Bước chân vào khu tập thể vào giờ này quá muộn nên chẳng gặp được người quen nào.
+Dương Thù Mỹ cầm mấy tờ báo trên tay, rơi vào trầm ngâm suy nghĩ. Bước chân vào khu tập thể vào giờ này quá muộn nên chẳng gặp được người quen nào.
 
 Bà bước lại gần, giơ tay gõ nhẹ vào cánh cửa gỗ của căn hộ tầng 1.
 
 "Kẹt" một tiếng, cánh cửa từ từ hé mở.
 
-"Ủa, Dương Xu Mỹ đấy à? Mẹ con cô về quê ăn Tết đấy ư? Sao mặc phong phanh thế kia, từ tận đẩu tận đâu mới về thế?"
+"Ủa, Dương Thù Mỹ đấy à? Mẹ con cô về quê ăn Tết đấy ư? Sao mặc phong phanh thế kia, từ tận đẩu tận đâu mới về thế?"
 
-Dương Xu Mỹ từ ngày phất lên làm bà chủ lớn đã bảy, tám năm trời chưa từng bước chân về khu tập thể này ăn Tết. Bà gượng cười đáp lời:
+Dương Thù Mỹ từ ngày phất lên làm bà chủ lớn đã bảy, tám năm trời chưa từng bước chân về khu tập thể này ăn Tết. Bà gượng cười đáp lời:
 
 "Bác Lư, bác có biết vợ chồng ông Từ với cô Tuệ Trân đi đâu rồi không ạ? Sao cháu thấy nhà đóng cửa im ỉm..."
 
-Dương Xu Mỹ xòe mấy tờ báo trên tay ra cho bà Lư nhìn, ngầm ý bảo mấy hôm nay Từ Tắc Đống không hề xuống lấy báo.
+Dương Thù Mỹ xòe mấy tờ báo trên tay ra cho bà Lư nhìn, ngầm ý bảo mấy hôm nay Từ Tắc Đống không hề xuống lấy báo.
 
 "Ai da!"
 
@@ -234,7 +234,7 @@ Bà Lư kể lại ngọn ngành câu chuyện suốt một năm qua, miệng kh
 
 "Cái Tuệ Trân dạo này trông già sọp hẳn đi, nhìn mà xót xa..."
 
-Dương Xu Mỹ ngửa đầu nhìn lên ô cửa sổ tối đen như mực của tầng 3, câm lặng lắng nghe từng lời từng chữ như xát muối vào tim.
+Dương Thù Mỹ ngửa đầu nhìn lên ô cửa sổ tối đen như mực của tầng 3, câm lặng lắng nghe từng lời từng chữ như xát muối vào tim.
 
 Bất thình lình, bà xoay người vung tay tát thẳng một bạt tai như trời giáng vào mặt Trần Trạch!
 
@@ -242,7 +242,7 @@ Bất thình lình, bà xoay người vung tay tát thẳng một bạt tai như
 
 "Nếu không phải tại cái thói đốn mạt của mày, thì liệu có sinh ra cơ sự đau lòng này không hả con?!"
 
-Đây chính là món nợ nghiệt ngã mà bà nợ vợ chồng Từ Tắc Đống và Lương Tuệ Trân. Dương Xu Mỹ lẳng lặng quay người, lê từng bước chân nặng trĩu bước lên cầu thang.
+Đây chính là món nợ nghiệt ngã mà bà nợ vợ chồng Từ Tắc Đống và Lương Tuệ Trân. Dương Thù Mỹ lẳng lặng quay người, lê từng bước chân nặng trĩu bước lên cầu thang.
 
 Bên tay trái là căn 301 của nhà họ Từ, bên tay phải là căn 302 của nhà bà, hai nhà nằm đối diện ngay sát vách nhau.
 

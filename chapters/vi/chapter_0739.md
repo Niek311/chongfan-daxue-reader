@@ -80,13 +80,13 @@ Cô Ngũ chăm chú ngắm nhìn thần thái của Từ Mạn Mạn rồi liên
 
 "Vâng ạ."
 
-"Cái lớp đại học khóa ấy của các em quả thật xuất sắc vô cùng. Thẩm Tử Ngôn cũng cừ khôi lắm, nghe phong phanh thương hiệu Ba Chú Gấu Mèo đã hoàn tất vòng gọi vốn Series B rồi, cùng lắm là đến vòng D thôi sẽ là người đầu tiên sang sàn Nasdaq rung chuông niêm yết đấy."
+"Cái lớp đại học khóa ấy của các em quả thật xuất sắc vô cùng. Thẩm Tử Ngôn cũng cừ khôi lắm, nghe phong phanh thương hiệu Ba Chú Gấu Trúc đã hoàn tất vòng gọi vốn Series B rồi, cùng lắm là đến vòng D thôi sẽ là người đầu tiên sang sàn Nasdaq rung chuông niêm yết đấy."
 
 Cô Ngũ vốn không nắm rõ những mối tơ vò tình cảm phức tạp của các cô gái phòng 406.
 
-Từ Mạn Mạn mỉm cười nói: "Hồi Ba Chú Gấu Mèo kêu gọi vốn vòng Thiên thần, Hoàn Vũ Thời Đại cũng đã tham gia góp mười lăm phần trăm cổ phần rồi cô ạ."
+Từ Mạn Mạn mỉm cười nói: "Hồi Ba Chú Gấu Trúc kêu gọi vốn vòng Thiên thần, Hoàn Vũ Thời Đại cũng đã tham gia góp mười lăm phần trăm cổ phần rồi cô ạ."
 
-"Tốt quá, nên làm như vậy chứ! Em là Phó Chủ tịch tập đoàn Hoàn Vũ, Ba Chú Gấu Mèo mà lên sàn chứng khoán thì khoản đầu tư Thiên thần ngày ấy sẽ sinh lời một vốn bốn lời, vừa thu lợi lớn lại vừa nâng đỡ được người bạn cùng phòng năm xưa, đôi bên cùng thắng."
+"Tốt quá, nên làm như vậy chứ! Em là Phó Chủ tịch tập đoàn Hoàn Vũ, Ba Chú Gấu Trúc mà lên sàn chứng khoán thì khoản đầu tư Thiên thần ngày ấy sẽ sinh lời một vốn bốn lời, vừa thu lợi lớn lại vừa nâng đỡ được người bạn cùng phòng năm xưa, đôi bên cùng thắng."
 
 "Các em vốn dĩ nên đùm bọc, tương trợ lẫn nhau như thế mới phải."
 

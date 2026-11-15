@@ -50,7 +50,7 @@ Lại trùng khớp rồi.
 
 Triệu Kim An trước nay đối đãi với ai cũng giữ nguyên một nụ cười điềm đạm, không phải vì anh yếu thế, mà bởi anh không muốn vô cớ rước lấy thị phi, lùi một bước để thấy biển rộng trời cao. Kẻ chỉ thích gây chuyện thị phi nhưng lại không có năng lực dọn dẹp hậu quả, loại người ấy sớm muộn gì cũng sẽ bị hiện thực tàn khốc của xã hội dạy cho một bài học nhớ đời.
 
-Lưu Sấm Phong và Cốc Siêu Thừa thuở chân ướt chân ráo lên Trường Sa học đại học cũng thế thôi, bởi phía sau lưng họ chẳng có bất kỳ ai chống lưng. Gia đình nghèo khó dưới quê nhà không thể làm chỗ dựa chở che cho họ được.
+Lưu Sấm Phong và Cốc Siêu Thừa thuở chân ướt chân ráo lên Quận Sa học đại học cũng thế thôi, bởi phía sau lưng họ chẳng có bất kỳ ai chống lưng. Gia đình nghèo khó dưới quê nhà không thể làm chỗ dựa chở che cho họ được.
 
 Nhưng Trần Trạch thì khác hẳn, sau lưng hắn có người đỡ đòn, chí ít vẫn còn một người mẹ như Dương Thù Mỹ sẵn sàng đứng ra gánh vác mọi phong ba thay hắn.
 

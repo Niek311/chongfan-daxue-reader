@@ -86,7 +86,7 @@ Chỉ có Du Phi là người ngày ngày tận mắt chứng kiến sự "biế
 
 ...
 
-Triệu Trí Dũng và Vương Duy Đào cũng lại đáp tàu ra Kinh Đô. Nhân dịp Triệu Tri Hành và Triệu Tri Vi tròn đầy tháng, hai người họ không gửi phong bao mừng tuổi mà mua cả đống đồ chơi đắt tiền nhất trong trung tâm thương mại mang tới.
+Triệu Chí Dũng và Vương Duy Đào cũng lại đáp tàu ra Kinh Đô. Nhân dịp Triệu Tri Hành và Triệu Tri Vi tròn đầy tháng, hai người họ không gửi phong bao mừng tuổi mà mua cả đống đồ chơi đắt tiền nhất trong trung tâm thương mại mang tới.
 
 "Trời đất ơi...!"
 
@@ -110,13 +110,13 @@ Nhìn thấy Tô Miến đang "say ngủ" trên giường bệnh, Phùng Vũ Lam
 
 "Sao Kim An lại biến thành nông nỗi này cơ chứ?"
 
-Bước ra khỏi phòng bệnh, Triệu Trí Dũng kéo Du Phi lại hỏi nhỏ, rồi không kìm được ngoái đầu nhìn lại bóng lưng người bạn nối khố đang cẩn thận chăm sóc cho Tô Miến từng li từng tí.
+Bước ra khỏi phòng bệnh, Triệu Chí Dũng kéo Du Phi lại hỏi nhỏ, rồi không kìm được ngoái đầu nhìn lại bóng lưng người bạn nối khố đang cẩn thận chăm sóc cho Tô Miến từng li từng tí.
 
 "Cậu thử một tháng trời ròng rã... như thế xem sao."
 
 Du Phi chỉ biết thở dài, cô còn có thể nói gì hơn được nữa?
 
-Triệu Trí Dũng thở hắt ra một hơi dài não nề, im lặng một hồi lâu rồi mới trầm giọng nói: "Mộc Dao đã quay về Quận Sa rồi."
+Triệu Chí Dũng thở hắt ra một hơi dài não nề, im lặng một hồi lâu rồi mới trầm giọng nói: "Mộc Dao đã quay về Quận Sa rồi."
 
 "..."
 
@@ -124,13 +124,13 @@ Du Phi ngay trong ngày hôm đó đã biết tin. Cô ngẫm nghĩ một lúc r
 
 "Không có."
 
-Triệu Trí Dũng lắc đầu: "Chỉ là cô ấy quay về thôi, còn mua hẳn một căn nhà ở Quận Sa nữa. Tạm thời chưa nghe thấy động tĩnh gì khác."
+Triệu Chí Dũng lắc đầu: "Chỉ là cô ấy quay về thôi, còn mua hẳn một căn nhà ở Quận Sa nữa. Tạm thời chưa nghe thấy động tĩnh gì khác."
 
-Triệu Kim An, Triệu Trí Dũng, Du Phi và Mộc Dao là bạn học cùng lớp suốt những năm cấp ba. Nếu bảo Mộc Dao có điểm nào đối xử tệ bạc hay có lỗi với Triệu Kim An không?
+Triệu Kim An, Triệu Chí Dũng, Du Phi và Mộc Dao là bạn học cùng lớp suốt những năm cấp ba. Nếu bảo Mộc Dao có điểm nào đối xử tệ bạc hay có lỗi với Triệu Kim An không?
 
 Tuyệt đối không!
 
-Thế nhưng thời điểm Mộc Dao trở về nước lần này quả thực quá đỗi trớ trêu. Cả Triệu Trí Dũng lẫn Du Phi đều không hề mong muốn Mộc Dao vào lúc này lại quay về "thêm dầu vào lửa", làm rối tung mọi chuyện lên.
+Thế nhưng thời điểm Mộc Dao trở về nước lần này quả thực quá đỗi trớ trêu. Cả Triệu Chí Dũng lẫn Du Phi đều không hề mong muốn Mộc Dao vào lúc này lại quay về "thêm dầu vào lửa", làm rối tung mọi chuyện lên.
 
 Là bạn thân nhiều năm, Du Phi rất hiểu tính nết của Mộc Dao. Một khi Mộc Dao đã chịu bỏ tiền ra mua nhà ở Quận Sa, điều đó đồng nghĩa với việc cô ấy không có ý định rời đi nữa.
 
@@ -138,11 +138,11 @@ Là bạn thân nhiều năm, Du Phi rất hiểu tính nết của Mộc Dao. M
 
 "Chuyện đi sang nước H chẳng qua chỉ là vỏ bọc che mắt mà thôi."
 
-Suốt ba năm ròng rã thời trung học, Triệu Trí Dũng và Du Phi hiểu rất rõ con người Mộc Dao. Cô chưa bao giờ giở thói "trà xanh" với Triệu Kim An, chưa từng vòi vĩnh mua cái này sắm cái nọ. Đây là vấn đề thuộc về phẩm hạnh và cốt cách con người.
+Suốt ba năm ròng rã thời trung học, Triệu Chí Dũng và Du Phi hiểu rất rõ con người Mộc Dao. Cô chưa bao giờ giở thói "trà xanh" với Triệu Kim An, chưa từng vòi vĩnh mua cái này sắm cái nọ. Đây là vấn đề thuộc về phẩm hạnh và cốt cách con người.
 
-Bằng không thì kiếp trước khi Mộc Dao ly hôn về nước, với tư cách là bạn nối khố của Kim An, Triệu Trí Dũng đã chẳng đời nào chủ động gọi điện báo cho anh. Điều đó chứng tỏ nhân cách của Mộc Dao không có chỗ nào để chê trách, và cuộc chia tay năm xưa giữa cô với Triệu Kim An cũng diễn ra vô cùng văn minh, thể diện.
+Bằng không thì kiếp trước khi Mộc Dao ly hôn về nước, với tư cách là bạn nối khố của Kim An, Triệu Chí Dũng đã chẳng đời nào chủ động gọi điện báo cho anh. Điều đó chứng tỏ nhân cách của Mộc Dao không có chỗ nào để chê trách, và cuộc chia tay năm xưa giữa cô với Triệu Kim An cũng diễn ra vô cùng văn minh, thể diện.
 
-Triệu Trí Dũng và Vương Duy Đào đến rồi lại vội vã bắt chuyến tàu quay về Quận Sa, hai người họ thậm chí còn chưa kịp nhìn thấy mặt Triệu Tri Hành và Triệu Tri Vi.
+Triệu Chí Dũng và Vương Duy Đào đến rồi lại vội vã bắt chuyến tàu quay về Quận Sa, hai người họ thậm chí còn chưa kịp nhìn thấy mặt Triệu Tri Hành và Triệu Tri Vi.
 
 Phùng Vũ Lam vốn không hiểu hết những khúc mắc tình cảm sâu kín giữa Triệu Kim An và Tô Miến. Trước kia Vương Duy Đào từng kể qua loa vài câu, cậu cười méo mó bảo: "Hồi lễ kỷ niệm thành lập trường, chắc chị Tô Miến chỉ nhất thời mê muội vẻ đẹp trai của Kim An mà thôi..."
 

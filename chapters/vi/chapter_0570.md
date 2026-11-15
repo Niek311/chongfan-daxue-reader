@@ -182,7 +182,7 @@ Sau khi cúp máy, Hiệu trưởng Cung lật mở danh bạ nội bộ, bắt 
 
 Trường Sư phạm vốn dĩ không có khoa Kỹ thuật Xây dựng dân dụng, điều này khiến Hiệu trưởng Cung có phần hơi đau đầu.
 
-Trên thực tế, chuyên ngành "Kỹ thuật Xây dựng" thực sự đỉnh cao mang tầm cỡ đẳng cấp thế giới phải thuộc về Đại học Trung Nam. Cùng với Đại học Hồ Nam và Đại học Khoa học Kỹ thuật Quận Sa, ba ngôi trường này từ lâu đã cùng nhau chia sẻ danh xưng lừng lẫy "Tam đại cỗ xe tam mã của ngành xây dựng".
+Trên thực tế, chuyên ngành "Kỹ thuật Xây dựng" thực sự đỉnh cao mang tầm cỡ đẳng cấp thế giới phải thuộc về Đại học Trung Nam. Cùng với Đại học Tương Nam và Đại học Khoa học Kỹ thuật Quận Sa, ba ngôi trường này từ lâu đã cùng nhau chia sẻ danh xưng lừng lẫy "Tam đại cỗ xe tam mã của ngành xây dựng".
 
 Thế nhưng Trần Trạch căn bản chẳng thèm bận tâm đến những chi tiết chuyên môn vụn vặt ấy. Thứ hắn cần chỉ là cái danh xưng "Giáo sư Đại học Sư phạm" bóng bẩy mà thôi.
 

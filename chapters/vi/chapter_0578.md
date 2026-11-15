@@ -28,7 +28,7 @@ Lý Tân nhanh nhẹn bước xuống kéo mở cửa xe.
 
 Du Phi khẽ gật đầu chào cô bạn cùng lớp đại học Thẩm Tử Ngôn, rồi thức thời đứng túc trực ở một bên.
 
-Đan Vĩ cùng Chu Hoa Phong thì xoay người chắn gió, đưa tay châm một điếu thuốc lá phì phèo.
+Đan Vĩ cùng Chu Phong Hoa thì xoay người chắn gió, đưa tay châm một điếu thuốc lá phì phèo.
 
 Triệu Kim An sải bước tiến lại phía này, mỉm cười với Thẩm Tử Ngôn.
 
@@ -98,7 +98,7 @@ Hai chiếc xe ô tô chầm chậm bám theo phía sau.
 
 Đi đằng trước sóng đôi bên nhau là Triệu Kim An cùng vị Thẩm tổng của Thẩm thị, chứ không phải vị Thẩm tổng của Trăn Nhiên ngày xưa nữa.
 
-Điều này đối với ba người Du Phi, Đan Vĩ và Chu Hoa Phong mà nói, mang một tầng ý nghĩa hoàn toàn khác biệt.
+Điều này đối với ba người Du Phi, Đan Vĩ và Chu Phong Hoa mà nói, mang một tầng ý nghĩa hoàn toàn khác biệt.
 
 "Công ty của em dự định vòng này sẽ gọi vốn bao nhiêu?"
 

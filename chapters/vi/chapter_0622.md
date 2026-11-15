@@ -76,19 +76,19 @@ Mộc Dao lại ấn công tắc thêm vài lần nữa. Một chiếc đèn bà
 
 Chỉ duy có màu hồng phấn là dấu hiệu chứng minh nó được mua để dành tặng cho một cô gái.
 
-Ngày ấy, Triệu Trí Dũng đứng chặn cô ngay trước cửa tiệm tạp hóa trong trường, nhăn nhó than vãn: "Dao Dao à, Kim An vì muốn gom tiền mua tặng cậu cái đèn này mà bắt tớ hai tuần liền không được ăn cây kem nào đấy! Hôm nay cậu nhất định phải khao tớ que kem tuyết năm hào mới được!!"
+Ngày ấy, Triệu Chí Dũng đứng chặn cô ngay trước cửa tiệm tạp hóa trong trường, nhăn nhó than vãn: "Dao Dao à, Kim An vì muốn gom tiền mua tặng cậu cái đèn này mà bắt tớ hai tuần liền không được ăn cây kem nào đấy! Hôm nay cậu nhất định phải khao tớ que kem tuyết năm hào mới được!!"
 
 "Ai thèm cậu ta tặng chứ!?"
 
 Đó là câu Mộc Dao đã thốt lên hôm ấy, bên cạnh còn có tiếng Du Phi trêu chọc râm ran.
 
-Thời cấp ba trường cấm tiệt chuyện yêu đương, con gái mới lớn lại hay thẹn thùng, Mộc Dao xấu hổ đến mức giậm chân, hai má đỏ ửng như ráng chiều, thế nhưng cuối cùng cô vẫn móc túi mua cho Triệu Trí Dũng một que kem ốc quế Trung Sơn giá tận một tệ rưỡi.
+Thời cấp ba trường cấm tiệt chuyện yêu đương, con gái mới lớn lại hay thẹn thùng, Mộc Dao xấu hổ đến mức giậm chân, hai má đỏ ửng như ráng chiều, thế nhưng cuối cùng cô vẫn móc túi mua cho Triệu Chí Dũng một que kem ốc quế Trung Sơn giá tận một tệ rưỡi.
 
-Cô còn cẩn thận dặn Triệu Trí Dũng phải nói khẽ thôi, cấm được bép xép lung tung cho ai biết.
+Cô còn cẩn thận dặn Triệu Chí Dũng phải nói khẽ thôi, cấm được bép xép lung tung cho ai biết.
 
-Triệu Trí Dũng vừa liếm kem ngon lành vừa gật đầu lia lịa, sướng rơn vì lần đầu tiên được thưởng thức thứ kem "xa xỉ dành riêng cho nhà giàu": Ốc quế Trung Sơn hẳn hoi cơ đấy!
+Triệu Chí Dũng vừa liếm kem ngon lành vừa gật đầu lia lịa, sướng rơn vì lần đầu tiên được thưởng thức thứ kem "xa xỉ dành riêng cho nhà giàu": Ốc quế Trung Sơn hẳn hoi cơ đấy!
 
-Đúng vậy, que kem những một tệ rưỡi lận. Triệu Trí Dũng dù trong túi có tiền cũng chỉ dám mua loại hai hào, năm hào, thà ăn nhiều que rẻ tiền chứ chẳng bao giờ nỡ chi một tệ rưỡi cho một que kem.
+Đúng vậy, que kem những một tệ rưỡi lận. Triệu Chí Dũng dù trong túi có tiền cũng chỉ dám mua loại hai hào, năm hào, thà ăn nhiều que rẻ tiền chứ chẳng bao giờ nỡ chi một tệ rưỡi cho một que kem.
 
 Nghĩ đến cảnh tượng năm nào, khóe môi Mộc Dao khẽ cong lên một nét cười dịu dàng.
 
@@ -138,7 +138,7 @@ Bên kia đường, Mộc Nhân Cường vẫn lặng lẽ đứng nhìn theo ch
 
 Ở hàng ghế sau, Trương Tuệ không nói một lời, ánh mắt xa xăm dõi theo thành phố nơi bà đã gắn bó gần trọn cả cuộc đời.
 
-Trong suy tính ban đầu, bà luôn nghĩ sau này mình sẽ theo con gái ngược lên phía bắc, định cư ở thành phố Trường Sa tráng lệ, nào ngờ cơ sự đưa đẩy lại biến thành chuyến xuôi nam tới tận mảnh đất Dương Thành này.
+Trong suy tính ban đầu, bà luôn nghĩ sau này mình sẽ theo con gái ngược lên phía bắc, định cư ở thành phố Quận Sa tráng lệ, nào ngờ cơ sự đưa đẩy lại biến thành chuyến xuôi nam tới tận mảnh đất Dương Thành này.
 
 Du Phi từng than thở: "Dày vò đắn đo một hồi, cuối cùng Dao Dao chẳng giữ được thứ gì trong tay." Câu nói ấy như một mũi tên ngầm chỉ vào gia đình, và cả tình yêu.
 
@@ -212,7 +212,7 @@ Mộc Dao lẩm bẩm một mình như đang độc thoại, chỉ mải miết 
 
 Trương Tuệ vòng tay ôm lấy bờ vai gầy guộc của con gái, vỗ về:
 
-"Mẹ cũng không thiết tha gì việc lên Trường Sa đâu con. Dương Thành tốt lắm, Dương Thành rất tốt mà..."
+"Mẹ cũng không thiết tha gì việc lên Quận Sa đâu con. Dương Thành tốt lắm, Dương Thành rất tốt mà..."
 
 ...
 

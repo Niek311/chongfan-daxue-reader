@@ -218,7 +218,7 @@ Từ ngày Tô Miến và Từ Mạn Mạn có bầu, Triệu Kim An về đến
 
 Hôm nay, anh ngậm điếu thuốc trên môi thong thả sải bước hướng về phía phòng làm việc của mình tại công ty.
 
-Trông thấy bóng dáng anh, Diêu Sân vội vã rảo bước đi tới định mở lời, nhưng Đan Vĩ và Chu Hoa Phong đã lập tức bước lên phía trước, ái ngại giơ cánh tay ra hiệu ngăn lại.
+Trông thấy bóng dáng anh, Diêu Sân vội vã rảo bước đi tới định mở lời, nhưng Đan Vĩ và Chu Phong Hoa đã lập tức bước lên phía trước, ái ngại giơ cánh tay ra hiệu ngăn lại.
 
 Triệu Kim An dừng bước, đưa mắt nhìn Diêu Sân rồi khẽ nở một nụ cười nhạt: "Có việc gì thì cô cứ trực tiếp tìm Mạn Mạn nhé."
 

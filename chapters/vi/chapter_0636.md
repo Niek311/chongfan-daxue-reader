@@ -144,7 +144,7 @@ Liêu Quế Hương: "..."
 
 Đúng là cái đồ lừa chứng!
 
-Triệu Trí Dũng và Triệu Bác Lan trước đó đều đã xách hoa quả tươi vào viện thăm hỏi, còn chu đáo nhét thêm một chiếc phong bao đỏ.
+Triệu Chí Dũng và Triệu Bác Lan trước đó đều đã xách hoa quả tươi vào viện thăm hỏi, còn chu đáo nhét thêm một chiếc phong bao đỏ.
 
 Người cùng một làng lặn lội đường sá xa xôi lên tận Quận Sa nằm viện, đến thăm một chuyến là lẽ thường tình trong cách đối nhân xử thế.
 

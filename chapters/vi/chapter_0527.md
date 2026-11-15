@@ -58,7 +58,7 @@ Triệu Kim An đón lấy tập tài liệu lật giở, ánh mắt chỉ lư�
 
 "Đường Hiểu Tình đừng để mức mười lăm tháng lương nữa, nâng kịch trần lên mười bảy tháng đi."
 
-"Kim An này, Đường Hiểu Tình mà tăng lên, thế thì Liễu tổng với Tôn tổng và những người khác, rồi cả Triệu Trí Dũng, mấy đứa bạn cùng lớp của anh đang bươn chải ở nước ngoài nữa, liệu có phải nâng theo không? Quy chế của công ty..."
+"Kim An này, Đường Hiểu Tình mà tăng lên, thế thì Liễu tổng với Tôn tổng và những người khác, rồi cả Triệu Chí Dũng, mấy đứa bạn cùng lớp của anh đang bươn chải ở nước ngoài nữa, liệu có phải nâng theo không? Quy chế của công ty..."
 
 "Hay là cá nhân anh tự bỏ tiền túi ra bù thêm riêng cho Đường Hiểu Tình đi..."
 
@@ -102,7 +102,7 @@ Lại thêm mối quan hệ bạn học cấp ba từng ngồi chung bàn với 
 
 Hơn nữa khi căn hộ hoàn thiện nội thất xong xuôi, dịp Tết Nguyên đán năm đầu tiên nhất định phải đón tết tại Quận Sa, bố mẹ cô cũng sẽ lặn lội từ quê lên đây cùng sum vầy.
 
-Đó vốn là phong tục truyền thống của đất Hồ Nam, năm đầu tiên có nhà mới thì bắt buộc phải ăn Tết trong chính căn nhà ấy.
+Đó vốn là phong tục truyền thống của đất Tương Nam, năm đầu tiên có nhà mới thì bắt buộc phải ăn Tết trong chính căn nhà ấy.
 
 ...
 
@@ -166,7 +166,7 @@ Khoan hãy bàn tới những cuộc khảo sát, điều tra thị trường ma
 
 Chính vào những thời khắc then chốt ấy, những vị giáo sư đại học và các chuyên gia đầu ngành này mới phát huy tối đa giá trị thực tiễn của họ. Đó cũng là lý do vì sao công chúng thường xuyên thấy các vị giáo sư danh tiếng lên tiếng "kêu gọi", "đề xuất", "kiến nghị" đủ mọi quan điểm trên các phương tiện truyền thông.
 
-Huống chi, Đại học Trung Nam, Đại học Hồ Nam, Đại học Sư phạm từ bao đời nay đã "bén rễ sâu xa" vào mọi ngóc ngách của tỉnh Hồ Nam.
+Huống chi, Đại học Trung Nam, Đại học Tương Nam, Đại học Sư phạm từ bao đời nay đã "bén rễ sâu xa" vào mọi ngóc ngách của tỉnh Tương Nam.
 
 Khắp các cơ quan ban ngành, đoàn thể, xí nghiệp đâu đâu cũng có bóng dáng môn sinh của họ.
 

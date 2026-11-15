@@ -126,7 +126,7 @@ Trương Tuệ và Trương Vân Thiến vừa thấy bóng cô ở hành lang b
 
 Mộc Dao chẳng buồn để tâm đến mẹ và dì, cô thản nhiên lướt qua hai người họ, sải bước đi thẳng vào phòng bệnh của Giang Bình.
 
-Không một ai hay biết rốt cuộc Mộc Dao và Từ Mạn Mạn đã nói với nhau những gì trong căn phòng kín ở đồn công an. Từ Mạn Mạn luôn là người có tâm lý vô cùng điềm tĩnh, còn Triệu Kim An lúc này đã dẫn ba cô gái của phòng ký túc xá 406 tìm một quán ăn gia đình đặc sắc mang phong vị ẩm thực Hồ Nam.
+Không một ai hay biết rốt cuộc Mộc Dao và Từ Mạn Mạn đã nói với nhau những gì trong căn phòng kín ở đồn công an. Từ Mạn Mạn luôn là người có tâm lý vô cùng điềm tĩnh, còn Triệu Kim An lúc này đã dẫn ba cô gái của phòng ký túc xá 406 tìm một quán ăn gia đình đặc sắc mang phong vị ẩm thực Tương Nam.
 
 Mộc Dao đã tự mình lấy được lá đơn bãi nại từ tay Giang Bình.
 
@@ -158,11 +158,11 @@ Nhưng giờ đây, Mộc Nhân Cường cũng tuyệt đối không thể nào 
 
 Tất cả đều nằm trong dự liệu của mọi người.
 
-Triệu Trí Dũng phản ứng chậm hơn người khác một nhịp, mãi sau mới hay tin, liền hớt hải lái chiếc xe van của công ty Trăn Nhiên chạy thục mạng tới nơi.
+Triệu Chí Dũng phản ứng chậm hơn người khác một nhịp, mãi sau mới hay tin, liền hớt hải lái chiếc xe van của công ty Trăn Nhiên chạy thục mạng tới nơi.
 
 "Sao rồi? Tình hình thế nào rồi!? Dao Dao không sao nữa rồi chứ hả?"
 
-Mộc Dao hồi học cấp ba ở trường Tư Tinh có mối quan hệ bạn bè khá tốt. Triệu Kim An ngước nhìn Triệu Trí Dũng đang mồ hôi nhễ nhại như tắm, bật cười bảo: "Ngồi xuống ăn cơm đã."
+Mộc Dao hồi học cấp ba ở trường Tư Tinh có mối quan hệ bạn bè khá tốt. Triệu Kim An ngước nhìn Triệu Chí Dũng đang mồ hôi nhễ nhại như tắm, bật cười bảo: "Ngồi xuống ăn cơm đã."
 
 "Người đâu cả rồi? Du Phi với Ngải Manh Manh đâu?"
 
@@ -170,13 +170,13 @@ Mộc Dao hồi học cấp ba ở trường Tư Tinh có mối quan hệ bạn 
 
 "...Hê hê."
 
-Triệu Trí Dũng tính tình bắng nhắng vô tư, vớ lấy đôi đũa ngồi phịch xuống ghế, ngước mắt nhìn sang phía đối diện thì thấy Thẩm Tử Ngôn: "Kìa, Thẩm tổng cũng ở đây à."
+Triệu Chí Dũng tính tình bắng nhắng vô tư, vớ lấy đôi đũa ngồi phịch xuống ghế, ngước mắt nhìn sang phía đối diện thì thấy Thẩm Tử Ngôn: "Kìa, Thẩm tổng cũng ở đây à."
 
 Thẩm Tử Ngôn mỉm cười đáp: "Triệu quản lý, tôi với Dao Dao là bạn cùng phòng ký túc xá thời đại học, tôi đến trước anh đấy nhé."
 
 "Triệu quản lý cái gì chứ?"
 
-Triệu Trí Dũng gãi đầu gãi tai ngượng ngùng. Hồi anh ta mới chân ướt chân ráo vào công ty Trăn Nhiên làm việc, chính Thẩm Tử Ngôn là người sắp xếp vị trí công tác cho anh, điều anh về khu vực Nhạc Lộc, lại còn cấp riêng cho một chiếc xe van mới tinh để anh tiện bề đưa đón bé Triệu Niệm Khả đi học mỗi ngày.
+Triệu Chí Dũng gãi đầu gãi tai ngượng ngùng. Hồi anh ta mới chân ướt chân ráo vào công ty Trăn Nhiên làm việc, chính Thẩm Tử Ngôn là người sắp xếp vị trí công tác cho anh, điều anh về khu vực Nhạc Lộc, lại còn cấp riêng cho một chiếc xe van mới tinh để anh tiện bề đưa đón bé Triệu Niệm Khả đi học mỗi ngày.
 
 Giờ đây lại ngồi chung một mâm cơm với cả Từ Mạn Mạn lẫn Triệu Kim An.
 
@@ -184,19 +184,19 @@ Biết thế này thì anh ta đã chẳng thèm mò mặt đến ăn chực b�
 
 "Kim An này, mày để ý tứ chút đi chứ, tao ngồi đây ngượng ngùng muốn chết đi được."
 
-Triệu Trí Dũng cúi gằm mặt hùng hục và cơm vào miệng. Triệu Kim An đẩy một đĩa thức ăn sang phía trước, quay sang bảo Thẩm Tử Ngôn: "Món đậu phụ phiên bì này bên trong nhồi măng tươi với thịt băm, không hề có chút ớt nào đâu, em nếm thử xem sao."
+Triệu Chí Dũng cúi gằm mặt hùng hục và cơm vào miệng. Triệu Kim An đẩy một đĩa thức ăn sang phía trước, quay sang bảo Thẩm Tử Ngôn: "Món đậu phụ phiên bì này bên trong nhồi măng tươi với thịt băm, không hề có chút ớt nào đâu, em nếm thử xem sao."
 
 Từ Mạn Mạn bưng bát cơm, chăm chú gắp miếng đầu cá hấp ớt băm cay xè, khéo léo dùng đầu ngón tay nhặt ra một chiếc xương cá nhỏ.
 
 "Kim An, khách sạn đêm nay mình có gia hạn thêm phòng không anh?"
 
-Triệu Trí Dũng: "..."
+Triệu Chí Dũng: "..."
 
 Diêu Sân: "⊙▂⊙"
 
 "À... cái đó... tôi ăn no căng bụng rồi, mọi người cứ thong thả dùng bữa nhé, tôi chạy qua xem tình hình con bé Dao Dao thế nào đây!"
 
-Triệu Trí Dũng chỉ muốn tìm đường chuồn lẹ cho rảnh nợ. Ngộ nhỡ Thẩm tổng lại nổi hứng rút con dao gọt hoa quả ra nữa thì có khi máu bắn tung tóe trúng cả người anh ta mất.
+Triệu Chí Dũng chỉ muốn tìm đường chuồn lẹ cho rảnh nợ. Ngộ nhỡ Thẩm tổng lại nổi hứng rút con dao gọt hoa quả ra nữa thì có khi máu bắn tung tóe trúng cả người anh ta mất.
 
 "Gia hạn chứ."
 

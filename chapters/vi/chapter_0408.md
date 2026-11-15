@@ -72,7 +72,7 @@ Nhìn chàng trai mình hết lòng thầm thương trộm nhớ, người con t
 
 Đối với Từ Mạn Mạn, việc có thể đường hoàng đứng chung một mái nhà với Triệu Kim An thực sự là một điều vô cùng gian nan và trắc trở. Lần đầu tiên nhìn thấy tấm ảnh chụp Triệu Kim An, cô thậm chí còn không dám nhen nhóm dù chỉ là một tia hy vọng mong manh.
 
-Cô không có được sự tự do phóng khoáng như Thẩm Tử Ngôn hay Diêu Sân, không thể giống như những nữ sinh đại học khác thoải mái yêu đương và hẹn hò với người mình thích. Trên vai cô đè nặng gông cùm xiềng xích của gia đình, và cả sự trói buộc tình cảm ngột ngạt suốt bao năm trời của người dì Dương Xu Mỹ.
+Cô không có được sự tự do phóng khoáng như Thẩm Tử Ngôn hay Diêu Sân, không thể giống như những nữ sinh đại học khác thoải mái yêu đương và hẹn hò với người mình thích. Trên vai cô đè nặng gông cùm xiềng xích của gia đình, và cả sự trói buộc tình cảm ngột ngạt suốt bao năm trời của người dì Dương Thù Mỹ.
 
 Nụ hôn của Từ Mạn Mạn vô cùng ngượng ngập và vụng về, làn môi cô mang theo chút hơi lạnh buốt giá của mùa đông.
 
@@ -242,4 +242,4 @@ Mộc Dao ở tuổi hai mươi hai khoác lên mình bộ trang phục công s�
 
 Trần Trạch trong chiếc áo măng tô dạ dáng dài sang trọng, phong thái hệt như một chàng công tử hào hoa lịch thiệp đang rảo bước tiến lại gần.
 
-Đi ngay phía sau lưng cậu ta chính là bà Dương Xu Mỹ.
+Đi ngay phía sau lưng cậu ta chính là bà Dương Thù Mỹ.

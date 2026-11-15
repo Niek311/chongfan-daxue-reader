@@ -92,7 +92,7 @@ Từ mùa thu năm 2006 chập chững bước chân lên Quận Sa nhập học
 
 ...
 
-Triệu Kim An đang ở xa Quận Sa liền gọi một cuộc điện thoại về. Từ Mạn Mạn lập tức sắp xếp lại vị trí công tác cho Triệu Trí Dũng, điều chuyển cậu bạn nối khố sang phụ trách toàn bộ mảng kinh doanh phân phối của Trăn Nhiên tại quận Nhạc Lộc.
+Triệu Kim An đang ở xa Quận Sa liền gọi một cuộc điện thoại về. Từ Mạn Mạn lập tức sắp xếp lại vị trí công tác cho Triệu Chí Dũng, điều chuyển cậu bạn nối khố sang phụ trách toàn bộ mảng kinh doanh phân phối của Trăn Nhiên tại quận Nhạc Lộc.
 
 "Mạn Mạn, con bé Tri Nặc đâu rồi em?"
 

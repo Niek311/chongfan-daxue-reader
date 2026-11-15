@@ -138,7 +138,7 @@ Triệu Kim An thản nhiên nói: "Thâu tóm thành công dự án, lương c�
 
 "Đứng tên người đại diện pháp luật cho công ty, chuyện đó không có rủi ro pháp lý chắc?"
 
-Đàm Tử Kiều cò kè mặc cả, cô ta đâu có ngây thơ như Lưu S闯 Phong sẵn sàng đứng tên pháp nhân cho liền hai công ty mà không chút đắn đo.
+Đàm Tử Kiều cò kè mặc cả, cô ta đâu có ngây thơ như Lưu Sấm Phong sẵn sàng đứng tên pháp nhân cho liền hai công ty mà không chút đắn đo.
 
 Triệu Kim An bỗng dừng bước, ánh mắt lạnh lùng quét qua khiến Đàm Tử Kiều lập tức câm nín, không dám hó hé thêm lời nào. Triệu Kim An quay sang nhìn Bao Uyển Yên, trầm giọng: "Những điều cô vừa nói tôi đều đã cân nhắc kỹ rồi. Ngay cả những người của chúng ta sang bên đó cũng đâu có đồng lòng đoàn kết."
 

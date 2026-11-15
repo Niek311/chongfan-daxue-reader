@@ -208,13 +208,13 @@ Từ tổng của Trăn Hối Tuyển đã mang thai gần năm tháng!!!
 
 "Ông chủ..."
 
-Dưới tầng hầm, Đan Vĩ và Chu Hoa Phong đã nổ máy sẵn sàng chiếc Rolls-Royce Phantom siêu sang.
+Dưới tầng hầm, Đan Vĩ và Chu Phong Hoa đã nổ máy sẵn sàng chiếc Rolls-Royce Phantom siêu sang.
 
 "Đổi xe!" Triệu Kim An lạnh lùng ra lệnh ngắn gọn.
 
 "Ông chủ... mình đi đâu ạ?"
 
-Đan Vĩ và Chu Hoa Phong cũng vừa nhận được tin nhắn cấp báo từ Quan Văn Bách, vấn đề là Thẩm tổng lúc này đang ở phương trời nào?
+Đan Vĩ và Chu Phong Hoa cũng vừa nhận được tin nhắn cấp báo từ Quan Văn Bách, vấn đề là Thẩm tổng lúc này đang ở phương trời nào?
 
 "Tô Thành! Cô ấy đã lên đường cao tốc rồi!"
 
