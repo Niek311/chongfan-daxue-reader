@@ -1,7 +1,5 @@
 # Chương 464: Không chia xa
 
-> **Tiêu đề gốc**: 第464章 不分开。
-
 Những người bạn học ở lại Quận Sa thì không quá đỗi ngạc nhiên, bởi thi thoảng họ vẫn có dịp đi ngang qua khu vực này. Nhưng đối với những thành viên lặn lội từ các tỉnh thành khác trở về, vừa tận mắt chiêm ngưỡng phong cách bài trí nội thất xa hoa lộng lẫy của khách sạn Puti, ai nấy đều trố mắt kinh ngạc, há hốc mồm không thốt nên lời.
 
 Phong cách bài trí kiểu thổ hào dát vàng nạm ngọc thế này rốt cuộc được xếp vào tiêu chuẩn khách sạn mấy sao đây?

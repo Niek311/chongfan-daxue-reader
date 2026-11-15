@@ -1,7 +1,5 @@
 # Chương 163: Lệch sóng
 
-> **Tiêu đề gốc**: 第163章 不在一个频道。
-
 Phương Khiết thoáng sững sờ.
 
 Cô không ngờ Triệu Kim An lại bất ngờ chuyển đổi chủ đề nhanh đến như vậy. Nhưng ngẫm lại thì chuyện sáu vạn tệ kia của Trần Trạch dẫu có thua lỗ sạch bách thì cũng chẳng phải chuyện gì to tát với gia đình cậu ta, quả thực cũng chẳng có gì đáng để bàn tán thêm nữa.
@@ -104,7 +102,7 @@ Những lời ngọt ngào đầu môi chót lưỡi thế này Lý Ngải Lan c
 
 ...
 
-Trầm Tử Ngôn tìm tới gặp Triệu Kim An, thông báo rằng ngay sau khi thi xong môn cuối cùng cô sẽ lập tức bay thẳng về Tô Châu.
+Thẩm Tử Ngôn tìm tới gặp Triệu Kim An, thông báo rằng ngay sau khi thi xong môn cuối cùng cô sẽ lập tức bay thẳng về Tô Châu.
 
 Lạc Cẩn Chi hiện vẫn đang túc trực ở Tô Châu để điều hành công việc, còn Bành Trung Ngạn thì đã bay ngược trở lại Tưởng Gia Áo để giám sát thi công.
 
@@ -112,9 +110,9 @@ Lạc Cẩn Chi hiện vẫn đang túc trực ở Tô Châu để điều hành
 
 "Tôi cũng chưa biết nữa, bên Tô Châu có cô với Lạc tổng quán xuyến là đủ yên tâm rồi."
 
-Trầm Tử Ngôn khẽ lườm anh một cái đầy hờn dỗi.
+Thẩm Tử Ngôn khẽ lườm anh một cái đầy hờn dỗi.
 
-Mùa đông Triệu Kim An vốn không thích bật máy điều hòa nhiệt độ, Trầm Tử Ngôn liền ngồi xổm bên cạnh chiếc lò sưởi điện đặt dưới góc bàn làm việc của anh để hơ tay sưởi ấm. Câu hỏi này thực chất là do mẹ cô, bà Lục Mai Tiêu nhờ Trầm Tử Ngôn dò hỏi xem Triệu Kim An liệu có sang Tô Châu hay không.
+Mùa đông Triệu Kim An vốn không thích bật máy điều hòa nhiệt độ, Thẩm Tử Ngôn liền ngồi xổm bên cạnh chiếc lò sưởi điện đặt dưới góc bàn làm việc của anh để hơ tay sưởi ấm. Câu hỏi này thực chất là do mẹ cô, bà Lục Mai Tiêu nhờ Thẩm Tử Ngôn dò hỏi xem Triệu Kim An liệu có sang Tô Châu hay không.
 
 Du Phi vốn dĩ đã chuẩn bị sẵn tâm lý đi mua vé tàu hỏa để về quê, nhưng Mộc Dao đã lên tiếng "giữ chân" cô lại, còn gọi điện báo cho Triệu Kim An biết rằng dì út Trương Vân Thiến sẽ đích thân lái xe ô tô đưa hai chị em cùng về lại Sâm Châu.
 

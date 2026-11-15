@@ -1,7 +1,5 @@
 # Chương 73: Người cậu không thích, tôi cũng chẳng ưa
 
-> **Tiêu đề gốc**: 第73章 你不喜欢的人，我也不喜欢。
-
 Triệu Kim An đã phần nào hiểu ra.
 
 "Thật ra thì từ sớm đã biết là đồ ăn thừa rồi, nhưng mà..."

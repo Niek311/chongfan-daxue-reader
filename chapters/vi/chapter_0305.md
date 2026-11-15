@@ -1,7 +1,5 @@
 # Chương 305: Hai năm rồi, con gái đã 8 tuổi?
 
-> **Tiêu đề gốc**: 第305章 两年了，女儿都8岁了？
-
 Tại nhà họ Từ.
 
 Từ Tắc Đống vừa làm thủ tục xuất viện về nhà tĩnh dưỡng.
@@ -18,7 +16,7 @@ Lương Tuệ Trân ngồi trên chiếc ghế đẩu lẳng lặng nhặt rau, 
 
 Bà đã mấy lần cất công lặn lội sang bên Trăn Hối Tuyển tìm con gái, nhưng Từ Mạn Mạn chỉ chịu ra gặp mặt đúng một lần duy nhất.
 
-"Bà Dương Thục Mỹ đâu rồi? Nghe bảo căn biệt thự của bả ở Quận Sa bán đứt rồi à?"
+"Bà Dương Thù Mỹ đâu rồi? Nghe bảo căn biệt thự của bả ở Quận Sa bán đứt rồi à?"
 
 "Về Dương Thành rồi ông ạ."
 
@@ -34,11 +32,11 @@ Từ Tắc Đống giận dữ đập mạnh tay xuống mặt bàn, Lương Tu�
 
 "Hai triệu hai trăm nghìn tệ..."
 
-Từ Tắc Đống hít một hơi thật sâu, lồng ngực phập phồng nhưng cơn giận dữ trong lòng vẫn không tài nào lắng dịu xuống được. Hắn bất giác nhớ lại những lời đanh thép mà Triệu Kim An từng nói thẳng vào mặt mình hôm trước: với bốn xưởng may quy mô lớn như của Dương Thục Mỹ, vỏn vẹn bốn trăm nghìn tệ kia liệu có thể cầm cự được bao nhiêu ngày?
+Từ Tắc Đống hít một hơi thật sâu, lồng ngực phập phồng nhưng cơn giận dữ trong lòng vẫn không tài nào lắng dịu xuống được. Hắn bất giác nhớ lại những lời đanh thép mà Triệu Kim An từng nói thẳng vào mặt mình hôm trước: với bốn xưởng may quy mô lớn như của Dương Thù Mỹ, vỏn vẹn bốn trăm nghìn tệ kia liệu có thể cầm cự được bao nhiêu ngày?
 
 "Cơn bão khủng hoảng tài chính này vẫn chưa đến hồi kết thúc đâu, việc ngân hàng Lehman Brothers sụp đổ phá sản mới chỉ là màn dạo đầu mà thôi, có hai triệu hai trăm nghìn tệ thì bõ bèn gì..."
 
-"Hôm nọ tôi có gặng hỏi một câu, bà Dương Thục Mỹ bảo bên đó sắp tới sẽ phải sa thải bớt công nhân."
+"Hôm nọ tôi có gặng hỏi một câu, bà Dương Thù Mỹ bảo bên đó sắp tới sẽ phải sa thải bớt công nhân."
 
 Lương Tuệ Trân bình thản buông một câu, cả gian phòng khách bỗng chốc chìm vào một khoảng lặng im phăng phắc đến nghẹt thở.
 
@@ -46,7 +44,7 @@ Có lẽ cả hai vợ chồng đều cần thêm thời gian để tiêu hóa h
 
 Vốn dĩ mọi chuyện từng vô cùng êm đẹp, viên mãn biết bao.
 
-Trần Trạch và Từ Mạn Mạn là thanh mai trúc mã lớn lên bên nhau từ tấm bé, Dương Thục Mỹ lại là người buôn bán sành sỏi có tiếng tăm, hai bên gia đình hiểu rõ gốc tích cội nguồn của nhau từng chân tơ kẽ tóc. Trong thâm tâm, cả Từ Tắc Đống lẫn Lương Tuệ Trân từ lâu đã mặc định coi Trần Trạch như đứa con rể quý trong nhà.
+Trần Trạch và Từ Mạn Mạn là thanh mai trúc mã lớn lên bên nhau từ tấm bé, Dương Thù Mỹ lại là người buôn bán sành sỏi có tiếng tăm, hai bên gia đình hiểu rõ gốc tích cội nguồn của nhau từng chân tơ kẽ tóc. Trong thâm tâm, cả Từ Tắc Đống lẫn Lương Tuệ Trân từ lâu đã mặc định coi Trần Trạch như đứa con rể quý trong nhà.
 
 Trần Trạch và Từ Mạn Mạn đi bên nhau cũng xứng đáng được coi là một đôi trai tài gái sắc, môn đăng hộ đối.
 

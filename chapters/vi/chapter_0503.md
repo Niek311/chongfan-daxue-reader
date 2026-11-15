@@ -1,7 +1,5 @@
 # Chương 503: Đáp án vốn đã viết sẵn vào ngày đầu tiên gặp gỡ
 
-> **Tiêu đề gốc**: 第503章 答案都写在了彼此第一次见面的那天。
-
 Vị đại sảnh kinh lý Lý Ngải Lan rập rình bước theo sau lưng Từ tổng của tập đoàn. Trong thâm tâm, cô ta thật sự không tài nào hiểu nổi ba cô gái xuất thân từ căn phòng ký túc xá 406 kia.
 
 Một người là bạch nguyệt quang - mối tình đầu thanh thuần thời áo trắng; một người là Thẩm tổng kiều diễm nắm quyền Trăn Nhiên; một người là Từ tổng quyền lực chèo chống Trăn Hối Tuyển. Mỗi người đều nắm trong tay những ưu thế trời ban tuyệt vời đến nhường ấy!
@@ -40,7 +38,7 @@ Mộc Dao không hề lộ vẻ gì là bất ngờ hay ngạc nhiên. Ánh mắ
 
 Đó là câu đầu tiên Từ Mạn Mạn mở miệng nói.
 
-“Cậu, Du Phỉ, Diêu Sân, Triệu Chí Dũng... ai nấy cũng đều nói với tôi những lời y hệt như thế.”
+“Cậu, Du Phi, Diêu Sân, Triệu Chí Dũng... ai nấy cũng đều nói với tôi những lời y hệt như thế.”
 
 Mộc Dao quay lưng lại, hít sâu một hơi để nén cơn sóng lòng đang cuộn trào dữ dội: “Từ Mạn Mạn à, cậu giờ đã tụt xuống vị trí thứ tư rồi đấy.”
 

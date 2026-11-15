@@ -1,22 +1,20 @@
 # Chương 69: Trăn Nhiên
 
-> **Tiêu đề gốc**: 第69章 臻然。
-
 Bước ra khỏi nhà ăn, Triệu Kim An xách theo hai lọ đồ khô ăn dở còn lại.
 
 Nắng vàng rực rỡ chan hòa, tiết trời đầu thu se lạnh dễ chịu.
 
-Khuôn viên trường đại học ngập tràn hơi thở thanh xuân tươi trẻ. Bốn chàng trai cùng một cô gái rảo bước trên con đường rợp bóng cây. Hứa Mạn Mạn không bóc hạt dẻ ra ăn ngay mà cất gọn túi hạt dẻ vào chiếc túi xách đeo bên hông.
+Khuôn viên trường đại học ngập tràn hơi thở thanh xuân tươi trẻ. Bốn chàng trai cùng một cô gái rảo bước trên con đường rợp bóng cây. Từ Mạn Mạn không bóc hạt dẻ ra ăn ngay mà cất gọn túi hạt dẻ vào chiếc túi xách đeo bên hông.
 
 Triệu Kim An đi ở mép ngoài cùng bên trái. Vừa nãy Cốc Siêu Thừa có trêu: "Trạch ca, anh có mỗi một chiếc xe... trong khi chỉ có anh là có bạn gái."
 
-Cốc Siêu Thừa không có ý xấu gì, cậu chỉ thầm ghen tị với Trần Trạch, ghen tị với cả Triệu Kim An. Mẫu con gái mà Cốc Siêu Thừa luôn thầm thương trộm nhớ chính là tuýp người như Mộc Dao và Hứa Mạn Mạn; còn cỡ như Thẩm Tử Ngôn thì cậu biết mình vĩnh viễn không tài nào với tới nổi.
+Cốc Siêu Thừa không có ý xấu gì, cậu chỉ thầm ghen tị với Trần Trạch, ghen tị với cả Triệu Kim An. Mẫu con gái mà Cốc Siêu Thừa luôn thầm thương trộm nhớ chính là tuýp người như Mộc Dao và Từ Mạn Mạn; còn cỡ như Thẩm Tử Ngôn thì cậu biết mình vĩnh viễn không tài nào với tới nổi.
 
-Còn giữa Hứa Mạn Mạn và Mộc Dao ai tuyệt vời hơn, Cốc Siêu Thừa cũng chịu không phân định được.
+Còn giữa Từ Mạn Mạn và Mộc Dao ai tuyệt vời hơn, Cốc Siêu Thừa cũng chịu không phân định được.
 
 Hai phong cách con gái hoàn toàn khác biệt... Ví như lúc này chẳng hạn.
 
-Hứa Mạn Mạn chỉ lặng lẽ sánh bước bên cạnh Trần Trạch, hai người không nắm tay nhau nhưng ai nhìn vào cũng nhận ra ngay cô là bạn gái của Trần Trạch. Nếu đổi lại là Mộc Dao, cô nàng chắc chắn sẽ không ngần ngại nắm chặt lấy tay Triệu Kim An.
+Từ Mạn Mạn chỉ lặng lẽ sánh bước bên cạnh Trần Trạch, hai người không nắm tay nhau nhưng ai nhìn vào cũng nhận ra ngay cô là bạn gái của Trần Trạch. Nếu đổi lại là Mộc Dao, cô nàng chắc chắn sẽ không ngần ngại nắm chặt lấy tay Triệu Kim An.
 
 Phần lớn sinh viên đại học khi yêu nhau đều nồng nhiệt như thế.
 
@@ -26,21 +24,21 @@ Lưu Sấm Phong đưa hai ngón tay làm động tác kẹp thuốc lá huých 
 
 Trần Trạch tức mình toan giật lại điếu thuốc thì đã bị Lưu Sấm Phong nhanh tay thó luôn cả gói cau khô nhai vặt.
 
-Khoảng trống ở giữa bỗng dưng lộ ra, Hứa Mạn Mạn liếc nhìn Triệu Kim An đang lặng lẽ bước đi, dịu dàng nói: "Triệu Kim An, cảm ơn túi hạt dẻ của cậu nhé."
+Khoảng trống ở giữa bỗng dưng lộ ra, Từ Mạn Mạn liếc nhìn Triệu Kim An đang lặng lẽ bước đi, dịu dàng nói: "Triệu Kim An, cảm ơn túi hạt dẻ của cậu nhé."
 
-Triệu Kim An khẽ mỉm cười đáp lại Hứa Mạn Mạn.
+Triệu Kim An khẽ mỉm cười đáp lại Từ Mạn Mạn.
 
 Cả nhóm vừa đi vừa đùa giỡn rộn ràng suốt dọc đường.
 
-Đi ngang qua một sạp bán hoa quả bên đường, Hứa Mạn Mạn bảo mọi người đứng đợi một lát, rồi cô tự rút tiền túi mua năm miếng dưa hấu mát lạnh.
+Đi ngang qua một sạp bán hoa quả bên đường, Từ Mạn Mạn bảo mọi người đứng đợi một lát, rồi cô tự rút tiền túi mua năm miếng dưa hấu mát lạnh.
 
 Những miếng dưa hấu được cắm sẵn đôi đũa tre, loại dưa trái mùa bán hai tệ một miếng.
 
-Cầm miếng dưa hấu trên tay, Lưu Sấm Phong thốt lên một câu tận đáy lòng: "Hứa Mạn Mạn, cậu tốt thật đấy!"
+Cầm miếng dưa hấu trên tay, Lưu Sấm Phong thốt lên một câu tận đáy lòng: "Từ Mạn Mạn, cậu tốt thật đấy!"
 
-Cái "tốt" ở đây không phải vì miếng dưa hấu hai tệ, mà là ở cách Hứa Mạn Mạn chủ động mở ví trả tiền rất tự nhiên, thoải mái.
+Cái "tốt" ở đây không phải vì miếng dưa hấu hai tệ, mà là ở cách Từ Mạn Mạn chủ động mở ví trả tiền rất tự nhiên, thoải mái.
 
-Cậu ta nhận ra một điều: Cả Thẩm Tử Ngôn lẫn Hứa Mạn Mạn khi đi chơi cùng đám con trai đều rất chủ động giành phần thanh toán, tranh bao bạn bè.
+Cậu ta nhận ra một điều: Cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn khi đi chơi cùng đám con trai đều rất chủ động giành phần thanh toán, tranh bao bạn bè.
 
 Thực sự đó chẳng phải là chuyện đắt rẻ vài đồng bạc, mà cách ứng xử ấy khiến cho người bên cạnh cảm thấy vô cùng nhẹ nhõm, không bị gò bó.
 
@@ -48,9 +46,9 @@ Trái lại, ở bên cạnh Lâm Thanh Tuyết lúc nào cũng thấy áp lực
 
 Không hoàn toàn là chuyện một bữa bánh pizza, mà chỉ cần một cô gái chủ động mời mọc, không câu nệ chuyện tiền bạc nhiều ít, cánh con trai sẽ cảm thấy vô cùng trân trọng và cảm kích.
 
-Lưu Sấm Phong không hề ngốc. Cậu ta biết Mộc Dao luôn có ánh nhìn hơi khinh khỉnh coi thường mình, Trần Trạch thì lúc nào cũng mang vẻ trịch thượng của thiếu gia thành phố, nhưng Hứa Mạn Mạn thì thực sự đối đãi với mọi người rất tử tế, chân thành.
+Lưu Sấm Phong không hề ngốc. Cậu ta biết Mộc Dao luôn có ánh nhìn hơi khinh khỉnh coi thường mình, Trần Trạch thì lúc nào cũng mang vẻ trịch thượng của thiếu gia thành phố, nhưng Từ Mạn Mạn thì thực sự đối đãi với mọi người rất tử tế, chân thành.
 
-Trần Trạch từng chê bai phòng 303 toàn những kẻ kỳ quặc, dở hơi, Hứa Mạn Mạn đã không dưới một lần nhắc nhở cậu ta: "Dù sao họ cũng là những người bạn cùng phòng sẽ gắn bó với anh suốt bốn năm đại học đấy."
+Trần Trạch từng chê bai phòng 303 toàn những kẻ kỳ quặc, dở hơi, Từ Mạn Mạn đã không dưới một lần nhắc nhở cậu ta: "Dù sao họ cũng là những người bạn cùng phòng sẽ gắn bó với anh suốt bốn năm đại học đấy."
 
 "Triệu Kim An!"
 
@@ -60,13 +58,13 @@ Cả nhóm lập tức dừng bước, quay đầu lại.
 
 "Mạn Mạn."
 
-Lý Lộ, Hứa Mạn Mạn và Trần Trạch vốn học chung một lớp hồi cấp ba. Hứa Mạn Mạn từng nghe Trần Trạch kể từ đợt đầu năm nhập học, Lý Lộ đã sớm để mắt và phải lòng Triệu Kim An.
+Lý Lộ, Từ Mạn Mạn và Trần Trạch vốn học chung một lớp hồi cấp ba. Từ Mạn Mạn từng nghe Trần Trạch kể từ đợt đầu năm nhập học, Lý Lộ đã sớm để mắt và phải lòng Triệu Kim An.
 
 "Triệu Kim An, mình nhắn tin cho cậu, sao cậu không trả lời?"
 
 Nét mặt của ba chàng trai phòng 303 lập tức trở nên vô cùng đặc sắc. Triệu Kim An rút điện thoại trong túi ra nhìn thoáng qua, quả thực không biết phải trả lời Lý Lộ thế nào cho đặng.
 
-Lý Lộ liếc nhìn Hứa Mạn Mạn và Trần Trạch một cái, rồi lấy hết can đảm ngẩng đầu thốt lên: "Triệu Kim An, mình thích cậu."
+Lý Lộ liếc nhìn Từ Mạn Mạn và Trần Trạch một cái, rồi lấy hết can đảm ngẩng đầu thốt lên: "Triệu Kim An, mình thích cậu."
 
 "Ôi vãi, Kim An đỉnh chóp!"
 
@@ -90,29 +88,29 @@ Hai cô bạn cùng phòng của Lý Lộ cũng vừa chạy tới nơi, vội v
 
 Lý Lộ không nói hết câu, nhưng tất cả những người có mặt ở đó đều hiểu rõ hàm ý cay độc đằng sau: Cậu chỉ là một thằng sinh viên nghèo kiết xác xin tiền trợ cấp, lấy tư cách gì mà làm cao?
 
-Hứa Mạn Mạn khẽ nhíu mày.
+Từ Mạn Mạn khẽ nhíu mày.
 
 Triệu Kim An chỉ khẽ gật đầu chào mọi người một tiếng rồi thản nhiên nói: "Tôi xin phép đi trước."
 
 "Mình cũng về trường trước đây."
 
-Hứa Mạn Mạn liếc nhìn Lý Lộ một cái, nói với Trần Trạch một câu rồi cũng dứt khoát xoay người cất bước rời đi.
+Từ Mạn Mạn liếc nhìn Lý Lộ một cái, nói với Trần Trạch một câu rồi cũng dứt khoát xoay người cất bước rời đi.
 
 "Cậu ta... cậu ta dựa vào cái gì chứ?"
 
 Lý Lộ ấm ức như muốn khóc. Trần Trạch ngại chỗ quen biết nên không tiện lên tiếng, còn Lưu Sấm Phong thì cười khẩy nói móc: "Lý Lộ à, có phải cô định bảo Kim An là sinh viên nghèo nên không có quyền từ chối cô đúng không? Tự thấy mình chịu hạ mình thích người ta là ban ơn chắc?..."
 
-"Thế cô có muốn giờ đi theo Hứa Mạn Mạn qua bên kia ngắm thử nhan sắc cô bạn gái cũ của Kim An để mở rộng tầm mắt không?"
+"Thế cô có muốn giờ đi theo Từ Mạn Mạn qua bên kia ngắm thử nhan sắc cô bạn gái cũ của Kim An để mở rộng tầm mắt không?"
 
-Trên đường trở về ký túc xá, Hứa Mạn Mạn một mình rảo bước rất chậm. Trưa nay cô đã nếm thử những món đồ khô mặn chát, nghe bọn họ kể biết bao chuyện thời thơ ấu cơ cực, giống như vừa được mở cánh cửa bước vào một thế giới hoàn toàn xa lạ.
+Trên đường trở về ký túc xá, Từ Mạn Mạn một mình rảo bước rất chậm. Trưa nay cô đã nếm thử những món đồ khô mặn chát, nghe bọn họ kể biết bao chuyện thời thơ ấu cơ cực, giống như vừa được mở cánh cửa bước vào một thế giới hoàn toàn xa lạ.
 
-Hứa Mạn Mạn từ nhỏ đã sinh ra trong gia đình khá giả, được bố mẹ cưng chiều như ngọc, mẹ của Trần Trạch lại càng yêu quý xem cô như con gái ruột trong nhà. Nhìn từ một góc độ nào đó, tương lai cuộc đời cô dường như đã bằng phẳng nhìn thấy trước đích đến; trong khi thế giới của Triệu Kim An lại tràn ngập những điều mới lạ, phong trần và khó lường.
+Từ Mạn Mạn từ nhỏ đã sinh ra trong gia đình khá giả, được bố mẹ cưng chiều như ngọc, mẹ của Trần Trạch lại càng yêu quý xem cô như con gái ruột trong nhà. Nhìn từ một góc độ nào đó, tương lai cuộc đời cô dường như đã bằng phẳng nhìn thấy trước đích đến; trong khi thế giới của Triệu Kim An lại tràn ngập những điều mới lạ, phong trần và khó lường.
 
 Còn về chuyện của Lý Lộ...
 
-Hứa Mạn Mạn chẳng buồn bận tâm, mà Triệu Kim An lại càng không để bụng.
+Từ Mạn Mạn chẳng buồn bận tâm, mà Triệu Kim An lại càng không để bụng.
 
-Cũng giống như thói quen thích chiếm chút món lợi vặt của Lưu Sấm Phong, Hứa Mạn Mạn thấy không đáng để so đo, mà Triệu Kim An cũng chỉ xem đó là chuyện vài đồng bạc cỏn con chẳng đáng để tâm.
+Cũng giống như thói quen thích chiếm chút món lợi vặt của Lưu Sấm Phong, Từ Mạn Mạn thấy không đáng để so đo, mà Triệu Kim An cũng chỉ xem đó là chuyện vài đồng bạc cỏn con chẳng đáng để tâm.
 
 ...
 

@@ -1,7 +1,5 @@
 # Chương 132: Kim An, Du Phi là ai?
 
-> **Tiêu đề gốc**: 第132章 今安，俞菲是谁？
-
 Ở một diễn biến khác.
 
 Lưu Sấm Phong mấy ngày nay đắc ý ra mặt.
@@ -56,7 +54,7 @@ Nghĩ vậy... lòng dạ ai nấy đều dễ chịu hơn hẳn.
 
 Trần Trạch tặc lưỡi: “Lão Lưu, lúc lên phỏng vấn ông căng thẳng quá đỗi, nhìn Thẩm Tử Ngôn người ta mà xem... Mà này, Lâm Thanh Tuyết thật sự sắp đồng ý làm bạn gái ông rồi à?”
 
-Lâm Thanh Tuyết tuy không thể sánh bằng vẻ đẹp kiều diễm của Hứa Mạn Mạn, nhưng cô nàng lại thuộc kiểu con gái vừa ngây thơ thuần khiết lại vừa gợi cảm, quyến rũ.
+Lâm Thanh Tuyết tuy không thể sánh bằng vẻ đẹp kiều diễm của Từ Mạn Mạn, nhưng cô nàng lại thuộc kiểu con gái vừa ngây thơ thuần khiết lại vừa gợi cảm, quyến rũ.
 
 Triệu Kim An từng tình cờ nhìn thấy bức ảnh Lâm Thanh Tuyết mặc váy ngủ hai dây, quả thực toát lên phong vị vừa trong trẻo vừa ma mị, đừng nói đám thanh niên mới lớn, ngay cả những người đàn ông từng trải cũng khó lòng cưỡng lại. Chỉ là anh không tài nào hiểu nổi cụm từ “sắp đồng ý” của Lưu Sấm Phong rốt cuộc mang ý nghĩa gì.
 
@@ -64,7 +62,7 @@ Nhìn Lưu Sấm Phong hớn hở ngồi đếm từng tờ tiền lẻ, Triệu
 
 Dạo này Cốc Siêu Thừa không còn chủ động tìm Đường Hiểu Tình nữa. Ngồi trong giảng đường, cậu ta vẫn thường lén đưa mắt nhìn cô, nhưng mỗi khi đối diện lại có phần né tránh.
 
-Những đóa hoa rực rỡ như Mộc Dao hay Hứa Mạn Mạn thì với không tới và chẳng dám trèo cao, giờ đây ngay cả trước một Đường Hiểu Tình mộc mạc, Cốc Siêu Thừa cũng đã đánh mất hoàn toàn dũng khí.
+Những đóa hoa rực rỡ như Mộc Dao hay Từ Mạn Mạn thì với không tới và chẳng dám trèo cao, giờ đây ngay cả trước một Đường Hiểu Tình mộc mạc, Cốc Siêu Thừa cũng đã đánh mất hoàn toàn dũng khí.
 
 Một hôm nọ sau giờ tan học, thầy cố vấn Lưu Huy ghé qua lớp khen ngợi Lưu Sấm Phong vài câu trước mặt mọi người, sau đó gọi riêng Triệu Kim An ra ngoài.
 

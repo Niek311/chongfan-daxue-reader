@@ -1,7 +1,5 @@
 # Chương 30: Kín cổng cao tường
 
-> **Tiêu đề gốc**: 第30章 深居简出。
-
 Triệu Kim An vốn là người ít nói, thế nhưng mấy người phụ nữ trong làng lại chỉ thích xúm lại tìm cậu để trút bầu tâm sự.
 
 Quá đáng hơn nữa là họ dứt khoát bê luôn thúng mẹt của mình sang đặt cạnh sạp dưa của Triệu Kim An, rồi cùng nhau rúc vào chung một bóng râm mát rượi dưới tán cây lớn ven đường.

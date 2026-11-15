@@ -1,12 +1,10 @@
 # Chương 524: Tin sốt dẻo
 
-> **Tiêu đề gốc**: 第524章 号外。
-
 Ngày hôm sau, trời quang mây tạnh, gió hòa nắng ấm.
 
 Trật tự thường nhật trên con tàu khổng lồ nhanh chóng được thiết lập lại, các thủy thủ đoàn và thuyền viên dường như đã quá đỗi quen thuộc với những cơn cuồng nộ bất chợt của đại dương.
 
-Triệu Kim An đưa mắt nhìn sang vòng một đẫy đà ngút ngàn của Đường Hiểu Tình vẫn còn thoáng chút ngượng ngùng, không tự nhiên. Đường Hiểu Tình và Du Phỉ sau giấc ngủ dài đã hoàn toàn dứt cơn say sóng, hai cô gái ríu rít cười đùa, hào hứng bàn luận rằng đây thực sự là một trải nghiệm phiêu lưu để đời vô cùng thú vị.
+Triệu Kim An đưa mắt nhìn sang vòng một đẫy đà ngút ngàn của Đường Hiểu Tình vẫn còn thoáng chút ngượng ngùng, không tự nhiên. Đường Hiểu Tình và Du Phi sau giấc ngủ dài đã hoàn toàn dứt cơn say sóng, hai cô gái ríu rít cười đùa, hào hứng bàn luận rằng đây thực sự là một trải nghiệm phiêu lưu để đời vô cùng thú vị.
 
 Trên tàu đồ ăn thức uống ê hề, chế độ ăn uống của thuyền viên cực kỳ thịnh soạn, có rạp chiếu phim mini, lại có cả bàn bóng bàn để giải trí. Thứ duy nhất khiến người ta cảm thấy bất tiện là những chiếc giường ngủ đơn trong cabin quá đỗi chật chội và hẹp hòi.
 
@@ -96,7 +94,7 @@ Triệu Kim An lập tức trừng mắt phản pháo: "Thế hồi mấy tháng
 
 "..."
 
-Đường Hiểu Tình bĩu môi hờn dỗi, Du Phỉ đứng bên cạnh phải cố bấm bụng nén cười. Người ngoài muốn trêu ghẹo điều gì Triệu Kim An cũng được, duy chỉ có ba đứa con ruột thịt là vùng cấm kỵ thiêng liêng tuyệt đối không ai được phép chạm tới. Cơ mà con bé Triệu Tri Nặc đến giờ vẫn chưa chịu mở miệng gọi một tiếng "ba" thật sao?
+Đường Hiểu Tình bĩu môi hờn dỗi, Du Phi đứng bên cạnh phải cố bấm bụng nén cười. Người ngoài muốn trêu ghẹo điều gì Triệu Kim An cũng được, duy chỉ có ba đứa con ruột thịt là vùng cấm kỵ thiêng liêng tuyệt đối không ai được phép chạm tới. Cơ mà con bé Triệu Tri Nặc đến giờ vẫn chưa chịu mở miệng gọi một tiếng "ba" thật sao?
 
 Thế thì quả thực là biết nói hơi muộn thật rồi.
 

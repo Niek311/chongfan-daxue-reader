@@ -1,7 +1,5 @@
 # Chương 427: Kim An, em vẫn muốn ngủ thêm một lát
 
-> **Tiêu đề gốc**: 第427章 今安，我还想睡会。
-
 Nhóm của Lưu Sấm Phong và Lâm Thanh Tuyết kỳ thực chẳng hề có mục tiêu chiến lược dài hạn nào, mục tiêu duy nhất trước mắt của họ chỉ đơn thuần là kiếm tiền.
 
 Họ hoàn toàn chưa có một bản quy hoạch rõ ràng xem tương lai doanh nghiệp sẽ đi về đâu, chỉ đơn giản là thấy trên mạng xuất hiện mẫu mã nào bán chạy là lập tức sao chép y nguyên mẫu đó, ngay cả khái niệm về xây dựng và định vị thương hiệu cũng còn vô cùng non nớt.
@@ -12,33 +10,33 @@ Triệu Kim An những ngày này vẫn túc trực tại Kinh Đô. Tô Cảnh 
 
 Cả đại viện nhà họ Tô lúc này chỉ còn lại duy nhất một người khách là Triệu Kim An.
 
-Thế nhưng trong nhà chẳng có lấy một ai coi anh là khách lạ. Thú vui lớn nhất của Triệu Kim An suốt mấy ngày Tết chính là xắn tay áo bước vào bếp tự tay nấu nướng những món ăn thanh đạm, bổ dưỡng cho Tô Miện; trong suốt cả kỳ nghỉ lễ, anh chỉ đẩy xe lăn đưa Tô Miện sang chúc Tết mẹ nuôi Trần Nhuế một lần duy nhất.
+Thế nhưng trong nhà chẳng có lấy một ai coi anh là khách lạ. Thú vui lớn nhất của Triệu Kim An suốt mấy ngày Tết chính là xắn tay áo bước vào bếp tự tay nấu nướng những món ăn thanh đạm, bổ dưỡng cho Tô Miến; trong suốt cả kỳ nghỉ lễ, anh chỉ đẩy xe lăn đưa Tô Miến sang chúc Tết mẹ nuôi Trần Nhuế một lần duy nhất.
 
-Đối với Từ Mạn Mạn, anh có thể thoải mái buông lời trêu đùa hay đòi hỏi chuyện chăn gối, nhưng trước mặt Tô Miện thì anh thật sự chẳng dám manh động dù chỉ một chút.
+Đối với Từ Mạn Mạn, anh có thể thoải mái buông lời trêu đùa hay đòi hỏi chuyện chăn gối, nhưng trước mặt Tô Miến thì anh thật sự chẳng dám manh động dù chỉ một chút.
 
-Thứ nhất là vì Tô Miện mang thai vẫn chưa tròn ba tháng.
+Thứ nhất là vì Tô Miến mang thai vẫn chưa tròn ba tháng.
 
 Thứ hai là mẹ cô, bà Quách Uyển Thanh, đã trăm dặn nghìn dò vô cùng nghiêm khắc.
 
-Kể từ ngày mang thai, thời gian ngủ mỗi ngày của Tô Miện kéo dài lạ thường. Triệu Kim An cứ lặng lẽ ngồi bên mép giường, rảnh rỗi lại đưa tay khẽ nhéo đôi má bầu bĩnh của cô một cái.
+Kể từ ngày mang thai, thời gian ngủ mỗi ngày của Tô Miến kéo dài lạ thường. Triệu Kim An cứ lặng lẽ ngồi bên mép giường, rảnh rỗi lại đưa tay khẽ nhéo đôi má bầu bĩnh của cô một cái.
 
 Tô Mặc đứng bên nhìn cảnh ấy mà không nhịn được cười:
 
-"Kim An, em bóp nhẹ tay một chút thôi, nhéo đến mức con bé Tô Miện nhăn cả mày lại rồi kìa."
+"Kim An, em bóp nhẹ tay một chút thôi, nhéo đến mức con bé Tô Miến nhăn cả mày lại rồi kìa."
 
 Triệu Kim An quay sang nhìn.
 
-Tô Miện lúc này đã mở to đôi mắt long lanh trong veo ngước nhìn Triệu Kim An, khóe môi khẽ nở một nụ cười dịu dàng, nũng nịu: "Kim An, em vẫn muốn ngủ thêm một lát."
+Tô Miến lúc này đã mở to đôi mắt long lanh trong veo ngước nhìn Triệu Kim An, khóe môi khẽ nở một nụ cười dịu dàng, nũng nịu: "Kim An, em vẫn muốn ngủ thêm một lát."
 
 "Được rồi, em ngủ đi."
 
-Tô Miện vươn tay nắm chặt lấy bàn tay Triệu Kim An rồi lại từ từ khép mi mắt lại. Triệu Kim An cứ thế ngồi ngay bên mép giường, vừa mở máy tính xách tay xử lý công việc của công ty, chẳng được một chốc, một bàn tay anh lại không kìm được mà vươn sang khẽ vuốt ve gò má mịn màng của Tô Miện, khi thì xoa xoa má, lúc lại khẽ lướt qua khóe môi mềm mại...
+Tô Miến vươn tay nắm chặt lấy bàn tay Triệu Kim An rồi lại từ từ khép mi mắt lại. Triệu Kim An cứ thế ngồi ngay bên mép giường, vừa mở máy tính xách tay xử lý công việc của công ty, chẳng được một chốc, một bàn tay anh lại không kìm được mà vươn sang khẽ vuốt ve gò má mịn màng của Tô Miến, khi thì xoa xoa má, lúc lại khẽ lướt qua khóe môi mềm mại...
 
-Quay đầu nhìn lại, anh nhận ra Tô Miện đã thực sự chìm sâu vào giấc ngủ, lần này cô không hề có thói quen ngậm ngón tay như hồi nhỏ nữa.
+Quay đầu nhìn lại, anh nhận ra Tô Miến đã thực sự chìm sâu vào giấc ngủ, lần này cô không hề có thói quen ngậm ngón tay như hồi nhỏ nữa.
 
 Triệu Kim An ngước mắt nhìn ba nữ điều dưỡng đặc biệt của nhà họ Tô. Một cô hộ lý khẽ hạ giọng thì thầm: "Triệu tổng, phụ nữ khi mang thai thường rất hay buồn ngủ, đó là phản ứng sinh lý hoàn toàn bình thường. Tiểu thư Tô chỉ là ngủ nhiều hơn một chút... ừm... đó là điều tốt mà anh."
 
-Tất cả các điều dưỡng viên ở đây đều đã nhận lệnh phong khẩu tuyệt mật từ trưởng bối trong nhà, tuyệt đối không được phép hé răng nửa lời về tình trạng đặc thù của cô trước mặt Triệu Kim An và Tô Miện. Trong số họ, có hai người là hộ lý chuyên trách công tác phục hồi chức năng lâu năm cho Tô Miện, nhưng hiện tại cô đang mang thai nên không thể tiếp tục các bài tập vận động; người còn lại là một y tá sản khoa dày dạn kinh nghiệm.
+Tất cả các điều dưỡng viên ở đây đều đã nhận lệnh phong khẩu tuyệt mật từ trưởng bối trong nhà, tuyệt đối không được phép hé răng nửa lời về tình trạng đặc thù của cô trước mặt Triệu Kim An và Tô Miến. Trong số họ, có hai người là hộ lý chuyên trách công tác phục hồi chức năng lâu năm cho Tô Miến, nhưng hiện tại cô đang mang thai nên không thể tiếp tục các bài tập vận động; người còn lại là một y tá sản khoa dày dạn kinh nghiệm.
 
 Triệu Kim An liếc nhìn đồng hồ, trong lòng thầm tính toán: "Hôm nay thời gian ngủ của cô ấy đã vượt quá mười hai tiếng rồi."
 
@@ -46,9 +44,9 @@ Cô hộ lý mỉm cười giải thích: "Có nhiều thai phụ thời gian ng
 
 Chưa nói đến vị thế gia tộc họ Tô, mà chỉ riêng một cái tên Triệu Kim An thôi cũng đủ khiến đội ngũ điều dưỡng phải dốc hết tâm lực chăm sóc vô cùng cẩn trọng.
 
-Triệu Kim An nghiêng đầu nhìn Tô Miện.
+Triệu Kim An nghiêng đầu nhìn Tô Miến.
 
-Tô Miện ngủ say với vẻ mặt an tĩnh và thanh thản lạ thường, trên gương mặt trái xoan thanh tú phảng phất một nụ cười mỉm nhàn nhạt, hạnh phúc.
+Tô Miến ngủ say với vẻ mặt an tĩnh và thanh thản lạ thường, trên gương mặt trái xoan thanh tú phảng phất một nụ cười mỉm nhàn nhạt, hạnh phúc.
 
 Cô hộ lý bước lại gần ngắm nhìn một lát, ngập ngừng giây lát rồi cười nói: "Triệu tổng, có anh ở bên cạnh chăm sóc, tâm trạng của tiểu thư Tô tốt hơn hẳn ngày thường đấy ạ."
 
@@ -58,7 +56,7 @@ Cô hộ lý bước lại gần ngắm nhìn một lát, ngập ngừng giây l
 
 Triệu Kim An vốn không am hiểu y thuật, anh mở máy tính lên mạng tra cứu tài liệu, quả nhiên đúng như lời cô hộ lý vừa nói, có rất nhiều phụ nữ sau khi cấn bầu quả thực vô cùng thèm ngủ.
 
-Đọc xong các thông tin y khoa, Triệu Kim An đưa mắt nhìn Tô Miện với vẻ mặt tràn ngập sự cưng chiều yêu thương, khẽ cúi người xuống đặt một nụ hôn dịu dàng lên trán và khóe môi cô.
+Đọc xong các thông tin y khoa, Triệu Kim An đưa mắt nhìn Tô Miến với vẻ mặt tràn ngập sự cưng chiều yêu thương, khẽ cúi người xuống đặt một nụ hôn dịu dàng lên trán và khóe môi cô.
 
 "..."
 
@@ -70,7 +68,7 @@ Khoản vốn đầu tư nghìn tỷ này là do đích thân Tô Quân Dương 
 
 "Triệu tổng ở Quận Sa chuẩn bị về huyện chúng ta rót vốn đầu tư lớn quy mô cực khủng!!!"
 
-Cấp bậc hành chính cấp huyện dẫu sao vẫn còn ở tầng nấc tương đối thấp, rất nhiều cán bộ nơi đây vẫn chưa thể nắm rõ mối quan hệ sâu xa giữa Tô Quân Dương và Triệu Kim An. Chuyện tình cảm giữa Triệu Kim An và Tô Miện xưa nay chưa từng công khai với bên ngoài, bản thân Tô Miện lại quanh năm "khép kín không ra khỏi cửa", thậm chí rất nhiều người dân bản xứ còn chẳng hề hay biết nhà họ Tô có một cô con gái tên là Tô Miện.
+Cấp bậc hành chính cấp huyện dẫu sao vẫn còn ở tầng nấc tương đối thấp, rất nhiều cán bộ nơi đây vẫn chưa thể nắm rõ mối quan hệ sâu xa giữa Tô Quân Dương và Triệu Kim An. Chuyện tình cảm giữa Triệu Kim An và Tô Miến xưa nay chưa từng công khai với bên ngoài, bản thân Tô Miến lại quanh năm "khép kín không ra khỏi cửa", thậm chí rất nhiều người dân bản xứ còn chẳng hề hay biết nhà họ Tô có một cô con gái tên là Tô Miến.
 
 Bọn họ chỉ biết nhà họ Tô có hai người con trai kiệt xuất là Tô Cảnh Ngôn và Tô Cảnh Hành — hai cây cột trụ chống trời trong tương lai của cả gia tộc.
 
@@ -104,11 +102,11 @@ Bởi vậy, cái lệ đi chúc Tết thăm hỏi họ hàng cứ thế kéo d�
 
 Đường Hiểu Tình từ hôm mùng hai Tết đã bắt đầu quay lại guồng quay công việc, chỉ để lại Lưu Mỹ Nga ở lại căn hộ nấu nướng chăm sóc Từ Mạn Mạn. Từ Mạn Mạn một mình sống trong căn hộ rộng hơn hai trăm mét vuông, tuyệt nhiên không hề để lộ vẻ bồn chồn hay nôn nóng "ngóng chờ" Triệu Kim An trở về.
 
-Trên thực tế, trụ sở chính của tập đoàn đều nằm trọn tại Quận Sa, thời gian mà Triệu Kim An có thể nán lại Kinh Đô để bầu bạn bên Tô Miện vốn dĩ vô cùng ít ỏi.
+Trên thực tế, trụ sở chính của tập đoàn đều nằm trọn tại Quận Sa, thời gian mà Triệu Kim An có thể nán lại Kinh Đô để bầu bạn bên Tô Miến vốn dĩ vô cùng ít ỏi.
 
 Lưu Mỹ Nga cứ ngỡ Từ Mạn Mạn trong lòng sẽ có đôi chút tủi hờn và buồn bã, đến mức bà Vương Kim Như cùng bà nội ở quê cũng phải liên tục gọi dăm ba cuộc điện thoại cho Từ Mạn Mạn để hỏi han, vỗ về.
 
-Triệu Kim An đang túc trực ở Kinh Đô, bà Vương Kim Như và bà nội chỉ còn biết ra sức an ủi, dỗ dành Từ Mạn Mạn nhiều hơn. Vương Kim Như vò đầu bứt tai mãi mà vẫn không tài nào hiểu nổi: "Thằng Kim An rốt cuộc nó làm thế nào mà giữ thăng bằng được giữa Tô Miện với Mạn Mạn thế nhỉ?"
+Triệu Kim An đang túc trực ở Kinh Đô, bà Vương Kim Như và bà nội chỉ còn biết ra sức an ủi, dỗ dành Từ Mạn Mạn nhiều hơn. Vương Kim Như vò đầu bứt tai mãi mà vẫn không tài nào hiểu nổi: "Thằng Kim An rốt cuộc nó làm thế nào mà giữ thăng bằng được giữa Tô Miến với Mạn Mạn thế nhỉ?"
 
 "Ờ... chịu thôi, làm sao tôi biết được."
 
@@ -116,13 +114,13 @@ Triệu Quốc Hoa ấp úng hồi lâu mới nặn ra được một câu như 
 
 "Ông thì biết cái nỗi gì!"
 
-Vương Kim Như bực bội mắng một câu: "Tôi chỉ nghĩ thôi mà đã thấy thót tim thay cho thằng Kim An rồi. Ông thử bảo sau này hai đứa nó mà cãi cọ ầm ĩ lên thì tính làm sao? Lúc ấy thằng Kim An biết bênh Tô Miện hay là bênh Mạn Mạn đây? Đứng kẹt ở giữa hai đầu thì làm người thế nào cho đặng? Cái thằng ranh con này, tự dưng đi làm kẻ lăng nhăng đốn mạt làm cái trò gì không biết!"
+Vương Kim Như bực bội mắng một câu: "Tôi chỉ nghĩ thôi mà đã thấy thót tim thay cho thằng Kim An rồi. Ông thử bảo sau này hai đứa nó mà cãi cọ ầm ĩ lên thì tính làm sao? Lúc ấy thằng Kim An biết bênh Tô Miến hay là bênh Mạn Mạn đây? Đứng kẹt ở giữa hai đầu thì làm người thế nào cho đặng? Cái thằng ranh con này, tự dưng đi làm kẻ lăng nhăng đốn mạt làm cái trò gì không biết!"
 
 "..."
 
 Triệu Quốc Hoa há hốc mồm: "Thế thì... bảo nó đừng làm nữa?"
 
-"Nói nhảm! Cả hai đứa... Tô Miện với Mạn Mạn, tôi đều thương như ruột thịt, nỡ lòng nào buông bỏ đứa nào cho đành!"
+"Nói nhảm! Cả hai đứa... Tô Miến với Mạn Mạn, tôi đều thương như ruột thịt, nỡ lòng nào buông bỏ đứa nào cho đành!"
 
 Triệu Quốc Hoa câm nín: "..."
 
@@ -130,7 +128,7 @@ Tại Quận Sa.
 
 Từ Mạn Mạn ở một mình nhưng tâm trạng lại vô cùng bình thản và tĩnh lặng, dường như trên thế gian này chẳng có ai sở hữu trạng thái cảm xúc ổn định và vững vàng hơn cô.
 
-Ngay từ sáng mùng một Tết, cô đã đều đặn mở hòm thư điện tử xử lý công việc giấy tờ thay cho Triệu Kim An; những quyết sách quan trọng không dám tự ý quyết định, cô chỉ gửi tin nhắn ngắn xin ý kiến chỉ đạo của anh chứ tuyệt nhiên không gọi điện thoại làm phiền khoảng thời gian riêng tư giữa Triệu Kim An và Tô Miện; sau đó Đường Hiểu Tình và Lưu Hiểu Tĩnh sẽ trực tiếp truyền đạt lại mệnh lệnh xuống các phòng ban trong công ty.
+Ngay từ sáng mùng một Tết, cô đã đều đặn mở hòm thư điện tử xử lý công việc giấy tờ thay cho Triệu Kim An; những quyết sách quan trọng không dám tự ý quyết định, cô chỉ gửi tin nhắn ngắn xin ý kiến chỉ đạo của anh chứ tuyệt nhiên không gọi điện thoại làm phiền khoảng thời gian riêng tư giữa Triệu Kim An và Tô Miến; sau đó Đường Hiểu Tình và Lưu Hiểu Tĩnh sẽ trực tiếp truyền đạt lại mệnh lệnh xuống các phòng ban trong công ty.
 
 Trên chiếc bàn trà lớn đặt ở phòng khách bày biện đủ các loại hoa quả tươi ngon và đồ ăn vặt ngoại nhập, cả một mặt bàn rộng thênh thang chất đầy ăm ắp.
 

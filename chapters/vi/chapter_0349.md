@@ -1,7 +1,5 @@
 # Chương 349: Tụ tập
 
-> **Tiêu đề gốc**: 第349章 聚集。
-
 Lực lượng bảo vệ của trường đại học là những người có mặt đầu tiên. Một toán nhân viên an ninh thở hồng hộc, tiếng bước chân huỳnh huỵch rầm rộ xông thẳng lên sân thượng.
 
 Các ông trời con ơi, có chuyện gì thì từ từ giải quyết chứ tuyệt đối đừng có nhảy ở trong khuôn viên trường học thế này!
@@ -178,13 +176,13 @@ Các cô hiểu rất rõ mối quan hệ sâu sắc giữa Từ Mạn Mạn và
 
 Thế nhưng lúc này không phải là thời điểm thích hợp để hàn huyên chuyện cũ, Dương Thù Mỹ hốt hoảng xoay người cắm đầu chạy thục mạng lên cầu thang. Bà ta chỉ có duy nhất một mụn con trai này mà thôi.
 
-Một lát sau, vợ chồng Từ Tắc Đống và Lương Huệ Trân cũng vội vã chạy đến nơi sau khi nhận được cuộc gọi khẩn thiết từ phía Trần Cẩm Thu.
+Một lát sau, vợ chồng Từ Tắc Đống và Lương Tuệ Trân cũng vội vã chạy đến nơi sau khi nhận được cuộc gọi khẩn thiết từ phía Trần Cẩm Thu.
 
 Trần Cẩm Thu tuy đã ly dị với Dương Thù Mỹ từ lâu, nhưng trong thâm tâm ông ta vẫn luôn chấm Từ Mạn Mạn là nàng dâu hiền lý tưởng nhất trần đời.
 
 "Mạn Mạn... sao dạo này con cứ biền biệt không chịu về nhà thế hả con?"
 
-Lương Huệ Trân bước tới nắm chặt lấy cánh tay Từ Mạn Mạn. Từ Mạn Mạn mấy lần khẽ giãy tay ra nhưng không tài nào rút ra nổi. Từ Tắc Đống đứng bên cạnh lạnh lùng liếc nhìn con gái, hạ giọng đầy vẻ phẫn uất, bất bình: "Con đi theo cái cậu họ Triệu kia thì liệu có được danh phận hay kết quả gì tử tế không hả?"
+Lương Tuệ Trân bước tới nắm chặt lấy cánh tay Từ Mạn Mạn. Từ Mạn Mạn mấy lần khẽ giãy tay ra nhưng không tài nào rút ra nổi. Từ Tắc Đống đứng bên cạnh lạnh lùng liếc nhìn con gái, hạ giọng đầy vẻ phẫn uất, bất bình: "Con đi theo cái cậu họ Triệu kia thì liệu có được danh phận hay kết quả gì tử tế không hả?"
 
 Ý ông ta muốn ám chỉ thẳng thừng tới Triệu Kim An.
 

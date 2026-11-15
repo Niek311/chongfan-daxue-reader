@@ -1,7 +1,5 @@
 # Chương 537: Tự dựng bến bãi?
 
-> **Tiêu đề gốc**: 第537章 自立码头？
-
 "Đinh đoong!"
 
 Đúng lúc này, tiếng chuông cửa vang lên giòn giã. Từ Mạn Mạn một tay vẫn ghì điện thoại bên tai, tay kia nhanh nhẹn vặn chốt mở cửa.

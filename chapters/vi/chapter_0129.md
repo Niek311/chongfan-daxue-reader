@@ -1,7 +1,5 @@
 # Chương 129: Thế là không công bằng!
 
-> **Tiêu đề gốc**: 第129章 不公平！
-
 Dưới ánh mắt dõi theo của Trương Tuệ, Trương Vân Thiến và mọi người xung quanh, Triệu Kim An thoăn thoắt bê hai thùng nước khoáng đặt xuống quầy.
 
 "Triệu Kim An..."

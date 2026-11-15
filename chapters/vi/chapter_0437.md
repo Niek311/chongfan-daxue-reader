@@ -1,7 +1,5 @@
 # Chương 437: Chỉ là đại tiểu thư của anh
 
-> **Tiêu đề gốc**: 第437章 只是你的大小姐。
-
 Ngày hôm sau.
 
 Từ mỏ Kình Bối Sơn bên Úc, một chuyến tàu "lặng lẽ" chở về cảng Chu Sơn 51.000 tấn quặng bauxit (quặng nhôm).

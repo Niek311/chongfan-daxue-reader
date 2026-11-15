@@ -1,211 +1,207 @@
-# ﻿Chương 362: Tự đày ải chính mình
+# Chương 362: Tự đày ải chính mình.
 
-> **Tiêu đề gốc**: 第362章 放逐自己。
+"Trần Trạch, tôi thật sự chịu thua cậu rồi."
 
-"Trần Trạch, tao thật sự phục mày rồi đó."
+Lâm Thanh Tuyết lộ vẻ bất lực: "Cậu nghĩ Triệu Kim An thèm để mắt tới cái xưởng nhỏ này nhà cậu sao? Nếu cậu vẫn chưa hiểu thì để tôi nói cho mà nghe: Quảng trường Hoàn Vũ Thời Đại có vốn đầu tư xây dựng 3,5 tỷ tệ, còn cái xưởng nhỏ này nhà cậu một năm kiếm được bao nhiêu tiền?"
 
-Lâm Thanh Tuyết lắc đầu chán nản: "Mày có nghĩ Triệu Kim An thèm nhìn cái xưởng nhỏ nhà mày không? Nếu mày chưa hiểu thì để tao nói thẳng — Hoàn Vũ Times Square xây tốn ba mươi lăm tỷ, còn xưởng nhà mày một năm kiếm được bao nhiêu?"
+"Cậu đừng có đắm chìm trong thế giới của riêng mình nữa, cậu chẳng quan trọng đến thế đâu."
 
-"Thôi mày đừng ngủ trong vũ trụ riêng của mày nữa. Mày không quan trọng đến vậy đâu."
+"Cậu là thiếu gia nhà giàu đấy, nhưng cậu nghỉ học lâu như vậy không tới trường, cậu xem trong lớp mình có ai ngày nào cũng tìm cậu không?"
 
-"Mày là con nhà giàu, đúng. Nhưng mày nghỉ học cả mấy tháng trời, có ai trong lớp ngày nào cũng hỏi thăm mày không?"
+"Không có ai thì trái đất vẫn cứ quay, cuộc sống vẫn cứ tiếp diễn thôi."
 
-"Thiếu ai rồi trái đất vẫn quay, ngày vẫn cứ trôi."
+Trần Trạch im lặng không nói, nhìn chằm chằm vào Lâm Thanh Tuyết như thể chưa từng quen biết cô.
 
-Trần Trạch không nói gì, chỉ nhìn Lâm Thanh Tuyết như nhìn một người xa lạ.
+Lâm Thanh Tuyết gọi quản đốc xưởng tới, rồi lại gọi điện cho Phương Khiết, chẳng thèm liếc nhìn Trần Trạch lấy một cái.
 
-Lâm Thanh Tuyết tìm gặp quản lý xưởng, xong gọi điện cho Phương Khiết, không buồn liếc mắt nhìn Trần Trạch.
-
-"Từ Mạn Mạn không đến sao?"
+"Từ Mạn Mạn không tới à?"
 
 Cúp máy xong, Lâm Thanh Tuyết hỏi.
 
-"Tình huống này cô ấy đến làm được gì? Với lại cô ấy đã đồng ý tái hợp đâu."
+"Tình cảnh thế này cô ấy tới thì làm được gì? Cô ấy có đồng ý quay lại đâu."
 
-Trần Trạch lầm lũi đáp.
+Trần Trạch trầm giọng đáp.
 
-Lâm Thanh Tuyết gật đầu: "Đi Dương Thành với mẹ mày à?"
+Lâm Thanh Tuyết gật đầu: "Cậu định theo mẹ tới Dương Thành à?"
 
-"Sắp năm tư rồi, không thi cao học không thi công chức thì ai cũng bắt đầu đi thực tập kiếm chỗ làm hết rồi đó."
+"Sắp lên năm tư rồi, những ai không thi cao học hay thi công chức đều bắt đầu tìm chỗ thực tập cả rồi."
 
-Nghĩ ngợi một chút, Lâm Thanh Tuyết hỏi thêm: "Từ Mạn Mạn có đi cùng không?"
+Nghĩ một lát, Lâm Thanh Tuyết lại hỏi: "Từ Mạn Mạn có đi cùng hai mẹ con cậu không?"
 
 "Không biết."
 
-Trần Trạch xoa xoa mặt: "Mẹ tao đi trước."
+Trần Trạch đưa tay xoa mặt: "Mẹ tôi sẽ qua đó trước."
 
-Lâm Thanh Tuyết gật đầu, rồi lại có điện thoại. Là của Cốc Siêu Thừa.
+Lâm Thanh Tuyết gật đầu, rồi lại nghe điện thoại, lần này là Cốc Siêu Thừa gọi tới.
 
-"Tiểu Tuyết, tao hối hận rồi."
+"Tiểu Tuyết, anh hối hận rồi."
 
-Trần Trạch chỉ ngẩng đầu nói một câu, không có động tác gì thêm.
+Trần Trạch chỉ ngẩng đầu lên nói vậy, không có động tác gì thêm.
 
-Lâm Thanh Tuyết bụm tay che điện thoại nhìn Trần Trạch — không mỉa mai, chỉ gật đầu tỏ ý đã hiểu.
+Lâm Thanh Tuyết che ống nghe nhìn Trần Trạch, không hề mỉa mai, chỉ khẽ gật đầu ra hiệu đã biết.
 
-Rồi cô bắt đầu nói chuyện với Cốc Siêu Thừa.
+Sau đó cô tiếp tục trao đổi với Cốc Siêu Thừa.
 
-Chắc Trần Trạch hối hận thật rồi — hắn từng xem Lâm Thanh Tuyết như một chiếc bình hoa, té ra Lâm Thanh Tuyết còn có bộ mặt khác như thế này.
+Có lẽ Trần Trạch đã thật sự hối hận rồi. Trước kia hắn chỉ coi Lâm Thanh Tuyết như một bình hoa di động, nào ngờ Lâm Thanh Tuyết lại có một mặt sắc sảo như thế này.
 
-"Trời đất, Lâm Thanh Tuyết làm quản lý xưởng rồi hả!?"
+"Đệch, Lâm Thanh Tuyết thành bà chủ xưởng rồi á!?"
 
-"Vay tiền của Kim An đó."
+"Tiền vay của Kim An đấy."
 
-"Vậy rốt cuộc xưởng là của ai?"
+"Thế rốt cuộc cái xưởng đó là của ai?"
 
 "Của Lâm Thanh Tuyết."
 
-Cốc Siêu Thừa kể: cô ấy chưa quyết tâm tự mình điều hành, nói là thử thời gian trước xem sao, nếu có ai trả giá cao thì sang tay luôn — còn bây giờ hỏi tụi mình có muốn nhận đơn hàng không.
+Cốc Siêu Thừa nói: "Cô ấy chưa quyết tâm tự mình kinh doanh đâu, bảo làm thử xem sao đã, nếu có ai trả giá cao mua lại thì sẽ sang tay bán đi. Giờ cô ấy đang hỏi tụi mình có muốn đặt làm hàng không kìa."
 
-"Một trăm cái cũng nhận."
+"Một trăm chiếc cũng nhận đơn."
 
-Cốc Siêu Thừa và Phương Khiết sẽ ra Dương Thành, ghé chợ Sa Hà và Thập Tam Hàng lấy hàng mẫu, rồi chọn chất liệu vải. Muốn làm hàng tận tay nguồn gốc không phải chuyện đơn giản.
+Cốc Siêu Thừa và Phương Khiết chuẩn bị tới chợ Sa Hà và Thập Tam Hàng ở Dương Thành để lấy hàng mẫu, sau đó chọn xem dùng chất liệu vải gì. Nói chung, muốn làm nguồn hàng tận gốc chẳng hề đơn giản chút nào.
 
-Lưu Sáng Phong và Cốc Siêu Thừa cũng dần vào guồng, mò được một số chiêu trò trên Đào Bảo.
+Lưu Sấm Phong và Cốc Siêu Thừa cũng dần đi vào quỹ đạo, nắm bắt được kha khá chiêu trò trên Thao Bảo.
 
-Nhưng cái lượng bán đó không đủ chống lưng cho cả một xưởng.
+Nhưng chừng ấy sản lượng tiêu thụ chẳng đủ nuôi sống cả một nhà xưởng.
 
-Lâm Thanh Tuyết tự lập vài gian hàng trên Ali và Đào Bảo, trong đó Ali nghiêng về bán buôn hơn.
+Lâm Thanh Tuyết tự mình đăng ký vài gian hàng trên Ali và Thao Bảo, trên Ali chủ yếu là bán buôn.
 
-Cô cũng tự đi tìm mẫu mã — hoặc tự thuê người thiết kế, hoặc thấy cái gì đang hot trên mạng thì bắt chước thẳng.
+Cô cũng phải tự tìm mẫu mã, tự thuê người thiết kế, hoặc thấy mẫu nào đang bán chạy trên mạng thì sao chép y nguyên về làm.
 
-Con đường xuất khẩu tạm thời chưa thể đi, chỉ còn nội địa.
+Con đường xuất khẩu tạm thời bế tắc, chỉ có thể bán nội địa.
 
-Phương Khiết, Lâm Thanh Tuyết, Lưu Sáng Phong, Cốc Siêu Thừa — bốn người hẹn nhau cùng đáp tàu hỏa xuống Dương Thành.
+Bốn người Phương Khiết, Lâm Thanh Tuyết, Lưu Sấm Phong và Cốc Siêu Thừa hẹn nhau cùng ngồi tàu hỏa đi Dương Thành một chuyến.
 
-Chuyến đi Dương Thành này, Cốc Siêu Thừa cũng đã kiếm đủ tiền tàu xe.
+Chút tiền tàu xe đi Dương Thành này Cốc Siêu Thừa cũng đã kiếm đủ rồi.
 
-Cũng gọi là tin vui thôi.
+Coi như cũng là chuyện tốt đi.
 
-Dẫu sao cũng là tự khởi nghiệp, giai đoạn đầu chắc chắn phải cực một chút — vạn sự khởi đầu nan.
+Dù sao cũng là tự mình khởi nghiệp, giai đoạn đầu chắc chắn phải vất vả hơn một chút, vạn sự khởi đầu nan mà.
 
-Mộc Dao bỏ qua được bước này nhờ dì Trương Vân Tây đã đặt nền móng sẵn cho cô.
+Mộc Dao thì bỏ qua luôn bước này, Trương Vân Thiến đã đặt sẵn nền móng vững chắc cho cô rồi.
 
-Từ ngày Mộc Dao nhập cuộc, doanh số công ty tăng vọt hai trăm sáu mươi hai phần trăm, mua hàng trực tuyến chiếm phần lớn — kết hợp giá rẻ và quảng cáo trực thông hiệu quả lắm. Trương Vân Tây bảo muốn tặng Mộc Dao một chiếc BMW mới.
+Từ khi Mộc Dao gia nhập, doanh số công ty tăng vọt 262%. Mua sắm trực tuyến chiếm phần lớn tỷ trọng, chiêu giá rẻ kết hợp chạy quảng cáo Trực Thông Xa hiện giờ cực kỳ hiệu quả. Trương Vân Thiến bảo sẽ tặng cho Mộc Dao một chiếc BMW mới.
 
-Mộc Dao không khách sáo với dì.
+Mộc Dao chẳng hề khách sáo với dì út của mình.
 
----
+Thẩm Tử Ngôn tự "đày ải" chính mình, không đi công tác ở Quận Sa nữa.
 
-Còn Thẩm Tử Ngôn thì "tự đày ải" mình — không ghé Quận Sa nữa, tự mình lên đường đi khắp các xưởng nước.
+Cô đi một vòng qua từng nhà máy nước.
 
-Đến Giang Gia Áo, cô gặp Giang Chi Tình, rồi cả bé Giang Uyển Nhi.
+Tại Tưởng Gia Ao, cô đã gặp Tưởng Chỉ Tình, cùng với bé Tưởng Uyển Nhi.
 
-Lư Kiều Vỹ tưởng Thẩm Tử Ngôn đến để "xử lý" Giang Chi Tình — với vị trí của Thẩm Tử Ngôn trong công ty, chỉ cần cô kín đáo gợi ý với vài đại lý phân phối của Chân Nhiên là xong. Sẽ không ai thèm lấy một hộp hàng nào của xưởng đồ hộp nữa.
+Lư Kiều Vĩ cứ ngỡ Thẩm Tử Ngôn tới tìm "phiền phức" cho Tưởng Chỉ Tình. Với địa vị của Thẩm Tử Ngôn trong công ty, cô chỉ cần ám chỉ nhẹ với các đại lý của Trăn Nhiên một tiếng thôi.
 
-Lư Kiều Vỹ định nói với Thẩm Tử Ngôn: Giang xưởng trưởng đã vất vả lắm rồi.
+Thì chẳng ai dám lấy dù chỉ một món hàng của xưởng đồ hộp nữa.
 
-Nhưng Thẩm Tử Ngôn không làm gì cả. Cô chỉ kiểm tra doanh số xưởng nước, rồi đi thẳng, không ghé xưởng đồ hộp.
+Lư Kiều Vĩ định nói với Thẩm Tử Ngôn rằng Giám đốc Tưởng vốn đã vất vả lắm rồi.
 
-Thậm chí Giang Chi Tình còn chẳng hay biết Thẩm Tử Ngôn đã đến Giang Gia Áo.
+Nhưng Thẩm Tử Ngôn chẳng làm gì cả, cô chỉ kiểm tra sản lượng của nhà máy nước chứ không hề bước chân sang xưởng đồ hộp.
 
-Giang Chi Tình biết đến cái tên Thẩm Tử Ngôn — đôi đầu lĩnh của công ty, không thể không nghe tiếng. Ngay cả chuyện Chân Hội Tuyển chọn Từ tổng cũng đến tai cô.
+Thậm chí Tưởng Chỉ Tình còn không biết Thẩm Tử Ngôn đã tới Tưởng Gia Ao.
 
-Xưởng nước và xưởng đồ hộp cách nhau chưa đầy một trăm mét.
+Tưởng Chỉ Tình có biết sự tồn tại của một nhân vật như Thẩm Tử Ngôn. Hai "ông lớn" của công ty làm sao cô chưa từng nghe danh, ngay cả Từ tổng bên Trăn Hối Tuyển cô cũng từng nghe phong thanh qua.
 
-Giang Chi Tình không chủ động hỏi thăm ai, chỉ là hễ ai nhắc đến thì cô đứng cạnh nghe lóm.
+Dù sao nhà máy nước và xưởng đồ hộp cũng chỉ cách nhau có một trăm mét.
 
-Nghe chuyện về Triệu Kim An.
+Tưởng Chỉ Tình không hỏi thăm ai bao giờ, chỉ là khi có người bàn tán, cô sẽ đứng bên cạnh lắng nghe.
 
-Nghe chuyện cuộc đấu giữa hai đầu lĩnh của công ty.
+Nghe những chuyện liên quan đến Triệu Kim An.
 
-"Kim An rốt cuộc sẽ chọn ai — Thẩm Tử Ngôn hay Từ Mạn Mạn?"
+Nghe về cuộc cạnh tranh giữa hai nữ tướng của tập đoàn.
 
-Chỉ quanh quẩn ở Giang Gia Áo, thông tin của Giang Chi Tình rất hạn hẹp, chỉ nhặt nhạnh vài ba câu từ nhân viên bên kia vách, mà đôi khi còn không chắc đúng không.
+"Kim An sẽ chọn ai đây? Thẩm Tử Ngôn hay Từ Mạn Mạn?"
 
----
+Chỉ quanh quẩn ở Tưởng Gia Ao nên thông tin của Tưởng Chỉ Tình rất chậm trễ, chỉ có thể nghe lỏm vài câu vụn vặt từ nhân viên bên cạnh, thậm chí có khi thông tin còn chẳng chính xác.
 
-Chân Nhiên trở thành Vương Bài của Đài Trung Ương.
+Trăn Nhiên đã trở thành Quán quân đấu thầu quảng cáo trên Đài Truyền hình Trung ương.
 
-Giang Chi Tình thỉnh thoảng ẵm bé Uyển Nhi ngồi xem quảng cáo giờ báo thời sự.
+Thi thoảng Tưởng Chỉ Tình cũng bế Tưởng Uyển Nhi ngồi xem đoạn quảng cáo báo giờ ấy.
 
-Ngay cả Giang Tăng Niên và Lưu Lệ Hà cũng đúng giờ mở tivi.
+Ngay cả Tưởng Tăng Niên và Lưu Lệ Hà hễ đến giờ là cũng mở tivi lên xem.
 
-Chỉ là ba người không ai nói với bé Uyển Nhi rằng cái quảng cáo đó là của ai, dù mờ nhạt đoán được có liên quan gì đó đến đứa bé.
+Có điều họ đều không nói với Tưởng Uyển Nhi rằng đoạn quảng cáo ấy là của ai, có lẽ cũng có chút quan hệ nào đó với cô bé.
 
----
+Ban đêm.
 
-Đêm khuya.
+Họp xong ở nhà máy nước lớn nhất của Trăn Nhiên, vừa bước ra khỏi phòng họp, Thẩm Tử Ngôn nhìn thấy có một bóng người đứng bên bờ sông.
 
-Vừa kết thúc cuộc họp tại xưởng nước lớn nhất của Chân Nhiên, đi ra khỏi phòng họp, Thẩm Tử Ngôn nhìn thấy một bóng người đứng bên bờ sông.
+"Thẩm tổng, là Giám đốc Tưởng đấy ạ."
 
-"Thẩm tổng, là Giang xưởng trưởng."
+Lư Kiều Vĩ khẽ nói: "Chỉ cần trời không mưa, hầu như tối nào cô ấy cũng..."
 
-Lư Kiều Vỹ khẽ nói: "Hễ trời không mưa, gần như đêm nào chị ấy cũng..."
+Thẩm Tử Ngôn nói: "Cô ấy rất đẹp, con gái cô ấy cũng rất xinh xắn."
 
-Thẩm Tử Ngôn nói: "Cô ấy rất đẹp. Con gái cô ấy cũng rất đẹp."
+"..."
 
-"......"
+Lư Kiều Vĩ thầm nghĩ Giám đốc Tưởng đã ba mươi ba tuổi rồi, còn các cô và Triệu tổng mới hai mươi mốt tuổi. Giám đốc Tưởng chỉ ở lì trong Tưởng Gia Ao chẳng tranh giành thứ gì, làm sao có thể uy hiếp tới cô và Từ tổng dù chỉ một chút cơ chứ.
 
-Lư Kiều Vỹ thầm nghĩ: Giang xưởng trưởng đã ba mươi ba rồi, còn cô và Triệu tổng mới hai mươi mốt. Giang xưởng trưởng co ro ở Giang Gia Áo chẳng tranh giành gì, đâu có đe dọa gì cô và Từ tổng đâu chứ.
-
-"Suốt bấy lâu cô ấy một mình à?"
+"Cô ấy cứ sống một mình mãi thế à?"
 
 Thẩm Tử Ngôn lại hỏi.
 
-Lư Kiều Vỹ khựng lại: "Vâng, không có Triệu tổng, sáu năm nay chị ấy một mình. Thẩm tổng hỏi bất kỳ ai ở Giang Gia Áo, họ đều biết."
+Lư Kiều Vĩ sững người một lát: "Vâng, không có Triệu tổng, sáu năm nay cô ấy luôn lủi thủi một mình. Cô cứ hỏi bất kỳ ai ở Tưởng Gia Ao này xem, ai cũng biết cả."
 
-Thẩm Tử Ngôn nói: "Tôi có hỏi, có nghe chuyện của cô ấy rồi — tự hỏi lòng mình, tôi không làm được như vậy."
+Thẩm Tử Ngôn nói: "Tôi hỏi rồi, nghe xong câu chuyện của cô ấy, tự hỏi lòng mình thì tôi không làm được như vậy."
 
-Lư Kiều Vỹ gật đầu: "Rất khó, rất khó lắm."
+Lư Kiều Vĩ gật đầu: "Khó lắm, thật sự rất khó."
 
-"Một năm rưỡi rồi phải không?"
+"Đã một năm rưỡi rồi nhỉ?"
 
 Thẩm Tử Ngôn nhìn bóng đen bên bờ sông hỏi.
 
-Lư Kiều Vỹ suy nghĩ một lúc mới hiểu ra: "Vâng, Triệu tổng đã một năm rưỡi không đến nữa."
+Phải mất một lúc Lư Kiều Vĩ mới hiểu ra để nối lời: "Vâng, Triệu tổng đã một năm rưỡi chưa tới đây rồi."
 
-Thẩm Tử Ngôn gật đầu, không hỏi thêm gì.
+Thẩm Tử Ngôn gật đầu, không hỏi thêm gì nữa.
 
-Chỉ ngồi trong phòng ký túc xá của xưởng, tính thời gian — mãi đến một giờ sáng, Giang Chi Tình mới lặng lẽ trở về.
+Chỉ ở trong khu ký túc xá của nhà máy, nhẩm tính thời gian, mãi đến một giờ sáng Tưởng Chỉ Tình mới quay về phòng ngủ.
 
----
+Ngày hôm sau.
 
-Hôm sau.
+Tia nắng đầu tiên từ đại hẻm núi rọi vào Tưởng Gia Ao, Thẩm Tử Ngôn bị tiếng còi xe tải lớn đánh thức. Đứng trước cửa sổ vươn vai một cái, cô chợt nhận ra mình có chút thích nơi này rồi.
 
-Tia nắng đầu tiên xuyên qua khe núi lớn soi vào Giang Gia Áo. Thẩm Tử Ngôn bị tiếng còi xe tải đánh thức, bước ra cửa sổ vươn vai một cái — cô nhận ra mình đã bắt đầu thích cái nơi này.
+Tưởng Gia Ao chẳng khác nào chốn đào nguyên tách biệt thế gian, phong cảnh quá đỗi nên thơ.
 
-Giang Gia Áo có cái gì đó giống chốn thần tiên, phong cảnh đẹp đến nao lòng.
+Vệ sinh cá nhân xong xuôi, Thẩm Tử Ngôn trông thấy có một chiếc xe tải lớn đậu trước kho xưởng đồ hộp, trên xe chẳng chất bao nhiêu hàng. Tưởng Chỉ Tình cùng mấy công nhân đang thương lượng gì đó với tài xế.
 
-Rửa mặt xong, Thẩm Tử Ngôn nhìn xuống thấy một chiếc xe tải đậu trước kho xưởng đồ hộp, hàng chưa bốc được bao nhiêu, Giang Chi Tình cùng mấy công nhân đang thương lượng với tài xế. Hình như muốn thuyết phục lấy thêm hàng. Giang Chi Tình đứng bên cạnh gọi điện.
+Chắc hẳn là mong tài xế lấy thêm chút hàng, Tưởng Chỉ Tình đứng bên cạnh gọi điện thoại liên tục.
 
-Nhưng cuối cùng xe tải vẫn chuyển bánh đi. Thẩm Tử Ngôn nhìn theo, đứng lặng một lúc.
+Thế nhưng chiếc xe tải lớn vẫn nổ máy rời đi, Thẩm Tử Ngôn ngẩn người nhìn theo.
 
-Cô nhìn về phía dãy núi lớn.
+Cô đưa mắt nhìn về phía đại hẻm núi.
 
-Chân Nhiên đã là nhà tài trợ Olympic 2008, lại là Vương Bài Đài Trung Ương năm 2009 — với bất kỳ doanh nghiệp nào, chỉ cần không mắc sai lầm lớn thì doanh số không cần lo.
+Trăn Nhiên là nhà tài trợ Thế vận hội năm 2008, lại là Quán quân đấu thầu quảng cáo Đài Trung ương năm 2009; đổi lại là bất kỳ doanh nghiệp nào khác, chỉ cần không xảy ra sự cố lớn thì đầu ra chẳng bao giờ phải lo lắng.
 
-Sáng sớm đã có mấy chiếc xe tải lớn chạy vào Giang Gia Áo.
+Sáng sớm tinh mơ đã có mấy chiếc xe tải lớn chạy vào Tưởng Gia Ao.
 
-Thẩm Tử Ngôn suy nghĩ hồi lâu, rút điện thoại ra không gọi Giang Công Kỳ, mà gọi Lư Kiều Vỹ lên, hỏi mấy xe tải kia là của những đại lý nào, rồi lần lượt gọi điện cho từng người.
+Thẩm Tử Ngôn suy nghĩ hồi lâu, lấy điện thoại ra nhưng không tìm Giang Công Kỳ, mà gọi Lư Kiều Vĩ tới hỏi xem mấy chiếc xe tải này là của những đại lý nào, rồi đích thân gọi điện cho các đại lý ấy.
 
-Lư Kiều Vỹ đứng cạnh nghe, không hiểu Thẩm Tử Ngôn đang làm gì.
+Lư Kiều Vĩ đứng bên cạnh nghe mà không sao hiểu nổi nước đi của Thẩm Tử Ngôn.
 
-"Thẩm tổng sao lại giúp Giang xưởng trưởng?"
+"Sao Thẩm tổng lại giúp Giám đốc Tưởng thế nhỉ?"
 
-"Vô lý lắm, không đụng đến Giang xưởng trưởng đã là tốt lắm rồi."
+"Vô lý thật, cô ấy không gây khó dễ cho Giám đốc Tưởng đã là tốt lắm rồi."
 
-Chỉ chốc lát sau, mấy tài xế lần lượt tìm đến xưởng đồ hộp, nói muốn lấy thêm đồ hộp và giấm táo.
+Chỉ một lát sau, mấy tài xế kia liền đi sang xưởng đồ hộp bảo muốn lấy thêm ít đồ hộp và giấm táo.
 
-Mấy công nhân xưởng đồ hộp người người cười toe miệng, liền tay mời thuốc.
+Mấy công nhân xưởng đồ hộp vội vàng mời thuốc, miệng cười toe toét không khép lại được.
 
-Giang Chi Tình cầm điện thoại đảo mắt nhìn quanh — cô không dám tin là Triệu Kim An, đâu có dấu hiệu gì trước đó.
+Tưởng Chỉ Tình cầm điện thoại ngó nghiêng khắp nơi. Cô không dám tin đây là do Triệu Kim An làm, chuyện xảy ra quá đột ngột, chẳng hề có điềm báo gì.
 
 "Thẩm tổng, vậy sau này..."
 
-Lư Kiều Vỹ rụt rè hỏi.
+Lư Kiều Vĩ dè dặt hỏi thử.
 
-"Chỉ lần này thôi!"
+"Chỉ một lần này thôi!"
 
-Thẩm Tử Ngôn chỉ là thấy thì giúp một lần. Cô nhìn Giang Chi Tình cầm điện thoại đi về phía xưởng nước: "Cô ấy đang tìm Kim An à?"
+Thẩm Tử Ngôn chẳng qua thấy bất bình nên tiện tay giúp một lần. Nhìn Tưởng Chỉ Tình cầm điện thoại đi về phía nhà máy nước, cô lẩm bẩm: "Chị đang tìm Kim An sao?"
 
-"Không phải anh ấy đâu... Dao Dao, Mạn Mạn..."
+"Không thể nào là cậu ấy, Dao Dao, Mạn Mạn..."
 
-Thẩm Tử Ngôn nhìn xuống — Giang Chi Tình ngó nghiêng, mặt đầy lo lắng, hồi hộp ra mặt.
+Thẩm Tử Ngôn nhìn xuống dưới lầu, thấy Tưởng Chỉ Tình đang loay hoay ngó trước ngó sau với vẻ mặt đầy lo âu thấp thỏm.
 
-"......"
+"..."
 
-Lư Kiều Vỹ cũng nhìn theo, chỉ biết nhìn. Triệu tổng thật sự nhẫn tâm thật.
+Lư Kiều Vĩ cũng nhìn theo, chỉ biết đứng nhìn. Triệu tổng đúng là sắt đá thật đấy.
 
-Đúng vậy — Giang Chi Tình không dám tin là Triệu Kim An, nhưng vẫn cứ đi tìm bóng dáng người đó.
+Đúng thế, Tưởng Chỉ Tình không dám tin là Triệu Kim An, nhưng cô vẫn cứ đi tìm bóng dáng người ấy.
 
-Tìm xem có phải Triệu Kim An đã đến Giang Gia Áo không.
+Xem xem có phải Triệu Kim An đã tới Tưởng Gia Ao hay không.

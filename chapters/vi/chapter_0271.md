@@ -1,7 +1,5 @@
 # Chương 271: Hôm nay muộn rồi, để mai đi
 
-> **Tiêu đề gốc**: 第271章 今天太晚了，明天吧。
-
 Trước cổng tòa ký túc xá nữ.
 
 Từ Tắc Đống nhất quyết không chịu tự mình gọi điện thoại.

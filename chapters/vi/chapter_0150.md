@@ -1,7 +1,5 @@
 # Chương 150: Xưởng đồ hộp.
 
-> **Tiêu đề gốc**: 第150章 罐头厂。
-
 Ngồi nán lại thêm một lát bên bờ sông, Triệu Kim An hút hết thêm một điếu thuốc lá nữa rồi mới đứng dậy rảo bước quay về.
 
 Đan Vĩ chẳng biết từ đâu thoắt cái đã xuất hiện lù lù bên cạnh, dẫn Triệu Kim An về nhà một hộ dân trong làng.

@@ -1,7 +1,5 @@
 # Chương 541: Đã biết còn hỏi
 
-> **Tiêu đề gốc**: 第541章 明知故问。
-
 Triệu Kim An rời khỏi nhà họ Tô khi trời đã về khuya.
 
 Hai đứa nhỏ Triệu Tri Hành và Triệu Tri Vi đều đã say giấc nồng, còn Tô Minh Tùng thì vẫn "trốn" biệt tăm trong thư phòng.

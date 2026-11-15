@@ -1,7 +1,5 @@
 # Chương 442: Cơ duyên tạo hóa
 
-> **Tiêu đề gốc**: 第442章 造化。
-
 Xét về mặt tiền bạc, Từ Tắc Đống thực sự là người hào phóng chẳng chê vào đâu được.
 
 Sắp sửa được lên chức bà ngoại, Lương Tuệ Trân háo hức mua sắm cơ man nào là đồ dùng sinh hoạt cho trẻ sơ sinh mang về chất đống trong nhà, từ quần áo tã lót cho tới chậu tắm, thau giặt. Cứ hễ bước chân ra phố, trông thấy món gì xinh xắn là bà lại không kìm lòng nổi mà rút ví mua ngay; chỉ riêng cái trống lắc năm tệ một chiếc mà bà đã tiện tay mua liền một lúc bốn cái.

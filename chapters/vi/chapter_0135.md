@@ -1,7 +1,5 @@
 # Chương 135: Núi vàng trong nhà phá không hết
 
-> **Tiêu đề gốc**: 第135章 家里的金山败不光。
-
 Tô Miến mỉm cười nói với mọi người: “Dạ không sao đâu ạ, cháu ít khi có dịp về làng thăm mọi người mà.”
 
 Câu nói này của cô chẳng khác nào chọc trúng tổ ong vò vẽ, bà con chòm xóm lập tức quay ngoắt sang trút giận lên đầu Triệu Kim An, thi nhau trách móc anh sao không chịu đưa Tô Miến về quê thường xuyên hơn.
@@ -130,7 +128,7 @@ Vương Kim Như rốt cuộc cũng tìm được đối tượng để trút c�
 
 Bà nội từ trong bếp cẩn thận bưng ra một bát canh gà vàng óng ánh, thơm nức mũi, bên trong có một chiếc đùi gà béo ngậy hầm chung với hạt dẻ bùi bùi.
 
-Đó chính là những hạt dẻ hái từ cùng một cây với số hạt dẻ gửi cho Hứa Mạn Mạn dạo trước. Bà nội hiền hậu bảo: “Hạt dẻ cây nhà mình trồng đấy cháu ạ.”
+Đó chính là những hạt dẻ hái từ cùng một cây với số hạt dẻ gửi cho Từ Mạn Mạn dạo trước. Bà nội hiền hậu bảo: “Hạt dẻ cây nhà mình trồng đấy cháu ạ.”
 
 Tô Miến mỉm cười quay sang hỏi: “Thiên Thiên, em có muốn ăn đùi gà không?”
 

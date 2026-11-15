@@ -1,7 +1,5 @@
 # Chương 325: Tuyên cáo
 
-> **Tiêu đề gốc**: 第325章 宣告。
-
 Triệu Kim An rốt cuộc cũng học được vài phần tinh túy của một gã "tra nam".
 
 Thẩm Tử Ngôn thực lòng xúc động vô cùng, chỉ có Đan Vĩ đứng bên cạnh là âm thầm chép miệng bỡn cợt trong bụng:

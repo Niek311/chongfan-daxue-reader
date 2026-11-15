@@ -1,7 +1,5 @@
 # Chương 99: Thời gian: 5 giờ 45 phút.
 
-> **Tiêu đề gốc**: 第99章 时间：5,45.
-
 Hai người trò chuyện thêm một lát.
 
 Cuộc gọi kéo dài chừng bốn, năm phút, cả hai đều không phải là mẫu người giỏi ăn nói dông dài.
@@ -14,11 +12,11 @@ Giọng điệu cô thốt ra vô cùng bình thản, nhẹ bẫng.
 
 Thế nhưng Triệu Kim An nghe xong lồng ngực lại dâng lên một nỗi xót xa, nhói buốt.
 
-Anh bất giác nhớ lại lời mẹ mình - bà Đoàn Thu Bình từng nói bâng quơ rằng cô gái ấy "có chút tàn tật". Anh cực kỳ căm ghét và không bao giờ muốn nghe bất kỳ ai dùng hai chữ "tàn tật" ấy để gán lên người Tô Miến.
+Anh bất giác nhớ lại lời mẹ mình - bà Đoạn Thu Bình từng nói bâng quơ rằng cô gái ấy "có chút tàn tật". Anh cực kỳ căm ghét và không bao giờ muốn nghe bất kỳ ai dùng hai chữ "tàn tật" ấy để gán lên người Tô Miến.
 
 Chính vì thế mà hôm ấy anh mới dứt khoát dập máy ngang xương.
 
-Đoàn Thu Bình có thể phàn nàn những điều khác, có thể nói anh còn quá trẻ người non dạ, có thể bảo sau này anh sẽ phải gánh vác cả đời để chăm sóc cho người ta. Đứng ở cương vị một người mẹ có lòng lo lắng, bồn chồn cho tương lai của con trai, Triệu Kim An hoàn toàn có thể thấu hiểu và bao dung. Thế nhưng duy chỉ có hai chữ "tàn tật" xúc phạm đến Tô Miến là điều anh tuyệt đối không chấp nhận.
+Đoạn Thu Bình có thể phàn nàn những điều khác, có thể nói anh còn quá trẻ người non dạ, có thể bảo sau này anh sẽ phải gánh vác cả đời để chăm sóc cho người ta. Đứng ở cương vị một người mẹ có lòng lo lắng, bồn chồn cho tương lai của con trai, Triệu Kim An hoàn toàn có thể thấu hiểu và bao dung. Thế nhưng duy chỉ có hai chữ "tàn tật" xúc phạm đến Tô Miến là điều anh tuyệt đối không chấp nhận.
 
 Bà nội hôm nhìn thấy Tô Miến tuy trong lòng cũng canh cánh nỗi âu lo, nhưng bà chưa từng thốt ra hai từ nghiệt ngã ấy.
 
@@ -38,43 +36,43 @@ Khổng Triết Vũ vừa rồi cũng tỏ ra rất ga lăng ngỏ ý muốn lá
 
 Chẳng có lý do gì để nhận lời cả.
 
-Trần Trạch lái xe đưa đón là bởi anh ta danh chính ngôn thuận là bạn trai của Hứa Mạn Mạn.
+Trần Trạch lái xe đưa đón là bởi anh ta danh chính ngôn thuận là bạn trai của Từ Mạn Mạn.
 
-Khi có Hứa Mạn Mạn ngồi trên xe, hoặc khi Hứa Mạn Mạn đã biết rõ sự tình, các cô ngồi nhờ một cuốc xe thì chẳng có gì phải ngại ngùng. Còn đối với Khổng Triết Vũ thì hoàn toàn khác.
+Khi có Từ Mạn Mạn ngồi trên xe, hoặc khi Từ Mạn Mạn đã biết rõ sự tình, các cô ngồi nhờ một cuốc xe thì chẳng có gì phải ngại ngùng. Còn đối với Khổng Triết Vũ thì hoàn toàn khác.
 
-Diêu Tân trong lòng cứ bứt rứt không yên, bỗng cất tiếng phá vỡ bầu không khí tĩnh mịch: "Phòng 406 tụi mình với phòng 303 của bọn họ vốn dĩ là hai phòng ký túc xá kết nghĩa giao lưu đúng không nhỉ?"
+Diêu Sân trong lòng cứ bứt rứt không yên, bỗng cất tiếng phá vỡ bầu không khí tĩnh mịch: "Phòng 406 tụi mình với phòng 303 của bọn họ vốn dĩ là hai phòng ký túc xá kết nghĩa giao lưu đúng không nhỉ?"
 
 Chẳng có ai lên tiếng đáp lời.
 
-Diêu Tân quay sang nhìn Thẩm Tử Ngôn, hạ thấp giọng thì thầm: "Tụi mình ngồi lệch phe mất rồi, vừa nãy Triệu Kim An bắt gặp tụi mình ngồi ăn uống vui vẻ với Khổng Triết Vũ..."
+Diêu Sân quay sang nhìn Thẩm Tử Ngôn, hạ thấp giọng thì thầm: "Tụi mình ngồi lệch phe mất rồi, vừa nãy Triệu Kim An bắt gặp tụi mình ngồi ăn uống vui vẻ với Khổng Triết Vũ..."
 
-Phong trào kết nghĩa giữa các phòng ký túc xá nam nữ ở thời kỳ này... thực sự dựa trên một nền tảng tình cảm bạn bè rất đỗi chân thành và khăng khít. Nếu không thì phòng 406 và 303 đã chẳng thi nhau nhắn tin chúc Tết rôm rả, Hứa Mạn Mạn và Thẩm Tử Ngôn cũng chẳng rỗi hơi đi trả lời tin nhắn của Lưu Sấm Phong và Cốc Siêu Thừa làm gì.
+Phong trào kết nghĩa giữa các phòng ký túc xá nam nữ ở thời kỳ này... thực sự dựa trên một nền tảng tình cảm bạn bè rất đỗi chân thành và khăng khít. Nếu không thì phòng 406 và 303 đã chẳng thi nhau nhắn tin chúc Tết rôm rả, Từ Mạn Mạn và Thẩm Tử Ngôn cũng chẳng rỗi hơi đi trả lời tin nhắn của Lưu Sấm Phong và Cốc Siêu Thừa làm gì.
 
-Thậm chí có khi chính Hứa Mạn Mạn và Thẩm Tử Ngôn còn căn đúng thời khắc giao thừa để chủ động gửi tin nhắn chúc mừng trước cho hai người bọn họ nữa cơ.
+Thậm chí có khi chính Từ Mạn Mạn và Thẩm Tử Ngôn còn căn đúng thời khắc giao thừa để chủ động gửi tin nhắn chúc mừng trước cho hai người bọn họ nữa cơ.
 
-Hứa Mạn Mạn đưa mắt nhìn chiếc túi xách Chanel đeo bên hông, khẽ đưa tay vén một lọn tóc mây lòa xòa ra sau vành tai. Cô bất chợt cất tiếng, thanh âm nghe như vọng lại từ một nơi chốn xa xăm nào đó:
+Từ Mạn Mạn đưa mắt nhìn chiếc túi xách Chanel đeo bên hông, khẽ đưa tay vén một lọn tóc mây lòa xòa ra sau vành tai. Cô bất chợt cất tiếng, thanh âm nghe như vọng lại từ một nơi chốn xa xăm nào đó:
 
 "Mộc Dao này, Triệu Kim An đang đi làm thêm bên ngoài thật đấy à?"
 
-Mộc Dao ngẩng đầu nhìn Hứa Mạn Mạn, khẽ gật đầu xác nhận.
+Mộc Dao ngẩng đầu nhìn Từ Mạn Mạn, khẽ gật đầu xác nhận.
 
 Thực ra chuyện này trong lòng các cô ai nấy đều đã lờ mờ đoán được.
 
 "Tao bỗng thấy cuộc sống sinh viên của Triệu Kim An và Đường Hiểu Tình bọn họ trôi qua thật phong phú và ý nghĩa làm sao."
 
-Hứa Mạn Mạn không nhìn vào ai cả, chỉ lẩm bẩm tự nói với chính mình: "Chẳng bù cho tụi mình, một ngày chỉ có vài tiết học trên giảng đường, hễ rảnh rỗi một cái là chẳng biết phải làm cái gì cho hết ngày."
+Từ Mạn Mạn không nhìn vào ai cả, chỉ lẩm bẩm tự nói với chính mình: "Chẳng bù cho tụi mình, một ngày chỉ có vài tiết học trên giảng đường, hễ rảnh rỗi một cái là chẳng biết phải làm cái gì cho hết ngày."
 
 "Tử Ngôn thì còn đỡ hơn một chút, dẫu sao mày cũng bận rộn với công việc bên Hội Sinh viên."
 
 "Chứ không như tao... tao thì có cái gì chứ...?"
 
-Hứa Mạn Mạn ngập ngừng rồi bỏ lửng câu nói, trong đáy lòng dâng lên một nỗi tự giễu cay đắng. Cô cảm nhận được rất rõ ánh mắt lúc nãy Triệu Kim An nhìn Khổng Triết Vũ, cái ánh mắt dửng dưng ấy như muốn nói lên rằng: Tôi bận rộn trăm công nghìn việc, còn các người thì rảnh rỗi đến mức vô vị.
+Từ Mạn Mạn ngập ngừng rồi bỏ lửng câu nói, trong đáy lòng dâng lên một nỗi tự giễu cay đắng. Cô cảm nhận được rất rõ ánh mắt lúc nãy Triệu Kim An nhìn Khổng Triết Vũ, cái ánh mắt dửng dưng ấy như muốn nói lên rằng: Tôi bận rộn trăm công nghìn việc, còn các người thì rảnh rỗi đến mức vô vị.
 
 "Phải nói là tất cả chúng ta, chúng ta đang sống quá đỗi vô vị."
 
-Hứa Mạn Mạn không hề có hứng thú với các hoạt động của Hội Sinh viên, cũng chẳng thiết tha gì chuyện thi cử học lên thạc sĩ, gia cảnh của cô vốn dĩ cũng không cần dựa vào tấm bằng cao học để nâng tầm giá trị bản thân.
+Từ Mạn Mạn không hề có hứng thú với các hoạt động của Hội Sinh viên, cũng chẳng thiết tha gì chuyện thi cử học lên thạc sĩ, gia cảnh của cô vốn dĩ cũng không cần dựa vào tấm bằng cao học để nâng tầm giá trị bản thân.
 
-Thậm chí mỗi lần Trần Trạch hẹn hò rủ đi chơi, Hứa Mạn Mạn cũng chẳng mấy mặn mà hào hứng, chẳng qua là đi theo quán tính cho có mặt mà thôi.
+Thậm chí mỗi lần Trần Trạch hẹn hò rủ đi chơi, Từ Mạn Mạn cũng chẳng mấy mặn mà hào hứng, chẳng qua là đi theo quán tính cho có mặt mà thôi.
 
 Mộc Dao từ đầu đến cuối vẫn cúi gằm mặt xuống, không nói lấy nửa lời.
 

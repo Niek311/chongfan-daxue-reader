@@ -1,7 +1,5 @@
 # Chương 237: Mạch Thượng Yên Vũ Dao
 
-> **Tiêu đề gốc**: 第237章 陌上烟雨瑶
-
 Mộc Dao được Du Phi và Diêu Sân dìu về phòng.
 
 Diêu Sân nói chẳng sai chút nào, dây thần kinh cảm xúc của Mộc Dao quả thực quá dài.
@@ -54,7 +52,7 @@ Về sau, khi Triệu Kim An vừa phải vùi đầu vào việc học vừa b�
 
 Triệu Kim An đâu phải không muốn dành thời gian cho Mộc Dao. Mỗi lần đi làm thêm kiếm được đồng tiền còm cõi, anh đều dẫn cô đi ăn những món ngon lành, anh vẫn nhớ rõ từng sở thích như việc cô thích ăn tôm hùm đất.
 
-Nghe theo lời dặn dò của Trương Huệ, Triệu Kim An luôn chăm sóc, chở che cho Mộc Dao chẳng khác nào một người anh trai ruột thịt.
+Nghe theo lời dặn dò của Trương Tuệ, Triệu Kim An luôn chăm sóc, chở che cho Mộc Dao chẳng khác nào một người anh trai ruột thịt.
 
 Thế nhưng Triệu Kim An không phải là công tử con nhà giàu. Tiền anh chắt chiu từ những công việc làm thêm bán thời gian chẳng đáng là bao, làm sao có thể so bì được với những công tử vung tay không tiếc tiền như Trần Trạch hay Khổng Triết Vũ.
 
@@ -76,7 +74,7 @@ Anh từng thẳng thừng từ chối biết bao lời tỏ tình, ý tứ ân 
 
 Ở kiếp trước, Triệu Kim An từng luôn đinh ninh rằng mình và Mộc Dao chắc chắn sẽ cùng nhau đi tới cuối con đường, dù là ở Tư Tinh hay Sa Quận, hai người sẽ chung tay dựng xây một tổ ấm nhỏ bé ngập tràn hạnh phúc.
 
-Trương Huệ đã vẽ ra một viễn cảnh tương lai tươi đẹp, và Triệu Kim An cũng đã dốc cạn sức mình phấn đấu không ngừng nghỉ...
+Trương Tuệ đã vẽ ra một viễn cảnh tương lai tươi đẹp, và Triệu Kim An cũng đã dốc cạn sức mình phấn đấu không ngừng nghỉ...
 
 Anh vừa học vừa làm thêm suốt những năm tháng đại học, chưa từng để việc học sa sút; sau khi tốt nghiệp thì bám trụ lại thành phố Sa Quận, rồi thi đỗ chứng chỉ Kiểm toán viên công chứng (CPA)...
 
@@ -84,7 +82,7 @@ Thế nhưng, Mộc Dao rốt cuộc vẫn nói lời chia tay.
 
 Dĩ nhiên, tấm bằng CPA danh giá ấy mãi về sau này anh mới thi đỗ được.
 
-Không biết sau khi chia tay, có khi nào Mộc Dao từng hỏi thăm bạn bè về tin tức của anh hay không? Cũng chẳng rõ sau khi anh tốt nghiệp ra trường, Trương Huệ có đôi lần để tâm dò hỏi về cuộc sống của anh hay chăng...
+Không biết sau khi chia tay, có khi nào Mộc Dao từng hỏi thăm bạn bè về tin tức của anh hay không? Cũng chẳng rõ sau khi anh tốt nghiệp ra trường, Trương Tuệ có đôi lần để tâm dò hỏi về cuộc sống của anh hay chăng...
 
 Những điều ấy, Triệu Kim An vĩnh viễn chẳng có cách nào biết được.
 

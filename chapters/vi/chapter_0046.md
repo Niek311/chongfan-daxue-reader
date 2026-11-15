@@ -1,7 +1,5 @@
 # Chương 46: Ký túc xá toàn những kẻ kỳ quặc
 
-> **Tiêu đề gốc**: 第46章 宿舍全是奇葩。
-
 Chỗ này khói thuốc lượn lờ mịt mù nhưng chẳng khiến ai khó chịu.
 
 Dù sao cũng không đứng giữa đám đông phì phèo, chẳng sợ làm phiền người khác bằng khói thuốc thụ động.

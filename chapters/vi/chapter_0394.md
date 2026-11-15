@@ -1,257 +1,255 @@
-# Chương 394: Mí mắt giật liên hồi
+# Chương 394: Nháy mắt
 
-> **Tiêu đề gốc**: 第394章 眼皮跳。
+Trăn Hối Tuyển - Diêu Sân: Dao Dao, dạo này cậu làm ăn thế nào rồi?
 
-Trăn Hối Tuyển - Diêu Sân: Dao Dao, tình hình buôn bán của cậu dạo này thế nào rồi?
+Mạch Thượng Yên Vũ Dao: Tốt lắm, đợt mười một tháng mười một vừa rồi kiếm được một mớ đấy (mặt cười).
 
-Mạch Thượng Yên Vũ Dao: Ổn áp lắm cậu ơi, đợt bão 11/11 vừa rồi tớ hốt bạc một mẻ đậm luôn (mặt cười).
+Trăn Hối Tuyển - Diêu Sân: Bao nhiêu thế?
 
-Trăn Hối Tuyển - Diêu Sân: Được bao nhiêu thế?
+Mạch Thượng Yên Vũ Dao: Bí mật, sáu con số cơ đấy.
 
-Mạch Thượng Yên Vũ Dao: Bí mật nha, sáu con số lận đó!
+Trăn Hối Tuyển - Diêu Sân: Á, các cậu ai cũng giỏi giang thế, tự dưng thấy mình vô dụng quá đi mất.
 
-Trăn Hối Tuyển - Diêu Sân: Oa, mấy cậu ai nấy đều giỏi giang quá chừng, tớ tự thấy bản thân mình vô dụng ghê gớm.
+Mạch Thượng Yên Vũ Dao: Cứ từ từ rồi sẽ quen thôi.
 
-Mạch Thượng Yên Vũ Dao: Cứ từ từ rồi đâu sẽ vào đấy thôi mà.
-
-Trăn Hối Tuyển - Diêu Sân: Dao Dao ơi, nhớ cậu quá, muốn rủ cậu đi chơi ghê.
+Trăn Hối Tuyển - Diêu Sân: Dao Dao, tớ thèm đi chơi với cậu quá.
 
 Mạch Thượng Yên Vũ Dao: Tớ đang ở Hàn Quốc rồi.
 
-Trăn Hối Tuyển - Diêu Sân: Hả, lại bay sang Hàn Quốc nữa rồi á? Thế còn Tử Ngôn thì sao?
+Trăn Hối Tuyển - Diêu Sân: Hả, lại chạy sang Hàn Quốc rồi à, thế Tử Ngôn đâu?
 
-Thẩm Tử Ngôn: Nhà máy nước ở Mân Nam vừa khánh thành xong, tớ đang ghé qua kiểm tra một chút.
+Thẩm Tử Ngôn: Nhà máy nước ở Mân Nam vừa khánh thành, tớ ghé qua xem một chút.
 
-"Haizz, Mạn Mạn thì bỏ đi, Dao Dao lại ra nước ngoài, trong mắt Tử Ngôn thì chỉ toàn có công việc là công việc."
+"Haizz, Mạn Mạn thì bỏ đi rồi, Dao Dao lại xuất ngoại, trong mắt Tử Ngôn chỉ có mỗi công việc."
 
-Diêu Sân thở dài thườn thượt, ai nấy đều chẳng chịu lo lắng gì cả, bộ các cậu không sợ Lý Ngải Lan hay sao chứ, coi chừng để Lý Ngải Lan "húp trọn món hời" bây giờ.
+Diêu Sân thở dài sườn sượt, mấy người này ai cũng chẳng đáng tin chút nào, bộ không sợ Lý Ngải Lan sao, đừng để Lý Ngải Lan "nhặt hời" đấy nhé.
 
-Cô hoàn toàn không hay biết rằng, giông bão ngập trời đang âm thầm kéo tới.
+Cô đâu hề hay biết cơn bão lớn đang âm thầm kéo đến.
 
-Thẩm Tử Ngôn đang ở Mân Nam gọi điện thoại cho Triệu Kim An. Trăn Nhiên đã quá lâu rồi không cho ra mắt dòng sản phẩm mới nào.
+Thẩm Tử Ngôn đang ở Mân Nam liền gọi điện cho Triệu Kim An, Trăn Nhiên đã quá lâu rồi chưa tung ra sản phẩm mới nào.
 
-Nước ép kiwi coi như đã bị "khai tử", trong tay Trăn Nhiên hiện tại chỉ vỏn vẹn sáu dòng sản phẩm chủ lực: nước khoáng thiên nhiên, Khinh Oanh Tiểu Tạc Đạn, trà sữa Ngu Quang, Trà Phái, Đông Phương Thụ Vận và nước soda Khinh Oanh.
+Nước ép kiwi coi như đã bị "khai tử", hiện tại Trăn Nhiên chỉ có đúng sáu dòng sản phẩm là nước khoáng, Khinh Dưỡng Tiểu Tác Đạn, trà sữa Ngung Quang, Trà Phái, Đông Phương Thụ Vận và nước soda Khinh Dưỡng.
 
-Trong mắt Thẩm Tử Ngôn lúc này chỉ toàn là công việc. Trăn Nhiên vừa mới giật được ngôi vị Quán quân quảng cáo năm 2010 của đài truyền hình Trung ương CCTV, nếu không nhân cơ hội vàng này mà tung ra sản phẩm bùng nổ mới thì quả thực quá đỗi lãng phí.
+Trong mắt Thẩm Tử Ngôn chỉ toàn là công việc, Trăn Nhiên đã giành được gói thầu quảng cáo đắt giá nhất của Đài Truyền hình Trung ương năm 2010, không nhân cơ hội này tung sản phẩm mới thì thật quá lãng phí.
 
-Triệu Kim An vắt óc suy nghĩ nửa ngày vẫn chưa tìm ra được sản phẩm nào có thể tạo nên cơn sốt chấn động. Thẩm Tử Ngôn đề xuất phát triển dòng nước tăng lực, nhưng Triệu Kim An lập tức gạt đi. Nước tăng lực là một đường đua ngách hoàn toàn khác biệt, nơi mà Red Bull đang giữ vị thế độc tôn thống trị tuyệt đối.
+Triệu Kim An vắt óc nghĩ mãi vẫn chưa ra được món nào có khả năng bùng nổ thị trường. Thẩm Tử Ngôn đề xuất làm nước tăng lực, nhưng Triệu Kim An gạt đi ngay, nước tăng lực là một phân khúc ngách khác rồi, hiện tại Red Bull đang một mình một ngựa thống lĩnh thị trường.
 
-Lạc Cẩn Chi đã bay tới Thanh Đảo để hoàn thiện mảnh ghép cuối cùng trong bản đồ nhà máy nước của Trăn Nhiên.
+Lạc Cẩn Chi đã bay ra Thanh Đảo, hoàn thiện mảnh ghép cuối cùng cho hệ thống nhà máy nước của Trăn Nhiên.
 
-Đợi đến khi nhà máy nước Thanh Đảo xây dựng xong xuôi, Trăn Nhiên sẽ sở hữu tổng cộng tám nhà máy nước quy mô lớn. Tính theo thứ tự thời gian lần lượt là: Sâm Thành, Tưởng Gia Ao, Tô Thành, Đông Bắc, Điền Tỉnh, Xuyên Du, Mân Nam và Thanh Đảo.
+Đợi nhà máy ở Thanh Đảo xây xong, Trăn Nhiên sẽ sở hữu tổng cộng tám nhà máy nước, tính theo thứ tự thời gian lần lượt là: Sâm Thành, Tưởng Gia Ao, Tô Thành, Đông Bắc, tỉnh Điền, Xuyên Du, Mân Nam và Thanh Đảo.
 
-Trong đó, Tưởng Gia Ao vẫn luôn là nhà máy nước có quy mô lớn nhất của Trăn Nhiên.
+Trong đó Tưởng Gia Ao vẫn là nhà máy nước lớn nhất của Trăn Nhiên.
 
-Mấy hôm nay, mí mắt của Thẩm Tử Ngôn cứ giật giật liên hồi không dứt.
+Mấy hôm nay mí mắt Thẩm Tử Ngôn cứ giật liên hồi.
 
-Người ta vẫn thường bảo mắt trái giật thì có tài lộc, mắt phải giật ắt gặp tai ương.
+Mắt trái giật tài, mắt phải giật tai.
 
-"Lạ thật, mọi thứ đều bình thường mà. Kim An tuy rằng gánh trên vai khoản vay ngân hàng khổng lồ, nhưng nguồn thu đổ về của cả Trăn Nhiên lẫn Cảng vụ Hoàn Vũ đều vô cùng vững chắc."
+"Không có vấn đề gì đâu mà, Kim An tuy vay ngân hàng rất nhiều, nhưng nguồn thu của Trăn Nhiên và Hoàn Vũ Cảng Vụ vẫn cực kỳ ổn định."
 
-"Chỉ cần duy trì được dòng tiền khỏe mạnh thì công ty tuyệt đối sẽ không xảy ra bất cứ sơ suất nào."
+"Chỉ cần duy trì được dòng tiền khỏe mạnh thì công ty sẽ chẳng gặp rắc rối gì hết."
 
-Thẩm Tử Ngôn ngẫm nghĩ một hồi rồi bấm máy gọi cho Diêu Sân, Diêu Sân bảo mọi chuyện bên Trăn Hối Tuyển đều tiến triển bình thường. Cô lại gọi tiếp cho Lưu Sấm Phong, cuối cùng tiện tay điều động Lý Ngải Lan đi công tác ở Thanh Viễn.
+Thẩm Tử Ngôn nghĩ ngợi một hồi rồi gọi điện cho Diêu Sân, Diêu Sân bảo Trăn Hối Tuyển mọi thứ vẫn bình thường. Cô lại gọi tiếp cho Lưu Sấm Phong, cuối cùng quyết định điều Lý Ngải Lan đi công tác ở Thanh Viễn.
 
-"....."
+"..."
 
-Lý Ngải Lan ngơ ngác chẳng hiểu ất giáp gì, tự dưng mình lại bị biến thành nhân viên giám sát trưng bày thị trường y như Đường Hiểu Tình thế này?
+Lý Ngải Lan ngơ ngác chẳng hiểu mô tê gì, tự dưng sao mình lại giống Đường Hiểu Tình, biến thành giám sát viên trưng bày thị trường thế này?
 
-Người ta còn đang bận học thi lấy bằng lái xe cơ mà!
+Tôi vẫn còn đang học thi bằng lái xe đấy nhé!
 
-Chưa dừng lại ở đó.
+Chuyện vẫn chưa dừng lại ở đó.
 
-Thẩm Tử Ngôn còn gọi điện sang tận nước Úc cho Mạnh Hiến Giang. Mạnh Hiến Giang học cùng lớp kế toán một, Thẩm Tử Ngôn đều quen mặt thuộc tên. Mạnh Hiến Giang cũng báo cáo mọi chuyện đều suôn sẻ, Tập đoàn Nhôm Chinalco đang vận chuyển thiết bị máy móc tới.
+Thẩm Tử Ngôn còn gọi điện cho cả Mạnh Hiến Giang ở tận bên Úc. Mạnh Hiến Giang vốn là bạn học lớp Kế toán 1 nên Thẩm Tử Ngôn biết rõ. Mạnh Hiến Giang cũng báo mọi việc đều ổn thỏa, bên Chinalco đang cho vận chuyển máy móc thiết bị sang rồi.
 
-Nếu tiến hành khai thác, dự kiến phải đợi sau kỳ nghỉ Tết Nguyên đán năm 2010.
+Nếu chính thức khai thác, dự kiến phải đợi qua Tết Nguyên đán năm 2010.
 
-Tuy nhiên, những mẫu quặng sắt mà Chinalco đào thử về kiểm nghiệm đều có phẩm cấp và độ tinh khiết cực kỳ cao. Mạnh Hiến Giang trong điện thoại dặn Thẩm tổng cứ yên tâm, mỏ Kình Bối Sơn bên này không hề xảy ra bất kỳ biến cố ngoài ý muốn nào.
+Tuy nhiên mẫu quặng sắt mà Chinalco mang về xét nghiệm đào thử vài gầu đều đạt chất lượng rất cao. Qua điện thoại, Mạnh Hiến Giang trấn an Thẩm tổng đừng lo lắng, khu vực núi Kình Bối không xảy ra sự cố nào cả.
 
-Mọi thứ đều đang vận hành răm rắp theo đúng kế hoạch.
+Mọi thứ đều đang đi đúng quỹ đạo kế hoạch.
 
-Sau đó, Lâm Xuyên và Lưu Chí Dân cũng thuộc lớp kế toán một đang làm việc tại cảng Piraeus lần lượt gọi điện báo cáo công việc cho Thẩm Tử Ngôn. Họ cho biết cảng Piraeus đang trong giai đoạn khẩn trương xây dựng mở rộng, nhưng tuyệt đối không hề ảnh hưởng đến hoạt động kinh doanh bốc dỡ và trung chuyển container thường nhật.
+Sau đó, Lâm Xuyên và Lưu Chí Dân cũng của lớp Kế toán 1 lần lượt báo cáo công việc với Thẩm Tử Ngôn, cho biết cảng Piraeus đang trong giai đoạn nâng cấp xây dựng nhưng không hề làm gián đoạn hoạt động kinh doanh và trung chuyển container.
 
-Cả vùng Attica lẫn khu vực cảng Piraeus đều không có bất kỳ cuộc đình công nào xảy ra.
+Cả khu vực Attica lẫn cảng Piraeus đều không xảy ra đình công.
 
-Trước khi Lâm Xuyên và Lưu Chí Dân lên đường sang cảng Piraeus, Dư Tĩnh từng đặc biệt căn dặn họ rằng công nhân ở hải ngoại rất hay đình công.
+Trước khi Lâm Xuyên và Lưu Chí Dân lên đường sang cảng Piraeus, cô Dư Tĩnh từng nhắc nhở hai người rằng công nhân nước ngoài rất thích đình công.
 
-Chê chế độ đãi ngộ thấp thì bãi công, bắt tăng ca nhiều một chút cũng đình công, làm lỡ dở bao nhiêu công việc đại sự.
+Chê đãi ngộ thấp cũng đình công, tăng ca nhiều một chút cũng đình công, cực kỳ làm lỡ việc.
 
-Triệu Kim An chưa bao giờ tuyên bố sẽ bồi dưỡng Lâm Xuyên, Lưu Chí Dân hay Mạnh Hiến Giang, thế nhưng cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều ngầm hiểu rằng họ chính là "đích hệ", là lớp cán bộ nòng cốt tương lai mà Triệu Kim An dày công gây dựng trong công ty.
+Triệu Kim An chưa từng nói sẽ bồi dưỡng Lâm Xuyên, Lưu Chí Dân hay Mạnh Hiến Giang, nhưng cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều ngầm hiểu họ chính là "phe thân tín" của Triệu Kim An trong công ty, là lực lượng nòng cốt tương lai.
 
-Có điều, thâm tâm của ba người Lâm Xuyên, Lưu Chí Dân và Mạnh Hiến Giang lại có phần nghiêng về Đường Hiểu Tình hơn. Đường Hiểu Tình xưa nay không màng tranh giành đấu đá, hơn nữa họ lại học chung một lớp, vị trí chỗ ngồi quyết định lập trường.
+Dù vậy, trong thâm tâm Lâm Xuyên, Lưu Chí Dân và Mạnh Hiến Giang vẫn nghiêng về phía Đường Hiểu Tình hơn. Đường Hiểu Tình không tranh không giành, nhưng dù sao họ cũng học chung một lớp, chỗ ngồi quyết định lập trường mà.
 
-Sau khi vào làm việc trong công ty, họ mới thực sự thấu hiểu nội lực và nền tảng của Triệu Kim An thâm sâu đến nhường nào.
+Chỉ khi thực sự vào công ty làm việc, bọn họ mới tận mắt thấy nội lực của Triệu Kim An hùng hậu đến nhường nào.
 
-Cảng Piraeus và cảng Tây Cống chẳng khác nào hai cỗ máy in tiền siêu hạng.
+Cảng Piraeus và cảng Sài Gòn chẳng khác nào hai cỗ máy in tiền khổng lồ.
 
-Hợp đồng thuê khai thác một lần ký dài hạn tới mấy chục năm.
+Ký hợp đồng một phát kéo dài mấy chục năm trời.
 
-Cơ nghiệp này thực sự vượt xa tầm với của mấy cửa hàng trực tuyến bán hàng online của Lưu Sấm Phong hay Lâm Thanh Tuyết. Ngày trước nghe kể Lưu Sấm Phong kiếm được bốn nghìn tệ một ngày, họ còn trầm trồ thán phục nghĩ rằng một ngày kiếm được tận bốn nghìn tệ cơ đấy!
+Mấy thứ này thực sự không phải loại hình bán hàng trên vài cửa hàng trực tuyến của Lưu Sấm Phong hay Lâm Thanh Tuyết có thể đem ra so sánh. Hồi trước nghe Lưu Sấm Phong khoe một ngày kiếm được bốn nghìn tệ, bọn họ còn phải trầm trồ: chà, tận bốn nghìn tệ một ngày cơ đấy!
 
-Nhưng đồng thời, họ cũng hiểu rõ Triệu Kim An đang phải gánh trên lưng khoản nợ ngân hàng khủng khiếp đến mức nào. Mỗi sớm mai thức dậy mở mắt ra, tiền lãi ngân hàng phải trả đã là một con số thiên văn.
+Đồng thời họ cũng biết Triệu Kim An đang gánh khoản nợ ngân hàng lớn tới mức nào, mỗi sáng mở mắt ra là tiền lãi vay phải trả biết bao nhiêu.
 
-Triệu Kim An vừa mới điều chỉnh nhẹ danh mục đầu tư trên thị trường chứng khoán Mỹ, rót thêm hai trăm mười triệu đô-la Mỹ vào cổ phiếu của Apple.
+Triệu Kim An điều chỉnh nhẹ danh mục đầu tư chứng khoán Mỹ, rót thêm hai trăm mười triệu đô la Mỹ vào cổ phiếu Apple.
 
-"Kiếm tiền sữa bột cho con thôi."
+"Tiền sữa bỉm cả đấy."
 
-Sắp sửa được làm cha, dù Triệu Kim An không để lộ cảm xúc ra ngoài mặt, nhưng sâu thẳm trong lòng anh vẫn tràn trề nỗi mong mỏi hân hoan.
+Sắp được làm bố rồi, dù ngoài mặt Triệu Kim An không biểu lộ sự vui mừng ra mặt, nhưng trong lòng vẫn dâng lên niềm mong ngóng khôn tả.
 
-Không chỉ có mỗi tiền sữa bột, sau này đầu tư không thể cứ mãi bòn rút từ Trăn Nhiên được nữa, tốc độ kiếm tiền của Trăn Nhiên dù sao cũng có giới hạn.
+Không chỉ vì tiền sữa bỉm, sau này đi đầu tư không thể cứ mãi rút ruột từ Trăn Nhiên được, tốc độ kiếm tiền của Trăn Nhiên không nhanh đến thế.
 
-Chỉ có thể kết hợp nhịp nhàng giữa đòn bẩy vay vốn ngân hàng và nguồn tiền túi tự thân. Khi quy mô công ty ngày một phình to, dòng vốn xoay vần đảo qua đảo lại giữa các dự án, người ngoài nhìn vào mới không thể nào nắm bắt được tường tận, cũng chẳng nảy sinh nghi ngờ về dòng tiền.
+Chỉ có thể kết hợp giữa vay vốn ngân hàng và tự bỏ tiền túi, công ty càng phình to, dòng tiền luân chuyển qua lại chằng chịt thì người ngoài mới không thể lần ra manh mối, cũng chẳng dễ nghi ngờ tính hợp lý của dòng vốn.
 
-Từ Mạn Mạn từng nói sau này không muốn quá khắt khe nghiêm khắc với con cái. Cô chưa từng nghĩ cho Triệu Kim An, liệu có phải cô sợ Triệu Kim An sẽ giống như Từ Tắc Đống, vì cơ nghiệp đồ sộ của mình mà từ nhỏ đã áp đặt lên đứa trẻ những đòi hỏi nghiêm khắc đến nghẹt thở?
+Từ Mạn Mạn bảo sau này cô không muốn quá nghiêm khắc với con cái. Chẳng biết cô có nghĩ tới Triệu Kim An không, hay là sợ Triệu Kim An cũng giống Từ Tắc Đống, vì cơ nghiệp của mình mà rèn giũa con cái khắc nghiệt ngay từ tấm bé?
 
 Ở một diễn biến khác.
 
-Thím Vương Kim Như đã đặt chân tới đất Quận Sa.
+Vương Kim Như đã đặt chân tới Quận Sa.
 
-Vừa nhận được tin, Triệu Kim An lập tức gác lại toàn bộ công việc bề bộn, vội vã lái xe tới đón thím.
+Triệu Kim An lập tức gác lại toàn bộ công việc để đi đón thím út.
 
-Từ Mạn Mạn ở trên căn hộ hoàn toàn không hay biết gì về sự xuất hiện của thím.
+Từ Mạn Mạn ở trên lầu hoàn toàn không hay biết Vương Kim Như đã tới.
 
-Bãi đỗ xe dưới tầng hầm.
+Dưới hầm để xe.
 
-Vương Kim Như đang sang sảng chỉ huy Đơn Vỹ và Quan Văn Bách chuyển đồ đạc xuống xe, phong thái của một vị "Vương quản lý" oai phong lẫm liệt vô cùng.
+Vương Kim Như đứng chỉ tay năm ngón sai bảo Đan Vĩ và Quan Văn Bách khuân đồ, dáng vẻ "Quản lý Vương" ra oai hết sức.
 
-Triệu Kim An nhấn ga với tốc độ nhanh nhất có thể lao xe tới.
+Triệu Kim An lái xe chạy tới với tốc độ nhanh nhất có thể.
 
-"Thím ơi!"
+"Thím à!"
 
-Vương Kim Như liếc xéo một cái, chẳng thèm đoái hoài gì tới thằng cháu trai trời đánh này.
+Vương Kim Như lườm anh một cái, chẳng buồn thèm đáp lời thằng cháu trời đánh này.
 
-"Kiểm tra xem, đá ướp đã tan hết chưa đấy?"
+"Kiểm tra xem đá lạnh trong thùng đã tan hết chưa?"
 
-"....."
+"..."
 
-Đơn Vỹ và Quan Văn Bách im như thóc không dám hé răng nửa lời, cặm cụi khuân từng bao lớn túi nhỏ từ trong cốp xe bước xuống.
+Đan Vĩ và Quan Văn Bách im thin thít, lúi húi xách từng túi to túi nhỏ từ cốp xe xuống.
 
-"Thím..."
+"Thím ơi..."
 
-Triệu Kim An rảo bước lại gần, nở một nụ cười nịnh nọt lấy lòng.
+Triệu Kim An bước tới, nịnh nọt nhoẻn miệng cười với Vương Kim Như.
 
-Đến lúc này Vương Kim Như mới không nhịn nổi nữa, vung chiếc túi xách đập tới tấp vào người Triệu Kim An: "Nói mau! Mày đã làm cái trò quái quỷ gì ở ngoài hả?"
+Lúc này Vương Kim Như mới vung túi xách đập thẳng vào người Triệu Kim An: "Nói mau, mày đã làm cái trò trống gì thế hả?"
 
-"Cháu... cháu làm tra nam rồi ạ."
+"Cháu lỡ làm tra nam rồi."
 
-"Tra nam này! Cho mày làm tra nam này!..."
+"Tra nam này, tra nam này..."
 
-Vương Kim Như vung túi nện thêm mấy phát nữa. Triệu Kim An cứ đứng trơ ra cười hì hì, không né cũng chẳng tránh.
+Vương Kim Như vung túi quất thêm hai cái nữa, Triệu Kim An vẫn chỉ cười trừ, đứng im không né không tránh.
 
-"Mày còn cười được nữa cơ à!"
+"Còn cười được nữa à!"
 
-Nhìn cái điệu bộ nhăn nhở của thằng cháu trai, Vương Kim Như vừa giận vừa tức đến bật cười theo.
+Nhìn bộ dạng của thằng cháu, Vương Kim Như tức đến mức tự mình bật cười thành tiếng.
 
-"....."
+"..."
 
-Đơn Vỹ và Quan Văn Bách vờ như không nhìn thấy gì. Người thím này quả thực quá đỗi lợi hại!
+Đan Vĩ và Quan Văn Bách coi như mù tạm thời, trong bụng thầm phục thím út đúng là quá ngầu.
 
-"Người đâu rồi?"
+"Con bé đâu rồi?"
 
-"Đang ở trên nhà ạ."
+"Đang ở trên lầu ạ."
 
-"Lần sau cấm tiệt không được làm cái trò đấy nữa nghe chưa!"
+"Lần sau cấm có làm cái trò đó nữa nghe chưa!"
 
 "Sao thím không tự lái xe lên đây?"
 
-Triệu Kim An khéo léo lái sang chuyện khác. Đơn Vỹ và Quan Văn Bách nghe vậy liền hiểu ngay. Vương Kim Như tức tối phân trần: "Chú mày bảo tao mới học lái xe, chạy đường cao tốc không an toàn."
+Triệu Kim An khéo léo đánh trống lảng. Đan Vĩ và Quan Văn Bách nghe thế dường như cũng hiểu ra vấn đề. Vương Kim Như tức tối đáp: "Chú mày bảo thím mới tập lái, chạy đường cao tốc không an toàn."
 
-"Thế còn bà nội đâu ạ?"
+"Thế bà nội đâu ạ?"
 
-"Bà nội mày say xe, để sau rồi tính. Với lại con bé Thiên Thiên còn đang phải đi học nữa."
+"Bà nội mày bị say xe, để dịp khác tính, vả lại con Thiên Thiên còn đang đi học."
 
-"Thì thím xin phép cho em nó nghỉ học mấy hôm."
+"Thì xin cho Thiên Thiên nghỉ phép."
 
-"Lên lớp ba rồi mà còn đòi xin nghỉ học là sao?"
+"Học lớp ba rồi còn xin nghỉ phép cái nỗi gì?"
 
-Trên căn hộ.
+Trên lầu.
 
-Từ Mạn Mạn hai tay nâng một ly sữa ấm dành cho bà bầu, lưng ngồi thẳng tắp trước màn hình máy vi tính. Ngay từ lúc còn ở Thượng Hải, Triệu Kim An đã ngầm đồng ý cho phép Từ Mạn Mạn được quyền truy cập vào hòm thư điện tử công việc của anh.
+Từ Mạn Mạn bưng một cốc sữa bầu nóng hổi, ngồi thẳng lưng trước bàn máy tính. Từ hồi còn ở Thượng Hải, Triệu Kim An đã ngầm cho phép Từ Mạn Mạn xem hòm thư công việc của mình.
 
-Hòm thư này không chỉ chứa các báo cáo của Trăn Hối Tuyển, mà còn bao quát cả Trăn Nhiên lẫn Cảng vụ Hoàn Vũ.
+Trong hòm thư này không chỉ có việc của Trăn Hối Tuyển, mà còn cả thông tin của Trăn Nhiên lẫn Hoàn Vũ Cảng Vụ.
 
-"Cạch ——"
+"Cạch..."
 
-Nghe thấy tiếng tra mật mã mở cửa, Từ Mạn Mạn vội vàng đứng dậy bước ra đón: "Kim An..."
+Nghe thấy tiếng mở khóa mật mã ngoài cửa, Từ Mạn Mạn đứng dậy bước ra: "Kim An..."
 
-Thế rồi, cô chết sững tại chỗ.
+Rồi cô khựng hẳn người lại.
 
-"Ối dồi ôi, đây là Từ tổng đấy à?"
+"Ối chà, đây là Từ tổng đấy phải không?"
 
-Vương Kim Như bật cười sang sảng sảng khoái: "Hahaha, tôi là Vương quản lý đây, thím của thằng Kim An!"
+Vương Kim Như cười giòn tan sảng khoái: "Hahaha, thím là Quản lý Vương, thím út của thằng Kim An đây!"
 
-"....."
+"..."
 
-Triệu Kim An mặt đầy hắc tuyến: "Thím ơi, hai người hết Từ tổng lại đến Vương quản lý thế này..."
+Triệu Kim An tối sầm mặt mày: "Thím à, hai người cứ Từ tổng với Quản lý Vương..."
 
-"Đi ra chỗ khác, không có việc của mày! Xách hết đồ đạc vào trong bếp mau lên, cái gì cần tống vào tủ lạnh thì nhét hết vào!"
+"Đi ra chỗ khác, không tới lượt mày nói. Xách đống đồ này vào bếp đi, thứ nào cần cất tủ lạnh thì bỏ vào ngay."
 
-"....."
+"..."
 
-Triệu Kim An ngoan ngoãn vâng lời, nuốt ngược câu "Cháu vẫn là Triệu tổng cơ mà" vào trong bụng.
+Triệu Kim An ngoan ngoãn nghe lời, nuốt ngược câu "Cháu vẫn là Triệu tổng đấy nhé" vào trong bụng.
 
-Đơn Vỹ và Quan Văn Bách lại càng răm rắp tuân lệnh. Người thím này uy quyền ngút trời, quả thực còn uy hơn cả mẹ đẻ!
+Đan Vĩ và Quan Văn Bách còn biết điều hơn nữa, đây đâu phải thím nữa? Uy quyền còn hơn cả mẹ ruột ấy chứ!
 
-Vương Kim Như bước lại gần kéo gần khoảng cách: "Từ tổng này, ngày trước gọi điện thoại cô có thiếu lần nào gọi tôi là thím đâu chứ."
+Vương Kim Như nhanh chóng bắt chuyện làm thân: "Từ tổng à, hồi trước gọi điện thoại cháu chẳng gọi thím suốt còn gì."
 
-Trong đầu Triệu Kim An bất giác hiện lên một cụm từ: bậc thầy giao tiếp ngoại giao thiên bẩm!
+Trong đầu Triệu Kim An chợt nảy ra một từ: hướng ngoại cấp độ thần.
+
+"Thím ạ..."
+
+Từ Mạn Mạn lễ phép đứng yên tại chỗ, nhìn Đan Vĩ và Quan Văn Bách xách từng túi to túi nhỏ đi vào nhà.
+
+"Chà, không ngờ ngoài đời còn xinh đẹp thế này."
+
+Vương Kim Như gật gù hài lòng, thế này thì đứa bé sinh ra chắc chắn xinh xắn lắm. Bà cười xòa vẻ chẳng có gì to tát: "Toàn là gà vịt nhà tự nuôi cả đấy, bà nội của Kim An bắt thím mang lên cho cháu bồi bổ, để thím vào hầm ngay nồi canh gà cho cháu uống."
 
 "Thím..."
 
-Từ Mạn Mạn đứng chôn chân tại chỗ, đôi mắt trong veo ngơ ngác nhìn Đơn Vỹ và Quan Văn Bách đang tay xách nách mang từng bọc lớn bọc nhỏ tha lôi vào nhà.
+Với Vương Kim Như thì đây là chuyện hết sức bình thường, đương nhiên phải thế.
 
-"Chà, không ngờ người thật lại xinh xắn đến mức này!"
+Nhưng Từ Mạn Mạn lại cảm động đến nghẹn ngào, bàn tay cô bất giác cấu mạnh vào đùi mình.
 
-Vương Kim Như nhìn Từ Mạn Mạn mà lòng dạ mở cờ, đứa trẻ sinh ra mai sau chắc chắn sẽ khôi ngô tuấn tú lắm đây. Bà xua tay cười xởi lởi: "Toàn là gà vịt tự tay nhà nuôi cả đấy. Bà nội thằng Kim An cứ nằng nặc bắt tao phải mang lên cho bằng được để tẩm bổ cho mày dưỡng thai. Để tao vào bếp hầm cho mày nồi canh gà béo ngậy nhé."
-
-"Thím..."
-
-Đối với Vương Kim Như, những thứ này là lẽ đương nhiên, chẳng có gì to tát.
-
-Thế nhưng Từ Mạn Mạn lại xúc động đến nghẹn ngào. Bàn tay cô bất giác đưa xuống nhéo mạnh vào đùi mình một cái.
-
-Nhéo cho tới khi thấy đau điếng.
+Cấu đến mức đau điếng mới thôi.
 
 "Cháu cảm ơn thím ạ."
 
-Từ Mạn Mạn nghẹn ngào thốt lên từng lời vô cùng chân thành.
+Từ Mạn Mạn nói với giọng chân thành tha thiết.
 
-"Cảm ơn cái gì mà cảm ơn!?"
+"Cảm ơn á?!"
 
-Vương Kim Như thoáng ngẩn người, vội xua tay: "Mau ra ghế sofa ngồi nghỉ ngơi đi cháu! Còn có cả hạt dẻ mày thích ăn nữa đấy, lát nữa thím làm món hạt dẻ hầm thịt gà. Vịt lạp với thịt hun khói không biết mày có ăn quen miệng không, thôi thì cứ tiện thể mang hết lên đây.
+Vương Kim Như sững người một giây rồi xua tay lia lịa: "Cháu ra ghế sofa ngồi nghỉ đi, thím còn mang cả hạt dẻ cháu thích ăn nữa đấy, gà hầm hạt dẻ, rồi vịt khô thịt hun khói, chẳng biết cháu có thích không nhưng thím cứ mang hết lên đây."
 
-Dân quê chúng tao chỉ có mấy thứ mộc mạc cây nhà lá vườn này thôi. Sau này thèm ăn món gì thì cứ việc ới một tiếng, đằng nào Trăn Hối Tuyển chẳng có xe tải chạy về thôn Triệu Gia gom hàng, tao với bà nội mày..."
+"Dưới quê chỉ có mấy thứ cây nhà lá vườn này thôi, sau này cháu thèm ăn gì cứ bảo một tiếng, đằng nào xe tải của Trăn Hối Tuyển cũng chạy về Triệu Gia Thôn suốt, để thím với bà nội cháu..."
 
-Vừa nói, Vương Kim Như bỗng chợt nhận ra Từ Mạn Mạn nãy giờ vẫn đứng thẳng đuỗn như pho tượng giữa phòng.
+Đang nói thao thao bất tuyệt, Vương Kim Như chợt nhận ra Từ Mạn Mạn nãy giờ vẫn đứng thẳng đơ như tượng.
 
-"Mày ngồi xuống đi chứ, đứng mãi đấy làm cái gì? Không cần mày phải động tay vào việc gì đâu!"
-
-"Vâng ạ."
-
-Từ Mạn Mạn liền bước lại ghế sofa, lưng thẳng tắp ngồi ngay ngắn xuống đệm.
-
-Đơn Vỹ và Quan Văn Bách đã bắt đầu lúi húi bận rộn trong gian bếp, tay nghề nấu nướng của hai người này đều thuộc hàng cự phách. Vương Kim Như miệng lẩm bẩm dặn dò không ngớt, vừa rửa tay sạch sẽ bước ra nhìn thấy dáng ngồi của Từ Mạn Mạn trên ghế sofa thì không khỏi ngẩn tò te.
-
-Xinh thì quả là xinh đẹp xuất chúng thật đấy, nhưng sao trông cứ gượng gạo kỳ kỳ thế nào ấy nhỉ.
-
-"Mạn Mạn này, cháu đừng có căng thẳng quá làm gì, không cần phải ngồi ngay đơ thẳng đuỗn như thế đâu."
+"Cháu ngồi xuống đi chứ, đứng đấy làm gì? Không phải động tay động chân gì đâu!"
 
 "Dạ."
 
-Từ Mạn Mạn lúc này luống cuống đến mức chẳng biết phải ngồi thế nào cho phải, trong lòng cô đang cuộn trào từng đợt sóng cảm xúc mãnh liệt: Bà nội đã biết chuyện rồi, thím cũng đã đích thân lặn lội lên tận đây rồi!
+Từ Mạn Mạn liền ngồi xuống ghế sofa với tấm lưng thẳng tắp.
 
-"....."
+Đan Vĩ và Quan Văn Bách đã vào bếp lục đục trước, cả hai người họ nấu ăn đều rất khéo. Vương Kim Như miệng vẫn liến thoắng không ngừng, rửa tay xong đi ra nhìn Từ Mạn Mạn đang ngồi trên sofa.
 
-Vương Kim Như vừa vẩy vẩy tay vừa ngoái cổ nhìn lại, rồi quay bước đi vào bếp.
+Xinh thì xinh thật đấy, nhưng sao cứ thấy sai sai ở chỗ nào ấy nhỉ.
 
-Một lát sau bước ra, thấy Từ Mạn Mạn vẫn giữ nguyên tư thế ngồi nghiêm trang như tượng đồng ấy.
-
-"Cái đó... nếu cháu không muốn ngồi thì cứ đứng dậy đi đi lại lại một chút cho thư thái, đi lại nhiều rất tốt cho thai nhi đấy."
+"Mạn Mạn à, cháu đừng căng thẳng thế, không cần phải ngồi thẳng lưng như thế đâu."
 
 "Dạ."
 
-Từ Mạn Mạn lại ngoan ngoãn đứng dậy, nhưng đứng cũng đứng thẳng tắp, đoan trang mực thước y như lúc nãy.
+Từ Mạn Mạn nhất thời lúng túng chẳng biết phải ngồi tư thế nào cho phải, trong lòng cô đang cuộn trào từng đợt sóng cảm xúc: Bà nội biết rồi, thím út cũng đích thân lên đây rồi!
 
-"....."
+"..."
 
-Vương Kim Như hoàn toàn cạn lời, con bé Mạn Mạn này rốt cuộc là bị làm sao thế này không biết...
+Vương Kim Như vẩy vẩy tay, vừa ngoái đầu nhìn vừa đi vào bếp.
+
+Một lát sau bước ra, bà vẫn thấy Từ Mạn Mạn ngồi nguyên tư thế cũ không nhúc nhích.
+
+"Cái kia... nếu cháu không muốn ngồi thì đứng dậy đi đi lại lại cho thư giãn, vận động nhẹ tốt cho thai nhi lắm đấy."
+
+"Dạ."
+
+Từ Mạn Mạn lại đứng dậy ngay, mà đến lúc đứng cũng giữ dáng vẻ đoan trang nghiêm chỉnh hết sức.
+
+"..."
+
+Vương Kim Như bó tay thật sự, con bé Mạn Mạn này bị làm sao thế không biết

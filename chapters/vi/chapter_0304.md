@@ -1,7 +1,5 @@
 # Chương 304: Không một ai tung ảnh
 
-> **Tiêu đề gốc**: 第304章 没有人爆照。
-
 Cô bạn cùng phòng hạ thấp giọng thì thào: "Tụi mày không lướt mạng nội bộ của trường à? Cái chuỗi siêu thị Trăn Hối Tuyển mà ban nãy tụi mình vừa nhắc tới cũng là của anh ấy mở đấy..."
 
 Hai cô bạn còn lại trố tròn hai mắt: ⊙▂⊙

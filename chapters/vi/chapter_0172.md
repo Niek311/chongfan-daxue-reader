@@ -1,7 +1,5 @@
 # Chương 172: Xóa đói giảm nghèo
 
-> **Tiêu đề gốc**: 第172章 脱贫致富。
-
 Rời khỏi nhà Triệu Kim An, Doãn Hiểu Lan siết chặt xấp tiền trong tay, suốt dọc đường chỉ biết cúi gằm mặt bước đi.
 
 Trở về phòng ngủ của mình, cô cẩn thận ngồi đếm lại từng tờ, tròn bốn nghìn ba trăm tệ.

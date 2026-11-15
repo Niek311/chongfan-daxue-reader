@@ -1,22 +1,20 @@
 # Chương 506: Tái ngộ
 
-> **Tiêu đề gốc**: 第506章 再次聚首。
-
 Xưởng sản xuất của Lâm Thanh Tuyết và Phương Khiết đang tăng ca thâu đêm suốt sáng, liên tục cập nhật mẫu mã mới, theo dõi sát sao dữ liệu hệ thống để kịp thời điều chỉnh giá bán. Các nhân viên thuộc bộ phận thương mại điện tử thi nhau gõ phím tanh tách, hồi hộp đếm từng lượt khách bấm thêm sản phẩm vào giỏ hàng, chỉ chờ đến đúng ngày đại tiệc mua sắm Lễ Độc thân "Song Thập Nhất" là đồng loạt bùng nổ doanh số.
 
 Mộc Dao đã dọn khỏi khách sạn, chuyển về căn hộ cao cấp mà cô vừa mua ở Quận Sa.
 
 Đó là một căn hộ thông tầng sang trọng rộng tới 268 mét vuông, chỉ có một mình cô lẻ bóng đi về. Bản thân cô cũng đang ráo riết dốc toàn lực chuẩn bị cho trận đánh lớn Song Thập Nhất này.
 
-Trương Vân Thiến túc trực giám sát ở nhà xưởng Dương Thành, còn bà Trương Huệ thì lặn lội lên Quận Sa chăm sóc con gái. Thấy con gái cuối cùng cũng chịu về nước, lòng người làm mẹ mừng rỡ khôn xiết. Buổi tối bà nằm ngủ cùng phòng với con, nhưng việc đầu tiên bà làm là lặng lẽ cất chiếc gạt tàn trên bàn trang điểm giấu đi.
+Trương Vân Thiến túc trực giám sát ở nhà xưởng Dương Thành, còn bà Trương Tuệ thì lặn lội lên Quận Sa chăm sóc con gái. Thấy con gái cuối cùng cũng chịu về nước, lòng người làm mẹ mừng rỡ khôn xiết. Buổi tối bà nằm ngủ cùng phòng với con, nhưng việc đầu tiên bà làm là lặng lẽ cất chiếc gạt tàn trên bàn trang điểm giấu đi.
 
-Trương Huệ ân cần vỗ về rồi hỏi han: "Dao Dao à, đợt Song Thập Nhất này công ty con nhắm kiếm được chừng bao nhiêu?"
+Trương Tuệ ân cần vỗ về rồi hỏi han: "Dao Dao à, đợt Song Thập Nhất này công ty con nhắm kiếm được chừng bao nhiêu?"
 
 Mộc Dao với tay lấy bao thuốc lá đặt trên bàn, tìm quanh không thấy gạt tàn đâu, liền buông một câu bình thản: "Mục tiêu là bốn mươi triệu tệ, để xem có rướn lên nổi năm mươi triệu không mẹ ạ."
 
 "Nhiều đến thế cơ á!?"
 
-Trương Huệ nghe mà ngỡ như đang nghe những con số từ trên trời rơi xuống. Đứa con gái bé bỏng của bà giờ đây đã kiếm tiền giỏi đến mức này rồi sao?
+Trương Tuệ nghe mà ngỡ như đang nghe những con số từ trên trời rơi xuống. Đứa con gái bé bỏng của bà giờ đây đã kiếm tiền giỏi đến mức này rồi sao?
 
 Ở kiếp này, Mộc Dao chắc chắn kiếm được nhiều tiền hơn kiếp trước gấp bội. Hiệu ứng cánh bướm mà Triệu Kim An tạo ra đã kéo theo vận mệnh của tất cả những người xung quanh anh từng bước chuyển mình biến đổi.
 
@@ -26,7 +24,7 @@ Mộc Dao điềm tĩnh giải thích: "Chưa thấm vào đâu đâu mẹ, đ�
 
 "Mẹ nhìn mấy chiếc điện thoại thông minh chúng ta đang cầm trên tay này xem. Có khi chỉ chừng hai năm nữa thôi, các thương hiệu hàng đầu trong một dịp Song Thập Nhất kiếm được hai, ba tỷ tệ mỗi mùa cũng là điều hoàn toàn nằm trong tầm tay."
 
-Trương Huệ lặng người ngắm nhìn con gái thật lâu. Đứa con gái ngày nào giờ mở miệng ra toàn là tiền chục triệu, tiền trăm triệu.
+Trương Tuệ lặng người ngắm nhìn con gái thật lâu. Đứa con gái ngày nào giờ mở miệng ra toàn là tiền chục triệu, tiền trăm triệu.
 
 "Dao Dao, liệu hai nhãn hàng Vân Thoa với Giản Mộ của con có thể vươn lên thành thương hiệu lớn mang tầm quốc tế được không con?"
 
@@ -36,7 +34,7 @@ Mộc Dao khẽ bật cười tự giễu: "Gần như là không có cửa đâ
 
 Yên lặng một lát.
 
-Trương Huệ lại ngập ngừng hỏi tiếp: "Thế trung tâm thương mại của Kim An khai trương... con có gửi lẵng hoa chúc mừng không?"
+Trương Tuệ lại ngập ngừng hỏi tiếp: "Thế trung tâm thương mại của Kim An khai trương... con có gửi lẵng hoa chúc mừng không?"
 
 "Con gửi một đôi rồi ạ."
 
@@ -44,13 +42,13 @@ Mộc Dao khẽ thở dài: "Mẹ, mẹ lấy lại cái gạt tàn cho con đi,
 
 "..."
 
-Trương Huệ há miệng định khuyên răn, nhưng rồi lại nuốt ngược vào trong. Bà lẳng lặng bước ra ngoài lấy gạt tàn mang vào.
+Trương Tuệ há miệng định khuyên răn, nhưng rồi lại nuốt ngược vào trong. Bà lẳng lặng bước ra ngoài lấy gạt tàn mang vào.
 
-Đứng nhìn phòng khách thênh thang, nội thất bài trí trang nhã tinh tế, toàn đồ gia dụng cao cấp đắt tiền, Trương Huệ khẽ thở dài một tiếng xót xa. Bà đã cố gắng hết sức không nhắc tới ba chữ Triệu Kim An trước mặt con rồi. Ngày trước, Mộc Dao hút thuốc lúc nào cũng len lén giấu giếm sau lưng cha mẹ.
+Đứng nhìn phòng khách thênh thang, nội thất bài trí trang nhã tinh tế, toàn đồ gia dụng cao cấp đắt tiền, Trương Tuệ khẽ thở dài một tiếng xót xa. Bà đã cố gắng hết sức không nhắc tới ba chữ Triệu Kim An trước mặt con rồi. Ngày trước, Mộc Dao hút thuốc lúc nào cũng len lén giấu giếm sau lưng cha mẹ.
 
 Thế mà chuyến này từ Hàn Quốc trở về, con bé đã dám thản nhiên châm thuốc hút ngay trước mặt mẹ mình.
 
-Một đứa con gái từng ngoan ngoãn, nhu mì biết bao... giờ đây ngón tay kẹp điếu thuốc lá phì phèo, đôi môi thoa son đỏ rực rỡ đến chói mắt. Nhìn cảnh tượng ấy, lồng ngực Trương Huệ thắt lại, đau nhói từng cơn.
+Một đứa con gái từng ngoan ngoãn, nhu mì biết bao... giờ đây ngón tay kẹp điếu thuốc lá phì phèo, đôi môi thoa son đỏ rực rỡ đến chói mắt. Nhìn cảnh tượng ấy, lồng ngực Trương Tuệ thắt lại, đau nhói từng cơn.
 
 Tại Tô Thành.
 
@@ -126,7 +124,7 @@ Vào cuối năm 2010, khu vực Hà Tây của Quận Sa chưa phải chịu s�
 
 Chuyến này về, hắn chẳng đi gặp bất kỳ ai.
 
-Hắn không tới tìm gặp Từ Tắc Đống và Lương Huệ Trân, không ghé chào Trần Cẩm Thu hay Mạnh Song Viên, và càng không đi tìm Từ Mạn Mạn hay Lâm Thanh Tuyết.
+Hắn không tới tìm gặp Từ Tắc Đống và Lương Tuệ Trân, không ghé chào Trần Cẩm Thu hay Mạnh Song Viên, và càng không đi tìm Từ Mạn Mạn hay Lâm Thanh Tuyết.
 
 Trần Trạch đã nhẩm tính rất kỹ: Với mức giá bán 5.000 tệ một mét vuông hiện tại, nhân với 6.000 căn hộ, tổng doanh số bán hàng của toàn bộ dự án này có thể cán mốc 3 tỷ tệ.
 

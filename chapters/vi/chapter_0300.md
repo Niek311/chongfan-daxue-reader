@@ -1,7 +1,5 @@
 # Chương 300: Bỏ phiếu bằng container
 
-> **Tiêu đề gốc**: 第300章 用集装箱投票。
-
 Đoạn Thu Bình và Tống Siêu Văn cùng chung tay dốc sức vì một gia đình là lẽ đương nhiên, và chắc chắn Tống Siêu Văn là người phải gánh vác nhiều hơn, vất vả cực nhọc hơn. Triệu Kim An thừa nhận bản thân có tiêu chuẩn kép, nhưng con người ta sống trên đời vốn dĩ ai mà chẳng có lúc mang tiêu chuẩn kép như vậy. Triệu Kim An chỉ xót xa cho mỗi một mình Đoạn Thu Bình, còn Tống Siêu Văn sống chết sướng khổ ra sao, đó là bổn phận của Tống Uyển Hòa và Tống Gia Nguyệt.
 
 Những đạo lý sâu xa này, một đứa bé còn quá nhỏ như Tống Gia Nguyệt căn bản chưa thể nào hiểu thấu được.

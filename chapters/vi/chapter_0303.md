@@ -1,7 +1,5 @@
 # Chương 303: Vợ kiếp trước bị chặn đường
 
-> **Tiêu đề gốc**: 第303章 上一世的妻子被挡住了去路。
-
 "Ba người phụ nữ này phát điên rồi sao?"
 
 "Mạn Mạn bình thường đâu phải kiểu người như thế."

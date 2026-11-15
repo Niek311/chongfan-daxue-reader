@@ -1,7 +1,5 @@
 # Chương 53: Ông chủ mới
 
-> **Tiêu đề gốc**: 第53章 新老板。
-
 "Chưa kịp mua trà à?"
 
 Triệu Kim An liếc nhìn chiếc cốc thủy tinh, đoán chừng trong nhà cũng không chuẩn bị sẵn cốc giấy dùng một lần, bởi nơi này bình thường vốn dĩ chẳng có khách khứa nào ghé thăm.
@@ -136,9 +134,9 @@ Khu Đại học thành này có quá nhiều triệu phú ngầm, chưa nói đ
 
 Triệu Chí Dũng phải gọi tới không dưới năm mươi cuộc điện thoại, Triệu Kim An mới rảnh rỗi thu xếp thời gian ra ngoài tụ tập. Vương Duy Đào dịp Quốc khánh cũng không về quê nên Triệu Kim An gọi luôn cậu ta đi cùng.
 
-Còn có cả Du Phỉ nữa.
+Còn có cả Du Phi nữa.
 
-Thực tế Du Phỉ và Triệu Chí Dũng đã sớm có một buổi họp mặt bạn học cấp ba ở ngay khu Đại học thành này rồi.
+Thực tế Du Phi và Triệu Chí Dũng đã sớm có một buổi họp mặt bạn học cấp ba ở ngay khu Đại học thành này rồi.
 
 Triệu Chí Dũng kể hôm đó Mộc Dao cũng tới, Mộc Dao còn hào phóng bao trọn gói bữa ăn cho tất cả bạn bè ở nhà ăn sinh viên, chỉ vì Điền Vũ Hạo bên trường Lâm Nghiệp và Lý Lợi bên trường Nông Nghiệp cứ cạnh khóe bảo: "Chẳng phải Triệu Kim An cũng học ở khu Đại học thành này sao? Có phải cậu ta sợ bọn này bắt khao một bữa nên mới trốn biệt tăm không dám ló mặt ra không?"
 
@@ -154,13 +152,13 @@ Triệu Kim An vốn không ham hố rượu chè nên luôn nhận chân dọn 
 
 Vương Duy Đào không rõ thực hư gia cảnh của Triệu Kim An, chỉ biết anh có một bà chị họ lái Range Rover cực kỳ oai phong.
 
-Du Phỉ liếc nhìn bảng giá trên tường một cái, liền lẳng lặng bước nhanh về phía quầy thu ngân.
+Du Phi liếc nhìn bảng giá trên tường một cái, liền lẳng lặng bước nhanh về phía quầy thu ngân.
 
 Cô biết rõ hoàn cảnh gia đình của Triệu Kim An và Triệu Chí Dũng, định bụng sẽ thanh toán trước hóa đơn bữa ăn này.
 
 Triệu Kim An lập tức đứng dậy bước theo sau, cất giọng ngăn lại: "Để tớ, cậu cứ về bàn ăn đi."
 
-Du Phỉ từng cho Triệu Kim An vay tiền, dù sau đó anh đã trả lại đủ kèm ba trăm tệ tiền lãi, nhưng món ân tình sâu nặng ấy Triệu Kim An vẫn luôn khắc cốt ghi tâm. Mấy ai có thể dốc cạn toàn bộ vốn liếng bốn nghìn sáu trăm tệ tích cóp được để cho người khác vay mà không mảy may do dự chứ?
+Du Phi từng cho Triệu Kim An vay tiền, dù sau đó anh đã trả lại đủ kèm ba trăm tệ tiền lãi, nhưng món ân tình sâu nặng ấy Triệu Kim An vẫn luôn khắc cốt ghi tâm. Mấy ai có thể dốc cạn toàn bộ vốn liếng bốn nghìn sáu trăm tệ tích cóp được để cho người khác vay mà không mảy may do dự chứ?
 
 Triệu Chí Dũng thì chẳng bận tâm đến mấy chuyện tiền nong này, tiền của hắn với Triệu Kim An từ lâu đã không phân biệt của ai với ai, huống hồ dịp hè vừa rồi hai đứa kiếm được cả một món hời lớn.
 
@@ -168,12 +166,12 @@ Quay lại bàn ăn, Triệu Kim An thò chân dưới gầm bàn đá nhẹ Tri
 
 Vương Duy Đào nhét đầy mồm thịt nướng, nhìn hai người với ánh mắt hơi kỳ lạ.
 
-Du Phỉ khẽ bật cười, giải thích: "Theo vai vế ở quê thì Triệu Chí Dũng phải gọi Kim An bằng chú đấy."
+Du Phi khẽ bật cười, giải thích: "Theo vai vế ở quê thì Triệu Chí Dũng phải gọi Kim An bằng chú đấy."
 
 Vương Duy Đào nghe thế liền cười ha hả, vòng tay khoác vai Triệu Chí Dũng trêu chọc: "Thế thì tao cũng là chú của mày rồi cháu ơi!"
 
-Bốn người ngồi quanh chiếc bàn dài, Du Phỉ ngồi cùng một dãy với Triệu Kim An. Mối quan hệ giữa hai người họ, đừng nói là Triệu Chí Dũng, mà ngay cả Vương Duy Đào cũng không hề buông lời trêu ghẹo ghép đôi. Cậu ta chỉ cần nhìn qua một cái là nhận ra ngay Triệu Kim An và Du Phỉ hoàn toàn chỉ là mối quan hệ bạn bè cấp ba trong sáng, thuần túy.
+Bốn người ngồi quanh chiếc bàn dài, Du Phi ngồi cùng một dãy với Triệu Kim An. Mối quan hệ giữa hai người họ, đừng nói là Triệu Chí Dũng, mà ngay cả Vương Duy Đào cũng không hề buông lời trêu ghẹo ghép đôi. Cậu ta chỉ cần nhìn qua một cái là nhận ra ngay Triệu Kim An và Du Phi hoàn toàn chỉ là mối quan hệ bạn bè cấp ba trong sáng, thuần túy.
 
-Đưa mắt nhìn chàng trai đang ngồi ngay bên cạnh mình, Du Phỉ bỗng nhớ lại những lời mẹ cô - bà Lưu Văn Tinh đã từng nói vào hôm nhập học:
+Đưa mắt nhìn chàng trai đang ngồi ngay bên cạnh mình, Du Phi bỗng nhớ lại những lời mẹ cô - bà Lưu Văn Tinh đã từng nói vào hôm nhập học:
 
 "Trương Tuệ à, hừ, con bé Mộc Dao nhà bà ta rồi sẽ có ngày phải ôm hận hối tiếc..."

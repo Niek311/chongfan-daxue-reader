@@ -1,7 +1,5 @@
 # Chương 462: Cốt lõi của công ty
 
-> **Tiêu đề gốc**: 第462章 公司核心。
-
 Mạnh Hiến Giang từ nước Úc xa xôi gọi điện về, thông báo rằng La Kiến Thành vừa đưa thêm rất nhiều lao động từ trong nước sang mỏ.
 
 Mạnh Hiến Giang còn thì thầm nói nhỏ với Triệu Kim An rằng có không ít người trong số đó đã hết hạn thị thực từ lâu.

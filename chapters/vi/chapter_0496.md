@@ -1,7 +1,5 @@
 # Chương 496: Vĩnh viễn không bao giờ biết được
 
-> **Tiêu đề gốc**: 第496章 永远不会知道。
-
 Quận Sa.
 
 Quán ăn mang tên "Lý Tiên Sinh" của Lý Văn Húc đã chính thức khai trương.
@@ -202,21 +200,21 @@ Triệu Kim An cứ ở lì tại Kinh Đô, không chịu gặp bất kỳ ai.
 
 Mọi việc ở công ty đều do một tay Từ Mạn Mạn gánh vác, trông nom.
 
-Mộc Dao gọi điện cho Du Phỉ, nhưng thái độ nhiệt tình của Du Phỉ đối với Mộc Dao dường như đã phai nhạt đi ít nhiều.
+Mộc Dao gọi điện cho Du Phi, nhưng thái độ nhiệt tình của Du Phi đối với Mộc Dao dường như đã phai nhạt đi ít nhiều.
 
-Mạch Thượng Yên Vũ Dao: "Du Phỉ, Kim An vẫn ổn chứ?"
+Mạch Thượng Yên Vũ Dao: "Du Phi, Kim An vẫn ổn chứ?"
 
 Một lúc sau.
 
-Văn phòng thư ký - Du Phỉ: "Không ổn chút nào. Dao Dao à, cậu hà tất phải biết rồi còn hỏi."
+Văn phòng thư ký - Du Phi: "Không ổn chút nào. Dao Dao à, cậu hà tất phải biết rồi còn hỏi."
 
 Mạch Thượng Yên Vũ Dao: "Cậu có thể chụp một bức ảnh của Kim An gửi cho tớ được không? Tớ rất muốn nhìn thấy anh ấy."
 
 Năm phút trôi qua trong im lặng.
 
-Văn phòng thư ký - Du Phỉ: "Thôi bỏ đi, Dao Dao."
+Văn phòng thư ký - Du Phi: "Thôi bỏ đi, Dao Dao."
 
-Du Phỉ không phải có thành kiến gì với Mộc Dao. Cô hiểu Mộc Dao thật lòng lo lắng cho Triệu Kim An, nhưng cô cảm thấy chuyện này dường như đã không còn cần thiết nữa rồi.
+Du Phi không phải có thành kiến gì với Mộc Dao. Cô hiểu Mộc Dao thật lòng lo lắng cho Triệu Kim An, nhưng cô cảm thấy chuyện này dường như đã không còn cần thiết nữa rồi.
 
 Ba ngày sau, Mộc Dao lặng lẽ thu dọn toàn bộ hành lý, quyết định mua vé máy bay trở về nước.
 

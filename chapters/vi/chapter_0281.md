@@ -1,7 +1,5 @@
 # Chương 281: Mặc kệ sự đời
 
-> **Tiêu đề gốc**: 第281章 躺平。
-
 Hiện tại, điều mà cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều chưa hề hay biết là Tô Miến đã từng về Triệu gia thôn, thậm chí người trong làng còn gọi cô bằng hai tiếng "thím nhỏ".
 
 Triệu Kim An bây giờ hoàn toàn chọn cách mặc kệ sự đời, chẳng buồn lo nghĩ nữa. Trước đây, anh quả thực từng có chút thấp thỏm, sợ Tô Miến đùng một cái chạy đến làng đại học, đến lúc đó anh sẽ chẳng biết phải đối diện với ánh mắt của Thẩm Tử Ngôn và Từ Mạn Mạn ra sao.

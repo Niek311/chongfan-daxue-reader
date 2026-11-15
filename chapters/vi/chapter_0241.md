@@ -1,7 +1,5 @@
 # Chương 241: Chạm mặt.
 
-> **Tiêu đề gốc**: 第241章 碰见。
-
 Ga xe lửa.
 
 Sau khi đưa mọi người đến trước quảng trường ga, Trương Vân Thiến liền quay đầu xe rời đi.

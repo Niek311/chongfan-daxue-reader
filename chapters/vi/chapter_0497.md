@@ -1,7 +1,5 @@
 # Chương 497: Thời điểm về nước quá đỗi trùng hợp
 
-> **Tiêu đề gốc**: 第497章 回国时间太巧了。
-
 Diêu Sân đã mua nhà ở Quận Sa, còn Mộc Dao thì chưa.
 
 Diêu Sân từng nhắn tin hỏi Mộc Dao, khi ấy Mộc Dao quả quyết bảo sẽ không trở lại Quận Sa nữa.

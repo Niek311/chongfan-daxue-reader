@@ -1,7 +1,5 @@
 # Chương 50: Có thể đi được chưa nào?
 
-> **Tiêu đề gốc**: 第50章 可以走了吧？
-
 Mọi năm cứ đến mùa gặt lúa, Triệu Kim An đều xin nghỉ học vài hôm để về quê đỡ đần gia đình.
 
 Thím Vương Kim Như lội xuống ruộng gặt lúa, bà nội ở nhà đảm nhận việc cơm nước, rồi nhờ thêm vài thanh niên trai tráng khỏe mạnh trong làng tới gặt phụ.

@@ -1,7 +1,5 @@
 # Chương 422: Không có hồi âm.
 
-> **Tiêu đề gốc**: 第422章 没有回信。
-
 Sáng hôm sau, ba mươi Tết.
 
 Tô Cảnh Hành vẫn còn vướng bận một số công vụ quan trọng của thành phố, ông cùng vợ là Phùng Nhược Đan phải đợi đến sáng mùng Một Tết mới có thể thu xếp bay về Bắc Kinh.
@@ -160,7 +158,7 @@ Khang Văn Đông là mẫu người phụ nữ vô cùng lý trí: khi gia đì
 
 Sâm Châu.
 
-Mộc Dao trở về quê nhà nằm lì trên giường ngủ li bì suốt mấy ngày liền. Du Phỉ cùng Ngải Manh Manh rủ nhau ghé qua tìm cô đi chơi, Mộc Dao chỉ nhàn nhạt bảo rằng mùng Bốn Tết cô sẽ bay lại vào Dương Thành tiếp tục công việc.
+Mộc Dao trở về quê nhà nằm lì trên giường ngủ li bì suốt mấy ngày liền. Du Phi cùng Ngải Manh Manh rủ nhau ghé qua tìm cô đi chơi, Mộc Dao chỉ nhàn nhạt bảo rằng mùng Bốn Tết cô sẽ bay lại vào Dương Thành tiếp tục công việc.
 
 Buổi chiều muộn, đôi chân cô như có ma xui quỷ khiến, Mộc Dao một mình cầm lái chiếc xe chạy thẳng về hướng thôn Triệu Gia. Chiếc xe chỉ dừng lại nơi khúc dốc thoai thoải đầu làng, cô không lái xe xuống dưới.
 

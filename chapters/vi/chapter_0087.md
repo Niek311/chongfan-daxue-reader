@@ -1,7 +1,5 @@
 # Chương 87: Mái bạt che chẳng ngăn nổi gió lạnh
 
-> **Tiêu đề gốc**: 第87章 雨棚挡不住寒风。
-
 Năm xưa, thương hiệu Trà Đen Đá từng tài trợ cho các giải bóng rổ 3 đấu 3. Nhờ thể thức thi đấu đơn giản, linh hoạt và độ phủ sóng rộng khắp hàng trăm trường đại học trên cả nước, thương hiệu Trà Đen Đá đã lập tức bùng nổ danh tiếng chỉ sau một đêm.
 
 "Thế sao cậu lại đòi làm loại '0 đường, 0 calo, 0 chất béo'? Chẳng phải thứ đó chỉ có mấy cô nàng văn phòng công sở mới thích thôi sao?"

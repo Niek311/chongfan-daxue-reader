@@ -1,7 +1,5 @@
 # Chương 17: Màn "thao túng tâm lý" của mẹ vợ tương lai (1)
 
-> **Tiêu đề gốc**: 第17章 来自“准岳母娘”的PUA，1
-
 Khách sạn Hùng Hưng.
 
 Phía dưới tòa khách sạn là một dòng sông rộng lớn, êm đềm trôi. Cuộc hẹn diễn ra tại một phòng bao riêng biệt trên tầng hai.

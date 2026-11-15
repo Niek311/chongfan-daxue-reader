@@ -1,7 +1,5 @@
 # Chương 454: Đôi khuyên tai nơi vành tai
 
-> **Tiêu đề gốc**: 第454章 耳垂挂了耳环。
-
 Từ Mạn Mạn thẹn thùng đỏ ửng mặt. Triệu Kim An đứng dậy, cúi đầu chăm chú nhìn cô. Từ Mạn Mạn vươn tay nắm lấy bàn tay anh, hiếm hoi lắm mới thốt ra những lời gan ruột: "Kim An này, xem xong đoạn video anh chơi bóng rổ, em thấy thích anh vô cùng..."
 
 "Lòng bàn tay anh có chút chai sần, em có gặng hỏi thím... Em thương anh lắm."
@@ -76,7 +74,7 @@ Từ Mạn Mạn tựa như đã biến thành một con người hoàn toàn kh
 
 Lý Đình Đình đứng trân trối nhìn chị gái mình, vội vàng rút điện thoại ra bấm số: "Bố ơi, anh rể với chị Mạn Mạn chuẩn bị xuất phát rồi đấy ạ."
 
-Dưới tầng hầm để xe, Đơn Vĩ và Quan Văn Bách đã nổ máy chờ sẵn từ bao giờ.
+Dưới tầng hầm để xe, Đan Vĩ và Quan Văn Bách đã nổ máy chờ sẵn từ bao giờ.
 
 ...
 
@@ -86,7 +84,7 @@ Dượng hai đứng ngay trước cổng lớn của khu tập thể, vừa cú
 
 "..."
 
-Từ Tắc Đống và Lương Huệ Trân sững sờ đưa mắt nhìn nhau. Họ thực sự không dám tin rằng Triệu Kim An lại chịu hạ mình đến đây. Lần này thì hay rồi, cuối cùng cũng có thể bịt chặt miệng lưỡi của đám họ hàng thân thích lại! Trước mặt thì họ không dám nói ra, chứ sau lưng thì biết bao nhiêu lời gièm pha cay độc?
+Từ Tắc Đống và Lương Tuệ Trân sững sờ đưa mắt nhìn nhau. Họ thực sự không dám tin rằng Triệu Kim An lại chịu hạ mình đến đây. Lần này thì hay rồi, cuối cùng cũng có thể bịt chặt miệng lưỡi của đám họ hàng thân thích lại! Trước mặt thì họ không dám nói ra, chứ sau lưng thì biết bao nhiêu lời gièm pha cay độc?
 
 Rằng không chịu làm giấy đăng ký kết hôn thì đã đành, đến cái mặt mũi cũng chẳng buồn đoái hoài thèm ló dạng lấy một lần!?
 
@@ -94,7 +92,7 @@ Rằng không chịu làm giấy đăng ký kết hôn thì đã đành, đến 
 
 Từ Tắc Đống vốn là người sĩ diện ngút trời, giờ phút này chính bản thân ông ta lại là người run rẩy trước nhất, ngón tay kẹp điếu thuốc lá khẽ run lên bần bật.
 
-Lương Huệ Trân thì vứt phắt mớ rau đang nhặt dở xuống đất. Từ lúc con gái mang thai đến nay, bà mới chỉ được nhìn thấy con đúng một lần ngắn ngủi. Bà tất tả chạy bổ ra cổng, kiễng chân ngóng trông trong niềm khấp khởi khôn nguôi.
+Lương Tuệ Trân thì vứt phắt mớ rau đang nhặt dở xuống đất. Từ lúc con gái mang thai đến nay, bà mới chỉ được nhìn thấy con đúng một lần ngắn ngủi. Bà tất tả chạy bổ ra cổng, kiễng chân ngóng trông trong niềm khấp khởi khôn nguôi.
 
 Căn nhà của bác cả Từ Tắc Lương bỗng chốc nhộn nhịp hẳn lên như có hội.
 
@@ -154,19 +152,19 @@ Không riêng gì Từ Tắc Đống, mà toàn thể những người có mặt
 
 Đến cả bà nội cũng run rẩy chống gậy bước hẳn ra ngoài cổng đón. Đây là lần đầu tiên Triệu Kim An và Từ Mạn Mạn cùng nhau quay trở về nơi này. Đã hai năm ròng rã trôi qua, mãi cho đến tận bây giờ, khi cái thai trong bụng đã sắp đến ngày khai hoa nở nhụy, Từ Mạn Mạn mới chịu bước chân về lại.
 
-Thấy đoàn xe sang trọng từ từ dừng bánh, mọi người tự giác dạt sang hai bên nhường lối. Đơn Vĩ liếc nhìn gương chiếu hậu, trong khi Chu Hoa Phong đã nhanh chóng đẩy cửa bước xuống từ chiếc Mercedes để vòng ra mở cửa xe sau. Mọi người đều vươn dài cổ ngóng đợi, nào ngờ người đầu tiên nhảy tót xuống từ chiếc Rolls-Royce lại là cô bé Lý Đình Đình với chiếc ba lô to tướng trên vai.
+Thấy đoàn xe sang trọng từ từ dừng bánh, mọi người tự giác dạt sang hai bên nhường lối. Đan Vĩ liếc nhìn gương chiếu hậu, trong khi Chu Hoa Phong đã nhanh chóng đẩy cửa bước xuống từ chiếc Mercedes để vòng ra mở cửa xe sau. Mọi người đều vươn dài cổ ngóng đợi, nào ngờ người đầu tiên nhảy tót xuống từ chiếc Rolls-Royce lại là cô bé Lý Đình Đình với chiếc ba lô to tướng trên vai.
 
 Dượng hai đứng bên cạnh cười toe toét ngoác cả mồm.
 
 "Chị ơi, chị cẩn thận bước chậm thôi nhé!"
 
-Lý Đình Đình vừa quàng ba lô vừa ân cần vươn tay ra đỡ. Lương Huệ Trân cũng vội vã sấn bước lên phía trước, nghẹn ngào cất tiếng gọi: "Mạn Mạn..."
+Lý Đình Đình vừa quàng ba lô vừa ân cần vươn tay ra đỡ. Lương Tuệ Trân cũng vội vã sấn bước lên phía trước, nghẹn ngào cất tiếng gọi: "Mạn Mạn..."
 
 "Bác gái."
 
 "Dạ, dạ vâng!"
 
-Trông thấy Triệu Kim An, Lương Huệ Trân cuống quýt đáp lời liền hai tiếng. Triệu Kim An bước xuống xe, đưa mắt nhìn quanh đám đông, khẽ gật đầu mỉm cười chào hỏi: "Cháu chào mọi người ạ."
+Trông thấy Triệu Kim An, Lương Tuệ Trân cuống quýt đáp lời liền hai tiếng. Triệu Kim An bước xuống xe, đưa mắt nhìn quanh đám đông, khẽ gật đầu mỉm cười chào hỏi: "Cháu chào mọi người ạ."
 
 "..."
 
@@ -176,7 +174,7 @@ Không thể tin vào mắt mình được nữa... Sao trên đời lại có n
 
 Không khí rơi vào im lặng tuyệt đối.
 
-Vợ chồng Lương Huệ Trân và Từ Tắc Đống đưa mắt nhìn nhau rồi lại nhìn sang mọi người, lúc này mới thấu suốt những suy nghĩ hẹp hòi trước kia của mình nực cười đến mức nào.
+Vợ chồng Lương Tuệ Trân và Từ Tắc Đống đưa mắt nhìn nhau rồi lại nhìn sang mọi người, lúc này mới thấu suốt những suy nghĩ hẹp hòi trước kia của mình nực cười đến mức nào.
 
 Mấy bà cô, bà thím trong nhà đều trố mắt nhìn đến ngây dại cả người. Đã là những người đàn bà trạc tuổi này rồi mà còn...
 
@@ -186,7 +184,7 @@ Triệu Kim An chỉ vừa cất lời chào hỏi một câu đã vội vã vư
 
 Tổ tông, cô thật tình chẳng hiểu nổi sao anh lại có thể buột miệng gọi ra cái danh xưng ấy giữa chốn đông người như thế này.
 
-Lương Huệ Trân cũng nhanh nhảu đứng sát mép cửa xe, chủ động vươn hai tay ra để đỡ lấy một bên cánh tay của con gái.
+Lương Tuệ Trân cũng nhanh nhảu đứng sát mép cửa xe, chủ động vươn hai tay ra để đỡ lấy một bên cánh tay của con gái.
 
 Từ Mạn Mạn khẽ vịn vào bụng, chầm chậm bước chân xuống đất. Nhìn thấy bóng dáng người đàn ông đứng gần mình nhất, cô ngập ngừng một lát rồi vẫn cất tiếng gọi: "Ba."
 
@@ -198,21 +196,21 @@ Thế nhưng giờ đây, đôi khuyên tai dài lấp lánh nơi vành tai ấy
 
 Từ Tắc Đống lại đưa mắt nhìn sang Triệu Kim An đang nở nụ cười nhã nhặn bên cạnh.
 
-Lúc bước xuống xe, một tay Từ Mạn Mạn khẽ bám chặt vào cánh tay Triệu Kim An, tuyệt nhiên không hề chạm vào cánh tay mà mẹ cô — Lương Huệ Trân — đang đưa ra đón đỡ.
+Lúc bước xuống xe, một tay Từ Mạn Mạn khẽ bám chặt vào cánh tay Triệu Kim An, tuyệt nhiên không hề chạm vào cánh tay mà mẹ cô — Lương Tuệ Trân — đang đưa ra đón đỡ.
 
 Lý Đình Đình thoăn thoắt chui tọt vào trong xe xách chiếc túi xách hàng hiệu bước ra cho chị.
 
 Từ Mạn Mạn đưa mắt tìm bóng dáng bà nội rồi bắt đầu cất tiếng chào hỏi từng người một theo thứ bậc. Cuối cùng, khi ánh mắt chạm đến Đồng Nghệ Mẫn, thái độ của cô mới có phần nhiệt tình và cởi mở hơn đôi chút, khẽ mỉm cười nói: "Chào chị, rất vui được đón tiếp chị đến với gia đình."
 
-Đồng Nghệ Mẫn đứng trơ ra nhìn Triệu Kim An đến thất thần. Cô bỗng sực nhớ ra điều gì đó, rồi lại liếc mắt nhìn sang Đơn Vĩ.
+Đồng Nghệ Mẫn đứng trơ ra nhìn Triệu Kim An đến thất thần. Cô bỗng sực nhớ ra điều gì đó, rồi lại liếc mắt nhìn sang Đan Vĩ.
 
-Đơn Vĩ lúc này cũng đã nhận ra Đồng Nghệ Mẫn.
+Đan Vĩ lúc này cũng đã nhận ra Đồng Nghệ Mẫn.
 
 Tất cả mọi người có mặt đều dán chặt mắt vào Triệu Kim An và Từ Mạn Mạn. Hóa ra bấy lâu nay Lý Đình Đình không hề nói ngoa nửa lời! Con bé luôn mồm khoe rằng anh rể là người đẹp trai nhất trần đời, lại cưng chiều chị gái hết mực. Lúc trước mọi người nửa tin nửa ngờ, thậm chí còn trêu chọc con bé sao mở mồm ra là ngọt xớt gọi anh rể nghe êm tai thế.
 
 "Thưa sếp..."
 
-Đơn Vĩ ghé sát tai Triệu Kim An thì thào vài câu ngắn gọn. Triệu Kim An khẽ gật đầu tỏ vẻ đã hiểu.
+Đan Vĩ ghé sát tai Triệu Kim An thì thào vài câu ngắn gọn. Triệu Kim An khẽ gật đầu tỏ vẻ đã hiểu.
 
 Hôm nay anh chỉ diện một bộ trang phục thường ngày vô cùng đơn giản: đôi giày da đen bóng, chiếc áo sơ mi trắng dài tay được xắn gọn lên quá khủy tay, hai chiếc cúc áo trên cùng mở hờ hững, nơi cổ tay đeo một chiếc đồng hồ Patek Philippe với thiết kế nhã nhặn, không hề phô trương lộ liễu.
 
@@ -230,7 +228,7 @@ Giàu có nứt đố đổ vách đã đành, lại còn có thể khôi ngô t
 
 "Haizz!"
 
-Nhìn mấy bà cô, bà thím đang đứng ngây như phỗng, Từ Tắc Đống bỗng thở dài thườn thượt một tiếng trong lòng. Trước đây ông và Lương Huệ Trân quả thực chưa từng bận tâm đến vấn đề diện mạo của Triệu Kim An, sự chú ý của họ hoàn toàn không đặt vào phương diện ấy.
+Nhìn mấy bà cô, bà thím đang đứng ngây như phỗng, Từ Tắc Đống bỗng thở dài thườn thượt một tiếng trong lòng. Trước đây ông và Lương Tuệ Trân quả thực chưa từng bận tâm đến vấn đề diện mạo của Triệu Kim An, sự chú ý của họ hoàn toàn không đặt vào phương diện ấy.
 
 Đám họ hàng bên nhà Đồng Nghệ Mẫn thì bắt đầu cảm thấy rụt rè, e ngại, tự động lùi lại nửa bước.
 
@@ -238,6 +236,6 @@ Nhìn mấy bà cô, bà thím đang đứng ngây như phỗng, Từ Tắc Đ�
 
 Triệu Kim An hướng ánh mắt về phía các bậc trưởng bối, nở một nụ cười rạng rỡ, ấm áp rồi cất tiếng chào hỏi đàng hoàng. Đến lúc này, mọi người mới như bừng tỉnh khỏi cơn mê, lập tức tíu tít, ồn ào cất tiếng vồn vã mời mọc khách quý vào nhà.
 
-Lương Huệ Trân khéo léo lách người vòng sang phía bên cạnh Triệu Kim An.
+Lương Tuệ Trân khéo léo lách người vòng sang phía bên cạnh Triệu Kim An.
 
 Đám đàn ông như dượng hai và các bác trai bỗng chốc bị đẩy dạt hết cả sang một bên...

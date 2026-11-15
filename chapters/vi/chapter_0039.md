@@ -1,7 +1,5 @@
 # Chương 39: Lan Lan, chú mày lạc rồi kìa!
 
-> **Tiêu đề gốc**: 第39章 兰兰，你叔丢了！
-
 "Chào em khóa dưới nhé, chị tên là Chu Sở Hân, là bạn cùng phòng của Lan Lan."
 
 Chu Sở Hân nở nụ cười tươi như hoa mùa xuân, cố ý chìa bàn tay nhỏ nhắn ra đòi bắt tay.
@@ -56,7 +54,7 @@ Cô nàng bước sang một góc vắng, lấy tay che miệng nói nhỏ vào 
 
 Triệu Kim An cũng bấm máy gọi về cho thím Vương Kim Như. Bà nội không dùng điện thoại di động, nghe tiếng vọng trong ống nghe thì hình như cả thím lẫn bà nội đều đang ngồi đợi tin ở bên nhà Triệu Bác Lan.
 
-Cúp máy xong, cậu ngẫm nghĩ một thoáng rồi soạn một tin nhắn ngắn gửi cho Đoàn Thu Bình.
+Cúp máy xong, cậu ngẫm nghĩ một thoáng rồi soạn một tin nhắn ngắn gửi cho Đoạn Thu Bình.
 
 Vỏn vẹn chỉ có sáu chữ: *Đã đến nơi, đã nộp học phí.*
 
@@ -90,7 +88,7 @@ Khắp nơi đều ngập tràn hơi thở thanh xuân phơi phới, rực rỡ 
 
 Thế nhưng gã Triệu Kim An "chẳng hiểu phong tình" kia suốt dọc đường chỉ cắm cúi bấm điện thoại, mắt nhìn thẳng phía trước chứ chẳng buồn liếc ngang liếc dọc lấy một lần.
 
-Cậu kiên nhẫn nhắn tin trả lời từng người một: từ chị dâu Doãn Hiểu Lan, Triệu Trí Dũng, cho tới Du Phỉ. Thím Vương Kim Như thì không biết xài tin nhắn, có lẽ thím không biết chữ điện tử, dù sao từ trước đến nay cậu cũng chưa từng thấy thím nhắn tin bao giờ.
+Cậu kiên nhẫn nhắn tin trả lời từng người một: từ chị dâu Doãn Hiểu Lan, Triệu Trí Dũng, cho tới Du Phi. Thím Vương Kim Như thì không biết xài tin nhắn, có lẽ thím không biết chữ điện tử, dù sao từ trước đến nay cậu cũng chưa từng thấy thím nhắn tin bao giờ.
 
 "Lan Lan này, chú của cậu không phải thuộc dạng 'ngoài mặt giả vờ đứng đắn nhưng bên trong ngấm ngầm' đấy chứ?"
 

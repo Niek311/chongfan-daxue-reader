@@ -1,7 +1,5 @@
 # Chương 90: Làng họ Triệu, ngóng chờ diện kiến (3)
 
-> **Tiêu đề gốc**: 第90章 赵家村，等着见人3
-
 Triệu Kim An bưng một chậu nước ấm vào phòng, Vương Kim Như liền xắn cao ống tay áo đon đả bảo: "Kim An, để đấy thím rửa chân cho con bé."
 
 Triệu Quốc Hoa ngồi ở góc sân không hé răng nửa lời, ông lại chạnh lòng nhớ đến người anh trai đã khuất của mình, liền lẳng lặng bước ra một góc khuất rút điện thoại gọi điện cho hai người cô ruột của Triệu Kim An.

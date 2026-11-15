@@ -1,7 +1,5 @@
 # Chương 315: Đi thật à?
 
-> **Tiêu đề gốc**: 第315章 真走？
-
 Triệu Kim An không hề di chuyển bước chân.
 
 Thẩm Tử Ngôn và Từ Mạn Mạn đứng một bên cũng lập tức đứng yên bất động theo anh.
@@ -12,7 +10,7 @@ Triệu Bác Lan vốn đã biết về sự tồn tại của Cảng vụ Hoàn
 
 "Cả Thẩm tổng lẫn Từ tổng đều sở hữu năng lực xuất chúng, mà điều then chốt nhất là họ tuyệt đối trung thành với Kim An."
 
-Bọc ở vòng ngoài cùng là năm người vừa làm tài xế vừa kiêm nhiệm vệ sĩ, bao gồm cả Đơn Vĩ.
+Bọc ở vòng ngoài cùng là năm người vừa làm tài xế vừa kiêm nhiệm vệ sĩ, bao gồm cả Đan Vĩ.
 
 Trần Trạch vẫn đang ra sức chen lấn về phía trước.
 
@@ -110,7 +108,7 @@ Mấy cô cậu trong Ban Chấp hành Hội Sinh viên bỗng cảm thấy nh�
 
 Triệu Kim An thực sự xoay người chuẩn bị bước lên xe, Thẩm Tử Ngôn và Từ Mạn Mạn lập tức cất bước theo sau.
 
-Đơn Vĩ lại nhanh chóng kéo rộng cửa xe, nghiêm cẩn đứng túc trực một bên.
+Đan Vĩ lại nhanh chóng kéo rộng cửa xe, nghiêm cẩn đứng túc trực một bên.
 
 "Đi thật đấy à!?"
 

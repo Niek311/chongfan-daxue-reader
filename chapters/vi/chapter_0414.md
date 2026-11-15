@@ -1,7 +1,5 @@
 # Chương 414: Một Thẩm Tử Ngôn như thế
 
-> **Tiêu đề gốc**: 第414章 那个沈子言。
-
 "Mày dựa vào cái gì cơ chứ?!"
 
 Thẩm Tử Ngôn gào thét đến lạc cả giọng.
@@ -210,16 +208,16 @@ Từ tổng của Trăn Hối Tuyển đã mang thai gần năm tháng!!!
 
 "Ông chủ..."
 
-Dưới tầng hầm, Đơn Vĩ và Chu Hoa Phong đã nổ máy sẵn sàng chiếc Rolls-Royce Phantom siêu sang.
+Dưới tầng hầm, Đan Vĩ và Chu Hoa Phong đã nổ máy sẵn sàng chiếc Rolls-Royce Phantom siêu sang.
 
 "Đổi xe!" Triệu Kim An lạnh lùng ra lệnh ngắn gọn.
 
 "Ông chủ... mình đi đâu ạ?"
 
-Đơn Vĩ và Chu Hoa Phong cũng vừa nhận được tin nhắn cấp báo từ Quan Văn Bách, vấn đề là Thẩm tổng lúc này đang ở phương trời nào?
+Đan Vĩ và Chu Hoa Phong cũng vừa nhận được tin nhắn cấp báo từ Quan Văn Bách, vấn đề là Thẩm tổng lúc này đang ở phương trời nào?
 
 "Tô Thành! Cô ấy đã lên đường cao tốc rồi!"
 
 Triệu Kim An thò tay vào túi áo, châm một điếu thuốc lá phả làn khói trắng xóa.
 
-Đơn Vĩ lập tức bấm điện thoại điều động chiếc Toyota Prado của Quan Văn Bách tới, chạy đường trường cao tốc thì loại xe SUV gầm cao Prado chắc chắn sẽ ổn định và dũng mãnh hơn nhiều so với chiếc Audi A6.
+Đan Vĩ lập tức bấm điện thoại điều động chiếc Toyota Prado của Quan Văn Bách tới, chạy đường trường cao tốc thì loại xe SUV gầm cao Prado chắc chắn sẽ ổn định và dũng mãnh hơn nhiều so với chiếc Audi A6.

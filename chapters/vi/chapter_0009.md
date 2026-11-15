@@ -1,7 +1,5 @@
 # Chương 9: Chàng trai đuổi theo ngọn gió năm ấy
 
-> **Tiêu đề gốc**: 第9章 那年的追风少年。
-
 Đêm đã về khuya.
 
 Triệu Kim An nằm dài trên chiếc giường gỗ cũ kỹ, mắt lơ đãng nhìn lên mạng nhện bám nơi góc tường và những mảng vôi vữa ố vàng, loang lổ trên trần nhà mà ngẩn ngơ xuất thần.
@@ -16,7 +14,7 @@ Bấm nút nguồn khởi động máy.
 
 Quả nhiên, hòm thư tin nhắn lập tức hiện lên vài thông báo cuộc gọi nhỡ từ số của Mộc Dao.
 
-Ngoài ra còn có thêm một thông báo cuộc gọi nhỡ khác đến từ Du Phỉ.
+Ngoài ra còn có thêm một thông báo cuộc gọi nhỡ khác đến từ Du Phi.
 
 Anh rê ngón tay tìm kiếm biểu tượng chú chim cánh cụt quen thuộc mà vụng về trên màn hình, mở ứng dụng QQ dành cho học sinh cấp ba ra. Vừa nhìn thấy biệt danh hiển thị trên tài khoản của chính mình, Triệu Kim An bỗng cứng họng, nhận ra bản thân chẳng có tư cách gì để chê cười Triệu Trí Dũng nữa rồi.
 
@@ -92,7 +90,7 @@ Lý Lợi nhếch mép cười khẽ một tiếng đầy ẩn ý rồi quay ng�
 
 "Hừ, đích thị là do thằng cha Âu Cường cố tình tung tin ra ngoài chứ ai vào đây nữa!"
 
-Du Phỉ ngồi bên cạnh hừ lạnh một tiếng đầy vẻ khinh bỉ, đưa ngón tay chỉ về phía một nam sinh đang cắm cúi bấm điện thoại cách đó không xa: "Cái thằng Điền Vũ Hạo kia lúc nào cũng mặc chung một cái quần với hắn ta!"
+Du Phi ngồi bên cạnh hừ lạnh một tiếng đầy vẻ khinh bỉ, đưa ngón tay chỉ về phía một nam sinh đang cắm cúi bấm điện thoại cách đó không xa: "Cái thằng Điền Vũ Hạo kia lúc nào cũng mặc chung một cái quần với hắn ta!"
 
 Mộc Dao liếc nhìn Điền Vũ Hạo, trong lòng dâng lên một nỗi hối hận muộn màng. Cô hối hận vì lúc chiều đã không nhanh tay tranh trả tiền trước cho xong chuyện, để giờ đây bạn trai mình phải chịu cảnh bị người ta cố tình đem ra làm trò cười, gièm pha bóng gió thế này.
 
@@ -100,9 +98,9 @@ Không những thế.
 
 Mộc Dao còn tinh ý nhận ra Âu Cường mỗi lần cầm micro hát lại liên tục hướng ánh mắt đắc thắng về phía cô, tựa như muốn ngầm nhắn nhủ: "Cậu nhìn xem, bạn trai mà cậu chọn đến tiền học phí còn phải tự đi bán cá ngoài chợ kiếm từng đồng, cuối cùng vẫn phải nhờ tôi ra tay giúp đỡ việc làm ăn đấy thôi."
 
-"Du Phỉ à, sao bọn họ lại có thể hành xử như thế được chứ?" Mộc Dao bắt đầu thấy ấm ức và giận dỗi.
+"Du Phi à, sao bọn họ lại có thể hành xử như thế được chứ?" Mộc Dao bắt đầu thấy ấm ức và giận dỗi.
 
-"Hành xử thế nào cơ?" Du Phỉ chưa hiểu hết ngọn ngành.
+"Hành xử thế nào cơ?" Du Phi chưa hiểu hết ngọn ngành.
 
 "Không có gì đâu..."
 
@@ -116,29 +114,29 @@ Trong phòng hát, vài bạn nữ thỉnh thoảng lại đưa mắt lén nhìn
 
 Bởi lẽ chỉ mới ngày hôm qua thôi, Triệu Kim An thỉnh thoảng vẫn còn hào hứng trò chuyện dăm ba câu với mọi người.
 
-Du Phỉ vừa định mở miệng an ủi cô bạn thân.
+Du Phi vừa định mở miệng an ủi cô bạn thân.
 
-Đúng lúc này, chiếc điện thoại trong túi xách của Du Phỉ bỗng rung lên hai tiếng "ting ting" báo hiệu tin nhắn mới.
+Đúng lúc này, chiếc điện thoại trong túi xách của Du Phi bỗng rung lên hai tiếng "ting ting" báo hiệu tin nhắn mới.
 
 Triệu Kim An: [Cậu có thể cho tớ mượn một ít tiền được không?]
 
 Triệu Kim An: [Nếu không tiện cho mượn thì cũng không sao đâu nhé, nhưng nhớ giữ bí mật giúp tớ.]
 
-Đọc xong tin nhắn, Du Phỉ lúc này càng thêm chắc chắn rằng Triệu Kim An đã nhìn thấy toàn bộ những lời bàn tán khó nghe trong nhóm. Cô ngước mắt nhìn sang Mộc Dao đang ngồi thẫn thờ bên cạnh, chiếc điện thoại của Mộc Dao tuyệt nhiên không hề có động tĩnh gì.
+Đọc xong tin nhắn, Du Phi lúc này càng thêm chắc chắn rằng Triệu Kim An đã nhìn thấy toàn bộ những lời bàn tán khó nghe trong nhóm. Cô ngước mắt nhìn sang Mộc Dao đang ngồi thẫn thờ bên cạnh, chiếc điện thoại của Mộc Dao tuyệt nhiên không hề có động tĩnh gì.
 
-Trên gương mặt Du Phỉ hiện rõ vẻ ngỡ ngàng, khó hiểu.
+Trên gương mặt Du Phi hiện rõ vẻ ngỡ ngàng, khó hiểu.
 
 "Tại sao Kim An lại không đi mượn tiền Mộc Dao mà lại tìm đến mình chứ?"
 
-Du Phỉ: [Cậu muốn mượn bao nhiêu?]
+Du Phi: [Cậu muốn mượn bao nhiêu?]
 
 Triệu Kim An: [Càng nhiều càng tốt, vài hôm nữa tớ sẽ gửi lại cậu ngay.]
 
-Du Phỉ: [Khi nào cậu cần lấy tiền?]
+Du Phi: [Khi nào cậu cần lấy tiền?]
 
 Triệu Kim An: [Sáng mai.]
 
-Du Phỉ: [Được rồi, để tớ cố gắng xoay xở xem sao.]
+Du Phi: [Được rồi, để tớ cố gắng xoay xở xem sao.]
 
 ...
 
@@ -174,11 +172,11 @@ Nếu như chiếc điện thoại này có thể mang đi cầm đồ lấy ti�
 
 Dù sao thì thời điểm này cũng chẳng có cuộc gọi nào đáng để anh phải mòn mỏi chờ đợi.
 
-Còn về lý do tại sao lại chọn mượn tiền của Du Phỉ?
+Còn về lý do tại sao lại chọn mượn tiền của Du Phi?
 
 Tối qua Triệu Kim An mới sực nhớ ra rằng thời cấp ba mình từng có một thời gian ngồi cùng bàn với cô bạn này. Quãng đời học sinh là thế, chuyện đổi chỗ ngồi diễn ra như cơm bữa, lúc thì ghép bàn đôi, khi thì xếp cụm bàn ba.
 
-Trong ký ức của anh, điều kiện kinh tế gia đình Du Phỉ thuộc diện khá giả trong lớp. Còn như Triệu Trí Dũng, muốn có một số tiền lớn thì trừ phi đi ăn trộm tiền của bố mẹ.
+Trong ký ức của anh, điều kiện kinh tế gia đình Du Phi thuộc diện khá giả trong lớp. Còn như Triệu Trí Dũng, muốn có một số tiền lớn thì trừ phi đi ăn trộm tiền của bố mẹ.
 
 Mà dẫu có "trộm" thì cũng chẳng bới đâu ra nhiều tiền mặt đến thế.
 
@@ -186,19 +184,19 @@ Bởi lẽ ở nông thôn thời nay chẳng mấy ai để quá nhiều tiền
 
 "Bác tài ơi, cho cháu xuống ở góc ngã tư phía trước với ạ!"
 
-Theo đúng địa chỉ ghi trong tin nhắn của Du Phỉ, Triệu Kim An chủ động xuống xe trước cổng một khu chung cư tầm trung, sau đó đứng bên lề đường bấm số gọi cho cô bạn.
+Theo đúng địa chỉ ghi trong tin nhắn của Du Phi, Triệu Kim An chủ động xuống xe trước cổng một khu chung cư tầm trung, sau đó đứng bên lề đường bấm số gọi cho cô bạn.
 
-Chỉ một thoáng sau, bóng dáng Du Phỉ trong chiếc váy liền thân màu trắng tinh khôi, chân đi đôi giày vải mềm mại màu trắng đã lon ton chạy từ trong khu nhà ra.
+Chỉ một thoáng sau, bóng dáng Du Phi trong chiếc váy liền thân màu trắng tinh khôi, chân đi đôi giày vải mềm mại màu trắng đã lon ton chạy từ trong khu nhà ra.
 
 "Triệu Kim An!"
 
 Cô gái nhỏ nở nụ cười rạng rỡ vẫy tay từ xa, cẩn thận ngó nghiêng dòng xe cộ qua lại rồi thoăn thoắt băng qua bên kia đường.
 
-Du Phỉ có vóc dáng nhỏ nhắn, chiều cao chỉ tầm một mét sáu mươi, mái tóc cắt ngắn ngang vai năng động. Nghe đâu cô cắt phăng mái tóc dài thướt tha năm xưa chỉ vì muốn tiết kiệm thời gian gội đầu sấy tóc để tập trung cho việc ôn thi, thời cấp ba có không ít bạn nữ đã chọn cách hy sinh mái tóc như thế.
+Du Phi có vóc dáng nhỏ nhắn, chiều cao chỉ tầm một mét sáu mươi, mái tóc cắt ngắn ngang vai năng động. Nghe đâu cô cắt phăng mái tóc dài thướt tha năm xưa chỉ vì muốn tiết kiệm thời gian gội đầu sấy tóc để tập trung cho việc ôn thi, thời cấp ba có không ít bạn nữ đã chọn cách hy sinh mái tóc như thế.
 
-Nhìn gương mặt thanh tú, còn vương nét ngây thơ cùng dáng vẻ tràn đầy nhựa sống thanh xuân của Du Phỉ, Triệu Kim An cũng bất giác mỉm cười, đưa tay lên vẫy chào đáp lại.
+Nhìn gương mặt thanh tú, còn vương nét ngây thơ cùng dáng vẻ tràn đầy nhựa sống thanh xuân của Du Phi, Triệu Kim An cũng bất giác mỉm cười, đưa tay lên vẫy chào đáp lại.
 
-Du Phỉ thoáng ngơ ngẩn trong tích tắc, rồi nụ cười trên môi cô càng thêm rạng rỡ, tươi tắn hơn.
+Du Phi thoáng ngơ ngẩn trong tích tắc, rồi nụ cười trên môi cô càng thêm rạng rỡ, tươi tắn hơn.
 
 Cô vốn dĩ là một tín đồ của cái đẹp.
 

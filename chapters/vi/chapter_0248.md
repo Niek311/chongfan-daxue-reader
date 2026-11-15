@@ -1,7 +1,5 @@
 # Chương 248: Kẻ thích làm màu
 
-> **Tiêu đề gốc**: 第248章 显眼包。
-
 Cùng lúc đó.
 
 Vương Kim Như xăm xăm rảo bước tiến về phía trụ sở thôn ủy. Cớ sao ban ngày bà không đi mà lại chọn đúng lúc chập tối thế này?

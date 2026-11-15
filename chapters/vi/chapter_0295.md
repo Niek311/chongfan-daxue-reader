@@ -1,10 +1,8 @@
-# Chương 295: Lần này Hứa tổng nhanh hơn một bước
+# Chương 295: Lần này Từ tổng nhanh hơn một bước
 
-> **Tiêu đề gốc**: 第295章 这次徐总快一步。
+Dương Thù Mỹ lại gầy rộc đi trông thấy, giờ đây mỗi lần ngồi lâu bà chẳng còn cần phải giật giật kéo cạp quần như dạo trước nữa.
 
-Dương Thục Mỹ lại gầy rộc đi trông thấy, giờ đây mỗi lần ngồi lâu bà chẳng còn cần phải giật giật kéo cạp quần như dạo trước nữa.
-
-Bà hối hận khôn nguôi vì đã không nghe theo lời khuyên can của Triệu Kim An và Hứa Mạn Mạn. Nếu sớm có sự chuẩn bị và đề phòng từ trước, cơ sự đã chẳng rơi vào thế bị động cùng quẫn đến nhường này.
+Bà hối hận khôn nguôi vì đã không nghe theo lời khuyên can của Triệu Kim An và Từ Mạn Mạn. Nếu sớm có sự chuẩn bị và đề phòng từ trước, cơ sự đã chẳng rơi vào thế bị động cùng quẫn đến nhường này.
 
 "Dương tổng, vậy chúng tôi xin phép đăng tin rao bán căn biệt thự này lên mạng nhé ạ."
 
@@ -12,7 +10,7 @@ Nhân viên môi giới bất động sản đang cầm máy ảnh chụp lại 
 
 "Khoảng bao lâu thì bán được?"
 
-Dương Thục Mỹ không hề suy sụp hay buông xuôi, một người phụ nữ một tay lăn lộn gầy dựng được cơ nghiệp bạc triệu thế này đương nhiên phải có bản lĩnh và nghị lực phi thường.
+Dương Thù Mỹ không hề suy sụp hay buông xuôi, một người phụ nữ một tay lăn lộn gầy dựng được cơ nghiệp bạc triệu thế này đương nhiên phải có bản lĩnh và nghị lực phi thường.
 
 "Chuyện này cũng khó nói trước lắm ạ. Phân khúc biệt thự cao cấp thời gian thanh khoản thường kéo dài hơn, trừ phi giá bán của chị chấp nhận giảm sâu thêm một chút nữa."
 
@@ -26,13 +24,13 @@ Người môi giới gượng cười lúng túng. Anh ta còn chưa thèm nói 
 
 "Trần Trạch!"
 
-Dương Thục Mỹ nghiêm giọng quát khẽ một tiếng.
+Dương Thù Mỹ nghiêm giọng quát khẽ một tiếng.
 
 Bà cảm thấy con trai mình cư xử quá đỗi mất mặt, không giữ nổi sự bình tĩnh tối thiểu. Đi đôi co, hạch sách với nhân viên môi giới thì có giải quyết được tích sự gì?
 
 "Chỉ cần có khách sẵn sàng xuống tiền mua ngay, anh cứ gọi điện trực tiếp cho tôi. Làm phiền các anh cố gắng xúc tiến giúp càng sớm càng tốt."
 
-Dương Thục Mỹ nói năng vô cùng hòa nhã, không hề đánh mất phong thái đỉnh đạc của một nữ doanh nhân từng trải.
+Dương Thù Mỹ nói năng vô cùng hòa nhã, không hề đánh mất phong thái đỉnh đạc của một nữ doanh nhân từng trải.
 
 "Vâng, thưa Dương tổng."
 
@@ -52,15 +50,15 @@ Trần Trạch dường như vẫn còn lưu luyến chiếc vỏ bọc hào nho
 
 "Nhà mất đi rồi sau này kiếm tiền mua lại được, điều quan trọng sống còn lúc này là phải thu hồi được tiền mặt về tay."
 
-Dương Thục Mỹ đưa mắt nhìn đứa con trai đang ủ rũ trên ghế sofa, suy nghĩ một lát rồi thở dài thấu não: "Trần Trạch à, con nên trưởng thành và chín chắn hơn đi thôi."
+Dương Thù Mỹ đưa mắt nhìn đứa con trai đang ủ rũ trên ghế sofa, suy nghĩ một lát rồi thở dài thấu não: "Trần Trạch à, con nên trưởng thành và chín chắn hơn đi thôi."
 
 "Mẹ..."
 
-Trần Trạch cúi gằm mặt xuống: "Còn khoản nợ bốn mươi vạn tệ của chú Hứa..."
+Trần Trạch cúi gằm mặt xuống: "Còn khoản nợ bốn mươi vạn tệ của chú Từ..."
 
 "Mẹ đã viết giấy nợ đàng hoàng rồi, bốn mươi vạn tệ đó dù có phải nghiến răng mẹ cũng nhất định sẽ trả đủ cho người ta."
 
-Dương Thục Mỹ dẫu sao vẫn thương con trai hết mực: "Chiếc xe BMW mẹ sẽ không bán của con đâu, hàng tháng bố con cũng sẽ gửi tiền sinh hoạt phí đều đặn, bản thân con biết tằn tiện chi tiêu một chút thì chắc chắn vẫn đủ sống thoải mái."
+Dương Thù Mỹ dẫu sao vẫn thương con trai hết mực: "Chiếc xe BMW mẹ sẽ không bán của con đâu, hàng tháng bố con cũng sẽ gửi tiền sinh hoạt phí đều đặn, bản thân con biết tằn tiện chi tiêu một chút thì chắc chắn vẫn đủ sống thoải mái."
 
 Trên bàn trà có đặt một bao thuốc lá Tinh Bạch Sa, Trần Trạch run rẩy rút một điếu châm lửa.
 
@@ -70,9 +68,9 @@ Lâm Thanh Tuyết bảo hắn ấu trĩ đến nực cười, mẹ ruột cũng
 
 Một lần hắn đổ xăng xe đã ngót nghét ba trăm tệ, trong khi ba trăm tệ ấy lại là toàn bộ tiền ăn cả một tháng trời của biết bao bạn học cùng lớp.
 
-Trên thực tế, bán chiếc xe cũ cũng chẳng thu về được bao nhiêu tiền. Dương Thục Mỹ thừa hiểu việc ngân hàng Lehman Brothers sụp đổ chưa phải là dấu chấm hết, chuỗi ngày giông bão của vài tháng tới ắt hẳn sẽ còn gian nan, khốc liệt hơn gấp bội phần.
+Trên thực tế, bán chiếc xe cũ cũng chẳng thu về được bao nhiêu tiền. Dương Thù Mỹ thừa hiểu việc ngân hàng Lehman Brothers sụp đổ chưa phải là dấu chấm hết, chuỗi ngày giông bão của vài tháng tới ắt hẳn sẽ còn gian nan, khốc liệt hơn gấp bội phần.
 
-Dương Thục Mỹ không tài nào liên lạc được với Triệu Kim An. Nếu bà mà biết được những hành động nông cạn của Trần Trạch sau lưng mình, ắt hẳn bà cũng sẽ thở dài cay đắng vì sự ấu trĩ cùng cực của con trai.
+Dương Thù Mỹ không tài nào liên lạc được với Triệu Kim An. Nếu bà mà biết được những hành động nông cạn của Trần Trạch sau lưng mình, ắt hẳn bà cũng sẽ thở dài cay đắng vì sự ấu trĩ cùng cực của con trai.
 
 Dẫu có là bạn bè cùng lớp đại học đi chăng nữa, cũng chẳng ai mở miệng vay tiền theo cái kiểu trơ trẽn như vậy.
 
@@ -90,7 +88,7 @@ Và còn một người nữa, Triệu Kim An.
 
 "Chắc là Triệu Kim An đang sung sướng lắm khi thấy nhà mình phá sản tan tành thế này nhỉ?"
 
-Trần Trạch đã quên sạch bách việc chính Triệu Kim An từng hảo tâm khuyên hắn nên sớm bán tống bán tháo số cổ phiếu đi. Trong đầu hắn giờ đây chỉ luẩn quẩn hình bóng Hứa Mạn Mạn - người đang chễm chệ ngồi ở vị trí Phó Tổng giám đốc tại Trăn Hối Tuyển của Triệu Kim An.
+Trần Trạch đã quên sạch bách việc chính Triệu Kim An từng hảo tâm khuyên hắn nên sớm bán tống bán tháo số cổ phiếu đi. Trong đầu hắn giờ đây chỉ luẩn quẩn hình bóng Từ Mạn Mạn - người đang chễm chệ ngồi ở vị trí Phó Tổng giám đốc tại Trăn Hối Tuyển của Triệu Kim An.
 
 Trần Trạch thực sự sợ cảnh nhà tan cửa nát, hắn biết một khi gia đình chính thức phá sản, Lâm Thanh Tuyết chắc chắn sẽ chủ động nói lời chia tay.
 
@@ -124,7 +122,7 @@ Lục Mai Tiêu thực tâm đã coi Triệu Kim An như chàng rể quý trong 
 
 Thì ngoài chuỗi siêu thị Trăn Hối Tuyển ra, Triệu Kim An đã sớm bắc cầu kết nối toàn bộ nguồn hàng dệt may của nhà họ Thẩm vào hệ thống bán lẻ khổng lồ Bàn Đông Lai từ trước đó rồi.
 
-Nhìn lại Trương Vân Thiến, rồi nhìn sang gia cảnh Dương Thục Mỹ lúc này, Thẩm Tử Ngôn áp chặt chiếc điện thoại bên tai, im lặng không nói nên lời.
+Nhìn lại Trương Vân Thiến, rồi nhìn sang gia cảnh Dương Thù Mỹ lúc này, Thẩm Tử Ngôn áp chặt chiếc điện thoại bên tai, im lặng không nói nên lời.
 
 Lần này, mãi ba ngày sau Thẩm Tử Ngôn mới hay tin Đoạn Thu Bình đã lên Quận Sa và hiện đang ở tại căn hộ của Triệu Kim An.
 
@@ -160,29 +158,29 @@ Tống Gia Nguyệt nắm chặt lấy bàn tay mẹ không rời. Lưu Mỹ Nga
 
 Rõ ràng bà chỉ là người làm công nấu nướng, vậy mà mỗi lần ở trong nhà muốn ăn miếng bánh, hớp nước, Tống Gia Nguyệt đều phải lấm lét nhìn sắc mặt bà trước.
 
-Vừa bước chân vào sảnh siêu thị, Lưu Mỹ Nga đang định gọi điện báo cho Hứa Mạn Mạn một tiếng.
+Vừa bước chân vào sảnh siêu thị, Lưu Mỹ Nga đang định gọi điện báo cho Từ Mạn Mạn một tiếng.
 
-Thì Hứa Mạn Mạn đã từ trên lầu bước thoăn thoắt xuống đón tự lúc nào.
+Thì Từ Mạn Mạn đã từ trên lầu bước thoăn thoắt xuống đón tự lúc nào.
 
 "Cháu chào bác gái ạ."
 
-Đoạn Thu Bình lại được gặp lại Hứa Mạn Mạn, lúc này bà đã biết cô gái đoan trang này chính là Phó Tổng giám đốc quyền lực của Trăn Hối Tuyển.
+Đoạn Thu Bình lại được gặp lại Từ Mạn Mạn, lúc này bà đã biết cô gái đoan trang này chính là Phó Tổng giám đốc quyền lực của Trăn Hối Tuyển.
 
 Lưu Mỹ Nga không hề nhiều lời kể lể những chuyện hậu trường phức tạp, chẳng hạn như những màn ngấm ngầm tranh đấu giữa các bóng hồng quanh Triệu Kim An.
 
-Thành thực mà nói, Đoạn Thu Bình rất có thiện cảm với Hứa Mạn Mạn, trong lòng bà vẫn luôn có chút lấn cấn, canh cánh không yên về việc Tô Miến phải ngồi xe lăn.
+Thành thực mà nói, Đoạn Thu Bình rất có thiện cảm với Từ Mạn Mạn, trong lòng bà vẫn luôn có chút lấn cấn, canh cánh không yên về việc Tô Miến phải ngồi xe lăn.
 
-Hứa Mạn Mạn kéo lại một chiếc xe đẩy hàng nhỏ, rồi dịu dàng chìa một ngón tay thon dài ra trước mặt Tống Gia Nguyệt: "Tiểu Nguyệt ngoan, chị dắt em đi dạo siêu thị nhé."
+Từ Mạn Mạn kéo lại một chiếc xe đẩy hàng nhỏ, rồi dịu dàng chìa một ngón tay thon dài ra trước mặt Tống Gia Nguyệt: "Tiểu Nguyệt ngoan, chị dắt em đi dạo siêu thị nhé."
 
-Lưu Mỹ Nga đứng bên cạnh lặng lẽ quan sát, trong lòng thầm nghĩ: Lần này Hứa tổng đã nhanh chân hơn Thẩm tổng một bước rồi.
+Lưu Mỹ Nga đứng bên cạnh lặng lẽ quan sát, trong lòng thầm nghĩ: Lần này Từ tổng đã nhanh chân hơn Thẩm tổng một bước rồi.
 
-Tống Gia Nguyệt ngước đôi mắt tròn xoe lên nhìn mẹ, thấy mẹ gật đầu khích lệ, con bé mới ngập ngừng đưa bàn tay nhỏ xíu ra nắm chặt lấy ngón tay của Hứa Mạn Mạn. Tống Gia Nguyệt thừa hưởng nét đẹp từ mẹ, gương mặt thực chất có tới năm phần giống với Triệu Kim An.
+Tống Gia Nguyệt ngước đôi mắt tròn xoe lên nhìn mẹ, thấy mẹ gật đầu khích lệ, con bé mới ngập ngừng đưa bàn tay nhỏ xíu ra nắm chặt lấy ngón tay của Từ Mạn Mạn. Tống Gia Nguyệt thừa hưởng nét đẹp từ mẹ, gương mặt thực chất có tới năm phần giống với Triệu Kim An.
 
-Liễu Ôn Ninh vội vã chạy lại gần: "Hứa... Hứa tổng, ai thế này ạ?"
+Liễu Ôn Ninh vội vã chạy lại gần: "Hứa... Từ tổng, ai thế này ạ?"
 
 "Mẹ của anh Kim An, và em gái của anh ấy."
 
-Hứa Mạn Mạn không hề dùng cụm từ "cùng mẹ khác cha", nhưng Liễu Ôn Ninh là người nhanh nhạy, đầu óc chỉ khẽ xoay chuyển một cái là hiểu ngay ngọn nguồn.
+Từ Mạn Mạn không hề dùng cụm từ "cùng mẹ khác cha", nhưng Liễu Ôn Ninh là người nhanh nhạy, đầu óc chỉ khẽ xoay chuyển một cái là hiểu ngay ngọn nguồn.
 
 "Chào... chào bác Triệu ạ, chào mừng bác đến thăm siêu thị!"
 
@@ -194,13 +192,13 @@ Liễu Ôn Ninh chỉ kém Đoạn Thu Bình vài tuổi nên hơi ngượng ng�
 
 "Dạ đúng rồi bác ạ."
 
-Hứa Mạn Mạn dắt Tống Gia Nguyệt đi thẳng tới khu vực bánh ngọt nướng tươi. Mùi bơ sữa thơm nức ngào ngạt lan tỏa khắp không gian, các nhân viên quầy bánh gặp mặt đều đồng thanh cất tiếng: "Chào Hứa tổng!", khiến những vị khách mua sắm xung quanh đều không khỏi tò mò liếc nhìn Hứa Mạn Mạn.
+Từ Mạn Mạn dắt Tống Gia Nguyệt đi thẳng tới khu vực bánh ngọt nướng tươi. Mùi bơ sữa thơm nức ngào ngạt lan tỏa khắp không gian, các nhân viên quầy bánh gặp mặt đều đồng thanh cất tiếng: "Chào Từ tổng!", khiến những vị khách mua sắm xung quanh đều không khỏi tò mò liếc nhìn Từ Mạn Mạn.
 
-Cũng chẳng trách vì sao Đoạn Thu Bình lại có cảm tình đặc biệt với Hứa Mạn Mạn đến thế. Cô toát lên vẻ dịu dàng, đoan trang, đĩnh đạc chứ tuyệt nhiên không mang nét lẳng lơ, diêm dúa của những người đàn bà khác.
+Cũng chẳng trách vì sao Đoạn Thu Bình lại có cảm tình đặc biệt với Từ Mạn Mạn đến thế. Cô toát lên vẻ dịu dàng, đoan trang, đĩnh đạc chứ tuyệt nhiên không mang nét lẳng lơ, diêm dúa của những người đàn bà khác.
 
-Hứa Mạn Mạn cúi đầu nhìn cô bé có nét mặt giống Triệu Kim An tới năm phần, có lẽ do tính cách vốn mực thước nên cô không vồ vập ôm chầm lấy con bé ngay, mà chỉ mỉm cười dịu dàng hỏi: "Tiểu Nguyệt thích ăn chiếc bánh nào nhất nè?"
+Từ Mạn Mạn cúi đầu nhìn cô bé có nét mặt giống Triệu Kim An tới năm phần, có lẽ do tính cách vốn mực thước nên cô không vồ vập ôm chầm lấy con bé ngay, mà chỉ mỉm cười dịu dàng hỏi: "Tiểu Nguyệt thích ăn chiếc bánh nào nhất nè?"
 
-Tống Gia Nguyệt kiễng gót chân ngắm nhìn một vòng quanh tủ kính, rồi rụt rè chỉ tay vào chiếc bánh mì rắc ruốc chà bông kẹp xúc xích. Con bé ngước nhìn Hứa Mạn Mạn, rồi lại quay sang nhìn mẹ đầy vẻ xin phép:
+Tống Gia Nguyệt kiễng gót chân ngắm nhìn một vòng quanh tủ kính, rồi rụt rè chỉ tay vào chiếc bánh mì rắc ruốc chà bông kẹp xúc xích. Con bé ngước nhìn Từ Mạn Mạn, rồi lại quay sang nhìn mẹ đầy vẻ xin phép:
 
 "Mẹ ơi... con muốn mua chiếc bánh này... có được không mẹ?"
 

@@ -1,225 +1,217 @@
-# ﻿Chương 364: Miệng nói không nhưng chân đã chạy rồi
+# Chương 364: Nói một đằng nghĩ một nẻo?
 
-> **Tiêu đề gốc**: 第364章 口是心非？
-
-Mạc Thượng Yên Vũ Dao: Tử Ngôn, tao đặt tám mươi thùng đồ hộp, phúc lợi công ty.
+Mạch Thượng Yên Vũ Dao: Tử Ngôn, tớ lấy 80 thùng đồ hộp nhé, làm phúc lợi công ty.
 
 Thẩm Tử Ngôn: OK.
 
-Phần đồ hộp để phòng 406 ăn, Thẩm Tử Ngôn bao — còn Mộc Dao đã nói phúc lợi công ty thì tất nhiên cô tự bỏ tiền.
+Đồ cả phòng 406 ăn chung thì Thẩm Tử Ngôn sẽ trả tiền mời, nhưng Mộc Dao đã nói là làm phúc lợi cho công ty thì chắc chắn cô ấy tự bỏ tiền túi ra mua.
 
-Thẩm Tử Ngôn: Dao Dao, trông như dì mày công ty đang ăn nên làm ra đó.
+Thẩm Tử Ngôn: Dao Dao, xem ra công ty dì út cậu làm ăn phát đạt lắm nhỉ.
 
-Mạc Thượng Yên Vũ Dao: Ừ, mấy tháng nay kiếm được ít tiền, Đoan Ngọ phát chút quà cho nhân viên.
+Mạch Thượng Yên Vũ Dao: Ừm, mấy tháng nay kiếm được chút đỉnh, Tết Đoan Ngọ phát ít phúc lợi cho nhân viên.
 
-Từ Mạn Mạn không còn công ty, không còn việc làm — chỉ lặng lẽ nhìn Thẩm Tử Ngôn và Mộc Dao trò chuyện.
+Từ Mạn Mạn giờ không còn công ty, không còn công việc, chỉ lặng lẽ nhìn Thẩm Tử Ngôn và Mộc Dao trò chuyện.
 
-Trong phòng, Diêu Tân nhìn qua Từ Mạn Mạn, nhận ra rồi — cứ hễ nói đến Chân Hội Tuyển là Từ Mạn Mạn lại sôi nổi hẳn lên trong nhóm.
+Trong ký túc xá, Diêu Sân liếc nhìn Từ Mạn Mạn, cô phát hiện ra hễ nhắc tới Trăn Hối Tuyển là Từ Mạn Mạn lại nói rất nhiều trong nhóm.
 
-"Haizzz!"
+"Chậc!"
 
-Thật ra mà nói, người Diêu Tân thân nhất là Từ Mạn Mạn. Đời trước Diêu Tân mua nhà cưới chồng cần mượn tiền, người đầu tiên cô tìm là Từ Mạn Mạn, chứ không phải Thẩm Tử Ngôn dù nhà cô ấy giàu hơn nhiều.
+Xét từ tận đáy lòng, Diêu Sân thân thiết với Từ Mạn Mạn nhất; kiếp trước khi kết hôn mua nhà, người đầu tiên Diêu Sân hỏi vay tiền cũng là Từ Mạn Mạn chứ không phải Thẩm Tử Ngôn giàu có hơn.
 
----
+Tưởng Gia Ao.
 
-Giang Gia Áo.
+Thẩm Tử Ngôn gọi Lư Kiều Vĩ tới, dặn ông đừng tiết lộ chuyện chính mình là người mua số đồ hộp ấy.
 
-Thẩm Tử Ngôn gọi Lư Kiều Vỹ vào, dặn đừng tiết lộ là chính mình mua đồ hộp.
+Xưởng đồ hộp lại có thêm một đơn hàng nhỏ.
 
-Xưởng đồ hộp lại có thêm một mối làm ăn nho nhỏ.
+"Reng reng reng."
 
-"Keng keng keng."
+Đúng lúc này chuông điện thoại reo lên, Thẩm Tử Ngôn liếc nhìn số gọi đến rồi nhanh chóng bắt máy.
 
-Lúc đó điện thoại reo. Thẩm Tử Ngôn liếc mắt nhìn màn hình, nhanh chóng bắt máy.
+Đầu dây bên kia vang lên giọng nói của Triệu Kim An.
 
-Đầu dây bên kia là giọng Triệu Kim An.
+"Em đang bày trò gì ở Tưởng Gia Ao thế?"
 
-"Mày đang ở Giang Gia Áo làm trò gì vậy?"
+"..."
 
-"......"
+Lư Kiều Vĩ thót tim, nét mặt căng thẳng nhìn chằm chằm Thẩm Tử Ngôn.
 
-Lư Kiều Vỹ tim đập thình thịch, nhìn Thẩm Tử Ngôn lo lắng ra mặt.
+Hơn nữa, sao Triệu tổng lại thính tin đến thế? Bên này Thẩm tổng vừa mới mở lời, Triệu tổng ở tận Quận Sa xa xôi đã biết rồi sao?
 
-Ủa, mà Triệu tổng thính thế sao? Bên này Thẩm tổng vừa ra tay, ở tận Quận Sa xa xôi mà Triệu tổng đã biết rồi?
+"Bày trò á?"
 
-"Làm trò?"
+Thẩm Tử Ngôn nói giọng mỉa mai châm chọc: "Anh tưởng ai cũng giống ai đó, chỉ biết lo yêu đương mà bỏ bê công việc à?"
 
-Thẩm Tử Ngôn mỉa mai: "Mày tưởng ai cũng như một người nào đó, chỉ biết yêu đương không biết làm việc à?"
+"..."
 
-"......"
+Lư Kiều Vĩ đầu óc xoay chuyển không kịp nữa rồi, Triệu tổng đang yêu đương với ai cơ chứ? Chỉ có Thẩm tổng mới dám nói chuyện với Triệu tổng bằng cái giọng điệu này thôi.
 
-Lư Kiều Vỹ não hơi không theo kịp — Triệu tổng đang yêu ai vậy? Chỉ có Thẩm tổng mới dám nói chuyện với Triệu tổng kiểu này.
+"Anh..."
 
-"Tao..."
+Triệu Kim An đành nhẫn nhịn nuốt cục tức: "Anh đang ở Dương Thành, anh đang làm việc."
 
-Triệu Kim An nhịn xuống: "Tao đang ở Dương Thành, tao đang làm việc."
+"Không phải anh ở Kinh Đô sao?"
 
-"Mày không ở Kinh Đô à?"
+"Đang ở Dương Thành rồi, có qua đây không?"
 
-"Ở Dương Thành, mày qua không?"
+"Để em suy nghĩ đã, anh gửi địa chỉ cho em trước đi."
 
-"Để tao nghĩ, mày gửi địa chỉ cho tao trước đi."
+Cúp máy xong, Thẩm Tử Ngôn chạy nhanh hơn bất kỳ ai.
 
-Cúp điện thoại là Thẩm Tử Ngôn chạy nhanh hơn ai hết.
+"Nói một đằng nghĩ một nẻo à?"
 
-Miệng nói không — nhưng chân đã chạy rồi.
+"Sao Thẩm tổng lại biến thành cô gái nhỏ thế này rồi? Vị Thẩm tổng vừa nói chuyện với mình lúc nãy đâu mất rồi?"
 
-"Sao Thẩm tổng lại trở thành con gái nhỏ vậy? Thẩm tổng nãy còn cứng như thép, giờ biến đâu rồi?"
+Lư Kiều Vĩ nhìn theo mà ngây người như phỗng. Không phải đang làm việc sao? Chiều nay cô bảo còn một cuộc họp cơ mà, không họp nữa à?
 
-Lư Kiều Vỹ đứng nhìn há hốc mồm — không phải còn có cuộc họp chiều à? Thôi không họp nữa à?
+Thẩm Tử Ngôn chạy về ký túc xá thu dọn hành lý mới sực nhớ ra chuyện anh đào, liền dặn dò thêm Lư Kiều Vĩ nhớ đi mua anh đào giúp mình.
 
-Thẩm Tử Ngôn chạy về phòng thu dọn hành lý, tới lúc đó mới nhớ ra chuyện anh đào, lại quay ra dặn Lư Kiều Vỹ mua anh đào.
+Liễu Ôn Ninh lúc này cũng đang ở Dương Thành, ngay bên cạnh Triệu Kim An.
 
----
+Còn có cả Du Phi nữa.
 
-Liễu Ôn Ninh đang ở Dương Thành, ngay bên cạnh Triệu Kim An.
+Du Phi vừa mới nhận được điện thoại của một đại lý báo lại nên đã kể cho Triệu Kim An nghe.
 
-Còn có cả Dư Phi.
+Quả nhiên, Triệu Kim An chẳng nói gì; Thẩm Tử Ngôn giúp Tưởng Chỉ Tình một lần cũng chẳng sao cả.
 
-Dư Phi vừa nhận được điện thoại của một đại lý, liền báo lại cho Triệu Kim An.
+Từ khi trở thành Phó Tổng của Trăn Hối Tuyển, Liễu Ôn Ninh mới hiểu thấu đáo toàn bộ kế hoạch của Triệu Kim An dành cho Trăn Hối Tuyển.
 
-Quả nhiên, Triệu Kim An không nói gì — Thẩm Tử Ngôn giúp Giang Chi Tình một lần, chuyện nhỏ thôi.
+Vốn dĩ Từ Mạn Mạn nắm rất rõ những điều này, giờ Triệu Kim An đành phải giảng giải lại cho Liễu Ôn Ninh một lượt.
 
----
+Bộ phận thương mại điện tử của Trăn Hối Tuyển cũng tạm thời gác lại.
 
-Liễu Ôn Ninh chính thức lên phó tổng Chân Hội Tuyển, mới thật sự hiểu hết toàn bộ kế hoạch của Triệu Kim An dành cho Chân Hội Tuyển.
+Ban đầu đây là đề xuất của Từ Mạn Mạn, nhưng năm 2009 thời cơ và mọi điều kiện vẫn chưa chín muồi. Triệu Kim An từng bảo Từ Mạn Mạn chờ thêm chút nữa, nào ngờ chưa kịp chờ thì đã chẳng còn cơ hội nữa rồi.
 
-Từ Mạn Mạn vốn đã rõ lắm rồi, nhưng Triệu Kim An đành phải ngồi giảng lại từ đầu cho Liễu Ôn Ninh nghe.
+Giờ Liễu Ôn Ninh lại nhắc tới chuyện này.
 
-Bộ phận thương mại điện tử của Chân Hội Tuyển cũng tạm thời gác lại.
+Triệu Kim An vẫn bảo chờ thêm, điều kiện chưa chín muồi.
 
-Vốn dĩ là ý tưởng của Từ Mạn Mạn đề xuất — nhưng năm 2009 thời điểm và các điều kiện đều chưa chín muồi, Triệu Kim An bảo Từ Mạn Mạn chờ một chút, không ngờ lại hết cơ hội rồi.
+Trong suy nghĩ của Triệu Kim An, anh muốn mô phỏng theo mô hình cửa hàng của Bàn Tây Lai trên Đẩu Âm, ít nhất cũng phải đợi tới khi điện thoại thông minh phổ cập ra thị trường đã.
 
-Bây giờ Liễu Ôn Ninh lại nhắc lại chuyện đó.
+Hiện tại điều kiện giao nhận vận chuyển đã tương đối hoàn thiện, các hãng chuyển phát nhanh lớn như Thuận Phong và Tam Thông Nhất Đạt về cơ bản đã đáp ứng được nhu cầu mua sắm trực tuyến.
 
-Triệu Kim An vẫn nói: chờ thêm, điều kiện chưa đủ.
+Cũng chính vào năm 2009 đã diễn ra sự kiện Song Thập Nhất (11/11) đầu tiên.
 
-Trong lòng anh, cái anh hình dung là mô hình cửa hàng phát sóng trực tiếp kiểu胖西来trên Đẩu Âm — ít nhất cũng phải đợi điện thoại thông minh ra đời đã.
+Tổng giá trị giao dịch đạt 52 triệu tệ, chỉ có 27 thương hiệu tham gia.
 
-Giờ thì hạ tầng logistics đã ổn — các hãng chuyển phát lớn, Thuận Phong cùng Ba Thông Nhất Đạt về cơ bản đã đáp ứng được mua hàng trực tuyến.
+Nhìn từ góc độ hiện tại thì một mùa Song Thập Nhất bán được 52 triệu tệ thậm chí còn chẳng bằng một streamer bán hàng livestream, nhưng vào năm 2009 đó là một sự kiện vô cùng chấn động; kể từ đó mua sắm trực tuyến mới thực sự bước vào tầm mắt công chúng.
 
-Và ngay năm 2009 này đã có kỳ Song Thập Nhất đầu tiên rồi.
+Điều này cũng gián tiếp chứng minh hệ thống logistics của các công ty chuyển phát nhanh đã chín muồi.
 
-Doanh số đạt năm mươi hai triệu, chỉ có hai mươi bảy thương hiệu tham gia.
+Không có sự bảo đảm từ vận chuyển, thương mại điện tử chẳng khác nào lâu đài xây trên cát.
 
-Nhìn lại bây giờ thì một kỳ Song Thập Nhất mà chỉ đạt năm mươi hai triệu — không bằng một streamer live sale nổi tiếng — nhưng năm 2009 đó là một cú nổ lớn, từ đó mua sắm trực tuyến mới thật sự đi vào đời sống đại chúng.
+Triệu Kim An không thể nói với Liễu Ôn Ninh về đường đua livestream, ngay cả với Từ Mạn Mạn anh cũng chưa từng nhắc tới — căn bản không thể giải thích được, thế nên hiện tại những gì Liễu Ôn Ninh biết và những gì Từ Mạn Mạn biết là ngang nhau.
 
-Điều này cũng cho thấy: logistics đã chín muồi.
+Nếu ứng dụng video ngắn là của chính mình, vậy thì lưu lượng truy cập của gian hàng Trăn Hối Tuyển sẽ do tự mình định đoạt.
 
-Không có hạ tầng giao hàng, mua hàng trực tuyến chỉ là lâu đài trên cát.
+Thẩm Tử Ngôn lập tức bắt chuyến bay sớm nhất tới Dương Thành. Cô đã cả tháng trời chưa gặp Triệu Kim An. Khi nghe Triệu Kim An muốn tự làm dòng sản phẩm dầu ăn và nước tương, cô lấy làm kinh ngạc vô cùng.
 
-Triệu Kim An không thể nói với Liễu Ôn Ninh về làn sóng livestream — anh cũng chưa nói với Từ Mạn Mạn. Không có cách nào nói, nên bây giờ Liễu Ôn Ninh và Từ Mạn Mạn đều biết như nhau.
-
-Nếu ứng dụng video ngắn là của mình, lưu lượng truy cập vào cửa hàng Chân Hội Tuyển thì mình muốn điều chỉnh thế nào cũng được.
-
----
-
-Thẩm Tử Ngôn đáp máy bay chạy thẳng đến Dương Thành, một tháng không gặp Triệu Kim An rồi — nghe anh ấy nói muốn tự làm dầu ăn và nước tương, cô ngạc nhiên lắm.
-
-Bây giờ mới 2009 thôi, kể từ cuộc "khủng hoảng đậu nành" năm 2004-2006 mới chưa đầy ba năm.
+Bây giờ mới là năm 2009, tính từ cuộc "khủng hoảng đậu nành" giai đoạn 2004–2006 mới trôi qua chưa đầy ba năm.
 
 Khủng hoảng đậu nành là gì?
 
-Bản chất là: năm 2000 mới gia nhập WTO, doanh nghiệp trong nước chưa quen luật chơi tài chính quốc tế — lúc giá đậu nành thế giới lên đỉnh thì ào ạt thu mua, rồi giá sập, thua lỗ nặng nề không trả được nợ, cuối cùng bị các đại gia lương thực quốc tế đã mai phục sẵn thâu tóm với giá rẻ mạt.
+Bản chất là: năm 2000 nước nhà mới gia nhập WTO, các doanh nghiệp nội địa chưa thông thạo quy tắc tài chính quốc tế, ồ ạt thu mua khi giá đậu nành thế giới đang ở vùng đỉnh; sau đó giá lao dốc không phanh khiến doanh nghiệp lỗ nặng, mất khả năng trả nợ vay, cuối cùng bị các tập đoàn lương thực quốc tế vốn đã giăng bẫy chờ sẵn thâu tóm với giá rẻ mạt.
 
-Cũng từ đây, khái niệm "không biến đổi gen" xuất hiện trên quảng cáo truyền hình, đi vào tâm trí người tiêu dùng.
+Khái niệm "không biến đổi gen" cũng từ thời điểm này bắt đầu đi vào nhận thức của đại chúng qua các quảng cáo trên truyền hình.
 
-Đó là cuộc bao vây toàn diện của nước ngoài.
+Đó là cuộc vây hãm toàn diện của tư bản nước ngoài.
 
-Nói "thương hiệu dân tộc" có thể bị gán cho là đang kích động, nhưng thực tế chỉ có hai con đường: biến mất hoàn toàn, hoặc bị ngoại tư thâu tóm.
+Nói đến thương hiệu dân tộc có lẽ hơi mang tính trói buộc đạo đức, nhưng thực tế khi ấy chỉ có hai con đường: hoặc biến mất hoàn toàn, hoặc bị tư bản nước ngoài thâu tóm.
 
-Bây giờ dầu ăn người ta mua chủ yếu là hàng ngoại tư kiểm soát.
+Hiện nay phần lớn dầu ăn mà mọi người mua về dùng đều nằm dưới quyền kiểm soát của vốn ngoại.
 
-Lỗ Hoa ở Lỗ tỉnh là một trong số ít thương hiệu dân tộc sống sót — vì Lỗ Hoa chủ yếu dùng lạc chứ không phải đậu nành, nên chịu tác động trực tiếp từ cuộc khủng hoảng đậu nành ít hơn tương đối.
+Thương hiệu Lỗ Hoa ở tỉnh Lỗ là một trong số ít thương hiệu dân tộc sống sót được, bởi nguyên liệu chủ yếu của Lỗ Hoa là lạc chứ không phải đậu nành, nên chịu tác động trực tiếp từ khủng hoảng đậu nành tương đối ít.
 
-Còn lại, vô số xưởng ép dầu vừa và nhỏ phá sản hàng loạt, rút hẳn khỏi thị trường.
+Còn lại, vô số xưởng ép dầu vừa và nhỏ đồng loạt phá sản đóng cửa, rút lui hoàn toàn khỏi thị trường.
 
-"Kim An, mày định mua lại xưởng hay đặt gia công?"
+"Kim An, anh định mua lại nhà máy hay thuê gia công sản xuất?"
 
-Thẩm Tử Ngôn nói thẳng trong phòng khách sạn: "Chân Hội Tuyển mới có một cửa hàng, mua xưởng không xứng, sản lượng thừa chết."
+Trong khách sạn, Thẩm Tử Ngôn nói thẳng vào vấn đề: "Trăn Hối Tuyển mới có một cửa hàng, mua lại nhà máy thì chẳng bõ, công suất dư thừa nghiêm trọng."
 
-Triệu Kim An cười: "Giống Lưu Sáng Phong và Cốc Siêu Thừa, đặt gia công thôi."
+Triệu Kim An mỉm cười: "Giống như Lưu Sấm Phong và Cốc Siêu Thừa vậy, thuê gia công."
 
-"Triệu tổng nói thử làm thương hiệu bằng chất lượng trước."
+"Triệu tổng bảo trước mắt cứ thử làm lấy uy tín thương hiệu đã."
 
-Liễu Ôn Ninh giải thích thêm: "Còn có các sản phẩm tiêu dùng hàng ngày khác nữa."
+Liễu Ôn Ninh giải thích thêm: "Còn cả các mặt hàng hóa mỹ phẩm tiêu dùng hằng ngày khác nữa."
 
-"Thế mỹ phẩm chăm sóc da thì sao?"
+"Thế còn mỹ phẩm trang điểm và chăm sóc da?"
 
-Thẩm Tử Ngôn chớp mắt: "Vậy không phải cùng ngành với Trương Vân Tây rồi à?"
+Thẩm Tử Ngôn chớp mắt trêu: "Thế chẳng phải thành đối thủ cùng ngành với Trương Vân Thiến à?"
 
-"...Mày ra ngoài đi."
+"...Em tránh ra xa một chút."
 
-Triệu Kim An đẩy Thẩm Tử Ngôn ra một cái — rõ ràng cô ấy đang nói đến Mộc Dao.
+Triệu Kim An đưa tay đẩy Thẩm Tử Ngôn ra, rõ ràng cô nàng đang cố tình nhắc tới Mộc Dao.
 
-"Thẩm tổng, anh chưa nói hết — mày không biết lợi nhuận ngành này đâu, đặc biệt là hàng tiêu dùng hàng ngày. Mày biết một chai dầu gội giá vốn bao nhiêu không?"
+"Thẩm tổng, chúng tôi đã tiếp xúc với vài nhà máy rồi."
 
-"Vài đồng!"
+Liễu Ôn Ninh khẽ nói: "Cô không biết lợi nhuận của mảng này cao thế nào đâu, nhất là dòng hóa mỹ phẩm. Cô biết một chai dầu gội đầu giá vốn bao nhiêu không?"
 
-Liễu Ôn Ninh ra hiệu bằng tay, bí bí ẩm ẩn: "Bán mấy chục đến cả trăm, kênh phân phối là của mình."
+"Vài tệ thôi!"
 
-"Cái đó còn chưa cao — Trương Vân Tây còn hơn, dầu gội mày bán mấy chục cả trăm, bà ấy bán mấy trăm đến cả nghìn."
+Liễu Ôn Ninh giơ tay ra hiệu, vẻ mặt đầy thần bí: "Thế mà bán ra vài chục thậm chí cả trăm tệ, kênh phân phối lại là của chính chúng ta."
 
-"......"
+"Thế vẫn chưa tính là cao đâu, sản phẩm của Trương Vân Thiến còn lời hơn nữa. Dầu gội của chị bán vài chục tới cả trăm tệ, bên họ bán vài trăm tới cả nghìn tệ kia kìa."
 
-Triệu Kim An thua hẳn, đẩy Thẩm Tử Ngôn thêm cái: "Mày về đi, đừng phá!"
+"..."
 
-"Tao sai à?"
+Triệu Kim An hoàn toàn cạn lời, đẩy Thẩm Tử Ngôn thêm cái nữa: "Em về đi cho rồi, đừng ở đây phá đám nữa!"
 
-Thẩm Tử Ngôn cười hỏi lại.
+"Không đúng sao?"
 
-Không ngờ Dư Phi bên cạnh gật đầu lia lịa: "Mỹ phẩm chăm sóc da lợi nhuận cao đến mức sốc, trừ bao bì ra, vài đồng giá vốn bán mấy trăm tệ."
+Thẩm Tử Ngôn lại cười hỏi ngược lại.
 
-"Kim An, là Dao Dao nói với em đó."
+Không ngờ Du Phi đứng bên cạnh cũng gật đầu lia lịa: "Mỹ phẩm chăm sóc da lợi nhuận đúng là cao đến phát hoảng thật. Trừ bao bì ra, giá vốn chỉ vài tệ mà bán tới mấy trăm tệ."
 
-Dư Phi ghé sát nói nhỏ: "Dao Dao bảo lần đầu tiên biết cũng giật mình luôn — một cây bút kẻ mày mấy xu thôi mà bán mấy tệ, thậm chí mười mấy tệ vẫn có con gái mua."
+"Kim An, chính Dao Dao kể với tớ đấy."
 
-"Dao Dao lấy cho em cả một nắm, em cũng dùng được như bút chì viết chữ luôn."
+Du Phi ghé sát lại nói nhỏ: "Dao Dao bảo lần đầu tiên biết chuyện cậu ấy cũng giật bắn mình. Một cây chì kẻ mày giá vốn vài hào mà bán mấy tệ, thậm chí bán hơn chục tệ vẫn có đầy phụ nữ mua."
 
-Dư Phi và Thẩm Tử Ngôn không phải ghen tị chuyện Mộc Dao kiếm tiền — dù Triệu Kim An có làm ngành này, thì ai làm của người đó.
+"Dao Dao lấy cả một nắm lớn cho tớ, nhiều đến mức tớ đem ra làm bút chì viết chữ luôn cũng được."
 
-"Tụi mình đang nói cùng một chủ đề không vậy?"
+Du Phi và Thẩm Tử Ngôn chẳng hề ghen tị với việc Mộc Dao kiếm tiền; kể cả Triệu Kim An có làm mảng này thì cũng mỗi người một ngả kinh doanh riêng.
 
-Triệu Kim An hít thở sâu mấy cái: "Thẩm Tử Ngôn, mày vừa đến đã kéo Dư Phi đi lạc chủ đề rồi."
+"Chúng ta đang nói cùng một chủ đề đấy à?"
 
-"Cúc cúc cúc..."
+Triệu Kim An hít sâu mấy hơi: "Thẩm Tử Ngôn, em vừa tới một cái là kéo hư cả Du Phi rồi."
 
-Thẩm Tử Ngôn cười càng vui hơn.
+"Hì hì hì..."
 
-Dư Phi còn rút điện thoại ra cho Triệu Kim An xem: "Kim An, Trương Vân Tây cũng đang ở Dương Thành."
+Thẩm Tử Ngôn cười càng lúc càng khoái chí.
 
-Thẩm Tử Ngôn làm vậy là cố tình — coi như xả được hơi tức mấy tháng nay?
+Du Phi còn giơ điện thoại cho Triệu Kim An xem: "Kim An, Trương Vân Thiến cũng đang ở Dương Thành đấy."
 
-Cô ôm Dư Phi cười phá lên.
+Thẩm Tử Ngôn rõ ràng là cố ý, coi như trút được một hơi hờn dỗi suốt thời gian qua chăng?
 
-"......"
+Cô ôm lấy Du Phi cười ngặt nghẽo.
 
-Liễu Ôn Ninh há miệng không nói được gì, nhận ra phong cách làm việc của Thẩm tổng và Từ tổng hoàn toàn khác nhau.
+"..."
 
-Tính cách hai người cũng khác nhau hoàn toàn.
+Liễu Ôn Ninh há hốc miệng, cô nhận ra Thẩm tổng của Trăn Nhiên và Từ tổng có phong cách làm việc hoàn toàn khác nhau.
 
-Thẩm tổng còn dám lấy người yêu đầu của Triệu tổng ra trêu, rảnh thì chọc anh ta cho vui.
+Tính cách của hai người cũng khác nhau một trời một vực.
 
-Cái này rất "con gái đại học."
+Thẩm tổng vậy mà dám lấy mối tình đầu của Triệu tổng ra trêu chọc, rảnh rỗi không có việc gì là cố tình chọc ghẹo Triệu tổng một chút.
 
-"Thẩm tổng, mỹ phẩm là mỹ phẩm — nhưng nếu mình làm được vài thương hiệu hàng tiêu dùng hàng ngày, thì đó chính là Bảo Khiết của phương Đông rồi."
+Đúng chuẩn phong thái nữ sinh viên đại học.
 
-"Liễu tổng, tôi biết chứ."
+"Thẩm tổng, mỹ phẩm trang điểm là chuyện riêng, nếu mảng hóa mỹ phẩm tiêu dùng hằng ngày chúng ta gây dựng được vài thương hiệu, thì đó chính là Bảo Khiết (P&G) của phương Đông."
 
-Thẩm Tử Ngôn tất nhiên biết — Procter & Gamble, gã khổng lồ đó, công ty hàng tiêu dùng nhanh lớn nhất thế giới, vô đối về vốn hóa trong ngành.
+"Liễu tổng, tôi biết."
 
-"Tôi chưa nghĩ đến Bảo Khiết phương Đông, còn tụi mày đã nghĩ sẵn cho tôi rồi!"
+Thẩm Tử Ngôn dĩ nhiên biết rõ, P&G là một tập đoàn khổng lồ tầm cỡ nào — công ty hàng tiêu dùng nhanh lớn nhất thế giới, đứng đầu tuyệt đối về vốn hóa thị trường trong ngành hàng tiêu dùng nhanh.
 
-Triệu Kim An mở khách sạn năm sao, có khu vực làm việc và hai phòng ngủ riêng. Anh ngồi xuống nhìn Thẩm Tử Ngôn, không hài lòng ra mặt: "Tao thấy bây giờ làm việc với mày và Lạc Cẩn Chi mệt thiệt."
+"Anh còn chưa nghĩ tới chuyện làm P&G phương Đông mà hai người đã nghĩ thay anh luôn rồi!"
 
-"......"
+Triệu Kim An đặt phòng tại khách sạn năm sao, có khu vực làm việc riêng và hai phòng ngủ. Anh ngồi xuống nhìn Thẩm Tử Ngôn, dở khóc dở cười nói: "Anh phát hiện dạo này nói chuyện với em và Lạc Cẩn Chi mệt mỏi thật đấy."
 
-Liễu Ôn Ninh lăn tròn mắt, không lên tiếng.
+"..."
 
-Triệu tổng chưa bao giờ nói với Từ tổng như vậy.
+Liễu Ôn Ninh đảo mắt một vòng, im thin thít không dám lên tiếng.
 
-Không ngờ Thẩm Tử Ngôn lại càng vui hơn — cô cầm điện thoại cho Triệu Kim An xem: "Không chỉ Trương Vân Tây ở Dương Thành — Lưu Sáng Phong và Phương Khiết, Cốc Siêu Thừa và Lâm Thanh Tuyết, tụi họ cũng đang trên tàu."
+Triệu tổng chưa bao giờ nói chuyện với Từ tổng bằng giọng điệu như thế.
 
-"Họ còn hỏi tụi mình ở Dương Thành chỗ nào."
+Nào ngờ Thẩm Tử Ngôn trái lại càng vui hơn, cô giơ điện thoại cho Triệu Kim An xem: "Không chỉ có Trương Vân Thiến ở Dương Thành đâu nhé, Lưu Sấm Phong và Phương Khiết, cả Cốc Siêu Thừa và Lâm Thanh Tuyết nữa, bọn họ đều đang trên tàu hỏa tới đây đấy."
 
-Dư Phi vẫn đang lén lút nhắn tin trên điện thoại.
+"Bọn họ còn hỏi tụi mình ở đâu tại Dương Thành kìa."
+
+Du Phi vẫn cầm điện thoại lén lút gõ chữ...

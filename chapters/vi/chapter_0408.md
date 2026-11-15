@@ -1,7 +1,5 @@
 # Chương 408: Cậu cứ lên đi
 
-> **Tiêu đề gốc**: 第408章 你上来就是了。
-
 Chẳng ngờ Từ Mạn Mạn lại không hề có chút biểu cảm chê bai nào, hàng lông mày thanh tú thậm chí chẳng buồn nhíu lại lấy một cái:
 
 "Anh đói bụng chưa? Em biết hâm nóng bánh dày đấy, trong tủ lạnh còn nhiều bánh dày bà nội gửi lên lắm."
@@ -100,13 +98,13 @@ Một cô gái học trường Sư phạm như Đường Hiểu Tình oái oăm 
 
 "Chắc giờ này Kim An vẫn chưa xuống máy bay đâu, cậu thử gọi thẳng vào số của anh ấy xem..."
 
-"Đơn Vĩ đã về đến nhà rồi."
+"Đan Vĩ đã về đến nhà rồi."
 
 Thẩm Tử Ngôn lạnh lùng buông một câu rồi dứt khoát ngắt máy. Cô ngẩng đầu nhìn lên ô cửa sổ tối om ở tầng 12, khẽ bật ra một tiếng cười nhạt.
 
 "Rốt cuộc là ai cơ chứ?"
 
-Đơn Vĩ là kẻ kín miệng như bưng. Sau khi nghe Diêu Sân buột miệng kể lại câu chuyện mua đồ ăn vặt hôm trước, Thẩm Tử Ngôn đã âm thầm để tâm. Cô lập tức bẻ lái quay đầu xe chạy thẳng sang phía trường Đại học Sư phạm, lân la hỏi thăm vài sinh viên thì nhận được thông tin xác thực: Trần Thanh Trĩ đã được nghỉ Tết và mua vé xe về quê từ hai ngày trước rồi.
+Đan Vĩ là kẻ kín miệng như bưng. Sau khi nghe Diêu Sân buột miệng kể lại câu chuyện mua đồ ăn vặt hôm trước, Thẩm Tử Ngôn đã âm thầm để tâm. Cô lập tức bẻ lái quay đầu xe chạy thẳng sang phía trường Đại học Sư phạm, lân la hỏi thăm vài sinh viên thì nhận được thông tin xác thực: Trần Thanh Trĩ đã được nghỉ Tết và mua vé xe về quê từ hai ngày trước rồi.
 
 Lại thêm một đối tượng nữa bị gạch tên khỏi danh sách nghi vấn.
 

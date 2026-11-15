@@ -1,7 +1,5 @@
 # Chương 333: Dự án nâng cấp
 
-> **Tiêu đề gốc**: 第333章 升级工程。
-
 Triệu Kim An chưa vội về nước. Việc đầu tiên cần làm ngay sau khi thâu tóm cảng Piraeus là bắt tay vào tái thiết toàn diện.
 
 Dư Tĩnh gọi đây là "dự án nâng cấp".
@@ -122,7 +120,7 @@ Tại trụ sở Ủy ban thôn Triệu Gia thậm chí còn có hẳn một ph�
 
 Tiền thuê mỗi tháng là hai trăm tệ, do đích thân Vương Kim Như tự nguyện "bỏ ra số tiền lớn" thuê lại, rồi cũng tự tay sắm sửa bàn ghế làm việc đàng hoàng. Chi nhánh Trăn Hối Tuyển tại thôn Triệu Gia có thể nói là "tuy nhỏ nhưng lục phủ ngũ tạng đều đầy đủ".
 
-Đến ngay cả Hứa Mạn Mạn cũng chẳng hề hay biết Trăn Hối Tuyển lại mọc thêm một văn phòng đại diện ở tận thôn Triệu Gia. Vương Kim Như tự mình đứng ra thành lập một "công ty con", hễ gặp ai trong làng bà cũng oang oang giới thiệu đó là "công ty con" của tập đoàn.
+Đến ngay cả Từ Mạn Mạn cũng chẳng hề hay biết Trăn Hối Tuyển lại mọc thêm một văn phòng đại diện ở tận thôn Triệu Gia. Vương Kim Như tự mình đứng ra thành lập một "công ty con", hễ gặp ai trong làng bà cũng oang oang giới thiệu đó là "công ty con" của tập đoàn.
 
 ...
 

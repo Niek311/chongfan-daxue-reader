@@ -1,7 +1,5 @@
 # Chương 444: Cô em vợ
 
-> **Tiêu đề gốc**: 第444章 小姨子
-
 Cuộc điện thoại vẫn chưa kịp ngắt kết nối, từ trong loa của chiếc điện thoại nắp gập vẫn còn văng vẳng tiếng người mẹ giục giã:
 
 "Đình Đình! Sao tự dưng im bặt thế con? Con phải để mắt trông chừng chị họ đấy nhé..."
@@ -78,7 +76,7 @@ Triệu Kim An cười bảo: "Sáng mai anh bảo tài xế đánh xe đưa em 
 
 "..."
 
-Lý Đình Đình đưa mắt nhìn sang chiếc bàn bên cạnh, nơi Chu Hoa Phong và Đơn Vĩ vừa ngồi xuống... Lại có thêm hai người tài xế nữa xuất hiện. Rốt cuộc vị anh rể này có bao nhiêu tài xế riêng vậy trời?
+Lý Đình Đình đưa mắt nhìn sang chiếc bàn bên cạnh, nơi Chu Hoa Phong và Đan Vĩ vừa ngồi xuống... Lại có thêm hai người tài xế nữa xuất hiện. Rốt cuộc vị anh rể này có bao nhiêu tài xế riêng vậy trời?
 
 Ngoảnh đầu lại, cô bé thấy Triệu Kim An và Từ Mạn Mạn đang kề tai thủ thỉ to nhỏ với nhau.
 
@@ -126,7 +124,7 @@ Mỗi người một phong bao lì xì bốn ngàn tệ trao tận tay, tính th
 
 Đối với Triệu Kim An, làn sóng thúc giục chuyện "đăng ký kết hôn" cũng nhờ thế mà lắng xuống rất nhiều. Đạo lý rất nông cạn và thực tế: Đã được hưởng lợi lộc ngập tràn, vả lại Mạn Mạn cũng chẳng phải con gái ruột của mình, hơi đâu mà lắm mồm xía vào chuyện nhà người khác để chuốc lấy sự ghét bỏ?
 
-Chiếc bàn bên cạnh, nhóm người Đơn Vĩ và Quan Văn Bách ăn cơm với tốc độ tác chiến cực nhanh, luôn trong tư thế sẵn sàng nhận lệnh bất cứ lúc nào.
+Chiếc bàn bên cạnh, nhóm người Đan Vĩ và Quan Văn Bách ăn cơm với tốc độ tác chiến cực nhanh, luôn trong tư thế sẵn sàng nhận lệnh bất cứ lúc nào.
 
 Triệu Kim An ngon miệng đánh chén liền tù tì năm bát cơm. Từ Mạn Mạn thi thoảng lại gắp thức ăn bỏ vào bát cho anh, bản thân cô cũng ăn hết ba bát cơm đầy.
 

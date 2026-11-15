@@ -1,7 +1,5 @@
 # Chương 475: Người Ngoài, Người Nhà
 
-> **Tiêu đề gốc**: 第475章 外人，自己人。
-
 Sâm Thành.
 
 Đoạn Thu Bình thực sự chẳng biết bản thân mình nên làm gì vào lúc này. Bà từng bấm máy gọi một cuộc điện thoại cho Tô Miến, thế nhưng sau đó câu chuyện cũng chẳng đi tới đâu.
@@ -80,21 +78,21 @@ Lý Văn Húc rất có thể chỉ vì một nước cờ vội vã này mà th
 
 Những kẻ sinh ra trong gia đình có điều kiện bề thế, họ bước ra thương trường luôn có một "biên độ chịu lỗi" cực kỳ rộng lớn để tha hồ thử nghiệm và sửa sai.
 
-Triệu Kim An bảo Lý Văn Húc tìm gặp Hứa Mạn Mạn, đồng thời dặn dò Hứa Mạn Mạn nếu có thời gian rảnh thì bớt chút công sức đi khảo sát đánh giá giúp một chuyến. Hứa Mạn Mạn vui vẻ nhận lời, nhưng Triệu Kim An ngẫm nghĩ một lát lại bảo thôi cứ gác lại đó, đợi anh quay về rồi tính tiếp.
+Triệu Kim An bảo Lý Văn Húc tìm gặp Từ Mạn Mạn, đồng thời dặn dò Từ Mạn Mạn nếu có thời gian rảnh thì bớt chút công sức đi khảo sát đánh giá giúp một chuyến. Từ Mạn Mạn vui vẻ nhận lời, nhưng Triệu Kim An ngẫm nghĩ một lát lại bảo thôi cứ gác lại đó, đợi anh quay về rồi tính tiếp.
 
-Triệu Kim An định bụng sẽ đưa Hứa Mạn Mạn đích thân tới quán ăn thử một bữa, để tự mình thẩm định mức độ khả thi của dự án này.
+Triệu Kim An định bụng sẽ đưa Từ Mạn Mạn đích thân tới quán ăn thử một bữa, để tự mình thẩm định mức độ khả thi của dự án này.
 
 Dẫu sao thì Vương Duy Đào cũng khẳng định tình hình rất khả quan, quán ăn hiện tại của Lý Văn Húc khách khứa vào ra nườm nượp.
 
-Hứa Mạn Mạn đối với phản ứng này của Triệu Kim An cảm thấy vô cùng bất ngờ. Đây là lần đầu tiên cô thấy Triệu Kim An lại tận tâm, chu đáo với chuyện làm ăn của một người bạn học cùng lớp đến mức ấy. Nếu đổi lại là trước kia, anh hào phóng nhất cũng chỉ gật đầu cho Lý Văn Húc nợ tiền cọc đóng trước hai tháng, cùng lắm là buông thêm đôi câu nhắc nhở thiện chí mà thôi.
+Từ Mạn Mạn đối với phản ứng này của Triệu Kim An cảm thấy vô cùng bất ngờ. Đây là lần đầu tiên cô thấy Triệu Kim An lại tận tâm, chu đáo với chuyện làm ăn của một người bạn học cùng lớp đến mức ấy. Nếu đổi lại là trước kia, anh hào phóng nhất cũng chỉ gật đầu cho Lý Văn Húc nợ tiền cọc đóng trước hai tháng, cùng lắm là buông thêm đôi câu nhắc nhở thiện chí mà thôi.
 
-Chiều muộn hôm ấy, đến giờ tan sở, Hứa Mạn Mạn dịu dàng bế bổng bé Triệu Tri Nặc lên. Con bé cả ngày chỉ biết ngủ say sưa, Hứa Mạn Mạn cúi đầu đặt lên cặp má phúng phính của con gái một nụ hôn ngọt ngào: "Tri Nặc ơi, theo mẹ tan làm về nhà nào con."
+Chiều muộn hôm ấy, đến giờ tan sở, Từ Mạn Mạn dịu dàng bế bổng bé Triệu Tri Nặc lên. Con bé cả ngày chỉ biết ngủ say sưa, Từ Mạn Mạn cúi đầu đặt lên cặp má phúng phính của con gái một nụ hôn ngọt ngào: "Tri Nặc ơi, theo mẹ tan làm về nhà nào con."
 
-Thư ký Lưu Hiểu Tĩnh nhanh nhẹn thu dọn các tập hồ sơ tài liệu trên bàn, chuẩn bị tháp tùng Hứa Mạn Mạn về nhà.
+Thư ký Lưu Hiểu Tĩnh nhanh nhẹn thu dọn các tập hồ sơ tài liệu trên bàn, chuẩn bị tháp tùng Từ Mạn Mạn về nhà.
 
-Hứa Mạn Mạn về tới tư gia vẫn phải giải quyết công vụ. Những tài liệu Lưu Hiểu Tĩnh cẩn thận gom góp đều là hồ sơ chiến lược của chuỗi siêu thị Trăn Hối Tuyển, đôi khi Du Phỉ cũng phải đích thân chạy sang xin ý kiến chỉ đạo của Hứa Mạn Mạn, bởi Du Phỉ vốn là thư ký riêng thân cận của Triệu Kim An.
+Từ Mạn Mạn về tới tư gia vẫn phải giải quyết công vụ. Những tài liệu Lưu Hiểu Tĩnh cẩn thận gom góp đều là hồ sơ chiến lược của chuỗi siêu thị Trăn Hối Tuyển, đôi khi Du Phi cũng phải đích thân chạy sang xin ý kiến chỉ đạo của Từ Mạn Mạn, bởi Du Phi vốn là thư ký riêng thân cận của Triệu Kim An.
 
-Triệu Kim An xưa nay chỉ phụ trách việc chinh chiến bên ngoài, "vung tiền thâu tóm", còn Hứa Mạn Mạn vững vàng tọa trấn tổng hành dinh để quán xuyến toàn bộ nội vụ công ty.
+Triệu Kim An xưa nay chỉ phụ trách việc chinh chiến bên ngoài, "vung tiền thâu tóm", còn Từ Mạn Mạn vững vàng tọa trấn tổng hành dinh để quán xuyến toàn bộ nội vụ công ty.
 
 Giữa hai người họ chưa từng ngồi lại bàn bạc hay phân chia quyền hạn cụ thể, mà đó là một phương thức phối hợp ăn ý tự nhiên, hình thành một cách vô cùng hài hòa, nhuần nhuyễn.
 
@@ -102,7 +100,7 @@ Lưu Hiểu Tĩnh hai tay ôm tập tài liệu dày cộp, khẽ ghé mắt tr�
 
 "Đang ở Kinh Đô."
 
-Hứa Mạn Mạn buột miệng đáp theo quán tính. Thế nhưng lời vừa dứt khỏi môi, cô lập tức sực tỉnh. Hứa Mạn Mạn chầm chậm quay người lại, ánh mắt sắc lạnh nhìn thẳng vào mặt Lưu Hiểu Tĩnh, sắc mặt dần trở nên nghiêm nghị, giọng nói đanh thép cất lên: "Lưu trợ lý, đây là lần đầu tiên, và cũng là lần cuối cùng tôi nghe thấy cô hỏi câu này!"
+Từ Mạn Mạn buột miệng đáp theo quán tính. Thế nhưng lời vừa dứt khỏi môi, cô lập tức sực tỉnh. Từ Mạn Mạn chầm chậm quay người lại, ánh mắt sắc lạnh nhìn thẳng vào mặt Lưu Hiểu Tĩnh, sắc mặt dần trở nên nghiêm nghị, giọng nói đanh thép cất lên: "Lưu trợ lý, đây là lần đầu tiên, và cũng là lần cuối cùng tôi nghe thấy cô hỏi câu này!"
 
 "Từ... Từ tổng..."
 
@@ -110,11 +108,11 @@ Lưu Hiểu Tĩnh sợ tới mức mặt mày cắt không còn hột máu, cả
 
 "Đây không phải là chuyện cô được phép tò mò, đừng có giở mấy trò ly gián hèn hạ ở đây."
 
-Hứa Mạn Mạn nói toạc móng heo, không nể nang lấy nửa lời. Cô quá hiểu tâm lý của những người phụ nữ như thế này, Lưu Hiểu Tĩnh hỏi câu đó chẳng qua là muốn khéo léo bóng gió nhắc nhở cô rằng Triệu Kim An lúc này đang ở Kinh Đô quấn quýt bên cạnh Tô Miến.
+Từ Mạn Mạn nói toạc móng heo, không nể nang lấy nửa lời. Cô quá hiểu tâm lý của những người phụ nữ như thế này, Lưu Hiểu Tĩnh hỏi câu đó chẳng qua là muốn khéo léo bóng gió nhắc nhở cô rằng Triệu Kim An lúc này đang ở Kinh Đô quấn quýt bên cạnh Tô Miến.
 
-Lưu Hiểu Tĩnh muốn chọn phe đứng về phía Hứa Mạn Mạn, điều đó Mạn Mạn thừa hiểu trong lòng. Thế nhưng Hứa Mạn Mạn hoàn toàn không cần sự bợ đỡ ấy! Chẳng hiểu tự bao giờ, trong tiềm thức của cô lại nghiêng về phía bảo bọc Tô Miến nhiều hơn, tuyệt đối không cho phép bất kỳ "người ngoài" nào được quyền chõ mũi vào xoi mói, chia rẽ.
+Lưu Hiểu Tĩnh muốn chọn phe đứng về phía Từ Mạn Mạn, điều đó Mạn Mạn thừa hiểu trong lòng. Thế nhưng Từ Mạn Mạn hoàn toàn không cần sự bợ đỡ ấy! Chẳng hiểu tự bao giờ, trong tiềm thức của cô lại nghiêng về phía bảo bọc Tô Miến nhiều hơn, tuyệt đối không cho phép bất kỳ "người ngoài" nào được quyền chõ mũi vào xoi mói, chia rẽ.
 
-Trong thâm tâm Hứa Mạn Mạn hiểu rõ hơn ai hết: Bản thân cô, Kim An, và Tô Miến mới thực sự là người một nhà gắn kết máu thịt.
+Trong thâm tâm Từ Mạn Mạn hiểu rõ hơn ai hết: Bản thân cô, Kim An, và Tô Miến mới thực sự là người một nhà gắn kết máu thịt.
 
 Đó chính là nguyên tắc lớn, là ranh giới thị phi cốt lõi không bao giờ được phép suy chuyển.
 
@@ -122,15 +120,15 @@ Có lẽ trong dòng tin nhắn mà Tô Miến từng gửi cho cô dạo nọ: 
 
 "Triệu tổng ở lại Kinh Đô là vì công vụ làm ăn của tập đoàn."
 
-Hứa Mạn Mạn ôm chặt Triệu Tri Nặc sải bước đi về phía thang máy. Lưu Hiểu Tĩnh hoảng loạn rảo bước theo sau định phân bua, Hứa Mạn Mạn lạnh lùng buông một câu: "Đó không phải là những bí mật kinh doanh mà tầm cấp bậc hiện tại của cô có tư cách được biết..."
+Từ Mạn Mạn ôm chặt Triệu Tri Nặc sải bước đi về phía thang máy. Lưu Hiểu Tĩnh hoảng loạn rảo bước theo sau định phân bua, Từ Mạn Mạn lạnh lùng buông một câu: "Đó không phải là những bí mật kinh doanh mà tầm cấp bậc hiện tại của cô có tư cách được biết..."
 
-Chuyện cơ mật này chỉ có Du Phỉ nắm rõ. Trụ sở chính của tập đoàn Trung Nhôm đặt tại Kinh Đô, mọi kế hoạch lớn nhỏ trên thương trường Triệu Kim An chưa từng giấu giếm Hứa Mạn Mạn bất cứ điều gì, ngay cả sự xuất hiện của Giản Tài Kiệt anh cũng đều tâm sự cặn kẽ với cô.
+Chuyện cơ mật này chỉ có Du Phi nắm rõ. Trụ sở chính của tập đoàn Trung Nhôm đặt tại Kinh Đô, mọi kế hoạch lớn nhỏ trên thương trường Triệu Kim An chưa từng giấu giếm Từ Mạn Mạn bất cứ điều gì, ngay cả sự xuất hiện của Giản Tài Kiệt anh cũng đều tâm sự cặn kẽ với cô.
 
 "Ting..."
 
 Cánh cửa thang máy chầm chậm mở ra dưới sảnh tầng trệt.
 
-Hứa Mạn Mạn vừa bước chân ra ngoài thì bất chợt sững người lại. Ngay trước sảnh đón, cô trông thấy hai bóng người quen thuộc: Từ Tắc Đống và Lương Tuệ Trân.
+Từ Mạn Mạn vừa bước chân ra ngoài thì bất chợt sững người lại. Ngay trước sảnh đón, cô trông thấy hai bóng người quen thuộc: Từ Tắc Đống và Lương Tuệ Trân.
 
 "Mạn Mạn... con bé Tri Nặc..."
 
@@ -138,6 +136,6 @@ Lương Tuệ Trân run rẩy giơ hai bàn tay gầy guộc bước vội về 
 
 "Mạn Mạn à, cho mẹ nhìn con bé Tri Nặc một cái thôi... có được không con?"
 
-Lương Tuệ Trân giơ tay ra với ánh mắt van nài tha thiết, đôi mắt đỏ hoe cứ đau đáu dán chặt vào đứa bé nằm cuộn tròn trong vòng tay Hứa Mạn Mạn.
+Lương Tuệ Trân giơ tay ra với ánh mắt van nài tha thiết, đôi mắt đỏ hoe cứ đau đáu dán chặt vào đứa bé nằm cuộn tròn trong vòng tay Từ Mạn Mạn.
 
 Từ Tắc Đống đứng nép phía sau, tay kẹp điếu thuốc lá cháy dở không dám bước tới, nhưng đôi mắt già nua cũng đăm đăm nhìn chằm chằm vào bọc khăn của đứa cháu ngoại, đôi chân vô thức nhón lên từng hồi...

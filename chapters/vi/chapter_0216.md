@@ -1,7 +1,5 @@
 # Chương 216: Hai chữ thủ tiết
 
-> **Tiêu đề gốc**: 第216章 守节二字。
-
 Chú Tưởng dĩ nhiên thật lòng mong Tưởng Chỉ Tình có được một cuộc sống êm ấm, con người ta đâu thể mãi chôn chân trong quá khứ.
 
 Thấm thoát đã là năm thứ bảy rồi!

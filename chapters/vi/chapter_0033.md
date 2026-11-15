@@ -1,7 +1,5 @@
 # Chương 33: Sáu bảy năm trôi qua lặng lẽ
 
-> **Tiêu đề gốc**: 第33章 6,7年的不知不觉。
-
 Bà không hề báo trước cho bất kỳ ai.
 
 Với thân phận dâu cũ đã tái giá, Đoạn Thu Bình biết gọi điện thông báo cho ai được cơ chứ?

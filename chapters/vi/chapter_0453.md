@@ -1,7 +1,5 @@
 # Chương 453: Không nhắc đến
 
-> **Tiêu đề gốc**: 第453章 不提。
-
 Trương Tuệ bắt chuyến tàu cao tốc quay về Sâm Thành. Vừa về tới nhà, bà đã gây gổ một trận lôi đình với Mộc Nhân Cường.
 
 Chỉ vì vài chuyện vặt vãnh lông gà vỏ tỏi, Trương Tuệ cũng có thể bới móc ra để chì chiết cả buổi trời.

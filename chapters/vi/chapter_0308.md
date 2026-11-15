@@ -1,7 +1,5 @@
 # Chương 308: Cần phải tôn trọng.
 
-> **Tiêu đề gốc**: 第308章 要尊重。
-
 "Thằng lão Cốc quả nhiên không hề bốc phét, Đường Hiểu Tình với mẹ cậu ấy đúng là đúc từ một khuôn mà ra."
 
 Vương Duy Đào vội vàng chỉnh lại trang phục, cất giọng vô cùng lễ phép chào hỏi: "Cháu chào cô ạ! Cháu là bạn học cùng lớp đại học với Kim An và bạn Hiểu Tình."
@@ -12,11 +10,11 @@ Cần phải dành cho người ta sự tôn trọng tối thiểu.
 
 Huống chi cho dù có là người giúp việc thật đi chăng nữa, thì đó cũng là người của Triệu Kim An.
 
-Triệu Chí Dũng vừa vào nhà đã vội lủi ngay vào bếp tìm Đoàn Thu Bình. Đoàn Thu Bình gả về làng Triệu Gia bao nhiêu năm nay, mối quan hệ với thím Lưu Đồng Hoa ở quê thân thiết chẳng khác nào chị em ruột.
+Triệu Chí Dũng vừa vào nhà đã vội lủi ngay vào bếp tìm Đoạn Thu Bình. Đoạn Thu Bình gả về làng Triệu Gia bao nhiêu năm nay, mối quan hệ với thím Lưu Đồng Hoa ở quê thân thiết chẳng khác nào chị em ruột.
 
 Bà bước ra khỏi bếp, vừa nhìn thấy Trịnh Như và bé Niệm Khả đang đứng ở sảnh vào thì thoáng ngẩn người ra.
 
-Phải biết rằng, ngay cả chuyện Tô Miến phải ngồi xe lăn mà Đoàn Thu Bình còn có đôi phần lấn cấn trong lòng, thì làm sao bà có thể dễ dàng chấp nhận việc Triệu Chí Dũng lại đi rước một người phụ nữ góa bụa, dắt theo đứa con riêng lớn tướng thế kia về làm vợ.
+Phải biết rằng, ngay cả chuyện Tô Miến phải ngồi xe lăn mà Đoạn Thu Bình còn có đôi phần lấn cấn trong lòng, thì làm sao bà có thể dễ dàng chấp nhận việc Triệu Chí Dũng lại đi rước một người phụ nữ góa bụa, dắt theo đứa con riêng lớn tướng thế kia về làm vợ.
 
 Từ Mạn Mạn cũng ngơ ngác nhìn hai mẹ con Trịnh Như, trong đầu không khỏi dâng lên dấu hỏi chấm lớn.
 
@@ -62,9 +60,9 @@ Vương Duy Đào chỉ cảm thấy trong lòng ngổn ngang bao nỗi hoang ma
 
 Phì! Thật không ngờ thằng bạn Kim An của mình hóa ra cũng là một gã đàn ông lăng nhăng tệ bạc!
 
-Triệu Kim An bỗng thấy Đoàn Thu Bình có mặt ở đây hóa ra cũng có điểm hay. Anh đoán chắc mẹ mình sẽ thích mẫu người như Từ Mạn Mạn, và có lẽ cũng sẽ ưng ý cả Thẩm Tử Ngôn.
+Triệu Kim An bỗng thấy Đoạn Thu Bình có mặt ở đây hóa ra cũng có điểm hay. Anh đoán chắc mẹ mình sẽ thích mẫu người như Từ Mạn Mạn, và có lẽ cũng sẽ ưng ý cả Thẩm Tử Ngôn.
 
-Thế nhưng nếu như Lý Ngải Lan mà có dịp ghé qua đây, e rằng Đoàn Thu Bình sẽ cưng chiều con bé nhất trần đời.
+Thế nhưng nếu như Lý Ngải Lan mà có dịp ghé qua đây, e rằng Đoạn Thu Bình sẽ cưng chiều con bé nhất trần đời.
 
 Bởi vì cái miệng của Lý Ngải Lan ngọt xớt như rót mật vào tai vậy.
 
@@ -168,19 +166,19 @@ Ai mà biết được cái đứa tên Linh Linh kia có phải đang cố tìn
 
 Tại phòng khách.
 
-Từ Mạn Mạn lần trước sang nhà Đơn Vĩ đến cả củ tỏi còn bóc không xong, nên lần này cô chỉ biết ngồi ngay ngắn, trang đoan trên ghế sofa.
+Từ Mạn Mạn lần trước sang nhà Đan Vĩ đến cả củ tỏi còn bóc không xong, nên lần này cô chỉ biết ngồi ngay ngắn, trang đoan trên ghế sofa.
 
 Trịnh Như phận là khách nhưng đã xắn tay áo lao vào bếp phụ giúp. Ở trong căn nhà sang trọng của Triệu tổng công ty Trăn Nhiên, chị làm sao dám ung dung ngồi vắt vẻo trên sofa chờ người ta bưng cơm tận miệng.
 
 "Mạn Mạn à..."
 
-Đúng lúc này, Đoàn Thu Bình từ trong bếp bước ra, trên môi nở nụ cười hiền hậu, hai tay cẩn thận bưng một bát canh gà bốc khói nghi ngút: "Hôm nay làm nhiều món quá nên phải đợi thêm một lát mới dọn cơm được. Cháu bụng đói rồi đúng không, mau uống bát canh gà này lót dạ trước đi cho ấm bụng."
+Đúng lúc này, Đoạn Thu Bình từ trong bếp bước ra, trên môi nở nụ cười hiền hậu, hai tay cẩn thận bưng một bát canh gà bốc khói nghi ngút: "Hôm nay làm nhiều món quá nên phải đợi thêm một lát mới dọn cơm được. Cháu bụng đói rồi đúng không, mau uống bát canh gà này lót dạ trước đi cho ấm bụng."
 
 "Dạ, cô ơi không cần đâu ạ... Cháu đợi mọi người cùng ăn..."
 
 Từ Mạn Mạn ngượng ngùng đỏ bừng cả mặt. Bao nhiêu người đang có mặt ở đây, huống chi mẹ con Trịnh Như và bé Niệm Khả mới là những vị khách thực sự của ngày hôm nay, người ta được Triệu Chí Dũng dẫn về ra mắt lần đầu tiên cơ mà.
 
-Ấy thế mà Trịnh Như đứng trong bếp nhìn thấy Đoàn Thu Bình múc canh mang ra lại chẳng hề cảm thấy có điều gì bất thường.
+Ấy thế mà Trịnh Như đứng trong bếp nhìn thấy Đoạn Thu Bình múc canh mang ra lại chẳng hề cảm thấy có điều gì bất thường.
 
 Nhìn kỹ lại vào bát canh.
 
@@ -198,7 +196,7 @@ Từ Mạn Mạn: "..."
 
 "Mạn Mạn, cháu đừng ngồi gò bó, khép nép thế làm gì. Từ lúc đến đây tới giờ cứ ngồi thẳng đơ như thế không thấy mỏi lưng à cháu?"
 
-Đoàn Thu Bình cười đon đả. Bà đâu biết rằng Từ Mạn Mạn không phải vì ngượng ngùng gò bó, mà từ nhỏ cô đã được rèn giũa giữ đúng tư thế ngồi chuẩn mực của con nhà gia giáo như thế rồi.
+Đoạn Thu Bình cười đon đả. Bà đâu biết rằng Từ Mạn Mạn không phải vì ngượng ngùng gò bó, mà từ nhỏ cô đã được rèn giũa giữ đúng tư thế ngồi chuẩn mực của con nhà gia giáo như thế rồi.
 
 "..."
 
@@ -206,11 +204,11 @@ Từ Mạn Mạn hai tay nâng bát canh gà thơm phức, nhìn chiếc đùi g
 
 Triệu Kim An khẽ mỉm cười, cố tình lờ đi ánh mắt cầu cứu đầy bối rối của cô.
 
-Đoàn Thu Bình bước theo sau Triệu Kim An: "Kim An này..."
+Đoạn Thu Bình bước theo sau Triệu Kim An: "Kim An này..."
 
 "Lát nữa lúc về, mẹ nhớ chuẩn bị hai chiếc phong bao lì xì mừng cho mẹ con chị Trịnh Như nhé. Người ta lần đầu tiên tới chơi nhà mình đấy."
 
-Đoàn Thu Bình ngập ngừng một thoáng rồi gật đầu: "Được rồi, mẹ nhớ rồi."
+Đoạn Thu Bình ngập ngừng một thoáng rồi gật đầu: "Được rồi, mẹ nhớ rồi."
 
 Đó là phong tục lễ nghĩa lâu đời của làng Triệu Gia.
 

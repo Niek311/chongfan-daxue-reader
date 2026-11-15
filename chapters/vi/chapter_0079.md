@@ -1,7 +1,5 @@
 # Chương 79: Ợ~ đắt thật đấy
 
-> **Tiêu đề gốc**: 第79章 嗝~好贵。
-
 "Tớ đã bảo là tớ có tiền rồi mà."
 
 Triệu Kim An bước sang quầy hàng bên cạnh mua thêm hai chiếc bánh kếp hành thơm phức và hai ly trà sữa ấm nóng. Khi quay trở lại thì đồ nướng cũng vừa chín tới, cậu liền dẫn Đường Hiểu Tình bước lên mấy bậc tam cấp rồi cùng nhau ngồi xuống bãi cỏ xanh mướt bên sườn đồi.

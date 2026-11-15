@@ -1,7 +1,5 @@
 # Chương 502: Sorry, xin lỗi
 
-> **Tiêu đề gốc**: 第502章 sorry，对不起。
-
 Bắt đầu từ ngày hôm sau.
 
 Triệu Kim An lại đẩy chiếc xe lăn ra, để Tô Miến ngồi trước hiên nhà lớn sưởi nắng. Tô Mặc thong thả rảo bước đi dạo loanh quanh trong làng.
@@ -218,17 +216,17 @@ Triệu Kim An chỉ mong mỏi có một ngày nào đó Tô Miến có thể t
 
 Thậm chí, bức thư vốn dĩ dành riêng cho Thẩm Tử Ngôn, số lần cô nhắc tới Triệu Kim An lại càng nhiều hơn gấp bội...
 
-Thẩm Tử Ngôn ngơ ngẩn đứng nhìn ánh đèn neon rực rỡ ngoài ô cửa sổ, do dự hồi lâu rốt cuộc mới cầm chiếc điện thoại lên, nhắn một tin gửi cho Du Phỉ.
+Thẩm Tử Ngôn ngơ ngẩn đứng nhìn ánh đèn neon rực rỡ ngoài ô cửa sổ, do dự hồi lâu rốt cuộc mới cầm chiếc điện thoại lên, nhắn một tin gửi cho Du Phi.
 
-Thẩm Tử Ngôn: [Du Phỉ, cậu có thể nói cho tớ biết hiện tại Kim An đang ở đâu không?]
+Thẩm Tử Ngôn: [Du Phi, cậu có thể nói cho tớ biết hiện tại Kim An đang ở đâu không?]
 
 Năm phút trôi qua trong im lặng.
 
-Văn phòng thư ký - Du Phỉ: [Thôi đi Tử Ngôn à, Kim An bây giờ... tốt nhất các cậu tạm thời đừng đến gặp thì hơn.]
+Văn phòng thư ký - Du Phi: [Thôi đi Tử Ngôn à, Kim An bây giờ... tốt nhất các cậu tạm thời đừng đến gặp thì hơn.]
 
 Thẩm Tử Ngôn: [Kim An làm sao rồi?]
 
-Du Phỉ không nhắn lại nữa. Cô thật sự không biết phải trả lời ra sao. Trong tin nhắn vừa rồi, cô đã dùng tới hai chữ “các cậu”.
+Du Phi không nhắn lại nữa. Cô thật sự không biết phải trả lời ra sao. Trong tin nhắn vừa rồi, cô đã dùng tới hai chữ “các cậu”.
 
 Ở một diễn biến khác.
 

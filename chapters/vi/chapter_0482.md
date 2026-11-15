@@ -1,7 +1,5 @@
 # Chương 482: Chị cháu đi làm kiếm tiền rồi, đến để tập huấn đấy
 
-> **Tiêu đề gốc**: 第482章 我姐姐上班赚钱了，是来培训的。
-
 Quận Sa.
 
 Ký túc xá công ty.

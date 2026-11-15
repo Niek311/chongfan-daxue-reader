@@ -1,7 +1,5 @@
 # Chương 138: Hiểu thấu lòng người
 
-> **Tiêu đề gốc**: 第138章 就是太懂人性了。
-
 Gian bếp đông đúc, rộn ràng là thế, bà nội vẫn tranh thủ lúc rảnh tay đi ra bờ ruộng xem Tô Miến thế nào.
 
 Tô Miến đang ngồi trên chiếc xe lăn đặt ở khoảnh ruộng phía trên, say sưa ngắm nhìn mọi người lội bùn bắt cá ở thửa ruộng bên dưới.

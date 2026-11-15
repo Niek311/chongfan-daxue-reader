@@ -1,7 +1,5 @@
 # Chương 186: Đã chọn rồi thì đi tiếp thôi
 
-> **Tiêu đề gốc**: 第186章 选择了就走下去。
-
 "Từ Mạn Mạn!"
 
 Lưu Sấm Phong không muốn buông Trần Trạch ra.

@@ -1,7 +1,5 @@
 # Chương 149: Lặng lẽ tràn thành sông.
 
-> **Tiêu đề gốc**: 第149章 无声漫溢成河。
-
 Bác Tưởng lại đon đả rót trà mời từng người, niềm nở khoe đây là loại trà búp do chính tay gia đình tự trồng trên nương.
 
 Triệu Kim An quay sang hỏi nhỏ Lạc Cẩn Chi: "Chị tính mức chi phí thế nào cho họ thế?"

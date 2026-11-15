@@ -1,7 +1,5 @@
 # Chương 71: Cậu ta...
 
-> **Tiêu đề gốc**: 第71章 他....
-
 "Các cô các cậu mơ đẹp nhỉ!"
 
 Trưởng ban Vu mắng yêu một câu, vẻ mặt nghiêm túc nói: "Tất cả đứng đắn lại chút coi, đây là đại lễ kỷ niệm 70 năm thành lập trường, không chỉ có các anh chị cựu sinh viên mà còn có cả lãnh đạo Sở Giáo dục tỉnh và lãnh đạo thành phố tới dự nữa đấy!"

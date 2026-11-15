@@ -1,179 +1,189 @@
-# Chương 396: Mất đi dự cảm tiên tri...
+# Chương 396: Không Còn Khả Năng Tiên Tri...
 
-> **Tiêu đề gốc**: 第396章 没了先知...
+La Kiến Thành gọi điện báo tin: "Triệu tổng, chúng ta sắp phát tài lớn rồi! Hàm lượng quặng nhôm ở Kình Bối Sơn rất cao, lại còn đủ loại cát khoáng, giá trị cao hơn quặng sắt nhiều.
 
-La Kiến Thành gọi điện thoại tới, giọng hồ hởi: "Triệu tổng, chúng ta sắp phát tài to rồi! Hàm lượng khoáng vật nhôm ở Kình Bối Sơn cao ngoài sức tưởng tượng, lại còn lẫn cả đủ loại cát khoáng sản quý hiếm, giá trị của chúng vượt xa quặng sắt thông thường rất nhiều. Mấu chốt nhất là khai thác lộ thiên, chi phí bóc tách rẻ như cho không."
+Quan trọng nhất là khai thác lộ thiên, chi phí cực kỳ thấp."
 
-Mạnh Hiến Giang ngày nào cũng liên lạc về nước, báo với đám bạn lớp Kế toán 1 rằng Tết năm nay cậu không thể về quê đón năm mới.
+Ngày nào Mạnh Hiến Giang cũng liên lạc về nước, nhắn với đám bạn lớp Kế toán 1 rằng Tết năm nay không có thời gian về quê.
 
-Lớp trưởng Vương Học Ân luôn dành sự chú ý đặc biệt cho bộ ba Mạnh Hiến Giang, Lâm Xuyên và Lưu Chí Dân. Cả ba đều là những sinh viên nghèo nhất lớp Kế toán 1, nay lại đồng loạt đi theo Triệu Kim An lăn lộn kiếm sống.
+Lớp trưởng Vương Học Ân rất để tâm đến Mạnh Hiến Giang, Lâm Xuyên và Lưu Chí Dân — cả ba đều là sinh viên nghèo của lớp Kế toán 1, giờ đều đi theo làm việc cho Triệu Kim An.
 
-Mạnh Hiến Giang tuyệt nhiên không hé nửa lời về công việc với bạn học bè bạn, nhưng trong thâm tâm cậu hiểu quá rõ: Triệu Kim An lại thêm một lần cược trúng mỏ vàng!
+Mạnh Hiến Giang không hé lộ công việc với bạn học, nhưng trong lòng hiểu rất rõ: Triệu Kim An lại đặt cược đúng nữa rồi!
 
-Mỏ Kình Bối Sơn một khi chính thức đi vào khai thác, từng chuyến tàu chở đầy ắp quặng thẳng tiến về nước, Hoàn Vũ Cảng Vụ coi như sẽ hoàn toàn "hồi sinh".
+Một khi Kình Bối Sơn đi vào khai thác, từng chuyến tàu chở quặng nối đuôi nhau về nước, Hoàn Vũ Cảng Vụ coi như "sống lại" hoàn toàn.
 
-Hiện tại, giá quặng sắt trên thị trường thế giới đã chạm mốc 90 USD/tấn, giá cập cảng vẫn không ngừng đà leo thang phi mã.
+Hiện tại giá quặng sắt đang ở mức 90 USD/tấn, giá cập cảng vẫn còn tiếp tục tăng mạnh.
 
-Triệu Kim An chợt nhớ tới kiếp trước, khi lướt những đoạn video ngắn trên mạng, thấy cảnh Venezuela bắt tay hợp tác cùng các tập đoàn lớn như Sinopec, việc khai thác dầu mỏ nhộn nhịp tưng bừng đến mức nào. Thế nhưng, đó là câu chuyện mang tầm vóc chiến lược và thực lực của một cường quốc.
+Triệu Kim An nhớ lại trước đây từng lướt video ngắn, thấy Venezuela hợp tác với Sinopec và các tập đoàn khác khai thác dầu mỏ rầm rộ lắm, nhưng đó là chuyện tầm cỡ quốc gia hùng mạnh và chiến lược vĩ mô.
 
-Nói một cách đơn giản, tất cả chỉ gói gọn trong năm chữ: "Cho vay đổi dầu mỏ".
+Nói ngắn gọn chỉ gói trong năm chữ: đổi khoản vay lấy dầu.
 
-Vào thời điểm này, Sinopec mới chỉ ký kết thỏa thuận khai thác lô Junin 1.
+Hiện giờ Sinopec mới chỉ ký thỏa thuận khai thác lô Junin 1.
 
-Mấu chốt nằm ở chỗ, các mỏ trọng điểm như lô Junin 8 hay Boyacá vẫn chưa hề được đụng tới.
+Cốt lõi là lô Junin 8 và lô Boyaca vẫn chưa hề đụng tới.
 
-Điều mà người đời lúc này chưa hề hay biết chính là: Venezuela mới thực sự là quốc gia sở hữu trữ lượng dầu mỏ đã được chứng minh đứng số một thế giới ở hậu thế, vượt mặt cả những ông trùm vùng Trung Đông, chiếm tới gần một phần năm tổng trữ lượng toàn cầu.
+Mọi người không biết rằng Venezuela mới chính là quốc gia đứng đầu thế giới về trữ lượng dầu mỏ được chứng minh ở thời hậu thế, nhiều hơn cả mấy nước Trung Đông cộng lại, chiếm gần một phần năm tổng trữ lượng toàn cầu.
 
-Venezuela tựa như một gã khổng lồ đang ngồi trên núi vàng ròng, ngặt nỗi lại thiếu thốn cả công cụ lẫn sức lực để tự mình đào xới.
+Venezuela chẳng khác nào một kẻ ngồi trên mỏ vàng khổng lồ nhưng lại thiếu công cụ lẫn sức lực để đào bới.
 
-Dầu mỏ vốn được mệnh danh là huyết mạch của nền công nghiệp hiện đại. Triệu Kim An ngứa ngáy trong lòng khôn xiết, song nhất thời đành lực bất tòng tâm.
+Dầu mỏ được mệnh danh là dòng máu của công nghiệp, Triệu Kim An ngứa ngáy tay chân lắm nhưng nhất thời chẳng có cách nào.
 
-Miếng bánh khổng lồ này tuyệt nhiên không phải thứ mà một cá nhân có thể tự mình nuốt trôi.
+Đây không phải miếng bánh mà một cá nhân có thể nuốt trôi.
 
-Ngoài việc chịu sự kiềm tỏa gắt gao từ một siêu cường bên kia đại dương, còn có muôn vàn rào cản về kinh tế và công nghệ bủa vây, khiến sản lượng dầu mỏ của Venezuela vô cùng thấp và bấp bênh, không thể khai thác và xuất khẩu một cách hiệu quả. Điển hình như loại dầu nặng và siêu nặng ở đây có độ nhớt cực cao, lẫn nhiều tạp chất, kỹ thuật khoan kéo và lọc hóa dầu đòi hỏi độ phức tạp ghê gớm kèm theo chi phí vô cùng đắt đỏ.
+Ngoài việc bị một quốc gia nào đó kiềm chế, còn chịu vô số ràng buộc về kinh tế, kỹ thuật; sản lượng dầu của Venezuela rất thấp lại bấp bênh, không thể khai thác và xuất khẩu hiệu quả.
 
-Thế nhưng, chính điều ấy lại mở ra cơ hội cho Triệu Kim An. Nếu như Venezuela cũng thuận buồm xuôi gió, không gặp phải những trở ngại nan giải như mấy quốc gia Trung Đông, thì cơ hội ngàn đời cũng chẳng đến lượt anh, thậm chí cũng khó lòng tới tay những ông lớn như Sinopec.
+Ví dụ như dầu nặng và dầu siêu nặng có độ nhớt cao, nhiều tạp chất, độ khó kỹ thuật và chi phí khoan khai thác lẫn lọc dầu đều cực kỳ đắt đỏ.
 
-Đó vốn là sân sau của xứ cờ hoa, là tài sản bảo chứng neo chặt vào sức mạnh của đồng USD. Vì sao thương mại toàn cầu lại bắt buộc phải thanh toán bằng đồng bạc xanh? Đó chính là mắt xích cốt tử.
+Nhưng đây cũng chính là cơ hội của Triệu Kim An, nếu không có những rào cản này mà suôn sẻ như mấy nước Trung Đông thì đời nào đến lượt anh, có khi cũng chẳng đến lượt mấy tập đoàn như Sinopec.
 
-Để thâu tóm Kình Bối Sơn, anh đã phải dốc túi 500 triệu USD. Giờ đây, nhìn vào con số 2,4 tỷ USD còn lại trong tài khoản chứng khoán Mỹ, Triệu Kim An bỗng giật mình nhận ra: số tiền này nếu đem so kè với những gã khổng lồ như Chinalco hay Sinopec, thì chẳng khác nào chút tiền lẻ tiêu vặt dằn túi?
+Đó là địa bàn của nước Mỹ, là tài sản neo thẳng vào đồng USD.
+
+Tại sao giao dịch kinh tế toàn cầu lại phải thanh toán bằng USD?
+
+Đó chính là yếu tố then chốt.
+
+Mua Kình Bối Sơn tốn mất 500 triệu USD, Triệu Kim An nhìn tài khoản chứng khoán Mỹ vẫn còn dư 2,4 tỷ USD, chợt nhận ra số tiền này đem so với Trung Nhôm hay Sinopec thì đúng là tiền tiêu vặt chứ gì nữa?
 
 "Hoàn Vũ Cảng Vụ..."
 
-Được sống lại một đời, Triệu Kim An cũng chẳng rõ mình muốn chèo lái Hoàn Vũ Cảng Vụ đi xa đến nhường nào. Hay là cứ an phận dừng lại ở mức này, làm một gã thương nhân kín tiếng, nắm trong tay khối tài sản tiêu ba đời không hết cho thanh thản?
+Sống lại một đời, Triệu Kim An chẳng rõ mình định đưa Hoàn Vũ Cảng Vụ đi xa đến mức nào, hay cứ thế mà dừng lại, làm một thương nhân kín tiếng có tiền tiêu cả đời không hết.
 
-Mua một ít cổ phiếu, gom một lượng Bitcoin... Chuyện về Bitcoin thì người trọng sinh nào chẳng rành, cứ nằm im chờ ngày nó vọt lên mốc 100.000 USD một đồng rồi ung dung xả hàng.
+Mua chút cổ phiếu, gom ít Bitcoin...
 
-Đó chính là phương thức nhân đôi, nhân mười tài sản nhanh chóng và nhàn hạ nhất trần đời.
+Bitcoin thì ai mà chẳng biết, đợi nó vọt lên 100.000 USD một đồng rồi xả hàng.
 
-"Chỉ còn 15 năm nắm giữ ký ức tiên tri."
+Đó là cách nhân đôi tài sản nhanh nhất và đơn giản nhất.
 
-Trong lòng Triệu Kim An bỗng dâng lên một cảm giác thôi thúc đầy căng thẳng. Một khi đánh mất đi lợi thế dự tri tương lai của kẻ đi trước, rốt cuộc anh cũng chỉ là một gã kế toán bình thường mang theo tấm chứng chỉ kiểm toán viên công chứng (CPA) mà thôi.
+"Chỉ còn mười lăm năm lợi thế tiên tri."
 
-Đúng lúc ấy, Nhan Hi lại gọi điện tới, thông báo bên Úc đang có một bến cảng phát đi tín hiệu muốn sang nhượng.
+Triệu Kim An bỗng dâng lên một nỗi cấp bách khó tả; mất đi khả năng nhìn trước tương lai, bản thân anh cũng chỉ là một anh kế toán có tấm bằng CPA mà thôi.
 
-Nhan Hi nhấn mạnh đó là bến cầu cảng chuyên dụng chứ không phải toàn bộ khu cảng biển, muốn hỏi xem Triệu Kim An có hứng thú hay không. Hiện tại, Hoàn Vũ Cảng Vụ mới chỉ nắm trong tay hai cảng biển cùng một mỏ quặng. Dư Tịnh đã chủ động tìm tới Giáo sư Lương ở Đại học Trung Nam để cùng nhau bàn bạc, cân nhắc.
+Nhan Hi lại gọi điện tới, báo rằng ở Úc có một bến cảng đang có ý định chuyển nhượng.
 
-Đó là cầu cảng trực thuộc cảng Bunbury ở Tây Úc, mặt hàng xuất khẩu chủ lực là ngũ cốc và gia súc sống.
+Nhan Hi nói rõ là bến cảng chứ không phải cảng biển lớn, hỏi Triệu Kim An có hứng thú không. Hoàn Vũ Cảng Vụ hiện mới có hai cảng biển và một khu mỏ, cô Dư Tĩnh đã tìm Giáo sư Lương ở Đại học Trung Nam để bàn bạc.
 
-Cuối cùng, Dư Tịnh cùng Giáo sư Lương trực tiếp tìm gặp Triệu Kim An, khuyên anh nên dốc sức thâu tóm bến cảng này. Hoàn Vũ Cảng Vụ không thể chỉ chăm chăm ngước nhìn những siêu cảng tầm cỡ thế giới, mà rất cần những mắt xích nhỏ hơn để lấp đầy và hoàn thiện mạng lưới vận tải.
+Cảng này là cảng Bunbury nằm ở Tây Úc, chủ yếu xuất khẩu ngũ cốc và gia súc sống.
 
-Mức giá chào bán do Nhan Hi chuyển về là: 312 triệu USD.
+Cuối cùng Dư Tĩnh và Giáo sư Lương tìm đến Triệu Kim An, khuyên anh nên thâu tóm; Hoàn Vũ Cảng Vụ không thể chỉ chăm chăm nhắm vào mấy cảng lớn tầm cỡ thế giới, mà cũng cần những cảng nhỏ để lấp đầy mạng lưới.
+
+Phía Nhan Hi báo giá chào bán: 312 triệu USD.
 
 "..."
 
-Triệu Kim An không có ý định đích thân ra mặt. Ngay cả Hùng tổng của Chinalco khi thâu tóm mỏ Kình Bối Sơn còn chẳng thèm lộ diện. Lần này, anh quyết định không động vào nguồn vốn của Trăn Nhiên, mà giao toàn quyền cho Dư Tịnh cùng ê-kíp của Nhan Hi đứng ra đàm phán với phía đối tác Úc.
+Triệu Kim An không định đích thân ra mặt, ngay cả vụ Kình Bối Sơn của Hùng tổng bên Trung Nhôm anh còn chẳng lộ diện; lần này anh cũng không định điều động vốn của Trăn Nhiên, mà giao toàn quyền cho đội ngũ của Dư Tĩnh và Nhan Hi sang đàm phán với phía Úc.
 
-Thẩm Tử Ngôn và Từ Mạn Mạn là những người đầu tiên gọi điện đến. Họ không hề có ý can ngăn Triệu Kim An, mà chỉ canh cánh nỗi lo về sự an toàn của chuỗi dòng tiền công ty.
+Thẩm Tử Ngôn và Từ Mạn Mạn lập tức gọi điện tới ngay, không phải để ngăn cản Triệu Kim An, mà vì lo lắng cho dòng tiền của công ty.
 
-Dư Tịnh lập tức đáp chuyến bay sang Úc ngay trong đêm.
+Dư Tĩnh bay thẳng sang Úc ngay trong thời gian sớm nhất.
 
-Mạnh Hiến Giang đích thân lái xe ra tận sân bay đón cô giáo.
+Mạnh Hiến Giang ra tận sân bay đón cô.
 
-Ở nhà, Vương Kim Như tuyệt đối không cho Từ Mạn Mạn ngồi một chỗ quá lâu. Mỗi khi rảnh rỗi, bà lại dắt tay Mạn Mạn tản bộ quanh khuôn viên khu chung cư.
+Ở nhà, Vương Kim Như không cho Từ Mạn Mạn ngồi lâu, rảnh rỗi lại dắt cô xuống khuôn viên khu chung cư đi dạo cho thoáng.
 
-Bà thắc mắc hỏi Triệu Kim An, sao con bé Mạn Mạn lúc nào trông cũng có vẻ ngơ ngác thế? Không hẳn là ngơ ngác, mà nói đúng hơn là quá đỗi khuôn phép, cứng nhắc.
+Bà hỏi Triệu Kim An sao trông Từ Mạn Mạn có vẻ hơi ngơ ngơ?
 
-Triệu Kim An chẳng biết phải giải thích thế nào, thế là Vương Kim Như đành tự mình ở nhà "dạy" Mạn Mạn cách ngồi. Bà bảo ở trong nhà mình thì cứ thấy thế nào thoải mái nhất là ngồi thế ấy, thích co chân hay tựa lưng tùy ý, việc gì phải gò bó.
+Không phải hơi ngơ, mà là quá cứng nhắc, khuôn phép.
 
-Thế nhưng Từ Mạn Mạn không tài nào "học" theo được. Thói quen suốt hai mươi năm trời dường như đã đóng đinh, ăn sâu vào từng nếp nghĩ của cô.
+Triệu Kim An chẳng biết giải thích thế nào, Vương Kim Như bèn ở nhà "dạy" Từ Mạn Mạn cách ngồi, bảo ở nhà mình thì cứ làm sao cho thoải mái nhất, muốn ngồi kiểu gì thì ngồi.
 
-Dưới sân chung cư, Từ Mạn Mạn ngoan ngoãn khoác tay Vương Kim Như. Bà thím cúi đầu ngắm nhìn vòng bụng hơi nhô lên của cô, ngày nào sau bữa cơm tối hai người cũng cùng nhau xuống lầu đi dạo một vòng.
+Từ Mạn Mạn "học" mãi không được, thói quen hai mươi năm nay đã ăn sâu vào nếp sống rồi.
 
-Hàng xóm láng giềng trong khu nhìn vào đều đinh ninh rằng Vương Kim Như và Từ Mạn Mạn là hai mẹ con ruột.
+Dưới sân khu chung cư, Từ Mạn Mạn khoác tay Vương Kim Như, bà cúi đầu nhìn bụng cô; tối nào ăn cơm xong hai người cũng xuống dưới đi dạo một vòng.
 
-Ở lại chăm sóc được mấy ngày, Vương Kim Như rốt cuộc không kìm được bèn lên tiếng hỏi: "Mạn Mạn này, thế bố mẹ cháu đâu rồi?"
+Hàng xóm trong khu cứ ngỡ Vương Kim Như và Từ Mạn Mạn là hai mẹ con.
 
-Vương Kim Như lặn lội lên Quận Sa lần này là gánh vác trọng trách lớn trên vai. Người ta dứt ruột đẻ ra, nuôi nấng một đứa con gái khôn lớn ngần ấy đâu phải chuyện dễ dàng. Thằng cháu Kim An nhà bà đã trót làm chuyện thất đức, bà là bậc bề trên trong họ, dù thế nào cũng phải thay mặt cho bố mẹ người ta một lời ăn tiếng nói đàng hoàng, hoặc xem nhà gái có đưa ra yêu cầu gì hay không.
+Ở được mấy ngày, Vương Kim Như nhịn không được bèn hỏi: "Mạn Mạn này, bố mẹ cháu đâu?"
 
-Vương Kim Như đã chuẩn bị sẵn tâm lý chịu trận. Dù ông Từ Tắc Đống với bà Lương Huệ Trân có chửi bới, mắng nhiếc thậm tệ đến đâu, bà cũng sẽ cắn răng chịu đựng, tuyệt đối không cãi lại nửa lời.
+Vương Kim Như lên Quận Sa là mang theo nhiệm vụ; người ta nuôi lớn một cô con gái đâu có dễ dàng gì, Triệu Kim An làm thằng đàn ông tệ bạc thì Vương Kim Như cũng phải có lời ăn tiếng nói đàng hoàng với bố mẹ người ta.
 
-Lần này, bà chấp nhận để mặc cho họ trút hết cơn giận!
+Hoặc giả họ có yêu cầu gì thì còn biết đường mà liệu.
 
-Ngờ đâu, bố mẹ Mạn Mạn rõ ràng là người bản xứ Quận Sa, thế mà ròng rã mấy ngày trời trôi qua vẫn chẳng thấy bóng dáng tăm hơi đâu.
+Vương Kim Như đã chuẩn bị sẵn tâm lý, Từ Tắc Đống và Lương Tuệ Trân muốn chửi mắng thế nào cũng được, bà tuyệt đối không cãi lại nửa lời.
 
-Từ Mạn Mạn khẽ siết lấy cánh tay Vương Kim Như, cúi gằm mặt lí nhí đáp: "Thím ơi, quan hệ giữa cháu với bố mẹ không được tốt... Họ không biết chuyện cháu mang thai đâu ạ, cháu không nói cho họ biết."
+Lần này cứ mặc kệ cho họ mắng chửi xả giận!
+
+Kết quả là Từ Tắc Đống và Lương Tuệ Trân rõ ràng là người bản địa Quận Sa, vậy mà mấy ngày liền chẳng thấy bóng dáng đâu.
+
+Từ Mạn Mạn khoác chặt tay Vương Kim Như, cúi đầu khẽ nói: "Thím à, cháu với bố mẹ quan hệ không tốt... Họ không biết cháu mang thai, cháu không nói với họ."
 
 "Hả?"
 
-Vương Kim Như thoáng sững sờ, trong lòng trào dâng nỗi xót xa và áy náy: "Là... vì cháu không dám nói với họ sao?"
+Vương Kim Như ngẫm nghĩ một lát rồi áy náy đầy lòng: "Là cháu không dám nói với họ sao?"
 
-Đó là phản xạ suy nghĩ hoàn toàn bình thường của một người bình thường.
+Đó là suy nghĩ bình thường của bất kỳ ai.
 
-Mạn Mạn là sinh viên xuất sắc của trường đại học danh giá thuộc đề án 985, con một trong nhà, tướng mạo xinh đẹp rạng ngời, cư xử lại lễ phép nhu thuận. Giờ đây bụng mang dạ chửa, vậy mà thằng Kim An lại chẳng hề hé môi lấy một chữ "cưới". Dù cho Vương Kim Như có mù quáng bao che, thiên vị đứa cháu ruột thịt đến mức nào...
+Từ Mạn Mạn là sinh viên đại học 985, lại là con một, xinh xắn lễ phép, giờ bụng mang dạ chửa mà Triệu Kim An chưa hề hé răng nói một chữ "cưới", Vương Kim Như có bênh cháu mình đến mấy đi nữa...
 
-Thì chuyện này rõ ràng mười mươi là Triệu Kim An sai lè lè rồi!
+Thì chuyện này vẫn là lỗi của Triệu Kim An!
 
-"Dạ không phải không dám đâu ạ."
+"Không phải không dám ạ."
 
-Từ Mạn Mạn khẽ lắc đầu: "Mà là cháu không muốn. Cháu thực sự không muốn nói cho họ biết."
+Từ Mạn Mạn lắc đầu: "Là cháu không muốn, cháu không muốn cho họ biết."
 
 "Thím ơi."
 
-"Ơi, thím nghe đây."
+"Ơi, thím nghe."
 
-"Mỗi tháng cháu vẫn đều đặn gửi cho họ ba nghìn tệ, anh Kim An bảo chuyện này tùy cháu tự quyết định."
+"Mỗi tháng cháu gửi cho họ ba nghìn tệ, Kim An bảo tùy cháu quyết định."
 
-Từ Mạn Mạn thật thà bộc bạch: "Cháu đã về Quận Sa rồi... nhưng bố mẹ vẫn cứ đinh ninh là cháu đang ở Thượng Hải."
-
-"..."
-
-Vương Kim Như há hốc miệng, mối quan hệ ruột thịt này rốt cuộc phải rạn nứt và đóng băng đến mức độ nào cơ chứ?
-
-"Mạn Mạn à, cháu có thể kể cho thím nghe được không?"
-
-...
-
-Tiết trời đã vào độ giữa đông buốt giá. Sáng sớm thức dậy, trên mặt kính cửa sổ kết thành những đóa hoa băng tinh xảo. Chiếc ghế dài nơi góc sân nằm trơ trọi, phủ một lớp sương muối trắng mờ. Gió bấc rít qua những cành cây khẳng khiu, phát ra những thanh âm sắc lẹm, buốt buốt rợn người.
-
-Trời vừa hửng sáng mờ mờ.
-
-Vương Kim Như đã gõ cửa phòng, bưng theo một bát canh gà nóng hổi gọi Mạn Mạn dậy dùng bữa sáng.
+Từ Mạn Mạn thành thật khai báo: "Cháu về Quận Sa rồi... nhưng họ vẫn tưởng cháu đang ở Thượng Hải."
 
 "..."
 
-Triệu Kim An ngái ngủ liếc nhìn đồng hồ, mới có 6 giờ 15 phút sáng: "Thím ơi, con đang tuổi ăn tuổi lớn, cần ngủ đủ giấc mà thím."
+Vương Kim Như há hốc miệng, quan hệ thế này thì phải căng thẳng đến mức nào chứ?
+
+"Mạn Mạn, cháu kể cho thím nghe được không?"
+
+Đang độ giữa đông, sáng sớm trên khung cửa sổ kết đầy hoa băng, chiếc ghế dài trơ trọi trống không phủ một lớp sương trắng mỏng, gió lạnh lùa qua ngọn cây phát ra tiếng rít thanh tao buốt giá.
+
+Trời vừa hửng sáng.
+
+Vương Kim Như gõ cửa, bưng bát canh gà gọi Từ Mạn Mạn dậy ăn sáng.
+
+"..."
+
+Triệu Kim An liếc nhìn đồng hồ, mới 6 giờ 15: "Thím à, cháu đang tuổi ăn tuổi lớn, cần ngủ đủ giấc chứ."
 
 "Thím ơi, cháu dậy ngay đây ạ."
 
-Từ Mạn Mạn ngoan ngoãn khác thường, vừa nghe tiếng gõ cửa đã vội vã với lấy quần áo mặc vào.
+Từ Mạn Mạn rất ngoan ngoãn, vừa nghe tiếng gõ cửa đã ngồi dậy mặc quần áo.
 
 Triệu Kim An: "..."
 
-Hai người ngủ chung một chiếc giường có chút gì đó rất kỳ quặc. Mạn Mạn chưa từng nghiêng người ôm lấy Triệu Kim An. Cô chỉ mặc bộ đồ ngủ kín cổng cao tường mộc mạc, nằm ngay ngắn ngửa mặt lên trần, chỉnh gối phẳng phiu rồi giữ nguyên một tư thế ấy suốt cả đêm dài.
+Hai người ngủ chung một giường có chút kỳ lạ; Từ Mạn Mạn chẳng bao giờ nằm nghiêng ôm lấy Triệu Kim An, cô chỉ mặc bộ đồ ngủ kín đáo giản dị rồi nằm thẳng lưng, kê gối ngay ngắn, suốt cả đêm không hề đổi tư thế.
 
-Sáng sớm bước xuống giường, chăn màn và ga đệm vẫn phẳng phiu không một nếp gấp.
+Lúc thức dậy chăn màn ga giường vẫn phẳng phiu gọn gàng.
 
-Mặc quần áo vào cũng nhẹ nhàng, chẳng hề phát ra một tiếng động nhỏ nào.
+Mặc quần áo cũng nhẹ nhàng không phát ra chút tiếng động nào.
 
-"Tao nói cho mày biết đấy, cấm có được bắt nạt con bé Mạn Mạn nghe chưa!"
+"Thím dặn trước đấy nhé, cấm cháu bắt nạt Mạn Mạn!"
 
-Vương Kim Như vừa dứt lời liền thẳng tay đóng sập cửa phòng lại cái "rầm".
-
-"..."
-
-Triệu Kim An mặt đầy vẻ ngơ ngác. Hôm nay thím uống nhầm thuốc gì rồi hay sao thế nhỉ?
-
-"Mai con dọn ra chỗ khác, không ngủ ở đây nữa đâu!"
-
-Nhớ lại kiếp trước, Vương Kim Như chỉ một mực nơm nớp lo sợ Bành Vĩnh Lệ "bắt nạt" Triệu Kim An. Giờ đây, nhìn Từ Mạn Mạn hai tay nâng bát canh gà vàng óng nghi ngút khói, đứng thẳng tắp bên khung cửa kính sát đất, dường như mùa đông giá rét này đã bớt đi muôn phần lạnh lẽo.
-
-Vương Kim Như đứng nhìn theo mà lòng ngập tràn niềm hoan hỷ, ấm áp:
-
-"Mạn Mạn à, ngoài trời gió to lắm, khép bớt cánh cửa sổ lại đi cháu."
-
-"Thím ơi, cháu không thấy lạnh đâu ạ."
-
-Từ Mạn Mạn quay người lại mỉm cười với thím, bát canh gà trong tay bốc khói mờ ảo làm ửng hồng gương mặt trắng trẻo, thanh tú, nom vừa tinh khôi lại vừa đáng yêu lạ kỳ.
+Vương Kim Như nói xong liền đóng cửa cái "rầm".
 
 "..."
 
-Vương Kim Như bỗng thoáng ngẩn người, sao cái dáng vẻ trầm tĩnh này nhìn qua lại có nét gì đó hao hao giống thằng Kim An thế nhỉ?
+Triệu Kim An ngơ ngác chẳng hiểu mô tê gì, hôm nay thím uống nhầm thuốc à?
 
-"Hì hì, đứa con gái ngoan ngoãn, hiểu chuyện đến nhường này mà người ta lại nỡ lòng ruồng bỏ, đúng là để nhà mình nhặt được món hời lớn."
+"Ngày mai cháu không ngủ ở đây nữa đâu!"
 
-"Rồi lại cả Đoạn Thu Bình nữa chứ, đẻ được đứa con trai giỏi giang như thế mà..."
+Kiếp trước Vương Kim Như chỉ lo Bành Vĩnh Lệ "bắt nạt" Triệu Kim An; còn giờ đây nhìn Từ Mạn Mạn bưng bát canh gà vàng óng nóng hổi đứng thẳng tắp trước cửa sổ sát đất, mùa đông năm nay bỗng chẳng còn lạnh lẽo nữa.
 
-Vương Kim Như đâu có chịu lái chiếc BMW 3-series, Triệu Kim An đã mua đứt cho bà chiếc 7-series sang trọng. Vương Kim Như vốn chẳng rành sự khác biệt giữa dòng 3-series và 7-series, chỉ tấm tắc khen chiếc xe này rộng rãi, thùng xe to chở đồ đạc ở quê lên tiện lợi vô cùng.
+Vương Kim Như nhìn mà lòng vui như mở cờ.
 
-Và cuối cùng, chính cái miệng của trưởng thôn trong làng...
+"Mạn Mạn, gió to đấy, khép bớt cửa sổ vào cháu."
+
+"Thím ơi, cháu không lạnh đâu ạ."
+
+Từ Mạn Mạn quay người mỉm cười với Vương Kim Như, tay bưng bát canh gà bốc khói nghi ngút, gương mặt trắng trẻo thanh tú vừa sạch sẽ lại vừa xinh đẹp.
+
+"..."
+
+Vương Kim Như nhất thời hơi ngẩn người, sao trông lại có nét giống Kim An thế nhỉ?
+
+"Hì hì, đứa con gái tốt thế này mà không thèm, đúng là nhặt được vàng rồi."
+
+"Cả bà Đoạn Thu Bình nữa, thằng con trai tốt như thế..."
+
+Chiếc BMW Vương Kim Như đang lái không phải dòng Series 3 mà là Series 7 Triệu Kim An mua cho bà; Vương Kim Như chẳng phân biệt nổi Series 3 với Series 7 khác nhau chỗ nào, chỉ khen xe rộng chở đồ thích thật.
+
+Cuối cùng chính cái miệng của trưởng thôn mới khiến bà biết chuyện...

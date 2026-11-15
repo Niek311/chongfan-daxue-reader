@@ -1,7 +1,5 @@
 # Chương 336: Cậu đừng la, là tôi đây.
 
-> **Tiêu đề gốc**: 第336章 你别喊，是我。
-
 Người uống nhiều nhất tối nay là lớp trưởng Vương Học Ân. Anh chàng vỗ vai Triệu Kim An, buông một câu đầy cảm thán: "Triệu Kim An à, sau này chắc chúng mình chẳng còn mấy cơ hội gặp nhau thế này nữa đâu."
 
 Thực ra đâu chỉ riêng Vương Học Ân, lần này gặp lại Triệu Kim An, tất cả mọi người đều mơ hồ cảm nhận được một khoảng cách vô hình.

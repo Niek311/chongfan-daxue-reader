@@ -1,7 +1,5 @@
 # Chương 479: Khởi nghiệp của lớp Kế toán 1
 
-> **Tiêu đề gốc**: 第479章 会计一班的创业。
-
 Triệu Trí Dũng còn phải lái xe chạy đi đón bé Triệu Niệm Khả tan trường.
 
 Cậu cùng Trịnh Như đã đăng ký cho Triệu Niệm Khả theo học vài lớp bồi dưỡng năng khiếu ngoài giờ.

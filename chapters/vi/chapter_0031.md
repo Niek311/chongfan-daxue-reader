@@ -1,7 +1,5 @@
 # Chương 31: Trai thẳng sắt đá
 
-> **Tiêu đề gốc**: 第31章 直男....
-
 Vào năm 2006, xe hơi cá nhân trên đường phố vẫn còn là của hiếm. Lạc Cẩn Chi một tay đặt trên vô lăng, tay kia nắm cần số, khẽ liếc nhìn Triệu Kim An vừa lên xe đã thuần thục kéo dây an toàn cài vào chốt đánh "tách" một tiếng.
 
 Thật kỳ lạ.

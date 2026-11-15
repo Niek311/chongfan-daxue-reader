@@ -1,10 +1,8 @@
 # Chương 529: Kẻ ngông cuồng, người hèn mọn
 
-> **Tiêu đề gốc**: 第529章 膨胀，卑微...
-
 Tại Dương Thành.
 
-Mộc Dao chẳng nói chẳng rằng, lập tức chuyển khoản thêm một nghìn sáu trăm tệ cho Du Phỉ.
+Mộc Dao chẳng nói chẳng rằng, lập tức chuyển khoản thêm một nghìn sáu trăm tệ cho Du Phi.
 
 Thẩm Tử Ngôn đã quay về Tô Thành, còn Mộc Dao sau khi nán lại Quận Sa thêm mấy ngày để suy nghĩ thông suốt mọi ngóc ngách sự việc thì cũng đáp chuyến bay trở về Dương Thành.
 
@@ -12,7 +10,7 @@ Các cô đều biết rõ tin tức Triệu Kim An đã bình an trở về cô
 
 Ngoại trừ phần của hai đứa nhỏ Triệu Tri Hành và Triệu Tri Vi ở Kinh Đô, toàn bộ số tiền lì xì còn lại đều được chuyển thẳng tới tay Từ Mạn Mạn. Từ Mạn Mạn nhìn con số tám trăm tệ mà trong lòng không khỏi băn khoăn, chẳng hiểu con số này rốt cuộc ẩn chứa hàm ý sâu xa gì, cớ sao cả Tử Ngôn lẫn Mộc Dao đều nhất loạt chọn con số tám trăm tệ ấy?
 
-Cô đem thắc mắc này đi hỏi Du Phỉ, nhưng Du Phỉ cũng chỉ lắc đầu tỏ vẻ mù tịt.
+Cô đem thắc mắc này đi hỏi Du Phi, nhưng Du Phi cũng chỉ lắc đầu tỏ vẻ mù tịt.
 
 Phong bao lì xì gửi cho Triệu Duyệt Thiên thì quá đỗi dễ dàng rồi, thế nhưng phần của Tống Gia Nguyệt thì biết trao bằng cách nào đây?
 

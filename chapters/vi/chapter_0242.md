@@ -1,7 +1,5 @@
 # Chương 242: Dù ngốc đến mấy cũng đoán ra rồi.
 
-> **Tiêu đề gốc**: 第242章 就算再傻都猜到了。
-
 “Từ... Từ tổng...?”
 
 Trương Vân Thiến tuy mới chỉ gặp mặt Từ Mạn Mạn vài lần ngắn ngủi, nhưng cô dám đoan chắc đôi mắt mình tuyệt đối không thể nhìn lầm người.

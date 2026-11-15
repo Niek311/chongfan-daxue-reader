@@ -1,8 +1,6 @@
 # Chương 85: Áo gấm về làng
 
-> **Tiêu đề gốc**: 第85章 衣锦还村。
-
-Đơn Vĩ lái xe đến tận cổng ký túc xá nữ đón Triệu Bác Lan. Cô cứ ngỡ chính bác tài Đơn Vĩ sẽ cầm lái đưa cả nhóm về lại Sâm Thành, nào ngờ Triệu Kim An lại đích thân ngồi vào ghế lái, cho xe chạy thẳng sang trường Cao đẳng Tài chính để đón Triệu Trí Dũng.
+Đan Vĩ lái xe đến tận cổng ký túc xá nữ đón Triệu Bác Lan. Cô cứ ngỡ chính bác tài Đan Vĩ sẽ cầm lái đưa cả nhóm về lại Sâm Thành, nào ngờ Triệu Kim An lại đích thân ngồi vào ghế lái, cho xe chạy thẳng sang trường Cao đẳng Tài chính để đón Triệu Trí Dũng.
 
 "Tay lái của ông chủ vững vàng đến thế này cơ à?"
 

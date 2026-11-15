@@ -1,7 +1,5 @@
 # Chương 92: Có cả núi vàng cũng bị phá sạch
 
-> **Tiêu đề gốc**: 第92章 有座金山都会败光。
-
 Triệu Trí Dũng phóng xe máy từ ngoài đường lớn quay về, lần này số người cất tiếng gọi "thím nhỏ" lại càng đông hơn trước.
 
 Có người đi đầu mở màn, đám đàn ông con trai trong làng liền cười rộ lên rồi ùa theo trêu chọc: "Cảm ơn thím nhỏ nhé!"
@@ -24,7 +22,7 @@ Vương Kim Như đang đứng chắn ngay trước cửa phòng ngủ nhà mìn
 
 Đồ sắm Tết mua về đều cất cả trong buồng của Vương Kim Như. Năm xưa Triệu Quốc Khánh và Triệu Quốc Hoa đã phân chia gia sản rõ ràng, bà nội sống chung với gia đình người con trai út là Triệu Quốc Hoa.
 
-Sau khi Đoàn Thu Bình tái giá, Triệu Kim An cũng theo chân ăn chung mâm chung bát với gia đình chú thím.
+Sau khi Đoạn Thu Bình tái giá, Triệu Kim An cũng theo chân ăn chung mâm chung bát với gia đình chú thím.
 
 "Cái nhà này rồi cũng bị nó khuân sạch cho mà xem!"
 
@@ -154,7 +152,7 @@ Vương Kim Như lại chạy vào bếp càu nhàu với bà nội một câu: 
 
 Cả hai đứa nó đứa nào cũng hào phóng quá trớn, đứa nào cũng không biết tằn tiện vun vén nhà cửa, sau này cái gia đình này mà không có một tay bà thím này quản lý thì dẫu có cả một núi vàng trong nhà cũng bị chúng nó phá cho sạch bách!
 
-Đoàn Thu Bình đã đi lấy chồng khác, Vương Kim Như bèn tự gánh vác lấy vai trò của cả người mẹ lẫn người mẹ chồng trong nhà.
+Đoạn Thu Bình đã đi lấy chồng khác, Vương Kim Như bèn tự gánh vác lấy vai trò của cả người mẹ lẫn người mẹ chồng trong nhà.
 
 Nói tóm lại là bà thím lo lắng đến nát cả cõi lòng!
 

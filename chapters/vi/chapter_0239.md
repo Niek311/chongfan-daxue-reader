@@ -1,7 +1,5 @@
 # Chương 239: Thể hiện vị thế xã hội
 
-> **Tiêu đề gốc**: 第239章 社会地位的体现。
-
 Đêm khuya thanh vắng.
 
 Thẩm Tử Ngôn và Lạc Cẩn Chi nằm chung trên một chiếc giường, còn Triệu Kim An thì ngủ ở gian phòng lắp ghép ngay sát vách.
@@ -108,7 +106,7 @@ Cô gái này quá đỗi sắc sảo và nhạy bén!
 
 Trăn Nhiên và xưởng đồ hộp Tưởng Gia tuy không cắt đứt quan hệ hợp tác, nhưng Thẩm Tử Ngôn nắm giữ toàn bộ mảng tiêu thụ, chỉ cần liếc qua số liệu là có thể nhìn ra được những điểm bất thường.
 
-Lạc Cẩn Chi còn nghe phong phanh bên siêu thị Trăn Hối Tuyển vừa có thêm sự xuất hiện của Hứa Mạn Mạn, không biết cô nàng kia liệu có phải là đối thủ xứng tầm của con hồ ly nhỏ Thẩm Tử Ngôn này hay không.
+Lạc Cẩn Chi còn nghe phong phanh bên siêu thị Trăn Hối Tuyển vừa có thêm sự xuất hiện của Từ Mạn Mạn, không biết cô nàng kia liệu có phải là đối thủ xứng tầm của con hồ ly nhỏ Thẩm Tử Ngôn này hay không.
 
 Tại nhà máy nước đóng chai của đối thủ nằm cách đó không xa ở hạ lưu dòng sông.
 
@@ -216,9 +214,9 @@ Họ liền mang tới biếu đoàn công tác những giỏ đặc sản nấm
 
 Triệu Kim An sợ ăn phải nấm độc, nhưng Lạc Cẩn Chi và Thẩm Tử Ngôn đều khẳng định nấm Vân Nam là đặc sản nức tiếng thơm ngon bậc nhất thiên hạ.
 
-Bên bờ sông lộng gió, Đơn Vĩ bắt đầu kê bếp nhóm lửa chuẩn bị nồi lẩu, Triệu Kim An chỉ buông một câu là vẫn muốn ăn thêm chút thịt tươi. Trương Kim Phi vốn là người bản địa, vừa nghe thấy thế liền lập tức rút điện thoại ra gọi điện thu xếp ngay tắp lự.
+Bên bờ sông lộng gió, Đan Vĩ bắt đầu kê bếp nhóm lửa chuẩn bị nồi lẩu, Triệu Kim An chỉ buông một câu là vẫn muốn ăn thêm chút thịt tươi. Trương Kim Phi vốn là người bản địa, vừa nghe thấy thế liền lập tức rút điện thoại ra gọi điện thu xếp ngay tắp lự.
 
-Đơn Vĩ lại dựng thêm một bếp nướng than hoa bên cạnh.
+Đan Vĩ lại dựng thêm một bếp nướng than hoa bên cạnh.
 
 Chẳng mấy chốc, bên thi công đã lũ lượt mang tới đủ loại nguyên liệu thịt tươi ngon cùng các loại gia vị ướp đậm đà, miệng luôn mồm cung kính gọi "Triệu tổng", "Triệu tổng".
 

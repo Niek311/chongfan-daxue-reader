@@ -1,7 +1,5 @@
 # Chương 480: Hoa hoa thế giới mê hoặc mắt người, men rượu đèn màu dễ khiến kẻ say
 
-> **Tiêu đề gốc**: 第480章 花花世界迷人眼，灯红酒绿惹人醉。
-
 Vương Duy Đào quay sang Phùng Vũ Lam buông một tiếng thở dài thườn thượt: "Trong cái đám này hai đứa mình là nghèo rớt mồng tơi nhất, lương của thằng Triệu Trí Dũng nó gấp mấy lần lương công chức của anh đấy."
 
 Triệu Trí Dũng ngồi bên dưới thò chân đá nhẹ vào cẳng chân Vương Duy Đào một cái: "Thằng Đào tử kia, mày bớt cái thói được voi đòi tiên đi nhé!"

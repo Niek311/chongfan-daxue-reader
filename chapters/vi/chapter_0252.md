@@ -1,7 +1,5 @@
 # Chương 252: Nỗi bi ai
 
-> **Tiêu đề gốc**: 第252章 悲哀。
-
 Từ Mạn Mạn không tham gia vào việc điều hành của Trăn Nhiên nên không hề hay biết công ty còn có dòng sản phẩm đồ hộp gia công và giấm táo ở tỉnh Thiểm Tây. Mấy cô gái phòng 406 trước đây từng được ăn đồ hộp do Triệu Kim An mang về từ Tưởng Gia Ao, nhưng khi ấy đồ hộp vẫn chưa mang thương hiệu Trăn Nhiên.
 
 Nếu không, Từ Mạn Mạn hẳn đã chủ động thắc mắc: Trăn Nhiên chẳng phải còn có đồ hộp và giấm táo sao, cớ gì lại không nhập vào Trăn Hối Tuyển?
@@ -28,7 +26,7 @@ Giữa những tiếng "Triệu tổng" rôm rả, Triệu Kim An thấy Đườ
 
 Suy nghĩ của Đường Hiểu Tình rất đơn thuần và mộc mạc. Cô chỉ coi Trăn Hối Tuyển như một nhà hàng lớn, luôn nơm nớp lo sợ đầu bếp chính lên mặt làm cao rồi bất thình lình bỏ việc, thế nên cô phải tự mình học hết bí quyết để lúc cần có thể lập tức xắn tay vào cáng đáng thay.
 
-Từ Mạn Mạn và Đơn Na Tề rất nhiệt tình hưởng ứng.
+Từ Mạn Mạn và Đan Na Tề rất nhiệt tình hưởng ứng.
 
 Liễu Ôn Ninh nếm thử một chút cũng không ngớt lời khen ngợi Đường Hiểu Tình.
 
@@ -54,13 +52,13 @@ Chẳng ai biết Từ Mạn Mạn và Đường Hiểu Tình đã tâm sự nh�
 
 "Dạ, có một chút." Từ Mạn Mạn gật đầu thừa nhận: "Em hơi lo doanh thu ngày đầu sẽ không được như kỳ vọng."
 
-Văn phòng làm việc của Trăn Hối Tuyển được bài trí đàng hoàng, bộ bàn ghế sofa và bàn trà đều là đồ mới toanh, giá trị không hề rẻ. Hoàn toàn khác hẳn với căn phòng trên tầng của Đơn Vĩ, nơi bàn ghế đều là đồ mua gom từ chợ đồ cũ.
+Văn phòng làm việc của Trăn Hối Tuyển được bài trí đàng hoàng, bộ bàn ghế sofa và bàn trà đều là đồ mới toanh, giá trị không hề rẻ. Hoàn toàn khác hẳn với căn phòng trên tầng của Đan Vĩ, nơi bàn ghế đều là đồ mua gom từ chợ đồ cũ.
 
 Nhìn tấm biển 'Phó Tổng Giám Đốc' gắn trước cửa phòng, Triệu Kim An mỉm cười: "Sắp khai trương rồi mà Phó Tổng Giám Đốc lương chỉ có ba nghìn..."
 
 Theo quán tính, Triệu Kim An lại lặp lại cụm từ "sắp khai trương rồi". Anh không ngờ rằng vợ chồng Từ Tắc Đống và Lương Tuệ Trân lại hoàn toàn mù tịt thông tin, chẳng hề hay biết con gái mình đang giữ chức Phó Tổng Giám Đốc ở Trăn Hối Tuyển.
 
-Có lẽ trong thâm tâm, Triệu Kim An cũng không muốn mức lương của Từ Mạn Mạn ở Trăn Hối Tuyển lại thấp hơn khoản thu nhập trước kia cô nhận từ chỗ Dương Thục Mỹ.
+Có lẽ trong thâm tâm, Triệu Kim An cũng không muốn mức lương của Từ Mạn Mạn ở Trăn Hối Tuyển lại thấp hơn khoản thu nhập trước kia cô nhận từ chỗ Dương Thù Mỹ.
 
 Tâm lý này cũng thật dễ hiểu.
 
@@ -96,7 +94,7 @@ Từ Mạn Mạn khẽ ngẩng đầu nhìn Triệu Kim An ở cự ly thật g�
 
 "..."
 
-Triệu Kim An chợt nhận ra mấy cô gái trong công ty mình dạo này chẳng thể nào quản nổi nữa rồi, thực sự không tài nào bảo ban nổi. Tất cả là tại Trầm Tử Ngôn, ai nấy đều bị cô nàng dạy hư hết cả.
+Triệu Kim An chợt nhận ra mấy cô gái trong công ty mình dạo này chẳng thể nào quản nổi nữa rồi, thực sự không tài nào bảo ban nổi. Tất cả là tại Thẩm Tử Ngôn, ai nấy đều bị cô nàng dạy hư hết cả.
 
 "Vậy anh tăng thêm cho em một chút nữa được không?"
 
@@ -140,7 +138,7 @@ Từ Mạn Mạn không giải thích dông dài, trực tiếp gửi thẳng b�
 
 Tại khách sạn ở tỉnh Thiểm Tây.
 
-Trầm Tử Ngôn và Diêu Sân không lên tiếng trong nhóm, chỉ nằm trên giường bấm mở bản báo cáo kiểm định ra xem.
+Thẩm Tử Ngôn và Diêu Sân không lên tiếng trong nhóm, chỉ nằm trên giường bấm mở bản báo cáo kiểm định ra xem.
 
 Diêu Sân sau cú sốc biết được toàn bộ chân tướng thì kinh ngạc mất nửa ngày trời, giờ đây tâm trạng mới tạm thời bình ổn trở lại.
 
@@ -156,13 +154,13 @@ Dao Dao Thỏ: *Cả Trăn Nhiên cũng là của Kim An nữa!*
 
 Có lẽ đây là sự bướng bỉnh và cố chấp cuối cùng của Mộc Dao.
 
-Diêu Sân quay sang nhìn Trầm Tử Ngôn đang nằm bên cạnh, câu nói ấy của Mộc Dao rõ ràng là nhắm thẳng vào Trầm Tử Ngôn.
+Diêu Sân quay sang nhìn Thẩm Tử Ngôn đang nằm bên cạnh, câu nói ấy của Mộc Dao rõ ràng là nhắm thẳng vào Thẩm Tử Ngôn.
 
-Trầm Tử Ngôn khẽ mỉm cười: "Mọi chuyện chẳng phải đều nằm trong dự liệu cả rồi sao."
+Thẩm Tử Ngôn khẽ mỉm cười: "Mọi chuyện chẳng phải đều nằm trong dự liệu cả rồi sao."
 
 Tại Tư Tinh.
 
-"Dao Dao, tình hình sao rồi con?" Trương Huệ sốt ruột hỏi: "Dì con gọi cho mẹ mấy cuộc điện thoại rồi đấy."
+"Dao Dao, tình hình sao rồi con?" Trương Tuệ sốt ruột hỏi: "Dì con gọi cho mẹ mấy cuộc điện thoại rồi đấy."
 
 Mộc Dao không nói gì, trực tiếp đưa màn hình điện thoại cho mẹ xem.
 
@@ -170,11 +168,11 @@ Mộc Dao không nói gì, trực tiếp đưa màn hình điện thoại cho m�
 
 Mộc Nhân Cường ghé sát lại, nhìn nửa ngày trời rồi tặc lưỡi: "Bạn cùng phòng đại học của các con nói chuyện với nhau kiểu này đấy à?"
 
-Trong suy nghĩ của vợ chồng Mộc Nhân Cường và Trương Huệ, sản phẩm của Trương Vân Thiến xưa nay không có vấn đề gì lớn, là bạn cùng phòng đại học thì Từ Mạn Mạn nên châm chước hạ thấp tiêu chuẩn một chút, điều đó chẳng thể gây ảnh hưởng nghiêm trọng gì cho Trăn Hối Tuyển. Đó mới là đạo lý đối nhân xử thế ở đời.
+Trong suy nghĩ của vợ chồng Mộc Nhân Cường và Trương Tuệ, sản phẩm của Trương Vân Thiến xưa nay không có vấn đề gì lớn, là bạn cùng phòng đại học thì Từ Mạn Mạn nên châm chước hạ thấp tiêu chuẩn một chút, điều đó chẳng thể gây ảnh hưởng nghiêm trọng gì cho Trăn Hối Tuyển. Đó mới là đạo lý đối nhân xử thế ở đời.
 
 Trừ phi sản phẩm của Trương Vân Thiến thực sự có lỗi nghiêm trọng thì mới là chuyện khác.
 
-Trương Huệ chợt giật mình nhận ra: "Con bé Từ Mạn Mạn này liệu có đem chuyện này kể lại với Kim An không đấy?"
+Trương Tuệ chợt giật mình nhận ra: "Con bé Từ Mạn Mạn này liệu có đem chuyện này kể lại với Kim An không đấy?"
 
 Bà ta cũng hiểu rất rõ, hành động lần này của Mộc Dao rõ ràng là một điểm trừ tai hại.
 

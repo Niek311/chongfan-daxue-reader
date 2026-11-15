@@ -1,7 +1,5 @@
 # Chương 525: Linh Hoa
 
-> **Tiêu đề gốc**: 第525章 玲花。
-
 Phía đằng xa.
 
 Từ Mạn Mạn sải bước trên đôi giày cao gót thanh mảnh. Bên trong lớp âu phục công sở chỉn chu là chiếc áo khoác phao lông vũ màu đen dáng dài sang trọng. Vóc dáng cô vẫn thon thả gọn gàng đến khó tin, tuyệt nhiên không hề lộ chút dấu vết nào của một người phụ nữ vừa mới sinh nở. Mái tóc đen dài mềm mại buông xõa bồng bềnh sau lưng.

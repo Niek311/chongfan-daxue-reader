@@ -1,7 +1,5 @@
 # Chương 288: Tôi muốn làm tra nam
 
-> **Tiêu đề gốc**: 第288章 我想当渣男。
-
 Triệu Kim An dứt khoát chuyển sang bàn chuyện công việc: "Nhà máy nước ở tỉnh Phúc Kiến..."
 
 "Tôi vừa từ đó trở về xong, Bành Trung Ngạn đã qua tiếp quản rồi, không cần anh phải bận tâm."

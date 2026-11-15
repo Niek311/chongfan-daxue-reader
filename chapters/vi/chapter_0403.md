@@ -1,28 +1,26 @@
 # Chương 403: Tự xoa dịu nỗi đau.
 
-> **Tiêu đề gốc**: 第403章 疗伤。
-
 "Không phải đuổi việc đâu chị ơi, Triệu tổng làm sao nỡ sa thải chị được cơ chứ."
 
 Lưu Hiểu Tĩnh nhìn đống tài liệu rơi vãi ngổn ngang trên sàn nhà, nhất thời chẳng biết phải mở lời thế nào cho phải.
 
 Triệu tổng nhà bọn họ... đúng là đồ đại tra nam thứ thiệt.
 
-Lưu Hiểu Tĩnh vốn là trợ lý đắc lực của Từ Mạn Mạn, còn Du Phỉ lại đảm nhiệm vị trí thư ký riêng của Triệu Kim An. Diêu Thần lặng lẽ bước vào phòng, khom lưng nhặt từng tập hồ sơ vương vãi, Du Phỉ ngập ngừng giây lát rồi cũng ngồi xổm xuống nhặt phụ một tay. Những lúc như thế này, thử hỏi biết an ủi câu gì cho đặng?
+Lưu Hiểu Tĩnh vốn là trợ lý đắc lực của Từ Mạn Mạn, còn Du Phi lại đảm nhiệm vị trí thư ký riêng của Triệu Kim An. Diêu Thần lặng lẽ bước vào phòng, khom lưng nhặt từng tập hồ sơ vương vãi, Du Phi ngập ngừng giây lát rồi cũng ngồi xổm xuống nhặt phụ một tay. Những lúc như thế này, thử hỏi biết an ủi câu gì cho đặng?
 
 Các cô thực sự chẳng biết phải lựa lời thế nào để xoa dịu Thẩm Tử Ngôn.
 
-Biết trước sự tồn tại của Tô Miện thì đã sao? Rơi vào cảnh ngộ này, việc cô trút giận đập phá cũng là lẽ thường tình, thử hỏi trên đời này ai mà không có tự trọng và tính khí của riêng mình?
+Biết trước sự tồn tại của Tô Miến thì đã sao? Rơi vào cảnh ngộ này, việc cô trút giận đập phá cũng là lẽ thường tình, thử hỏi trên đời này ai mà không có tự trọng và tính khí của riêng mình?
 
 "Một người thì bỏ chạy sang tận Hàn Quốc, một người thì biến mất tăm mất tích chẳng thấy tăm hơi đâu."
 
-Diêu Thần và Du Phỉ ngồi xổm dưới sàn, ghé sát đầu vào nhau thì thầm to nhỏ.
+Diêu Thần và Du Phi ngồi xổm dưới sàn, ghé sát đầu vào nhau thì thầm to nhỏ.
 
 "..."
 
-Du Phỉ mấp máy môi, làm gì có chuyện biến mất không thấy đâu, người ta đang ở lù lù ngay Quận Sa này này, bụng bầu đã hơn bốn tháng rồi đấy thôi.
+Du Phi mấp máy môi, làm gì có chuyện biến mất không thấy đâu, người ta đang ở lù lù ngay Quận Sa này này, bụng bầu đã hơn bốn tháng rồi đấy thôi.
 
-Đều là bạn bè cùng lớp đại học nên họ luôn có tiếng nói chung và sự đồng cảm sâu sắc. Trước khi Tô Miện đột ngột xuất hiện, Triệu Kim An dẫu có xoay vần thế nào thì cũng là người trong tầm tay của phòng ký túc xá 406, vấn đề chỉ là rốt cuộc anh sẽ thuộc về cô gái nào trong số họ mà thôi, ngay cả Du Phỉ từ trước tới nay cũng luôn đinh ninh như thế.
+Đều là bạn bè cùng lớp đại học nên họ luôn có tiếng nói chung và sự đồng cảm sâu sắc. Trước khi Tô Miến đột ngột xuất hiện, Triệu Kim An dẫu có xoay vần thế nào thì cũng là người trong tầm tay của phòng ký túc xá 406, vấn đề chỉ là rốt cuộc anh sẽ thuộc về cô gái nào trong số họ mà thôi, ngay cả Du Phi từ trước tới nay cũng luôn đinh ninh như thế.
 
 Cứ nhìn lại mà xem, phòng 406 có một "bạch nguyệt quang" Mộc Dao thanh thuần thoát tục, có một Từ Mạn Mạn đồng điệu kỳ lạ về mặt tần số tâm hồn, lại có thêm một nữ thần Thẩm Tử Ngôn kiều diễm rạng ngời, khí chất đoan trang phóng khoáng.
 
@@ -40,13 +38,13 @@ Diêu Thần thì đứng về phía Thẩm Tử Ngôn, Từ Mạn Mạn hay M�
 
 Nhưng trong tình thế ngặt nghèo này, cô chỉ có thể dốc lòng đứng về phía Thẩm Tử Ngôn.
 
-Còn về phần Du Phỉ.
+Còn về phần Du Phi.
 
 Cô đứng về phía Triệu Kim An, nhưng sâu thẳm trong tim lại luôn âm thầm thiên vị, nghiêng về phía Mộc Dao hơn một chút.
 
 Con người ta sống trên đời ai mà chẳng có chút tư tâm.
 
-Đó vừa là xuất phát từ phương diện tình cảm cá nhân, lại vừa là sự tính toán xem điều gì đem lại lợi ích tốt nhất cho chính mình. Tựa như việc Vương Duy Đào trước sau chỉ cung phụng, nhận diện một mình Tô Miện. Bởi lẽ lúc này đây, trong tay Triệu Kim An đang nắm giữ cả tập đoàn Trăn Nhiên, chuỗi Trăn Hối Tuyển cùng đế chế Hoàn Vũ Cảng Vụ cơ mà.
+Đó vừa là xuất phát từ phương diện tình cảm cá nhân, lại vừa là sự tính toán xem điều gì đem lại lợi ích tốt nhất cho chính mình. Tựa như việc Vương Duy Đào trước sau chỉ cung phụng, nhận diện một mình Tô Miến. Bởi lẽ lúc này đây, trong tay Triệu Kim An đang nắm giữ cả tập đoàn Trăn Nhiên, chuỗi Trăn Hối Tuyển cùng đế chế Hoàn Vũ Cảng Vụ cơ mà.
 
 ...
 
@@ -56,11 +54,11 @@ Mộc Dao đã đáp chuyến bay từ Hàn Quốc trở về nước, vừa h�
 
 Cô kéo tấm chăn dày trùm kín qua đầu, vùi mình vào giấc ngủ mê mệt.
 
-Có lẽ sẽ có người thắc mắc: Chẳng qua chỉ là Tô Miện mang thai thôi mà, có gì to tát đâu?
+Có lẽ sẽ có người thắc mắc: Chẳng qua chỉ là Tô Miến mang thai thôi mà, có gì to tát đâu?
 
-Bọn họ chẳng phải đã sớm biết tường tận về sự tồn tại của Tô Miện từ lâu rồi hay sao?
+Bọn họ chẳng phải đã sớm biết tường tận về sự tồn tại của Tô Miến từ lâu rồi hay sao?
 
-Nhưng Thẩm Tử Ngôn, Từ Mạn Mạn, Mộc Dao — thử hỏi có ai trong số họ là kẻ ngốc nghếch, có chỉ số thông minh thấp kém đâu? Tô Miện có xuất thân gia thế hiển hách tới nhường nào? Nay cô ấy lại mang thai giọt máu của anh, vậy thì ngày Triệu Kim An cùng Tô Miện chính thức dắt tay nhau đi đăng ký kết hôn còn cách bao xa nữa?
+Nhưng Thẩm Tử Ngôn, Từ Mạn Mạn, Mộc Dao — thử hỏi có ai trong số họ là kẻ ngốc nghếch, có chỉ số thông minh thấp kém đâu? Tô Miến có xuất thân gia thế hiển hách tới nhường nào? Nay cô ấy lại mang thai giọt máu của anh, vậy thì ngày Triệu Kim An cùng Tô Miến chính thức dắt tay nhau đi đăng ký kết hôn còn cách bao xa nữa?
 
 Có lẽ, đây mới thực sự là... một sự mất mát vĩnh viễn không thể vãn hồi?
 
@@ -68,7 +66,7 @@ Khi còn ở giai đoạn hẹn hò yêu đương, trong lòng mỗi người v�
 
 Bởi vì dẫu sao ai nấy đều chưa từng cầm trên tay tờ giấy chứng nhận kết hôn...
 
-Khuyết điểm duy nhất của Tô Miện chỉ là đôi chân tàn phế phải ngồi xe lăn... thế nhưng giờ đây ngay cả thiên chức làm mẹ cô ấy cũng đã chạm tới được rồi.
+Khuyết điểm duy nhất của Tô Miến chỉ là đôi chân tàn phế phải ngồi xe lăn... thế nhưng giờ đây ngay cả thiên chức làm mẹ cô ấy cũng đã chạm tới được rồi.
 
 "Dao Dao ơi, sao con đột nhiên lại chạy bay về nhà thế này!?"
 
@@ -86,23 +84,23 @@ Mộc Dao ở tuổi hai mươi hai đã thực sự trưởng thành rồi. D�
 
 Kinh Đô.
 
-Dưới sự tháp tùng cẩn mật của Khương Phức Hàm, Phùng Nhược Đan và bà Quách Uyển Thanh, Tô Miện đã tới bệnh viện chuyên khoa để kiểm tra tổng thể.
+Dưới sự tháp tùng cẩn mật của Khương Phức Hàm, Phùng Nhược Đan và bà Quách Uyển Thanh, Tô Miến đã tới bệnh viện chuyên khoa để kiểm tra tổng thể.
 
 Đích thân Trưởng khoa trực tiếp tiến hành thăm khám cẩn thận cho cô.
 
-Kết quả kiểm tra xác nhận Tô Miện thực sự đã đậu thai.
+Kết quả kiểm tra xác nhận Tô Miến thực sự đã đậu thai.
 
 Tiếp sau đó là một loạt các khâu xét nghiệm chuyên sâu nhằm đánh giá toàn diện mọi chỉ số thể trạng của người mẹ.
 
-Sau cuộc hội chẩn căng thẳng giữa các chuyên gia đầu ngành, một kết luận rõ ràng được đưa ra: Tô Miện mang thai tiềm ẩn rủi ro rất lớn.
+Sau cuộc hội chẩn căng thẳng giữa các chuyên gia đầu ngành, một kết luận rõ ràng được đưa ra: Tô Miến mang thai tiềm ẩn rủi ro rất lớn.
 
 Đồng thời phía bệnh viện cũng đặc biệt cảnh báo trước: Tồn tại mức độ nguy cơ cực kỳ cao!
 
 Bà Quách Uyển Thanh và Khương Phức Hàm lập tức vây lấy mấy vị Trưởng khoa, yêu cầu các bác sĩ cứ nói thẳng thắn, mạnh dạn, đừng đưa ra những phán đoán quá mức dè dặt, bảo thủ. Mấy vị bác sĩ đưa mắt nhìn nhau, khẳng định bản thân tuyệt đối không phải vì muốn thoái thác trách nhiệm sau này mà đưa ra kết luận dè dặt, bảo thủ.
 
-Phùng Nhược Đan đứng túc trực bên ngoài hành lang, nhìn Tô Miện với khuôn mặt ngập tràn vẻ hạnh phúc ngoan ngoãn tiếp nhận từng khâu kiểm tra phức tạp.
+Phùng Nhược Đan đứng túc trực bên ngoài hành lang, nhìn Tô Miến với khuôn mặt ngập tràn vẻ hạnh phúc ngoan ngoãn tiếp nhận từng khâu kiểm tra phức tạp.
 
-Trước đây mỗi lần người nhà giục giã Tô Miện tới bệnh viện tái khám, cô đều nổi trận lôi đình cáu kỉnh, gắt gỏng bảo kiểm tra đi kiểm tra lại phỏng có ích gì. Vậy mà giờ đây khi đã mang trong mình sinh linh bé bỏng, Tô Miện lại phối hợp ngoan ngoãn vô điều kiện với tất cả các xét nghiệm được chỉ định.
+Trước đây mỗi lần người nhà giục giã Tô Miến tới bệnh viện tái khám, cô đều nổi trận lôi đình cáu kỉnh, gắt gỏng bảo kiểm tra đi kiểm tra lại phỏng có ích gì. Vậy mà giờ đây khi đã mang trong mình sinh linh bé bỏng, Tô Miến lại phối hợp ngoan ngoãn vô điều kiện với tất cả các xét nghiệm được chỉ định.
 
 Cô thậm chí còn dịu dàng đưa tay vuốt ve bụng mình, mỉm cười trò chuyện ríu rít với bác sĩ.
 
@@ -112,7 +110,7 @@ Bà Quách Uyển Thanh và Khương Phức Hàm cũng đứng ngoài khung cử
 
 Khương Phức Hàm thẫn thờ cất tiếng hỏi nhỏ.
 
-"Còn tính sao được nữa? Các con nhìn Tô Miện xem, giờ này ai dám mở miệng khuyên con bé bỏ cái thai đi? Liệu nó có chịu nghe lời ai không?"
+"Còn tính sao được nữa? Các con nhìn Tô Miến xem, giờ này ai dám mở miệng khuyên con bé bỏ cái thai đi? Liệu nó có chịu nghe lời ai không?"
 
 "Thế... có nên nói thật chuyện này cho nó với Kim An biết không mẹ?"
 
@@ -122,7 +120,7 @@ Những thời khắc then chốt như thế này mới càng bộc lộ rõ s�
 
 "..."
 
-Khương Phức Hàm khẽ gật đầu đồng tình: "Nói cho Tô Miện biết, con bé sẽ chỉ càng thêm âu lo, hoảng loạn, ngày đêm sống trong sợ hãi phập phồng. Thà rằng cứ để tâm lý nó được thả lỏng, thanh thản... biết đâu mọi sự lại bình an vô sự."
+Khương Phức Hàm khẽ gật đầu đồng tình: "Nói cho Tô Miến biết, con bé sẽ chỉ càng thêm âu lo, hoảng loạn, ngày đêm sống trong sợ hãi phập phồng. Thà rằng cứ để tâm lý nó được thả lỏng, thanh thản... biết đâu mọi sự lại bình an vô sự."
 
 Phùng Nhược Đan nghe vậy cũng chỉ biết gật đầu tán thành.
 
@@ -142,7 +140,7 @@ Ngồi chung mâm nâng chén cùng anh toàn là các bô lão râu tóc bạc 
 
 Ban đầu tiệc cưới của Triệu Hữu Tài chỉ dự tính làm gói gọn trong bốn, năm bàn, nào ngờ đám cưới tập hai này lại quy tụ tới tận mười hai bàn khách khứa đông vui tấp nập.
 
-Vì có bà nội tọa trấn, Triệu Kim An không đến lượt phải ngồi ở hai mâm thượng tọa kê sát bàn thờ gia tiên trong gian nhà chính. Anh thảnh thơi rút điện thoại ra chụp lại quang cảnh tiệc cưới đậm chất thôn quê rồi gửi tin nhắn đa phương tiện cho cả Tô Miện lẫn Từ Mạn Mạn, xem như chia sẻ chút không khí ngày vui chốn làng quê rộn rã.
+Vì có bà nội tọa trấn, Triệu Kim An không đến lượt phải ngồi ở hai mâm thượng tọa kê sát bàn thờ gia tiên trong gian nhà chính. Anh thảnh thơi rút điện thoại ra chụp lại quang cảnh tiệc cưới đậm chất thôn quê rồi gửi tin nhắn đa phương tiện cho cả Tô Miến lẫn Từ Mạn Mạn, xem như chia sẻ chút không khí ngày vui chốn làng quê rộn rã.
 
 Triệu Trí Dũng thì tất bật chạy đôn chạy đáo bưng bê mâm cỗ, miệng vẫn không quên ngậm chặt điếu thuốc lá.
 
@@ -150,7 +148,7 @@ Vương Kim Như đi ngang qua lườm cho một cái sắc lẹm, Triệu Trí 
 
 "Kim An ơi, vợ mới của anh Triệu Hữu Tài trông mặt mũi thế nào hả anh?"
 
-Tô Miện tò mò nhắn tin hỏi han.
+Tô Miến tò mò nhắn tin hỏi han.
 
 "Cốc, cốc."
 
@@ -164,7 +162,7 @@ Vào ngày trọng đại thế này, cô dâu mới vẫn theo đúng tôn ti v
 
 "Dạ vâng, chào chị, tôi xin phép chụp một kiểu ảnh nhé."
 
-Triệu Kim An giơ điện thoại chụp một tấm ảnh rõ nét rồi gửi qua cho Tô Miện.
+Triệu Kim An giơ điện thoại chụp một tấm ảnh rõ nét rồi gửi qua cho Tô Miến.
 
 Thời điểm năm 2010 ấy mọi người phần lớn vẫn dùng dòng điện thoại bàn phím phổ thông, rất hiếm ai chụp hình kiểu này, muốn chụp ảnh thường phải dùng máy ảnh kỹ thuật số cơ hoặc máy cơ chuyên nghiệp, càng chẳng có ai quay video đăng lên mạng xã hội, đa phần chỉ là vì tò mò chụp xem cho biết mà thôi.
 

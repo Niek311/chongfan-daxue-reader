@@ -1,7 +1,5 @@
 # Chương 433: Khu phát triển kinh tế
 
-> **Tiêu đề gốc**: 第433章 经济开发区。
-
 "Thấy chưa, đi tới đâu cũng phải báo cáo rành rọt."
 
 Đợi anh cúp máy, Bao Uyển Yên tựa lưng vào mép cửa, tủm tỉm cười trêu.
@@ -34,7 +32,7 @@ Triệu Kim An bấm số gọi cho Mạnh Hiến Giang đang ở Úc, một ng�
 
 Du Phi đi tới bất cứ đâu cũng đều chu đáo mang theo bình giữ nhiệt cho Triệu Kim An. Dịp Tết vừa rồi Mạnh Hiến Giang không về nước, qua Tết Nguyên Tiêu thì chuyến tàu chở quặng sắt đầu tiên đã rẽ sóng trùng khơi cập bến nội địa, công ty Hoàn Vũ Cảng Vụ rốt cuộc đã có thêm một nguồn thu ngoại tệ khổng lồ chảy vào túi.
 
-Tô Miện từ ngày mang thai thì hay buồn ngủ li bì, dẫu vậy kể cả lúc chưa có bầu cô cũng chẳng bao giờ can thiệp vào chuyện làm ăn của công ty Triệu Kim An. Từ Mạn Mạn ở nhà ngày ngày dán mắt vào máy tính theo dõi các bảng biểu số liệu cùng từng khoản thu chi, bao gồm cả tình hình hoạt động của ba cụm hải cảng.
+Tô Miến từ ngày mang thai thì hay buồn ngủ li bì, dẫu vậy kể cả lúc chưa có bầu cô cũng chẳng bao giờ can thiệp vào chuyện làm ăn của công ty Triệu Kim An. Từ Mạn Mạn ở nhà ngày ngày dán mắt vào máy tính theo dõi các bảng biểu số liệu cùng từng khoản thu chi, bao gồm cả tình hình hoạt động của ba cụm hải cảng.
 
 Quy trình này tương đương với việc phải qua hai tầng kiểm duyệt: phòng tài chính của Triệu Bác Lan thẩm định một lượt xong, Từ Mạn Mạn lại rà soát kỹ lưỡng thêm một lần nữa.
 
@@ -42,19 +40,19 @@ Nghiệp vụ của tập đoàn ngày một bành trướng, số lượng gi�
 
 Chưa bàn tới năng lực làm việc, việc đó vốn dĩ cũng không nằm trong phạm vi chức trách của Du Phi.
 
-Đúng như lời Diêu Tân từng thốt lên trong ký túc xá với Từ Mạn Mạn và Thẩm Tử Ngôn hồi năm hai đại học: "Tao nhìn thì hiểu đấy, nhưng chẳng biết phải giải quyết thế nào, không dám tự tiện đứng ra hiến kế, sợ làm sai thì chết dở."
+Đúng như lời Diêu Sân từng thốt lên trong ký túc xá với Từ Mạn Mạn và Thẩm Tử Ngôn hồi năm hai đại học: "Tao nhìn thì hiểu đấy, nhưng chẳng biết phải giải quyết thế nào, không dám tự tiện đứng ra hiến kế, sợ làm sai thì chết dở."
 
 ...
 
 Vương Kim Như lại bắt tàu cao tốc lặn lội tới Quận Sa, bảo là chỉ ghé chơi ba hôm rồi về.
 
-Nhà của Tô Miện ở tận tít Bắc Kinh nên qua lại quá đỗi bất tiện, thực chất là Vương Kim Như nhớ Từ Mạn Mạn. Vừa thấy Mạn Mạn suốt ngày cắm mặt vào màn hình máy tính, bà liền mắng té tát: "Tiền trên đời này có kiếm hết được đâu cơ chứ, mau đứng dậy đi lại vận động chân tay cho khỏe người xem nào!"
+Nhà của Tô Miến ở tận tít Bắc Kinh nên qua lại quá đỗi bất tiện, thực chất là Vương Kim Như nhớ Từ Mạn Mạn. Vừa thấy Mạn Mạn suốt ngày cắm mặt vào màn hình máy tính, bà liền mắng té tát: "Tiền trên đời này có kiếm hết được đâu cơ chứ, mau đứng dậy đi lại vận động chân tay cho khỏe người xem nào!"
 
 Từ Mạn Mạn cười tít mắt: "Thím ơi, Kim An bảo dạo này nhà mình hết tiền rồi, con phải gắng sức kiếm tiền bù vào cho anh ấy."
 
 "..."
 
-Vương Kim Như thở dài thườn thượt. Sao cái con bé này mở miệng ra nói năng cũng y chang một giọng điệu dửng dưng như Tô Miện với Kim An thế không biết?
+Vương Kim Như thở dài thườn thượt. Sao cái con bé này mở miệng ra nói năng cũng y chang một giọng điệu dửng dưng như Tô Miến với Kim An thế không biết?
 
 Ở đất Quận Sa này.
 

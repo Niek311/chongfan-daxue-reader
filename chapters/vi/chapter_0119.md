@@ -1,7 +1,5 @@
 # Chương 119: Không vất vả
 
-> **Tiêu đề gốc**: 第119章 不辛苦。
-
 Trở về phòng làm việc, Triệu Kim An mở máy tính đăng nhập vào tài khoản chứng khoán cá nhân.
 
 Suốt thời gian qua anh vẫn kiên định nắm giữ toàn bộ cổ phiếu Vạn Khoa mà không hề đảo danh mục. Cuối cùng dòng tiền luân chuyển trên thị trường cũng đã tìm đến nhóm ngành bất động sản, đẩy tổng giá trị tài sản trong tài khoản của anh cán mốc 12,56 triệu tệ.

@@ -1,7 +1,5 @@
 # Chương 443: Ý nghĩa của sự kiên định
 
-> **Tiêu đề gốc**: 第443章 坚守的意义。
-
 "Lý quản lý..."
 
 Du Phi đứng dậy kéo Lý Ngải Lan ra một góc vắng, hạ thấp giọng nhắc nhở: "Em đừng có suốt ngày mưu tính dòm ngó Kim An nữa. Kim An sắp sửa làm bố đến nơi rồi đấy."

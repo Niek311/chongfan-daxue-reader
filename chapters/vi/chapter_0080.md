@@ -1,7 +1,5 @@
 # Chương 80: Cho cậu ăn này
 
-> **Tiêu đề gốc**: 第80章 给你吃。
-
 Mùa đông ở Quận Sa lạnh giá thấu xương, bầu trời thường xuyên lất phất những hạt mưa phùn ẩm ướt, buốt giá. Sinh viên trong khu Đại học Thành ai nấy đều khoác lên mình những chiếc áo bông dày cộp để chống lại cái rét cắt da cắt thịt.
 
 Ngô Hiểu lại tìm đến.

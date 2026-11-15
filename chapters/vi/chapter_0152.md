@@ -1,7 +1,5 @@
 # Chương 152: Mẹ ơi, con biết thổi bong bóng rồi
 
-> **Tiêu đề gốc**: 第152章 妈妈，我会吹泡泡了。
-
 Nhà máy nước và xưởng đồ hộp chỉ cách nhau vỏn vẹn một trăm mét.
 
 Bên phía nhà máy nước, công trường đang rầm rộ thi công, không khí vô cùng hối hả và sôi động, trong khi xưởng đồ hộp bên cạnh lại yên ắng đến lạ thường.
@@ -16,7 +14,7 @@ Chẳng rõ Tưởng Chỉ Tình ở bên cạnh chứng kiến cảnh tượng 
 
 Tưởng Chỉ Tình rất thích đứng trên ban công tầng hai lặng lẽ nhìn sang công trường thi công bên cạnh, gương mặt phẳng lặng không lộ chút cảm xúc nào.
 
-Trước ngày quay về Quận Sa, khi đi ngang qua xưởng đồ hộp, Triệu Kim An bảo Đơn Vĩ lái xe rẽ vào bên trong.
+Trước ngày quay về Quận Sa, khi đi ngang qua xưởng đồ hộp, Triệu Kim An bảo Đan Vĩ lái xe rẽ vào bên trong.
 
 Hôm nay xưởng đồ hộp có người đi làm.
 
@@ -42,11 +40,11 @@ Có lẽ hàm chứa quá nhiều nỗi niềm cay đắng.
 
 Hiện thực trần trụi bày ra ngay trước mắt: xưởng đồ hộp ngắc ngoải bên bờ vực phá sản, giấc mộng biến quê hương thành tấm danh thiếp du lịch mãi mãi chỉ là lời nói suông. Bản thân Tưởng Chỉ Tình há lại không biết rằng sự cố chấp của mình, hoài bão lớn lao của người chồng quá cố, trong mắt người đời rốt cuộc chẳng khác nào một trò cười hay sao.
 
-Trong lòng Đơn Vĩ cũng tràn đầy lòng kính phục đối với Tưởng Chỉ Tình. Anh chủ động đi vào trong xưởng khuân từng thùng đồ hộp ra, cẩn thận xếp ngay ngắn vào cốp sau xe, trong bụng chỉ muốn mua thật nhiều.
+Trong lòng Đan Vĩ cũng tràn đầy lòng kính phục đối với Tưởng Chỉ Tình. Anh chủ động đi vào trong xưởng khuân từng thùng đồ hộp ra, cẩn thận xếp ngay ngắn vào cốp sau xe, trong bụng chỉ muốn mua thật nhiều.
 
-Dù cho ông chủ không trả tiền đi chăng nữa, Đơn Vĩ cũng tự tính mua một ít mang về biếu gia đình.
+Dù cho ông chủ không trả tiền đi chăng nữa, Đan Vĩ cũng tự tính mua một ít mang về biếu gia đình.
 
-Tưởng Chỉ Tình cứ đứng lặng nhìn Đơn Vĩ bốc hàng, mọi tâm ý của mọi người cô đều thấu hiểu trong lòng.
+Tưởng Chỉ Tình cứ đứng lặng nhìn Đan Vĩ bốc hàng, mọi tâm ý của mọi người cô đều thấu hiểu trong lòng.
 
 Bé Tưởng Uyển Nhi ngẩng đầu tròn xoe mắt nhìn Triệu Kim An.
 
@@ -70,7 +68,7 @@ Tưởng Chỉ Tình lại ngẩn người ra một chút, rồi bất giác mí
 
 Cô vốn muốn hỏi về phương diện công việc, xem thương hiệu Trăn Nhiên sẽ có những bước đi chiến lược gì tiếp theo, và cô biết rõ Triệu Kim An thừa hiểu câu hỏi của mình.
 
-Sợ Tưởng Chỉ Tình ngại không chịu lấy tiền, Đơn Vĩ đã nhanh nhảu hỏi giá bán lẻ ngoài thị trường rồi thanh toán sòng phẳng từ bên trong, sau đó anh ra mở sẵn cửa xe.
+Sợ Tưởng Chỉ Tình ngại không chịu lấy tiền, Đan Vĩ đã nhanh nhảu hỏi giá bán lẻ ngoài thị trường rồi thanh toán sòng phẳng từ bên trong, sau đó anh ra mở sẵn cửa xe.
 
 "Ông chủ, xong xuôi cả rồi ạ."
 
@@ -78,7 +76,7 @@ Triệu Kim An gật đầu bước vào hàng ghế sau.
 
 "Giám đốc Tưởng, chúng tôi xin phép về nhé."
 
-Trước mặt người ngoài, Đơn Vĩ luôn thể hiện tác phong chuyên nghiệp rất cao. Anh tự bỏ tiền túi sắm hẳn một bộ vest đen phẳng phiu.
+Trước mặt người ngoài, Đan Vĩ luôn thể hiện tác phong chuyên nghiệp rất cao. Anh tự bỏ tiền túi sắm hẳn một bộ vest đen phẳng phiu.
 
 Có như vậy mới ra dáng tài xế kiêm vệ sĩ chuyên nghiệp, mới tôn lên được vị thế và đẳng cấp của Triệu Kim An.
 
@@ -100,13 +98,13 @@ Hôm nọ thấy Triệu Kim An thổi bong bóng bằng kẹo cao su, vừa v�
 
 Có lẽ, đó chính là niềm vui bình dị và ngọt ngào nhất của hai mẹ con họ.
 
-Lúc xe chạy ra khỏi ranh giới thôn, Đơn Vĩ thở dài cảm thán: "Ông chủ à, phong cảnh ở đây đẹp thật đấy, mùa hè mà đến đây tránh nóng thì tuyệt vời phải biết."
+Lúc xe chạy ra khỏi ranh giới thôn, Đan Vĩ thở dài cảm thán: "Ông chủ à, phong cảnh ở đây đẹp thật đấy, mùa hè mà đến đây tránh nóng thì tuyệt vời phải biết."
 
 Triệu Kim An đưa mắt nhìn qua khung cửa kính: "Kỳ học tới con bé Na Tề chuẩn bị thi đại học rồi đấy."
 
 "Haha, chuyện học hành của Na Tề em hoàn toàn yên tâm, vả lại ở nhà em cũng có kèm cặp được cháu đâu."
 
-Nói thì nói vậy, nhưng Đơn Vĩ vẫn khẽ nhấn thêm chút ga, trong miệng lẩm bẩm: "Ông chủ, sau khi Na Tề thi đại học xong, nếu có dịp đi công tác ở đây nữa, em có thể dẫn con bé đi cùng được không ạ?"
+Nói thì nói vậy, nhưng Đan Vĩ vẫn khẽ nhấn thêm chút ga, trong miệng lẩm bẩm: "Ông chủ, sau khi Na Tề thi đại học xong, nếu có dịp đi công tác ở đây nữa, em có thể dẫn con bé đi cùng được không ạ?"
 
 "Bố con em từ trước tới giờ chưa từng được đi du lịch bao giờ."
 
@@ -114,9 +112,9 @@ Triệu Kim An cạn lời: "..."
 
 "Cậu với chú tôi tối nào cũng kè kè đi theo sau tôi, làm tôi khó xử chết đi được."
 
-Đơn Vĩ cười hề hề gãi đầu: "Ông chủ cứ yên tâm, em chỉ mang theo mắt chứ tuyệt đối không mang theo miệng đâu ạ."
+Đan Vĩ cười hề hề gãi đầu: "Ông chủ cứ yên tâm, em chỉ mang theo mắt chứ tuyệt đối không mang theo miệng đâu ạ."
 
-Nếu đêm đó không có Đơn Vĩ và Triệu Quốc Hoa ngủ chung quanh, có khi Lạc Cẩn Chi đã thực sự gõ cửa rồi lẻn lên phản sưởi của Triệu Kim An nằm từ lâu rồi.
+Nếu đêm đó không có Đan Vĩ và Triệu Quốc Hoa ngủ chung quanh, có khi Lạc Cẩn Chi đã thực sự gõ cửa rồi lẻn lên phản sưởi của Triệu Kim An nằm từ lâu rồi.
 
 Trở lại Quận Sa, Triệu Kim An cũng tranh thủ lên giảng đường lộ diện vài buổi.
 

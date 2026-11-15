@@ -1,7 +1,5 @@
 # Chương 435: Thương tích chưa rõ
 
-> **Tiêu đề gốc**: 第435章 伤情不详。
-
 "Triệu tổng, môi trường đầu tư ở đây xem chừng không được lành mạnh cho lắm nhỉ."
 
 Nhan Hi bóng gió gợi ý, chỉ suýt nữa là nói toạc ra rằng anh nên đem chuyện này báo lại cho Tô Huyện trưởng biết đường xử lý.
@@ -90,7 +88,7 @@ Nhan Hi lạnh lùng cất giọng: "Tám chín phần mười là trò bẩn th
 
 Có những lời chẳng ai dám nói toạc ra lúc này, âu cũng vì nể mặt Tô Quân Dương.
 
-Ai nấy đều biết rõ Tô Quân Dương phải gọi Tô Miện là tiểu cô ruột.
+Ai nấy đều biết rõ Tô Quân Dương phải gọi Tô Miến là tiểu cô ruột.
 
 Nếu không phải nể mặt Tô Quân Dương, với tính cách của Triệu Kim An, anh đã lập tức phất tay áo quay lưng rời đi từ lâu rồi.
 
@@ -178,7 +176,7 @@ Còn về phần bản thân Triệu tổng... tình trạng thương tích hi�
 
 Nhan Hi ngơ ngác lí nhí hỏi một câu.
 
-Triệu Kim An rút điện thoại trong túi ra, bấm số gọi về cho Tô Miện và Từ Mạn Mạn để báo tin bình an trước, Tô Miện đang mang thai tuyệt đối không thể để cô phải chịu bất kỳ sự kinh hãi nào.
+Triệu Kim An rút điện thoại trong túi ra, bấm số gọi về cho Tô Miến và Từ Mạn Mạn để báo tin bình an trước, Tô Miến đang mang thai tuyệt đối không thể để cô phải chịu bất kỳ sự kinh hãi nào.
 
 Cú nổ kinh hoàng này đã làm chấn động toàn bộ huyện Phụ Bình.
 

@@ -1,7 +1,5 @@
 # Chương 327: Ở thời đại này, bằng cách nào cũng không thể né tránh thương mại điện tử
 
-> **Tiêu đề gốc**: 第327章 在这个年代，怎么都绕不过电商
-
 Taobao đã sản sinh ra biết bao nhiêu tỷ phú, còn triệu phú sở hữu cơ ngơi hàng chục triệu tệ thì nhiều không đếm xuể.
 
 Tại thủ phủ hàng hóa Nghĩa Ô, nếu đã thực sự dấn thân bám rễ vào mảnh đất này, nắm trong tay vài triệu tệ tài sản bạn còn chẳng dám mở miệng khoe khoang, lúc ngồi ăn cơm khéo phải tự giác dạt sang mâm khác.

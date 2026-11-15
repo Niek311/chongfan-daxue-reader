@@ -1,7 +1,5 @@
 # Chương 45: Kim An, cậu nắm hàng rào sắt làm gì thế?
 
-> **Tiêu đề gốc**: 第45章 今安，你抓铁栏做什么？
-
 Lớp Kế toán 1 có tổng cộng hai mươi tám nữ sinh và mười tám nam sinh.
 
 Cố vấn học tập kiêm phụ trách lớp là Lưu Huy.
@@ -62,7 +60,7 @@ Cậu bé Triệu Kim An mười một tuổi năm đó đã dùng hết sức b
 
 Vào thời điểm đó, có lẽ bản thân Tống Uyển Hòa cũng chẳng hề mong muốn bố mình đi bước nữa.
 
-Còn về sau này... chính là nhờ sự chân thành và bao dung của Đoàn Thu Bình đã làm lay động Tống Uyển Hòa, để rồi cô bé mới chịu mở miệng gọi Đoàn Thu Bình một tiếng "dì".
+Còn về sau này... chính là nhờ sự chân thành và bao dung của Đoạn Thu Bình đã làm lay động Tống Uyển Hòa, để rồi cô bé mới chịu mở miệng gọi Đoạn Thu Bình một tiếng "dì".
 
 "Lên đại học rồi mà vẫn quản lắm chuyện bao đồng thế không biết."
 

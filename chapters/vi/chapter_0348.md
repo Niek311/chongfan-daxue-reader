@@ -1,7 +1,5 @@
 # Chương 348: Mưu đồ cực lớn
 
-> **Tiêu đề gốc**: 第348章 所图甚大。
-
 Một chiếc xe Santana màu đen chầm chậm lăn bánh tới rồi dừng lại trước cổng khu tập thể, từ trên xe bước xuống một gia đình ba người.
 
 Trương Tuệ tươi cười khoác tay con gái Mộc Dao rảo bước về phía tiệm tạp hóa nhỏ bên đường. Sau vài câu chào hỏi rôm rả với chủ tiệm, bà xách ra một thùng sữa tươi cùng một thùng trà thảo mộc Vương Lão Cát, còn Mộc Nhân Cường thì kẹp nách một phong pháo cối đỏ rực.
@@ -14,7 +12,7 @@ Mộc Dao diện một chiếc áo phao ngắn màu trắng tinh khôi, mái tó
 
 Triệu Kim An ngồi ở hàng ghế sau khẽ cất lời, rồi thản nhiên thu hồi tầm mắt, cúi đầu chăm chú nhìn vào màn hình chiếc máy tính xách tay đặt trên đùi.
 
-Đơn Vĩ êm ái đạp ga khởi động xe.
+Đan Vĩ êm ái đạp ga khởi động xe.
 
 Bên mép đường, xác pháo đỏ rơi rụng vương vãi khắp mặt đất sau những màn đón chào năm mới.
 
@@ -98,7 +96,7 @@ Chỉ duy nhất một mình Đường Hiểu Tình là ngây thơ, chẳng hi�
 
 Sáng mùng sáu Tết, Dư Tĩnh lên máy bay bay thẳng sang Cảng Sài Gòn.
 
-Mùng bảy Tết, các cơ quan và doanh nghiệp chính thức bắt đầu ngày làm việc đầu năm. Triệu Trí Dũng lái chiếc xe Mercedes thương vụ chở Triệu Bác Lan và Du Phỉ quay trở lại Quận Sa.
+Mùng bảy Tết, các cơ quan và doanh nghiệp chính thức bắt đầu ngày làm việc đầu năm. Triệu Trí Dũng lái chiếc xe Mercedes thương vụ chở Triệu Bác Lan và Du Phi quay trở lại Quận Sa.
 
 Sau rằm tháng Giêng, các trường đại học trong khu làng đại học lục tục mở cửa đón sinh viên nhập học trở lại. Lâm Thanh Tuyết sau khi quay lại trường mới bàng hoàng hay tin gia đình Trần Trạch đã phải bán sạch cả căn biệt thự bề thế để gán nợ.
 
@@ -134,9 +132,9 @@ Nếu tính trên tuyến vận tải biển huyết mạch khứ hồi giữa c
 
 "Thưa Triệu tổng, Tập đoàn Vận tải biển CMA CGM (Đạt Phi) của Pháp đang chào giá 460 triệu Euro, còn phía chính quyền thành phố Hồ Chí Minh yêu cầu thêm 300 triệu USD nữa."
 
-Triệu Kim An trong bộ âu phục chỉnh tề, phong thái đĩnh đạc sải bước phía trước. Du Phỉ theo sát từng bước không ngừng nghe điện thoại xử lý công việc.
+Triệu Kim An trong bộ âu phục chỉnh tề, phong thái đĩnh đạc sải bước phía trước. Du Phi theo sát từng bước không ngừng nghe điện thoại xử lý công việc.
 
-Đơn Vĩ cùng Quan Văn Bách và các vệ sĩ đưa mắt quan sát bốn phương tám hướng vô cùng cẩn trọng. Họ cùng Du Phỉ đã sang trước một bước để thuê sẵn dàn xe chuyên dụng và khảo sát địa bàn.
+Đan Vĩ cùng Quan Văn Bách và các vệ sĩ đưa mắt quan sát bốn phương tám hướng vô cùng cẩn trọng. Họ cùng Du Phi đã sang trước một bước để thuê sẵn dàn xe chuyên dụng và khảo sát địa bàn.
 
 Cả Dư Tĩnh lẫn Nhan Hy trong lòng đều thấp thỏm lo âu, không biết liệu Triệu Kim An có thể xoay xở đủ một lượng tiền mặt khổng lồ đến mức ấy trong thời gian ngắn hay không.
 
@@ -162,7 +160,7 @@ Dư Tĩnh mỉm cười trêu đùa.
 
 Số tiền khổng lồ này Triệu Kim An chi tiêu mà chẳng hề thấy xót ruột chút nào, dẫu sao thì đó cũng là tiền kiếm được từ túi của các trùm tài chính Phố Wall mà ra.
 
-Dư Tĩnh và Du Phỉ nhìn nhau mỉm cười trộm. Tiếp xúc bên cạnh Triệu Kim An lâu ngày, bọn họ ai nấy đều đã quá quen thuộc với câu cửa miệng đầy bá khí ấy của cậu.
+Dư Tĩnh và Du Phi nhìn nhau mỉm cười trộm. Tiếp xúc bên cạnh Triệu Kim An lâu ngày, bọn họ ai nấy đều đã quá quen thuộc với câu cửa miệng đầy bá khí ấy của cậu.
 
 ...
 

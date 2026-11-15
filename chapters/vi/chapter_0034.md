@@ -1,7 +1,5 @@
 # Chương 34: Hai thái cực
 
-> **Tiêu đề gốc**: 第34章 两个极端。
-
 Vương Kim Như một tay dắt bé Triệu Duyệt Thiên đi bên cạnh, gặp ai trên đường bà cũng có thể bắt chuyện dăm ba câu, giọng điệu ngập tràn vẻ hãnh diện khôn cùng:
 
 "Đấy là chuyện đương nhiên rồi! Thằng Kim An nhà tôi đỗ hẳn vào Đại học Sư phạm danh tiếng của tỉnh cơ mà!"

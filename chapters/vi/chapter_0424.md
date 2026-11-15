@@ -1,7 +1,5 @@
 # Chương 424: Ở Bắc Kinh.
 
-> **Tiêu đề gốc**: 第424章 在京都。
-
 Triệu Kim An khẽ cúi người, ghé sát vành tai Tô Miến thì thầm to nhỏ vài câu.
 
 Tô Miến liền quay sang lườm Tô Quân Dương một cái sắc lẹm: "Cháu mà làm thua lỗ số tiền vốn của bọn cô là không xong đâu đấy nhé, đó là tiền để dành mua sữa bột cho em bé sau này đấy..."

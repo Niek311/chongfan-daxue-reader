@@ -1,7 +1,5 @@
 # Chương 274: Giờ bố không còn tư cách gặp anh ấy nữa
 
-> **Tiêu đề gốc**: 第274章 你现在没资格见他了。
-
 "..."
 
 Từ Mạn Mạn sững sờ chết lặng suốt một hồi lâu, rồi bỗng nhiên bật cười thành tiếng.

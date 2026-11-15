@@ -1,7 +1,5 @@
 # Chương 238: Cậu đừng có ăn hiếp người ta.
 
-> **Tiêu đề gốc**: 第238章 你别欺负人。
-
 Đoạn Thu Bình gọi điện đến hỏi Triệu Kim An kỳ nghỉ hè này có về nhà hay không.
 
 Bây giờ mẹ anh đã không còn nhắc tới chuyện của hai cha con Tống Siêu Văn và Tống Uyển Hòa nữa. Triệu Kim An vẫn giấu kín chuyện này với mẹ, bởi lẽ anh chưa thực sự hiểu rõ tâm tính và con người của hai cha con họ...
@@ -18,15 +16,15 @@ Quy cách đóng chai nhỏ nhắn, mẫu mã vô cùng bắt mắt và tinh t�
 
 Hiện tại, hệ sinh thái sản phẩm của Trăn Nhiên đã có tổng cộng 7 dòng: Nước khoáng thiên nhiên, Nước có gas Thanh Dưỡng, Trà sữa Ngung Quang, Trà Phái, Đông Phương Thụ Vận, Nước ép kiwi và Nước soda Thanh Dưỡng.
 
-Thẩm Tử Ngôn rất thích uống nước soda, dường như Hứa Mạn Mạn cũng vậy.
+Thẩm Tử Ngôn rất thích uống nước soda, dường như Từ Mạn Mạn cũng vậy.
 
-Thế nhưng trên bàn làm việc của Hứa Mạn Mạn thì lúc nào cũng thấy bày sẵn một chai trà sữa Ngung Quang.
+Thế nhưng trên bàn làm việc của Từ Mạn Mạn thì lúc nào cũng thấy bày sẵn một chai trà sữa Ngung Quang.
 
 Bốn nhà máy nước lại tiếp tục lắp đặt thêm các dây chuyền sản xuất mới. Riêng nhà máy nước Tưởng Gia Ao còn gánh vác trọng trách cung cấp toàn bộ nguồn nước khoáng sạch phục vụ cho Thế vận hội Olympic, từng đoàn xe tải hạng nặng nối đuôi nhau rầm rộ chở hàng hướng về Kinh đô Bắc Kinh.
 
 Cũng may lần này hợp đồng Thế vận hội chỉ yêu cầu cung cấp nước khoáng, bằng không thì nhà máy Tưởng Gia Ao chẳng tài nào kham nổi nguồn hàng cung ứng cho hệ thống đại lý phân phối trên toàn quốc.
 
-Còn chưa kịp đợi Trương Huệ bắt xe lên Sa Quận đón Mộc Dao, Triệu Kim An và Thẩm Tử Ngôn đã cùng nhau lái xe xuất phát đi tỉnh Vân Nam.
+Còn chưa kịp đợi Trương Tuệ bắt xe lên Sa Quận đón Mộc Dao, Triệu Kim An và Thẩm Tử Ngôn đã cùng nhau lái xe xuất phát đi tỉnh Vân Nam.
 
 Cuối tháng sáu, tiết trời đã bắt đầu oi ả, hầm hập hơi nóng.
 
@@ -46,7 +44,7 @@ Thẩm Tử Ngôn cười khúc khích một hồi: "Thế chẳng phải sẽ t
 
 Đi công tác xa nhà dĩ nhiên phải chi trả thù lao cao hơn, vả lại Thẩm Tử Ngôn một thân một mình lặn lội sang tận Thiểm Tây có lẽ cũng muốn có thêm người bạn thân bên cạnh bầu bạn cho đỡ lẻ loi.
 
-Triệu Kim An chợt liên tưởng tới cặp đôi Hứa Mạn Mạn - Đường Hiểu Tình, rồi lại nhìn sang Thẩm Tử Ngôn và Diêu Sân, bất giác cảm thấy các mối quan hệ này có chút gì đó kỳ lạ, thú vị khôn tả.
+Triệu Kim An chợt liên tưởng tới cặp đôi Từ Mạn Mạn - Đường Hiểu Tình, rồi lại nhìn sang Thẩm Tử Ngôn và Diêu Sân, bất giác cảm thấy các mối quan hệ này có chút gì đó kỳ lạ, thú vị khôn tả.
 
 Câu hỏi này căn bản chẳng cần câu trả lời, Thẩm Tử Ngôn chỉ đơn thuần là thông báo một tiếng mà thôi.
 
@@ -120,7 +118,7 @@ Mộc Dao hôm đó cũng chỉ vì nhất thời nổi cơn ghen tuông mà tư
 
 Bây giờ chắc cô nàng cũng đã bình tâm mà nhận ra rồi.
 
-Hôm Thẩm Tử Ngôn ở phòng ký túc xá nói đùa rằng "Triệu Kim An thích mê Lý Ngải Lan", chẳng những Hứa Mạn Mạn mà ngay cả Diêu Sân cũng thừa biết đó chỉ là một câu nói đùa vui miệng, duy chỉ có Mộc Dao là ngốc nghếch đinh ninh đó là sự thật.
+Hôm Thẩm Tử Ngôn ở phòng ký túc xá nói đùa rằng "Triệu Kim An thích mê Lý Ngải Lan", chẳng những Từ Mạn Mạn mà ngay cả Diêu Sân cũng thừa biết đó chỉ là một câu nói đùa vui miệng, duy chỉ có Mộc Dao là ngốc nghếch đinh ninh đó là sự thật.
 
 Ngay cả Đường Hiểu Tình cũng biết tỏng Triệu Kim An chẳng bao giờ có ý gì với Lý Ngải Lan, phải nói là toàn bộ sinh viên lớp Kế toán 1 đều nhìn ra điều đó. Lần trước lúc nộp quỹ lớp, Phương Khiết và Lâm Thanh Tuyết nhìn thấy cảnh hai người trêu chọc nhau cũng chẳng hề có lấy nửa phần phản ứng bất ngờ.
 
@@ -166,11 +164,11 @@ Kết quả là đầu dây bên kia Lạc Cẩn Chi lại càng mắng dữ d�
 
 Chỉ mới trải qua ba ngày ngắn ngủi mà Mộc Dao đã gầy rộc hẳn đi, thiếu ngủ khiến gương mặt cô trông tiều tụy, phờ phạc thấy rõ.
 
-Trương Huệ cũng thừa đoán được lý do Triệu Kim An cố tình tránh mặt là vì không muốn chạm trán với mình. Lần này Mộc Dao không hề mở lời oán trách Trương Huệ hay Trương Vân Thiến nửa câu, cô chỉ nghẹn ngào nói với mẹ một câu: "Mẹ ơi, Kim An không cần con nữa rồi..."
+Trương Tuệ cũng thừa đoán được lý do Triệu Kim An cố tình tránh mặt là vì không muốn chạm trán với mình. Lần này Mộc Dao không hề mở lời oán trách Trương Tuệ hay Trương Vân Thiến nửa câu, cô chỉ nghẹn ngào nói với mẹ một câu: "Mẹ ơi, Kim An không cần con nữa rồi..."
 
 Kỳ lạ ở chỗ, trong cuộc điện thoại của Triệu Trí Dũng ở kiếp trước, cậu ta kể rằng chính Mộc Dao đã gọi điện hỏi xin số và dò la xem Triệu Kim An đang ở đâu.
 
-Khi ấy Trương Huệ đã bao nhiêu tuổi rồi?
+Khi ấy Trương Tuệ đã bao nhiêu tuổi rồi?
 
 Bà và Mộc Nhân Cường vẫn luôn sinh sống ở Tư Tinh, chẳng lẽ lại chưa từng nghe ngóng tin tức gì về Triệu Kim An? Triệu Kim An kiếp trước tuy không đại phú đại quý, nhưng bám trụ ở Sa Quận với mức thu nhập hơn hai mươi vạn tệ một năm, đóng đầy đủ bảo hiểm xã hội và phúc lợi, tính ra cũng là mức sống khá khẩm rồi.
 
@@ -178,7 +176,7 @@ Huống chi Sa Quận đâu phải là những đại đô thị xa hoa đắt �
 
 Chỉ cần chịu khó dò la một chút là chắc chắn có thể nắm được đầy đủ thông tin: Triệu Kim An kết hôn khi nào, ly hôn ra sao.
 
-Vai trò của Trương Huệ trong những năm tháng ấy kỳ thực hoàn toàn có thể suy đoán được. Không rõ Mộc Dao kết hôn vào thời điểm nào, nhưng Triệu Trí Dũng nói con gái của Mộc Dao khi về nước mới tròn hai tuổi.
+Vai trò của Trương Tuệ trong những năm tháng ấy kỳ thực hoàn toàn có thể suy đoán được. Không rõ Mộc Dao kết hôn vào thời điểm nào, nhưng Triệu Trí Dũng nói con gái của Mộc Dao khi về nước mới tròn hai tuổi.
 
 Lại thêm việc cô đã ly hôn từ hai năm trước, điều đó chứng tỏ Mộc Dao sinh con khi tuổi đời đã khá muộn màng.
 
@@ -186,13 +184,13 @@ Xét về mốc thời gian ly hôn, Triệu Kim An ly hôn cách đây ba năm,
 
 Những chuyện khác chưa dám khẳng định, nhưng ít nhất có thể chắc chắn một điều rằng những năm tháng bôn ba nơi đất khách quê người ấy, cuộc sống của Mộc Dao trôi qua chẳng hề êm đềm, sung sướng gì.
 
-Về chuyện con gái mình sống có hạnh phúc hay không, Trương Huệ chắc chắn là người nắm rõ nhất trong lòng.
+Về chuyện con gái mình sống có hạnh phúc hay không, Trương Tuệ chắc chắn là người nắm rõ nhất trong lòng.
 
-Tại căn hộ của Trương Vân Thiến, Mộc Dao có một phòng ngủ riêng biệt. Trương Huệ đưa mắt nhìn cánh cửa phòng đang đóng chặt im ỉm, lúc này Trương Vân Thiến đang ngồi ở bàn ăn ngoài phòng khách cặm cụi sắp xếp lại các tập hồ sơ tài liệu.
+Tại căn hộ của Trương Vân Thiến, Mộc Dao có một phòng ngủ riêng biệt. Trương Tuệ đưa mắt nhìn cánh cửa phòng đang đóng chặt im ỉm, lúc này Trương Vân Thiến đang ngồi ở bàn ăn ngoài phòng khách cặm cụi sắp xếp lại các tập hồ sơ tài liệu.
 
 "Chị à, con bé Dao Dao ngủ một giấc dậy là sẽ ổn thôi."
 
-Trương Huệ đứng nhìn một lát rồi tò mò hỏi: "Em đang bận rộn chuẩn bị cái gì đấy?"
+Trương Tuệ đứng nhìn một lát rồi tò mò hỏi: "Em đang bận rộn chuẩn bị cái gì đấy?"
 
 "Có một siêu thị lớn tên là Trăn Hối Tuyển."
 
@@ -200,7 +198,7 @@ Trương Vân Thiến vừa gõ nhẹ xấp tài liệu xuống mặt bàn vừa
 
 "Chẳng phải trước giờ em chủ yếu chỉ đánh vào các quầy hàng độc quyền trong trung tâm thương mại thôi sao?"
 
-Trương Huệ thắc mắc hỏi.
+Trương Tuệ thắc mắc hỏi.
 
 "Siêu thị này hoàn toàn khác biệt, nó bao trọn ba tầng lầu với tổng diện tích gần 1,8 vạn mét vuông, hiện tại là siêu thị có quy mô lớn nhất toàn thành phố Sa Quận đấy."
 
@@ -208,7 +206,7 @@ Ban đầu diện tích sử dụng chỉ khoảng 1,4 vạn mét vuông, nhưng
 
 "Rộng đến thế cơ à? Nghe chừng còn hoành tráng hơn cả cái siêu thị Walmart ở ngay bên cạnh ấy nhỉ?"
 
-Trương Huệ chép miệng cảm thán, thầm nghĩ đúng là thành phố tỉnh lỵ có khác, cái gì cũng quy mô vượt trội.
+Trương Tuệ chép miệng cảm thán, thầm nghĩ đúng là thành phố tỉnh lỵ có khác, cái gì cũng quy mô vượt trội.
 
 Trương Vân Thiến lật giở xấp hồ sơ: "Làm ăn buôn bán đâu có đơn giản như người ngoài nhìn vào. Phải đàm phán phí vào sàn, phí trưng bày sản phẩm, thời hạn thanh toán công nợ, rồi ngành hàng của em còn cần đội ngũ nhân viên tư vấn bán hàng chuyên nghiệp nữa, phải thống nhất xem đó là người của siêu thị hay do bên nhãn hàng tự cử tới."
 

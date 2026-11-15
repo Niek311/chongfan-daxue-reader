@@ -1,7 +1,5 @@
 # Chương 536: Không đợi được người
 
-> **Tiêu đề gốc**: 第536章 没等来。
-
 Cơm nước xong xuôi, đoàn xe nổ máy quay về Quận Sa.
 
 Chủ quán là một người đàn ông trạc ngoài sáu mươi tuổi. Ông chậm rãi bước lại gần, cất tiếng hỏi: "Phương Dụ, người đó là ai vậy cháu?"

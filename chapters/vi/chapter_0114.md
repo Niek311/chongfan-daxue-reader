@@ -1,7 +1,5 @@
 # Chương 114: Lên đại học rồi, nó không bám theo con nữa chứ?
 
-> **Tiêu đề gốc**: 第114章 到了大学，他没来缠着你吧？
-
 Đại học Công nghiệp Trung Nam được nghỉ hè muộn hơn Đại học Sư phạm ba ngày.
 
 Kỳ nghỉ hè này Thẩm Tử Ngôn không có ý định về nhà, nếu có về thăm bố mẹ thì cô cũng sẽ đáp máy bay chứ không đời nào lái xe về Tô Thành, chặng đường quá đỗi xa xôi.

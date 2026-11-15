@@ -1,7 +1,5 @@
 # Chương 283: Mua sắm trực tuyến hiện tại và đường đua livestream tương lai
 
-> **Tiêu đề gốc**: 第283章 现在的网购，以后直播赛道
-
 "Nhà cậu thực sự khó khăn đến mức ấy à?"
 
 Triệu Kim An chỉ mỉm cười nhìn Lý Ngải Lan. Lúc này anh thực lòng chỉ muốn tán gẫu đôi câu với cô nàng để thư giãn đầu óc, chứ Từ Mạn Mạn và Thẩm Tử Ngôn được tăng lương lên hẳn một vạn tệ mà cả hai người họ đến một tiếng "cảm ơn" cũng chẳng thèm nói lấy một lời.

@@ -1,7 +1,5 @@
 # Chương 514: Tầm nhận thức và của cải
 
-> **Tiêu đề gốc**: 第514章 认知和财富。
-
 "..."
 
 Động tác gắp thức ăn của Từ Mạn Mạn chợt khựng lại giữa chừng.
@@ -118,7 +116,7 @@ Từ Mạn Mạn sững sờ chết lặng mất vài giây, lồng ngực đậ
 
 "Còn dặn gì nữa hả chị?"
 
-Từ Mạn Mạn sốt ruột hỏi dồn, trái tim như muốn nhảy ra khỏi lồng ngực. Cô thừa hiểu rằng những lời Du Phỉ truyền đạt lại cũng chính là tâm can và khẩu khí của Triệu Kim An. Đã quá lâu rồi cô không được nghe thấy những lời dặn dò của Triệu Kim An. Đã quá lâu, quá đỗi mòn mỏi rồi...
+Từ Mạn Mạn sốt ruột hỏi dồn, trái tim như muốn nhảy ra khỏi lồng ngực. Cô thừa hiểu rằng những lời Du Phi truyền đạt lại cũng chính là tâm can và khẩu khí của Triệu Kim An. Đã quá lâu rồi cô không được nghe thấy những lời dặn dò của Triệu Kim An. Đã quá lâu, quá đỗi mòn mỏi rồi...
 
 "Còn bảo là tất cả chúng ta dẫu có phải chịu đói chịu khát, dẫu có phải ăn cám nuốt rau đi chăng nữa thì cũng tuyệt đối không một ai được phép đụng đến một cắc tiền riêng của bé Nặc Nặc..."
 

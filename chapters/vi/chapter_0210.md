@@ -1,7 +1,5 @@
 # Chương 210: Đã đền điện thoại
 
-> **Tiêu đề gốc**: 第210章 手机赔了。
-
 Triệu Kim An không nghĩ ngợi gì nhiều, thấy đôi môi Thẩm Tử Ngôn có phần khô khốc, giọng nói cũng khản đặc vì phải gọi điện thoại liên tục.
 
 Cả nước có tới hai trăm chín mươi ba thành phố cấp địa khu, các đại lý phân phối đều phải được sàng lọc, thẩm định hồ sơ kỹ lưỡng từng người một.

@@ -1,7 +1,5 @@
 # Chương 161: Một vạn lần không dám!
 
-> **Tiêu đề gốc**: 第161章 一万个不敢！
-
 "Cho tớ xem với nào!"
 
 Lâm Thanh Tuyết nhanh tay giật lấy chiếc điện thoại từ tay Phương Khiết, rồi cùng Lý Lộ xúm lại ngắm nghía, vuốt ve không nỡ rời tay.
@@ -196,7 +194,7 @@ Liếc nhìn tên người gọi hiển thị trên màn hình, anh lại lặng
 
 "Chào Triệu tổng, không làm phiền anh nghỉ ngơi chứ ạ? Bên phía em đang gặp phải một chút khúc mắc nan giải quá."
 
-Lô Kiều Vĩ vốn là người do đích thân Lạc Cẩn Chi cất nhắc, nên khi nói chuyện với Triệu Kim An bao giờ cũng giữ thái độ vô cùng cung kính, khách khí. Cậu ta từng bị Trầm Tử Ngôn "đá văng" trả về cho Lạc Cẩn Chi, mà Trầm Tử Ngôn lại là cánh tay đắc lực dưới quyền Triệu Kim An.
+Lô Kiều Vĩ vốn là người do đích thân Lạc Cẩn Chi cất nhắc, nên khi nói chuyện với Triệu Kim An bao giờ cũng giữ thái độ vô cùng cung kính, khách khí. Cậu ta từng bị Thẩm Tử Ngôn "đá văng" trả về cho Lạc Cẩn Chi, mà Thẩm Tử Ngôn lại là cánh tay đắc lực dưới quyền Triệu Kim An.
 
 "Có chuyện gì nan giải thế?"
 

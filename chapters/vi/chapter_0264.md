@@ -1,20 +1,18 @@
 # Chương 264: Không hề dọa dẫm
 
-> **Tiêu đề gốc**: 第264章 没有危言耸听。
-
 "Được rồi."
 
 Trần Trạch gật đầu đồng ý, trong lòng đối với biểu hiện ngoan ngoãn, biết điều của Lâm Thanh Tuyết vẫn cảm thấy vô cùng hài lòng.
 
-Trên người Lâm Thanh Tuyết hiện đang có 50.000 tệ tiền mặt, toàn bộ doanh thu từ câu lạc bộ bi-a cũng đều do một tay cô quản lý. Đây vốn là khoản bồi thường chia tay mà chính bà Dương Thục Mỹ đã yêu cầu Trần Trạch phải đưa cho cô.
+Trên người Lâm Thanh Tuyết hiện đang có 50.000 tệ tiền mặt, toàn bộ doanh thu từ câu lạc bộ bi-a cũng đều do một tay cô quản lý. Đây vốn là khoản bồi thường chia tay mà chính bà Dương Thù Mỹ đã yêu cầu Trần Trạch phải đưa cho cô.
 
 Dù sau đó hai người không hề chia tay, Trần Trạch thỉnh thoảng mới rút ra một ít tiêu xài, còn đại bộ phận số tiền ấy vẫn nằm trọn trong tay Lâm Thanh Tuyết.
 
-Có lẽ cả Trần Trạch lẫn Lâm Thanh Tuyết đều chưa thể ý thức hết được những bước đường cùng gian nan mà bà Dương Thục Mỹ đang phải đối mặt. Về phương diện tiền bạc, Trần Trạch quả thực vẫn giữ được nét hào sảng, phóng khoáng của một người đàn ông. Còn Lâm Thanh Tuyết thì đinh ninh rằng chuyện mẹ anh cắt sinh hoạt phí chỉ là biện pháp trừng phạt tạm thời mà thôi.
+Có lẽ cả Trần Trạch lẫn Lâm Thanh Tuyết đều chưa thể ý thức hết được những bước đường cùng gian nan mà bà Dương Thù Mỹ đang phải đối mặt. Về phương diện tiền bạc, Trần Trạch quả thực vẫn giữ được nét hào sảng, phóng khoáng của một người đàn ông. Còn Lâm Thanh Tuyết thì đinh ninh rằng chuyện mẹ anh cắt sinh hoạt phí chỉ là biện pháp trừng phạt tạm thời mà thôi.
 
 Bốn nhà máy quy mô bề thế cùng căn biệt thự lộng lẫy vẫn sờ sờ ra đó, Lâm Thanh Tuyết đâu phải kẻ ngốc nghếch thiển cận.
 
-Cô thầm nghĩ đây có khi chỉ là một bài khảo nghiệm mà bà Dương Thục Mỹ cố tình đặt ra để thử thách tình cảm giữa mình và Trần Trạch mà thôi.
+Cô thầm nghĩ đây có khi chỉ là một bài khảo nghiệm mà bà Dương Thù Mỹ cố tình đặt ra để thử thách tình cảm giữa mình và Trần Trạch mà thôi.
 
 Ở bên cạnh Lâm Thanh Tuyết, Trần Trạch mới thực sự cảm nhận được thế nào là hương vị ngọt ngào của tình yêu đôi lứa. Khoảng thời gian ở bên Từ Mạn Mạn trước kia hoàn toàn không mang lại cho anh cảm giác rung động ấy, mà giống như mối quan hệ gắn bó giữa hai chị em trong một nhà nhiều hơn.
 
@@ -34,7 +32,7 @@ Xảy ra cơ sự ầm ĩ thế này cũng là điều dễ hiểu, làm sao có
 
 Trần Trạch bản chất không phải kẻ đốn mạt táng tận lương tâm, anh luôn cảm thấy bản thân có lỗi rất nhiều trước tấm chân tình và sự yêu thương mà chú Từ cùng dì Lương đã dành cho mình suốt bao năm qua.
 
-Mối thâm tình giữa hai gia đình sâu nặng biết dường nào. Bà Dương Thục Mỹ quanh năm bận rộn làm ăn ở Dương Thành, từ thuở ấu thơ Trần Trạch đã chẳng biết bao nhiêu lần ăn những bữa cơm ấm áp do chính tay dì Lương Tuệ Trân nấu nướng.
+Mối thâm tình giữa hai gia đình sâu nặng biết dường nào. Bà Dương Thù Mỹ quanh năm bận rộn làm ăn ở Dương Thành, từ thuở ấu thơ Trần Trạch đã chẳng biết bao nhiêu lần ăn những bữa cơm ấm áp do chính tay dì Lương Tuệ Trân nấu nướng.
 
 "Trần Trạch, anh có muốn ăn cánh gà nướng New Orleans không?"
 
@@ -78,21 +76,21 @@ Người ra kẻ vào ký túc xá nườm nượp cả ngày, người bực m�
 
 "Reng... reng... reng!"
 
-Đúng lúc này, chuông điện thoại trong túi bỗng vang lên dồn dập, trên màn hình hiện tên bà Dương Thục Mỹ.
+Đúng lúc này, chuông điện thoại trong túi bỗng vang lên dồn dập, trên màn hình hiện tên bà Dương Thù Mỹ.
 
 Trần Trạch liếc mắt nhìn Lâm Thanh Tuyết đang chen chúc ở phía trước chọn đồ ăn, liền chủ động lùi ra một khoảng xa rồi mới bấm nút nghe.
 
 "Alo, mẹ ạ."
 
-Đầu dây bên kia, Dương Thục Mỹ lập tức tuôn ra một tràng mắng mỏ xối xả. Cả kỳ nghỉ hè này Trần Trạch hiếm khi thèm ngó ngàng đến nhà máy ở Tinh Sa, trong khi bản thân bà ở Dương Thành đang phải gồng gánh cùng lúc ba nhà máy lớn, mà tình hình hiện tại thì...
+Đầu dây bên kia, Dương Thù Mỹ lập tức tuôn ra một tràng mắng mỏ xối xả. Cả kỳ nghỉ hè này Trần Trạch hiếm khi thèm ngó ngàng đến nhà máy ở Tinh Sa, trong khi bản thân bà ở Dương Thành đang phải gồng gánh cùng lúc ba nhà máy lớn, mà tình hình hiện tại thì...
 
 Các nhà xưởng tuyệt đối không thể tùy tiện dừng hoạt động!
 
-Bản thân Dương Thục Mỹ từ lâu cũng đã lờ mờ nhận ra cục diện nguy nan. Khách hàng đơn phương phá vỡ hợp đồng ngày một nhiều, các đơn đặt hàng xuất khẩu từ thị trường Âu Mỹ sụt giảm thê thảm với tốc độ chóng mặt.
+Bản thân Dương Thù Mỹ từ lâu cũng đã lờ mờ nhận ra cục diện nguy nan. Khách hàng đơn phương phá vỡ hợp đồng ngày một nhiều, các đơn đặt hàng xuất khẩu từ thị trường Âu Mỹ sụt giảm thê thảm với tốc độ chóng mặt.
 
 Nhà máy chỉ cần ngừng hoạt động một ngày thôi, số tiền thiệt hại sẽ khủng khiếp đến mức nào?
 
-Vào chính thời khắc hiểm nghèo này, trong đầu Dương Thục Mỹ bỗng hiện lên hình bóng của Từ Mạn Mạn và Triệu Kim An. Bọn họ trước đây đều đã từng không ít lần lên tiếng cảnh báo bà, rằng điều đáng sợ nhất chính là gặp phải những đối tác không chịu thanh toán tiền đợt cuối, hoặc những khách hàng mà hàng hóa mới sản xuất được một nửa đã đùng đùng gọi điện thông báo hủy ngang không lấy nữa.
+Vào chính thời khắc hiểm nghèo này, trong đầu Dương Thù Mỹ bỗng hiện lên hình bóng của Từ Mạn Mạn và Triệu Kim An. Bọn họ trước đây đều đã từng không ít lần lên tiếng cảnh báo bà, rằng điều đáng sợ nhất chính là gặp phải những đối tác không chịu thanh toán tiền đợt cuối, hoặc những khách hàng mà hàng hóa mới sản xuất được một nửa đã đùng đùng gọi điện thông báo hủy ngang không lấy nữa.
 
 "Trần Trạch, rốt cuộc mày có bao giờ chịu để mắt theo dõi tin tức kinh tế thế giới không hả?"
 
@@ -108,7 +106,7 @@ Trần Trạch nghe xong cả người bỗng tê dại, đầu óc quay cuồng
 
 Khuôn mặt Trần Trạch tràn ngập vẻ kinh ngạc tột cùng.
 
-Đầu dây bên kia, Dương Thục Mỹ hít sâu một hơi kìm nén: "Đã làm ăn kinh doanh thì có ai mà không phải gánh nợ vay? Nếu xin được khoản vay này thì..."
+Đầu dây bên kia, Dương Thù Mỹ hít sâu một hơi kìm nén: "Đã làm ăn kinh doanh thì có ai mà không phải gánh nợ vay? Nếu xin được khoản vay này thì..."
 
 "Mẹ ơi, nhà mình cần bao nhiêu tiền ạ? Có thể đi vay mượn bên ngoài được không mẹ?"
 
@@ -118,7 +116,7 @@ Trần Trạch bỗng nhớ đến Thẩm Tử Ngôn, trong lòng bắt đầu c
 
 "Cái lũ bạn bè đàn đúm bù khú của mày thì moi đâu ra được mấy đồng bạc mà vay với mượn?"
 
-Dương Thục Mỹ đâu phải đứa trẻ con ba tuổi, Trần Trạch làm sao có thể mượn nổi tiền triệu?
+Dương Thù Mỹ đâu phải đứa trẻ con ba tuổi, Trần Trạch làm sao có thể mượn nổi tiền triệu?
 
 Cỡ vài triệu tệ thì người ta gọi là nguồn vốn điều chuyển liên kết kinh doanh rồi.
 

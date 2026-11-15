@@ -1,7 +1,5 @@
 # Chương 284: Anh là đàn anh à?
 
-> **Tiêu đề gốc**: 第284章 你是学长吗？
-
 "Kim... Kim An..."
 
 Trương Tuệ vẫn cố duy trì vẻ ngoài điềm đạm, cao quý vốn có của một người làm việc lâu năm trong cơ quan nhà nước, thế nhưng tận sâu trong đáy lòng bà lại mừng rỡ khôn xiết. Cuối cùng cũng gặp được Triệu Kim An, cuối cùng cũng có thể trực tiếp nói chuyện với cậu rồi.

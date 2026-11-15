@@ -1,7 +1,5 @@
 # Chương 491: Co ro
 
-> **Tiêu đề gốc**: 第491章 蜷缩。
-
 Tô Minh Tùng lại giáng thêm một cú đá vào lưng Triệu Kim An.
 
 Triệu Kim An nằm nghiêng, đổ gục trên nền đất lạnh, chẳng có lấy một chút phản ứng, trong miệng chỉ phát ra những âm thanh tắc nghẹn, vô thanh.
@@ -20,9 +18,9 @@ Cú đá thứ hai của Tô Minh Tùng đã chẳng còn chút sức lực, b�
 
 Hai bác sĩ vội vàng tiến lại đỡ ông quay về ghế ngồi, một trái một phải túc trực bên cạnh, chỉ sợ Tô đại lão "ngồi không vững".
 
-Du Phỉ nhìn thấy.
+Du Phi nhìn thấy.
 
-Đơn Vĩ nhìn thấy.
+Đan Vĩ nhìn thấy.
 
 Chu Hoa Phong cũng nhìn thấy.
 
@@ -38,15 +36,15 @@ Một bác sĩ bước ra, hướng về phía viện trưởng khẽ lắc đ�
 
 Lại có thêm bác sĩ và y tá hớt hải chạy vội vào trong.
 
-Du Phỉ rút điện thoại ra tra cứu: Huyết khối, thuyên tắc ối... Cả người cô lạnh toát từ da đầu buốt xuống tận gót chân.
+Du Phi rút điện thoại ra tra cứu: Huyết khối, thuyên tắc ối... Cả người cô lạnh toát từ da đầu buốt xuống tận gót chân.
 
 Hai đứa trẻ đang nằm trong lồng ấp.
 
 Khương Phức Hàm, Phùng Nhược Đan, Khang Văn Đông vẫn chưa tới nơi. Chỉ còn Tô Minh Tùng ngồi đó chết lặng, nước mắt đã cạn khô; Triệu Kim An vẫn nằm gục dưới đất, chẳng còn ai tâm trí đâu mà đoái hoài đến hai đứa trẻ vừa chào đời.
 
-Tô Mặc đưa mắt nhìn Du Phỉ.
+Tô Mặc đưa mắt nhìn Du Phi.
 
-Du Phỉ chỉ vào mình, bước lại gần, ngồi xuống túc trực bên cạnh Quách Uyển Thanh.
+Du Phi chỉ vào mình, bước lại gần, ngồi xuống túc trực bên cạnh Quách Uyển Thanh.
 
 Rõ ràng lúc này đầu óc của cả Triệu Kim An, Tô Minh Tùng lẫn Quách Uyển Thanh đều đã hoàn toàn trống rỗng. Tô Mặc lê từng bước chân nặng trĩu đi về phía phòng lồng ấp, tìm y tá trực để hỏi han tình hình.
 
@@ -54,7 +52,7 @@ Y tá nói hai đứa nhỏ không có vấn đề gì đáng ngại.
 
 Tìm một góc khuất vắng người, Tô Mặc ngồi thụp xuống, tay nắm chặt chiếc điện thoại, cúi gằm mặt để mặc những giọt nước mắt rơi lã chã xuống sàn.
 
-Tô Mặc là chị họ, bấy lâu nay vẫn luôn ở lại nhà họ Tô để chăm sóc Tô Miễn.
+Tô Mặc là chị họ, bấy lâu nay vẫn luôn ở lại nhà họ Tô để chăm sóc Tô Miến.
 
 Khang Văn Đông ở gần nhất nên là người đến đầu tiên.
 
@@ -68,7 +66,7 @@ Khang Văn Đông đưa mắt nhìn quanh một lượt, gật đầu: "Em hiể
 
 "Kim An..."
 
-Lúc này Du Phỉ mới bước tới bên Triệu Kim An, ngồi xổm xuống, đưa tay phủi nhẹ lớp bụi bặm vương trên người anh.
+Lúc này Du Phi mới bước tới bên Triệu Kim An, ngồi xổm xuống, đưa tay phủi nhẹ lớp bụi bặm vương trên người anh.
 
 Miệng Triệu Kim An vẫn lẩm bẩm điều gì đó, nghe không rõ.
 
@@ -78,7 +76,7 @@ Rõ ràng không ai nghe thấy tiếng Triệu Kim An khóc thành lời, nhưn
 
 Khản đặc đến mức chẳng thể nói ra hơi.
 
-Tô Miễn là đại tiểu thư, một đại tiểu thư kiêu kỳ và bướng bỉnh biết bao. Vậy mà trước khi hôn mê, cô chẳng để lại lấy nửa lời trăng trối cho Triệu Kim An, giây phút cuối cùng cũng chẳng dặn dò Tô Mặc chuyển lời gì cho anh...
+Tô Miến là đại tiểu thư, một đại tiểu thư kiêu kỳ và bướng bỉnh biết bao. Vậy mà trước khi hôn mê, cô chẳng để lại lấy nửa lời trăng trối cho Triệu Kim An, giây phút cuối cùng cũng chẳng dặn dò Tô Mặc chuyển lời gì cho anh...
 
 Cô giận rồi.
 
@@ -88,7 +86,7 @@ Vẫn luôn luôn hờn dỗi anh.
 
 Cho nên cô mới chẳng thèm để lại lời nào cho Triệu Kim An. Cái tát hôm ấy vẫn còn quá nhẹ.
 
-Triệu Kim An ức hiếp người ta, ức hiếp một Tô Miễn tàn tật không thể tự đi lại. Rõ ràng biết rõ Tô Miễn không đi được, anh lại nỡ bắt nạt đại tiểu thư của mình, để rồi tự do rong chơi phóng túng bên ngoài.
+Triệu Kim An ức hiếp người ta, ức hiếp một Tô Miến tàn tật không thể tự đi lại. Rõ ràng biết rõ Tô Miến không đi được, anh lại nỡ bắt nạt đại tiểu thư của mình, để rồi tự do rong chơi phóng túng bên ngoài.
 
 Triệu Kim An đang khóc, khóc xé lòng xé ruột trong câm lặng...
 
@@ -106,15 +104,15 @@ Quách Uyển Thanh không gượng nổi nữa, khóc ngất lịm đi, lại t
 
 Tô Minh Tùng vừa gượng đứng lên lại ngã ngồi phịch xuống ghế.
 
-Du Phỉ cuối cùng cũng nghe thấy tiếng khóc của Triệu Kim An. Tiếng khóc nghẹn ngào bị dồn nén đến tột cùng, thân hình anh co quắp, run rẩy bần bật từng cơn.
+Du Phi cuối cùng cũng nghe thấy tiếng khóc của Triệu Kim An. Tiếng khóc nghẹn ngào bị dồn nén đến tột cùng, thân hình anh co quắp, run rẩy bần bật từng cơn.
 
 Một vị chủ nhiệm khoa khẽ hỏi: "Triệu tổng, cậu có muốn vào trong nhìn cô ấy một chút không..."
 
-Tô Mặc bỗng nhiên ngăn lại, nấc nghẹn không thành tiếng: "Chờ đã... đợi em một lát... Tô Miễn là người yêu cái đẹp nhất trần đời, con bé không muốn để người khác nhìn thấy mình trong bộ dạng này đâu..."
+Tô Mặc bỗng nhiên ngăn lại, nấc nghẹn không thành tiếng: "Chờ đã... đợi em một lát... Tô Miến là người yêu cái đẹp nhất trần đời, con bé không muốn để người khác nhìn thấy mình trong bộ dạng này đâu..."
 
 Bác sĩ khẽ gật đầu hiểu ý, cảnh băng huyết thực sự chẳng hề đẹp đẽ chút nào.
 
-Tô Mặc gọi điện bảo người giúp việc trong nhà mang quần áo đến. Tô Miễn vốn dự định trước ngày dự sinh nửa tháng mới nhập viện, ai ngờ lại chuyển dạ sớm hơn tận 18 ngày... thành thử chẳng kịp mang theo bất cứ thứ gì vào viện.
+Tô Mặc gọi điện bảo người giúp việc trong nhà mang quần áo đến. Tô Miến vốn dự định trước ngày dự sinh nửa tháng mới nhập viện, ai ngờ lại chuyển dạ sớm hơn tận 18 ngày... thành thử chẳng kịp mang theo bất cứ thứ gì vào viện.
 
 Đôi mắt Triệu Kim An vằn đỏ tơ máu, anh ngước nhìn vị bác sĩ:
 
@@ -138,13 +136,13 @@ Chỉ cần còn một tia hy vọng mong manh, các bác sĩ đã không bướ
 
 "Kim An..."
 
-Du Phỉ chỉ biết ngồi thụp xuống đất, ôm chặt lấy Triệu Kim An đang run rẩy vì khóc nghẹn, hốc mắt cô cũng đỏ hoe.
+Du Phi chỉ biết ngồi thụp xuống đất, ôm chặt lấy Triệu Kim An đang run rẩy vì khóc nghẹn, hốc mắt cô cũng đỏ hoe.
 
-Đơn Vĩ và Chu Hoa Phong không dám bước lên.
+Đan Vĩ và Chu Hoa Phong không dám bước lên.
 
 Cả ba người đều chìm trong cảm giác bất lực đến nghẹt thở.
 
-Khương Phức Hàm và Phùng Nhược Đan đã đến. Hai người vào nhìn Tô Miễn trước, rồi quay sang phòng bệnh của Quách Uyển Thanh, cuối cùng rảo bước tới phòng lồng ấp.
+Khương Phức Hàm và Phùng Nhược Đan đã đến. Hai người vào nhìn Tô Miến trước, rồi quay sang phòng bệnh của Quách Uyển Thanh, cuối cùng rảo bước tới phòng lồng ấp.
 
 Tô Minh Tùng xin nghỉ phép một ngày, cũng phải nằm truyền dịch trên giường bệnh.
 
@@ -158,7 +156,7 @@ Khương Phức Hàm liếc nhìn Triệu Kim An một cái, không nói gì th�
 
 Trao đổi với bác sĩ xong xuôi, Phùng Nhược Đan mới rút điện thoại gọi cho Tô Cảnh Hành.
 
-Du Phỉ vẫn ngồi bệt dưới đất, túc trực bên cạnh Triệu Kim An.
+Du Phi vẫn ngồi bệt dưới đất, túc trực bên cạnh Triệu Kim An.
 
 Thời gian: 07:32.
 
@@ -166,11 +164,11 @@ Tô Mặc bước ra, khẽ nói một câu: "...Xong rồi."
 
 Khương Phức Hàm và Phùng Nhược Đan rảo bước đi vào.
 
-Du Phỉ dùng cả hai tay kéo Triệu Kim An dậy, đưa mắt nhìn Đơn Vĩ đang đứng ngẩn ngơ. Đơn Vĩ và Chu Hoa Phong vội vàng chạy lại, đỡ Triệu Kim An đứng dậy, dìu anh bước vào phòng chăm sóc đặc biệt.
+Du Phi dùng cả hai tay kéo Triệu Kim An dậy, đưa mắt nhìn Đan Vĩ đang đứng ngẩn ngơ. Đan Vĩ và Chu Hoa Phong vội vàng chạy lại, đỡ Triệu Kim An đứng dậy, dìu anh bước vào phòng chăm sóc đặc biệt.
 
 Triệu Kim An hai mắt đỏ ngầu như nhỏ máu, quần áo nhăn nhúm tả tơi.
 
-Tô Miễn nằm yên trên giường bệnh, trông cô hệt như chỉ vừa chìm vào giấc ngủ sâu, gương mặt trái xoan thanh tú mang nét đẹp cổ điển tuyệt mỹ.
+Tô Miến nằm yên trên giường bệnh, trông cô hệt như chỉ vừa chìm vào giấc ngủ sâu, gương mặt trái xoan thanh tú mang nét đẹp cổ điển tuyệt mỹ.
 
 Tô Mặc đã búi tóc gọn gàng cho cô, thoa một lớp son môi nhẹ nhàng, mặc cho cô chiếc váy Mã Diện thêu chỉ vàng màu đen mà cô thích nhất, cùng chiếc áo cổ khuy bấm cách tân thời thượng. Đại tiểu thư chẳng thể đi lại.
 
@@ -178,17 +176,17 @@ Nhưng đại tiểu thư vĩnh viễn là người tao nhã, kiêu sa và lộn
 
 Cô chỉ đang ngủ thôi, ngay cả khi ngủ say cũng đẹp đến nao lòng.
 
-"Miễn Miễn... Triệu Tri Hành và Triệu Tri Vi biết phải làm sao bây giờ?"
+"Miến Miến... Triệu Tri Hành và Triệu Tri Vi biết phải làm sao bây giờ?"
 
 Khương Phức Hàm vừa gạt nước mắt vừa cất tiếng hỏi, cùng Phùng Nhược Đan đứng lặng bên mép giường.
 
-Triệu Kim An không đứng vững nổi, anh quỳ sụp bên thành giường, nắm chặt lấy bàn tay Tô Miễn.
+Triệu Kim An không đứng vững nổi, anh quỳ sụp bên thành giường, nắm chặt lấy bàn tay Tô Miến.
 
 Đây là việc đầu tiên Triệu Kim An luôn làm mỗi khi hai người gặp nhau.
 
 Bao năm qua vẫn luôn như vậy.
 
-Khi ấy, Tô Miễn ngồi trên xe lăn, mỉm cười nhìn anh.
+Khi ấy, Tô Miến ngồi trên xe lăn, mỉm cười nhìn anh.
 
 Nụ cười của đại tiểu thư vừa thanh nhã, kiêu kỳ lại vừa vương chút lành lạnh.
 
@@ -196,7 +194,7 @@ Cô sẽ mỉm cười đưa tay vuốt ve mái tóc Triệu Kim An.
 
 Thế nhưng, bây giờ...
 
-Bàn tay Tô Miễn lạnh ngắt, những ngón tay bất động, chẳng chút phản xạ.
+Bàn tay Tô Miến lạnh ngắt, những ngón tay bất động, chẳng chút phản xạ.
 
 Bàn tay ấy sẽ không bao giờ còn vuốt tóc Triệu Kim An được nữa. Vĩnh viễn chẳng còn ai xoa đầu Triệu Kim An như thế nữa rồi.
 
@@ -204,7 +202,7 @@ Bàn tay ấy sẽ không bao giờ còn vuốt tóc Triệu Kim An được n�
 
 Triệu Kim An gục đầu bên mép giường, há to miệng bật khóc nức nở, bờ môi run rẩy bần bật, nhưng lại chẳng thể phát ra tiếng gào thét trọn vẹn.
 
-Phùng Nhược Đan nuốt nghẹn nơi cuống họng, nấc lên từng tiếng: "Miễn Miễn, em thích trẻ con đến thế, khao khát sinh con đến thế, Triệu Tri Hành và Triệu Tri Vi vẫn còn đang nằm trong lồng ấp kia kìa, em không mở mắt ra nhìn chúng một cái sao?"
+Phùng Nhược Đan nuốt nghẹn nơi cuống họng, nấc lên từng tiếng: "Miến Miến, em thích trẻ con đến thế, khao khát sinh con đến thế, Triệu Tri Hành và Triệu Tri Vi vẫn còn đang nằm trong lồng ấp kia kìa, em không mở mắt ra nhìn chúng một cái sao?"
 
 "Em không muốn ở bên nhìn chúng khôn lớn từng ngày à?"
 
@@ -214,6 +212,6 @@ Phùng Nhược Đan nuốt nghẹn nơi cuống họng, nấc lên từng tiế
 
 Phùng Nhược Đan không thể nói tiếp được nữa, vội đưa tay bịt miệng khóc nấc lên thành tiếng.
 
-Du Phỉ cắn chặt môi, bờ vai run rẩy bần bật, khẽ cất tiếng gọi: "Tiểu thẩm thẩm..."
+Du Phi cắn chặt môi, bờ vai run rẩy bần bật, khẽ cất tiếng gọi: "Tiểu thẩm thẩm..."
 
 Cô gọi theo Triệu Trí Dũng và Triệu Bác Lan, dường như lúc này, gọi một tiếng "Tiểu thẩm thẩm" mới là xót xa và trọn vẹn nhất.

@@ -1,7 +1,5 @@
 # Chương 521: Bố cục bàn cờ
 
-> **Tiêu đề gốc**: 第521章 布局。
-
 Lâm Thanh Tuyết tìm đến quảng trường Hoàn Vũ Thời Đại, nhưng cô không lên lầu.
 
 Cô bấm điện thoại gọi cho Lý Ngải Lan, Ngải Lan bảo Kim An vẫn chưa quay về công ty.
@@ -150,7 +148,7 @@ Dưới Đông Quản, Lưu Sấm Phong và Cốc Siêu Thừa mấy lần bấm
 
 Số điện thoại riêng của Đan Vĩ thì trên đời này cũng chẳng mấy người biết được.
 
-Du Phỉ thì một thân một mình lặng lẽ mua vé máy bay, bay thẳng sang Úc.
+Du Phi thì một thân một mình lặng lẽ mua vé máy bay, bay thẳng sang Úc.
 
 Cô trợ lý ngập ngừng hỏi Trần Trạch nên chuẩn bị món quà gì để chúc mừng, Trần Trạch cũng gãi đầu chịu chết. Trợ lý nghĩ bụng vị Triệu tổng Quận Sa kia tiền bạc chất thành núi đâu thiếu thốn thứ gì, bèn đặt một lẵng hoa tươi thật lớn mang đến.
 

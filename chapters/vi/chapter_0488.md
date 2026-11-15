@@ -1,10 +1,8 @@
 # Chương 488: Thiên Thiên là đồ ngốc
 
-> **Tiêu đề gốc**: 第488章 芊芊是个傻子。
-
 Đoàn tàu cao tốc từ từ trườn vào sân ga rồi dừng hẳn.
 
-Quan Văn Bách và Đan Vĩ cẩn thận che chắn hai bên, hộ tống Hứa Mạn Mạn đang bế Triệu Tri Nặc bước lại gần, sợ dòng người từ trên tàu ùa xuống sẽ va quẹt phải hai mẹ con.
+Quan Văn Bách và Đan Vĩ cẩn thận che chắn hai bên, hộ tống Từ Mạn Mạn đang bế Triệu Tri Nặc bước lại gần, sợ dòng người từ trên tàu ùa xuống sẽ va quẹt phải hai mẹ con.
 
 “Bà nội của ông chủ lên chơi đấy!”
 
@@ -32,7 +30,7 @@ Cửa toa tàu bật mở.
 
 Triệu Kim An đứng túc trực ngay trước cửa.
 
-Hứa Mạn Mạn bế Triệu Tri Nặc đứng nép lại phía sau một quãng.
+Từ Mạn Mạn bế Triệu Tri Nặc đứng nép lại phía sau một quãng.
 
 — Anh hai!
 
@@ -44,7 +42,7 @@ Nói về Vương Kim Như thì thật lòng chẳng có điểm gì để chê 
 
 — Bà nội...
 
-Triệu Kim An vội vàng bước tới, ân cần đỡ lấy tay bà. Bà nội vỗ nhẹ lên mu bàn tay Triệu Kim An, rồi ánh mắt ấm áp hướng về phía trước, nơi Hứa Mạn Mạn và Triệu Duyệt Thiên đang đứng.
+Triệu Kim An vội vàng bước tới, ân cần đỡ lấy tay bà. Bà nội vỗ nhẹ lên mu bàn tay Triệu Kim An, rồi ánh mắt ấm áp hướng về phía trước, nơi Từ Mạn Mạn và Triệu Duyệt Thiên đang đứng.
 
 — Tri Nặc đấy ư?
 
@@ -58,9 +56,9 @@ Triệu Kim An bật cười mắng yêu:
 
 — Bà nội... thím...
 
-Hứa Mạn Mạn bế Triệu Tri Nặc nhẹ nhàng tiến lên phía trước vài bước.
+Từ Mạn Mạn bế Triệu Tri Nặc nhẹ nhàng tiến lên phía trước vài bước.
 
-Bà nội ngắm nhìn Mạn Mạn trước tiên. Đây là lần đầu tiên bà được tận mắt thấy mặt Hứa Mạn Mạn, sau đó bà mới nở nụ cười đôn hậu, từ ái cúi đầu nhìn ngắm đứa chắt nhỏ đang nằm ngoan trong lòng cô. Bà run run nắm lấy bàn tay mềm mại của Mạn Mạn, giọng run run:
+Bà nội ngắm nhìn Mạn Mạn trước tiên. Đây là lần đầu tiên bà được tận mắt thấy mặt Từ Mạn Mạn, sau đó bà mới nở nụ cười đôn hậu, từ ái cúi đầu nhìn ngắm đứa chắt nhỏ đang nằm ngoan trong lòng cô. Bà run run nắm lấy bàn tay mềm mại của Mạn Mạn, giọng run run:
 
 — Tốt, Mạn Mạn sinh/trông khéo quá, xinh đẹp quá chừng.
 
@@ -68,11 +66,11 @@ Triệu Kim An vội vàng đứng bên cạnh giải thích:
 
 — Bà nội em đang khen em lớn lên xinh đẹp, tướng mạo đoan trang đấy, chứ không phải bảo chuyện em sinh nở đâu... Đây là cách nói tiếng địa phương ở quê anh.
 
-Sợ Hứa Mạn Mạn hiểu lầm từ “sinh” trong câu nói của bà, Triệu Kim An phải vội vàng đỡ lời ngay.
+Sợ Từ Mạn Mạn hiểu lầm từ “sinh” trong câu nói của bà, Triệu Kim An phải vội vàng đỡ lời ngay.
 
 — ....
 
-Hứa Mạn Mạn chớp mắt, ngơ ngác gật đầu tiếp thu.
+Từ Mạn Mạn chớp mắt, ngơ ngác gật đầu tiếp thu.
 
 — Thì cũng như nhau cả thôi!
 
@@ -86,13 +84,13 @@ Vương Kim Như đưa tay khẽ xoa nắn gò má mịn màng của Triệu Tri
 
 Triệu Kim An chớp chớp mắt, thầm nhủ được rồi, anh tự nhận chỉ số EQ của mình kém cỏi, vẫn là thím nói năng khéo léo, EQ cao ngút trời.
 
-Hứa Mạn Mạn khẽ khom người bế Triệu Tri Nặc thấp xuống một chút để bà nội nhìn cho rõ.
+Từ Mạn Mạn khẽ khom người bế Triệu Tri Nặc thấp xuống một chút để bà nội nhìn cho rõ.
 
 — Bà nội, ngồi tàu cao tốc có bị say xe không bà?
 
 — Không say tí nào đâu cháu, tàu cao tốc chạy vùn vụt, nhanh ghê gớm.
 
-Bà nội chốc chốc lại đưa mắt ngắm nhìn Hứa Mạn Mạn, rồi chốc chốc lại cúi xuống cưng nựng Triệu Tri Nặc, nụ cười rạng rỡ từ ái chưa từng tắt trên gương mặt nhăn nheo in hằn dấu vết thời gian. Bà nói toàn bằng thổ ngữ địa phương, Hứa Mạn Mạn nghe câu được câu chăng, chẳng hiểu hết được mấy phần.
+Bà nội chốc chốc lại đưa mắt ngắm nhìn Từ Mạn Mạn, rồi chốc chốc lại cúi xuống cưng nựng Triệu Tri Nặc, nụ cười rạng rỡ từ ái chưa từng tắt trên gương mặt nhăn nheo in hằn dấu vết thời gian. Bà nói toàn bằng thổ ngữ địa phương, Từ Mạn Mạn nghe câu được câu chăng, chẳng hiểu hết được mấy phần.
 
 Cô đành đưa ánh mắt cầu cứu nhìn về phía Triệu Kim An.
 
@@ -102,17 +100,17 @@ Triệu Kim An mỉm cười:
 
 — ....
 
-Hứa Mạn Mạn lườm yêu Triệu Kim An một cái, bảo lừa người ta cũng đâu có lừa lộ liễu thế bao giờ. Cô tự mình đoán ý rồi dịu dàng thưa:
+Từ Mạn Mạn lườm yêu Triệu Kim An một cái, bảo lừa người ta cũng đâu có lừa lộ liễu thế bao giờ. Cô tự mình đoán ý rồi dịu dàng thưa:
 
 — Bà nội ơi, thế từ nay về sau bà chịu khó đi tàu cao tốc lên Quận Sa chơi thường xuyên nhé, mỗi lần lên bà cứ ở lại chơi với chúng cháu thật lâu vào...
 
 Vương Kim Như đứng bên kể rằng bà nội đi từ huyện Tư Tinh ra ga tàu cao tốc Sâm Thành có bị say xe một chút, chiếc xe Mercedes tiền tỷ của Triệu Quốc Hoa cũng chẳng ăn thua gì, say xe thì vẫn cứ say như thường.
 
-Cả đoàn người cùng nhau rảo bước ra ngoài. Triệu Tri Nặc lúc này đã được chuyển sang vòng tay của Vương Kim Như, còn Hứa Mạn Mạn thì ân cần khoác lấy cánh tay bà nội. Triệu Kim An đứng bên cạnh để ý thấy bàn tay gầy guộc của bà nội cứ liên tục vỗ nhẹ lên mu bàn tay Mạn Mạn đầy âu yếm.
+Cả đoàn người cùng nhau rảo bước ra ngoài. Triệu Tri Nặc lúc này đã được chuyển sang vòng tay của Vương Kim Như, còn Từ Mạn Mạn thì ân cần khoác lấy cánh tay bà nội. Triệu Kim An đứng bên cạnh để ý thấy bàn tay gầy guộc của bà nội cứ liên tục vỗ nhẹ lên mu bàn tay Mạn Mạn đầy âu yếm.
 
 Những người già ở độ tuổi như bà nội cả đời chẳng bao giờ muốn rời xa mái nhà quen thuộc. Chẳng biết là trong lòng bà đang vương vấn đàn gà đàn vịt ở quê, hay là còn canh cánh điều gì, chỉ biết rằng dẫu ngoài kia có phồn hoa tráng lệ đến đâu thì trong tâm khảm họ lúc nào cũng chỉ đau đáu hướng về quê nhà.
 
-Hôm nay Hứa Mạn Mạn không hề mang giày cao gót, cũng chẳng đeo hoa tai lấp lánh, trên môi chỉ phớt nhẹ chút son dưỡng dịu dàng, dường như cô đã hoàn toàn rũ bỏ vẻ uy nghiêm của một “Hứa tổng” trên thương trường.
+Hôm nay Từ Mạn Mạn không hề mang giày cao gót, cũng chẳng đeo hoa tai lấp lánh, trên môi chỉ phớt nhẹ chút son dưỡng dịu dàng, dường như cô đã hoàn toàn rũ bỏ vẻ uy nghiêm của một “Từ tổng” trên thương trường.
 
 Cô hơi nghiêng đầu, nở nụ cười ngoan ngoãn khoác chặt lấy cánh tay bà nội.
 
@@ -126,7 +124,7 @@ Vương Kim Như vừa cười vừa mắng Triệu Duyệt Thiên, đoạn lạ
 
 — Mẹ xem kìa, con bé Tri Nặc nhà ta cũng đang đòi tụt xuống đất để chạy nhảy chơi cùng cô út nó đấy, ha ha ha!
 
-Bà nội vừa vỗ nhẹ tay Hứa Mạn Mạn vừa âu yếm dõi nhìn Triệu Tri Nặc.
+Bà nội vừa vỗ nhẹ tay Từ Mạn Mạn vừa âu yếm dõi nhìn Triệu Tri Nặc.
 
 Đứng nhìn khung cảnh đoàn viên ấm áp này, Triệu Kim An bỗng rơi vào trạng thái bần thần, ngơ ngẩn. Trong đáy mắt anh dâng lên một nỗi sợ mơ hồ, sợ khoảnh khắc hạnh phúc này sẽ tuột khỏi tầm tay, sợ khi giật mình tỉnh giấc tất cả chỉ là một giấc mộng phù hoa.
 
@@ -164,7 +162,7 @@ Mông Triệu Duyệt Thiên từ nãy đến giờ chẳng chịu ngồi yên t
 
 Vương Kim Như bảo lúc nãy đã cho bà uống thuốc chống say xe rồi.
 
-Hứa Mạn Mạn nhanh nhẹn bóc một vỏ quả quýt đưa sang cho bà nội:
+Từ Mạn Mạn nhanh nhẹn bóc một vỏ quả quýt đưa sang cho bà nội:
 
 — Bà ơi, bà ngửi chút vỏ quýt này cho dễ chịu hơn ạ.
 
@@ -184,7 +182,7 @@ Thế nhưng không ngờ bà nội dường như chẳng hề bận tâm đến
 
 Vương Kim Như lại đưa tay vỗ nhẹ vào vai Triệu Duyệt Thiên một cái, rồi cả ba người cùng bật cười nắc nẻ.
 
-Hứa Mạn Mạn khẽ nghiêng đầu, ghé sát tai Triệu Kim An thì thầm cười trộm:
+Từ Mạn Mạn khẽ nghiêng đầu, ghé sát tai Triệu Kim An thì thầm cười trộm:
 
 — Tính con bé Thiên Thiên khác hẳn với Tiểu Nguyệt anh nhỉ, con bé da mặt dày ghê cơ.
 
@@ -192,27 +190,27 @@ Triệu Kim An mỉm cười đáp:
 
 — Không dày đâu, thực ra nó cũng bẽn lẽn lắm đấy, chẳng qua là vì toàn người nhà ruột thịt ở đây nên nó mới bộc lộ bản tính thế thôi. Với lại con bé bị thím anh đánh quen đòn rồi. Em nhìn chú hai anh xem khổ sở đến mức nào... Em có biết câu cửa miệng muôn thuở của thím anh là gì không?
 
-Hứa Mạn Mạn vén lọn tóc mai ra sau vành tai, chớp chớp mắt tò mò:
+Từ Mạn Mạn vén lọn tóc mai ra sau vành tai, chớp chớp mắt tò mò:
 
 — Là câu gì thế anh?
 
 — “Cái nhà này mà không có bà ấy thì có mà tan đàn xẻ nghé từ lâu rồi”.
 
-Triệu Kim An nói bằng giọng vô cùng nghiêm túc. Hứa Mạn Mạn chưa hiểu hết hàm ý, tròn mắt chờ anh giải thích tiếp.
+Triệu Kim An nói bằng giọng vô cùng nghiêm túc. Từ Mạn Mạn chưa hiểu hết hàm ý, tròn mắt chờ anh giải thích tiếp.
 
 — Khụ... thế nên chuyện anh ra ở riêng coi như cũng bằng thừa, em sau này cũng đừng hòng trốn thoát khỏi bàn tay ma quỷ cai quản của thím ấy đâu nhé.
 
-Triệu Kim An chỉ nói đến đó rồi dừng lại, để mặc cho Hứa Mạn Mạn tự mình suy ngẫm.
+Triệu Kim An chỉ nói đến đó rồi dừng lại, để mặc cho Từ Mạn Mạn tự mình suy ngẫm.
 
 — ....
 
-Hứa Mạn Mạn bỗng chốc hiểu ra toàn bộ ẩn ý, không kìm được bật cười khúc khích. Quả đúng là phong cách đặc trưng không lẫn vào đâu được của thím Vương Kim Như.
+Từ Mạn Mạn bỗng chốc hiểu ra toàn bộ ẩn ý, không kìm được bật cười khúc khích. Quả đúng là phong cách đặc trưng không lẫn vào đâu được của thím Vương Kim Như.
 
 Cô còn lờ mờ hiểu được rằng, trong lời nói ấy của Triệu Kim An còn bao hàm cả Tô Miến nữa. Sau này Tô Miến bước vào cửa, chắc chắn cũng sẽ nằm trong diện chịu sự “cai quản” của thím Vương Kim Như mà thôi.
 
 Chiếc xe tiến vào bãi đỗ xe dưới tầng hầm tòa nhà rồi dừng hẳn, mọi người lục tục xuống xe.
 
-Hứa Mạn Mạn lại nhanh nhẹn bước tới đỡ lấy cánh tay bà nội, còn Triệu Kim An thì tiện tay túm lấy bím tóc đuôi ngựa của Triệu Duyệt Thiên lắc lắc. Con bé kiếp này hoạt bát, lanh lợi hơn kiếp trước rất nhiều, âu cũng là bởi hoàn cảnh gia đình kiếp này đã trở nên dư dả, giàu có.
+Từ Mạn Mạn lại nhanh nhẹn bước tới đỡ lấy cánh tay bà nội, còn Triệu Kim An thì tiện tay túm lấy bím tóc đuôi ngựa của Triệu Duyệt Thiên lắc lắc. Con bé kiếp này hoạt bát, lanh lợi hơn kiếp trước rất nhiều, âu cũng là bởi hoàn cảnh gia đình kiếp này đã trở nên dư dả, giàu có.
 
 Vương Kim Như kể rằng ngày nào đi học Triệu Duyệt Thiên cũng nhét đầy ắp đồ ăn vặt ngon lành vào trong cặp sách.
 

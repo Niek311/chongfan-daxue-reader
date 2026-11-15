@@ -1,7 +1,5 @@
 # Chương 550: Một tay điện thoại, một tay "Chân Lý"
 
-> **Tiêu đề gốc**: 第550章 一手手机一手真理。
-
 Quả nhiên không ngoài dự đoán.
 
 Quảng hành trưởng cắn răng gồng mình, tối đa cũng chỉ dám gật đầu phê duyệt khoản vay: ba trăm triệu USD.

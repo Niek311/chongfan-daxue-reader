@@ -1,7 +1,5 @@
 # Chương 37: Còn có thể thế này sao?
 
-> **Tiêu đề gốc**: 第37章 还可以这样？
-
 Triệu Kim An sờ sờ túi quần rồi đứng dậy: "Tao ra kia hút điếu thuốc."
 
 Triệu Trí Dũng cũng lập tức nhổm dậy theo: "Tao đi với."
@@ -54,29 +52,29 @@ Triệu Trí Dũng rít một hơi thật sâu, ngửa mặt phả khói với v
 
 "Triệu Kim An, hai cậu trốn ở đây à? Hì hì."
 
-Lúc này, Du Phỉ trong chiếc quần jean xanh thẫm phối với áo phông trắng tinh khôi, giả vờ làm ra vẻ mặt ngạc nhiên, cười toe toét bước ra chỗ khớp nối toa tàu.
+Lúc này, Du Phi trong chiếc quần jean xanh thẫm phối với áo phông trắng tinh khôi, giả vờ làm ra vẻ mặt ngạc nhiên, cười toe toét bước ra chỗ khớp nối toa tàu.
 
 Cô nàng lấy cớ đi vệ sinh để cố tình tìm gặp Triệu Kim An.
 
-Triệu Trí Dũng liếc trộm Triệu Kim An một cái, rồi nháy mắt hỏi: "Du Phỉ, các cậu ngồi ở toa nào thế?"
+Triệu Trí Dũng liếc trộm Triệu Kim An một cái, rồi nháy mắt hỏi: "Du Phi, các cậu ngồi ở toa nào thế?"
 
 "Ngay toa phía trước này thôi."
 
-Du Phỉ chỉ tay về phía toa tàu liền kề. Hóa ra chỗ ngồi của họ nằm ở hai toa sát vách nhau. Dường như cơ chế xếp chỗ của ngành đường sắt thời bấy giờ là vậy, những người mua vé cùng một ga đi và ga đến thì xác suất rất cao sẽ được xếp vào cùng một toa hoặc các toa cạnh nhau.
+Du Phi chỉ tay về phía toa tàu liền kề. Hóa ra chỗ ngồi của họ nằm ở hai toa sát vách nhau. Dường như cơ chế xếp chỗ của ngành đường sắt thời bấy giờ là vậy, những người mua vé cùng một ga đi và ga đến thì xác suất rất cao sẽ được xếp vào cùng một toa hoặc các toa cạnh nhau.
 
 Triệu Kim An lùi sâu vào phía trong vài bước, tựa người sát bên cửa sổ.
 
-Du Phỉ cũng bước theo vào trong, nhìn thẳng vào mặt Triệu Kim An: "Này, cậu cứ định trốn tránh Mộc Dao mãi thế à?"
+Du Phi cũng bước theo vào trong, nhìn thẳng vào mặt Triệu Kim An: "Này, cậu cứ định trốn tránh Mộc Dao mãi thế à?"
 
 "Tôi không có trốn."
 
 "Còn chối là không trốn nữa."
 
-Du Phỉ hơi nghiêng người ngoái đầu nhìn lại phía sau một cái, rồi lại quay sang nhìn Triệu Kim An:
+Du Phi hơi nghiêng người ngoái đầu nhìn lại phía sau một cái, rồi lại quay sang nhìn Triệu Kim An:
 
 "Triệu Kim An, chúng ta ngồi cùng bàn với nhau cả một học kỳ rồi, cậu... cậu không trốn nổi Mộc Dao đâu."
 
-Đúng vậy, trong mắt Du Phỉ, Triệu Kim An quá đỗi trầm lặng và hiền lành. Khi ở bên cạnh Mộc Dao, Triệu Kim An luôn là người ở thế bị động, nhẫn nhịn.
+Đúng vậy, trong mắt Du Phi, Triệu Kim An quá đỗi trầm lặng và hiền lành. Khi ở bên cạnh Mộc Dao, Triệu Kim An luôn là người ở thế bị động, nhẫn nhịn.
 
 "Hì hì."
 
@@ -100,7 +98,7 @@ Mộc Dao khịt khịt mũi, dáng vẻ trông vô cùng yếu đuối đáng t
 
 Quả nhiên... Chiêu này thì thằng con trai nào mà đỡ cho nổi?
 
-Du Phỉ và Triệu Trí Dũng đưa mắt nhìn nhau, tự giác lùi lại phía sau nhường không gian riêng tư cho hai người, chỉ chờ xem màn kịch gương vỡ lại lành ngọt ngào sắp tới.
+Du Phi và Triệu Trí Dũng đưa mắt nhìn nhau, tự giác lùi lại phía sau nhường không gian riêng tư cho hai người, chỉ chờ xem màn kịch gương vỡ lại lành ngọt ngào sắp tới.
 
 Nào ngờ, Triệu Kim An lại thản nhiên buông một câu lạnh ngắt:
 
@@ -108,7 +106,7 @@ Nào ngờ, Triệu Kim An lại thản nhiên buông một câu lạnh ngắt:
 
 "..."
 
-Du Phỉ há hốc mồm, khuôn mặt ngập tràn vẻ kinh ngạc tột độ.
+Du Phi há hốc mồm, khuôn mặt ngập tràn vẻ kinh ngạc tột độ.
 
 Biểu cảm trên mặt Triệu Trí Dũng lúc này cũng phong phú chẳng kém.
 
@@ -134,7 +132,7 @@ Từ đầu đến cuối, cậu không hề ngoái đầu nhìn lại lấy m�
 
 "Đi... đi thật rồi à?"
 
-Du Phỉ và Triệu Trí Dũng trố mắt nhìn nhau, hồi lâu vẫn chưa kịp hoàn hồn. Mộc Dao đã hạ mình nhận lỗi, thậm chí còn rơi nước mắt như thế, vậy mà Kim An cứ thế quay lưng bỏ đi sao?
+Du Phi và Triệu Trí Dũng trố mắt nhìn nhau, hồi lâu vẫn chưa kịp hoàn hồn. Mộc Dao đã hạ mình nhận lỗi, thậm chí còn rơi nước mắt như thế, vậy mà Kim An cứ thế quay lưng bỏ đi sao?
 
 Đúng là không thể tin nổi.
 
@@ -186,6 +184,6 @@ Bà ta luôn tự hào mình là người nhìn người chuẩn xác vô cùng.
 
 Lưu Văn Tinh nhìn thấy vẻ mặt của hai cô bé liền cất tiếng hỏi với vẻ đầy thắc mắc.
 
-Du Phỉ khẽ lắc đầu ra hiệu cho mẹ đừng nên tò mò hóng hớt chuyện riêng tư.
+Du Phi khẽ lắc đầu ra hiệu cho mẹ đừng nên tò mò hóng hớt chuyện riêng tư.
 
 Màn thể hiện của Triệu Kim An ngày hôm nay thực sự đã khiến cô bạn cùng bàn này phải kinh ngạc đến mức không thốt nên lời.

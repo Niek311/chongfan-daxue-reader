@@ -1,14 +1,12 @@
 # Chương 59: Chúng sinh tướng
 
-> **Tiêu đề gốc**: 第59章 众生相。
-
-Vừa bước chân vào đại sảnh lộng lẫy, Cốc Siêu Thừa và Lưu Sùng Phong lập tức đờ đẫn cả người. Nỗi lo lắng trong lòng hai gã lúc này cũng chẳng khác gì tâm trạng của Diêu Tân lúc nãy:
+Vừa bước chân vào đại sảnh lộng lẫy, Cốc Siêu Thừa và Lưu Sùng Phong lập tức đờ đẫn cả người. Nỗi lo lắng trong lòng hai gã lúc này cũng chẳng khác gì tâm trạng của Diêu Sân lúc nãy:
 
 Mức tiêu dùng ở cái chốn xa hoa này liệu có cao quá tầm với hay không?
 
 Triệu Kim An bước tới hỏi nhân viên phục vụ xem phòng bao Phù Dung nằm ở tầng mấy. Nữ phục vụ khẽ giơ tay hướng dẫn, bảo rằng ở trên tầng ba. Cốc Siêu Thừa và Lưu Sùng Phong vừa đi vừa ngó nghiêng dáo dác, bồn chồn rảo bước lên cầu thang.
 
-Triệu Kim An điềm đạm theo sau, tiện tay rút điện thoại nhắn một dòng tin bảo Đơn Vĩ cứ lái xe về trước.
+Triệu Kim An điềm đạm theo sau, tiện tay rút điện thoại nhắn một dòng tin bảo Đan Vĩ cứ lái xe về trước.
 
 Vừa đẩy cánh cửa phòng bao bước vào, mọi người đã nghe thấy tiếng Trần Trạch cất lên:
 
@@ -18,7 +16,7 @@ Vừa đẩy cánh cửa phòng bao bước vào, mọi người đã nghe thấ
 
 Đó là giọng nói thanh thót của Mộc Dao, kèm theo tiếng ghế gỗ bị kéo lê vội vã trên sàn.
 
-Lưu Sùng Phong và Cốc Siêu Thừa bĩu môi một cái rồi mau chóng tìm một góc ghế trống ngồi xuống. Mọi cuộc trò chuyện trong phòng bỗng chốc ngưng bặt. Diêu Tân tiện tay bốc một nắm hạt dưa từ chiếc đĩa trên bàn:
+Lưu Sùng Phong và Cốc Siêu Thừa bĩu môi một cái rồi mau chóng tìm một góc ghế trống ngồi xuống. Mọi cuộc trò chuyện trong phòng bỗng chốc ngưng bặt. Diêu Sân tiện tay bốc một nắm hạt dưa từ chiếc đĩa trên bàn:
 
 “Tách!”
 
@@ -222,7 +220,7 @@ Nói rồi, cô nàng đứng dậy gắp thức ăn bỏ vào bát cho Triệu 
 
 Thú thật, nhìn cảnh tượng ấy, Trần Trạch thầm dâng lên đôi chút ghen tị trong lòng. Từ Mạn Mạn trước giờ chưa bao giờ chủ động đứng lên gắp thức ăn chăm sóc cho bạn trai chu đáo như Mộc Dao cả.
 
-Diêu Tân bỗng nhiên im bặt không nói thêm lời nào. Cô thừa hiểu mâm tiệc này tuyệt đối không thể nào có cái giá bốn trăm tệ, chỉ là cô không biết Thẩm Tử Ngôn đã âm thầm bỏ tiền túi ra bù vào, mà cứ ngỡ Trần Trạch một mình đứng ra bao trọn gói.
+Diêu Sân bỗng nhiên im bặt không nói thêm lời nào. Cô thừa hiểu mâm tiệc này tuyệt đối không thể nào có cái giá bốn trăm tệ, chỉ là cô không biết Thẩm Tử Ngôn đã âm thầm bỏ tiền túi ra bù vào, mà cứ ngỡ Trần Trạch một mình đứng ra bao trọn gói.
 
 Trần Trạch nâng ly bia lên hỏi Thẩm Tử Ngôn có uống được không.
 

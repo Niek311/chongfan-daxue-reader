@@ -1,7 +1,5 @@
 # Chương 532: Không thể hiểu nổi
 
-> **Tiêu đề gốc**: 第532章 不理解。
-
 Những ngày giáp Tết cận kề, các hãng chuyển phát nhanh đồng loạt ngừng nhận vận chuyển, các phân xưởng nhà máy cũng lục tục ngừng sản xuất cho công nhân nghỉ Tết.
 
 Cả một khuôn viên nhà xưởng rộng lớn giờ chỉ còn trơ trọi vài bác bảo vệ lớn tuổi luân phiên túc trực trông coi.

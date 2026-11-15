@@ -1,7 +1,5 @@
 # Chương 128: Oan gia ngõ hẹp?
 
-> **Tiêu đề gốc**: 第128章 冤家路窄？
-
 Tại một điểm đón tiếp tân sinh viên trong khuôn viên trường, Thẩm Tử Ngôn tình cờ bắt gặp Diêu Sân.
 
 Trong cả phòng ký túc xá 406, chỉ có mỗi Diêu Sân là xuất thân nông thôn, hoàn cảnh gia đình hết sức bình thường.

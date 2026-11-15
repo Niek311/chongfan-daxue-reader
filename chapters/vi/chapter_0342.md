@@ -1,7 +1,5 @@
 # Chương 342: Người đầu tiên rút lui.
 
-> **Tiêu đề gốc**: 第342章 第一个退出。
-
 "Dì à, cháu có bạn gái rồi."
 
 Triệu Kim An đâu phải chỉ là một chàng trai hai mươi mốt tuổi ngây thơ, bồng bột. Cậu trước sau như một luôn giữ được cái đầu tỉnh táo và thấu suốt một điều: hôn nhân xưa nay chưa bao giờ là chuyện riêng của hai con người, mà là sự gắn kết ràng buộc giữa hai gia đình.
@@ -20,19 +18,19 @@ Dĩ nhiên, trên đời này cũng không loại trừ có những người th�
 
 Và đạo lý ấy cũng hoàn toàn tương tự với trường hợp của Mộc Dao.
 
-Nếu thực sự kết hôn với Mộc Dao, Triệu Kim An thừa hiểu sau này Trương Huệ chắc chắn sẽ "chỉ tay năm ngón", can thiệp sâu vào công việc lẫn cuộc sống riêng tư của mình. Đây là một người đàn bà có dục vọng kiểm soát cực kỳ ghê gớm.
+Nếu thực sự kết hôn với Mộc Dao, Triệu Kim An thừa hiểu sau này Trương Tuệ chắc chắn sẽ "chỉ tay năm ngón", can thiệp sâu vào công việc lẫn cuộc sống riêng tư của mình. Đây là một người đàn bà có dục vọng kiểm soát cực kỳ ghê gớm.
 
-Nếu có bất cứ người bà con xa nào, hay họ hàng bên đằng nội Mộc Nhân Cường, Trương Huệ nhất định sẽ tìm đủ mọi cách nhét vào công ty của cậu.
+Nếu có bất cứ người bà con xa nào, hay họ hàng bên đằng nội Mộc Nhân Cường, Trương Tuệ nhất định sẽ tìm đủ mọi cách nhét vào công ty của cậu.
 
 Thậm chí bà còn mưu tính sắp đặt những người thân tín đó vào các vị trí then chốt, huyết mạch trong doanh nghiệp.
 
-Chỉ có như vậy mới thỏa mãn được ham muốn nắm quyền và thao túng của Trương Huệ.
+Chỉ có như vậy mới thỏa mãn được ham muốn nắm quyền và thao túng của Trương Tuệ.
 
-Từ chuyện người giúp việc trong nhà cho tới các hoạt động kinh doanh của công ty, Trương Huệ đều muốn nắm trong lòng bàn tay một cách tường tận, tỉ mỉ.
+Từ chuyện người giúp việc trong nhà cho tới các hoạt động kinh doanh của công ty, Trương Tuệ đều muốn nắm trong lòng bàn tay một cách tường tận, tỉ mỉ.
 
 "Kim An, Dao Dao thực sự... không còn lấy một chút cơ hội nào sao?"
 
-Trương Huệ lòng đầy không cam tâm, vẫn cố chấp ngước nhìn cậu với ánh mắt mong mỏi: "Dao Dao bảo, bây giờ muốn gặp cháu một lần thôi cũng khó như lên trời."
+Trương Tuệ lòng đầy không cam tâm, vẫn cố chấp ngước nhìn cậu với ánh mắt mong mỏi: "Dao Dao bảo, bây giờ muốn gặp cháu một lần thôi cũng khó như lên trời."
 
 "Dì à, cháu làm như vậy là muốn tốt cho Mộc Dao."
 
@@ -44,31 +42,31 @@ Giọng Triệu Kim An lịch thiệp nhưng ẩn chứa sự thẳng thắn đ�
 
 "..."
 
-Trương Huệ lập tức nghẹn họng, không thốt nên lời. Thứ bà muốn là tờ giấy đăng ký kết hôn danh chính ngôn thuận giữa Triệu Kim An và Mộc Dao kia mà.
+Trương Tuệ lập tức nghẹn họng, không thốt nên lời. Thứ bà muốn là tờ giấy đăng ký kết hôn danh chính ngôn thuận giữa Triệu Kim An và Mộc Dao kia mà.
 
-Triệu Kim An không ngờ buổi hẹn hôm nay của Trương Huệ lại đưa ra một yêu cầu kỳ quặc như vậy. Chẳng phải đây là muốn ép cậu làm một kẻ phong lưu lăng nhăng hay sao, mà nực cười thay người đưa ra yêu cầu đó lại chính là người làm mẹ như bà. Cậu bèn nói toạc móng heo:
+Triệu Kim An không ngờ buổi hẹn hôm nay của Trương Tuệ lại đưa ra một yêu cầu kỳ quặc như vậy. Chẳng phải đây là muốn ép cậu làm một kẻ phong lưu lăng nhăng hay sao, mà nực cười thay người đưa ra yêu cầu đó lại chính là người làm mẹ như bà. Cậu bèn nói toạc móng heo:
 
-"Dì à, cháu không hề cố ý trốn tránh Mộc Dao, chỉ là đợt này cháu bận việc không có mặt ở Trường Sa, dì có thể hỏi Du Phỉ để kiểm chứng."
+"Dì à, cháu không hề cố ý trốn tránh Mộc Dao, chỉ là đợt này cháu bận việc không có mặt ở Trường Sa, dì có thể hỏi Du Phi để kiểm chứng."
 
-Trương Huệ thoáng sững sờ.
+Trương Tuệ thoáng sững sờ.
 
 Triệu Kim An nói tiếp: "Dì à, cháu chưa từng oán trách dì, và cháu cũng không hề đối xử tệ bạc với Mộc Dao."
 
 "Cô biết..."
 
-Nhìn chàng trai trước mặt với tư thế ngồi đoan chính, đĩnh đạc, Trương Huệ thầm nghĩ cứ ngồi ngắm cậu thế này thôi cũng thấy thoải mái. Vừa khôi ngô tuấn tú, lại giàu có tột bậc, tính tình trầm tĩnh, cư xử nhã nhặn lễ độ. Bà thực sự không dám tưởng tượng sau này con rể tương lai của mình liệu có ai vừa mắt và hoàn hảo được như người thanh niên trước mắt này không?
+Nhìn chàng trai trước mặt với tư thế ngồi đoan chính, đĩnh đạc, Trương Tuệ thầm nghĩ cứ ngồi ngắm cậu thế này thôi cũng thấy thoải mái. Vừa khôi ngô tuấn tú, lại giàu có tột bậc, tính tình trầm tĩnh, cư xử nhã nhặn lễ độ. Bà thực sự không dám tưởng tượng sau này con rể tương lai của mình liệu có ai vừa mắt và hoàn hảo được như người thanh niên trước mắt này không?
 
 Triệu Kim An đẩy đĩa salad hoa quả sang phía đối diện một chút, khẽ mỉm cười gật đầu: "Dì, mời dì dùng."
 
 "Kim An, mẹ của cháu..."
 
-Trương Huệ gắp một miếng chuối bỏ vào miệng, cố tìm đề tài để kéo dài câu chuyện.
+Trương Tuệ gắp một miếng chuối bỏ vào miệng, cố tìm đề tài để kéo dài câu chuyện.
 
 Triệu Kim An khẽ lắc đầu, ngụ ý chủ đề này đã vượt quá giới hạn cho phép.
 
 "Kim An, vậy còn... số điện thoại của cô, cô vẫn còn nằm trong danh sách đen của cháu đúng không?"
 
-Trương Huệ đã hoàn toàn từ bỏ giọng điệu bề trên mang tính mệnh lệnh trước kia, thay vào đó là thái độ nhiệt tình nhưng cố giữ chừng mực đúng mực.
+Trương Tuệ đã hoàn toàn từ bỏ giọng điệu bề trên mang tính mệnh lệnh trước kia, thay vào đó là thái độ nhiệt tình nhưng cố giữ chừng mực đúng mực.
 
 Triệu Kim An khẽ gật đầu.
 
@@ -76,23 +74,23 @@ Triệu Kim An khẽ gật đầu.
 
 "Có lẽ vậy ạ."
 
-Trương Huệ nở nụ cười cay đắng: "Kim An, đừng nói cho Dao Dao biết là hôm nay cô đến tìm cháu nhé."
+Trương Tuệ nở nụ cười cay đắng: "Kim An, đừng nói cho Dao Dao biết là hôm nay cô đến tìm cháu nhé."
 
 "Vâng." Triệu Kim An gật đầu: "Dì à, để cháu đưa dì về?"
 
 "Được."
 
-Thấy Triệu Kim An đứng dậy, Đơn Vĩ và Quan Văn Bách ngồi ở bàn gần cửa ra vào cũng lập tức đứng bật dậy theo.
+Thấy Triệu Kim An đứng dậy, Đan Vĩ và Quan Văn Bách ngồi ở bàn gần cửa ra vào cũng lập tức đứng bật dậy theo.
 
-Trương Huệ xách túi xách, lặng lẽ bước lùi lại nửa bước phía sau Triệu Kim An.
+Trương Tuệ xách túi xách, lặng lẽ bước lùi lại nửa bước phía sau Triệu Kim An.
 
-Đơn Vĩ và Quan Văn Bách một trước một sau hộ tống. Khi bước vào thang máy, họ không để Triệu Kim An phải tự tay bấm nút, trong thang máy cũng tuyệt đối không để bất kỳ ai chen lấn chạm vào người cậu. Trương Huệ đứng nép ở phía sau bên cạnh Triệu Kim An.
+Đan Vĩ và Quan Văn Bách một trước một sau hộ tống. Khi bước vào thang máy, họ không để Triệu Kim An phải tự tay bấm nút, trong thang máy cũng tuyệt đối không để bất kỳ ai chen lấn chạm vào người cậu. Trương Tuệ đứng nép ở phía sau bên cạnh Triệu Kim An.
 
-Triệu Kim An không mở lời, Đơn Vĩ và Quan Văn Bách cũng không hề cất nửa lời.
+Triệu Kim An không mở lời, Đan Vĩ và Quan Văn Bách cũng không hề cất nửa lời.
 
-Nếu bảo Trương Huệ lúc này giống như một người hâm mộ nhỏ bé đi theo thần tượng thì có phần quá tuổi, nhưng bà thực sự cảm nhận được một cảm giác an toàn và uy nghiêm đến tột cùng.
+Nếu bảo Trương Tuệ lúc này giống như một người hâm mộ nhỏ bé đi theo thần tượng thì có phần quá tuổi, nhưng bà thực sự cảm nhận được một cảm giác an toàn và uy nghiêm đến tột cùng.
 
-Mãi cho tới khi xuống đến hầm gửi xe, Quan Văn Bách vẫn chăm chú đảo mắt quan sát kỹ lưỡng khung cảnh xung quanh. Đơn Vĩ bước tới kéo cửa xe, cung kính cất tiếng: "Ông chủ."
+Mãi cho tới khi xuống đến hầm gửi xe, Quan Văn Bách vẫn chăm chú đảo mắt quan sát kỹ lưỡng khung cảnh xung quanh. Đan Vĩ bước tới kéo cửa xe, cung kính cất tiếng: "Ông chủ."
 
 "Ừ."
 
@@ -100,13 +98,13 @@ Triệu Kim An bước vào ngồi ở hàng ghế sau.
 
 Quan Văn Bách lúc này mới khẽ nghiêng người ngồi vào ghế phụ lái.
 
-Trương Huệ một lần nữa được ngồi trên chiếc Rolls-Royce Phantom lộng lẫy.
+Trương Tuệ một lần nữa được ngồi trên chiếc Rolls-Royce Phantom lộng lẫy.
 
-Kể từ khi Triệu Kim An ký kết hợp đồng trị giá 3,5 tỷ Euro tại Attica, Đơn Vĩ cùng các anh em sau khi bàn bạc đã tự động nâng mức độ cảnh giới lên cao nhất để phòng ngừa mọi bất trắc. Thực tế thì ở trong nước hoàn toàn không cần thiết phải căng thẳng đến mức ấy.
+Kể từ khi Triệu Kim An ký kết hợp đồng trị giá 3,5 tỷ Euro tại Attica, Đan Vĩ cùng các anh em sau khi bàn bạc đã tự động nâng mức độ cảnh giới lên cao nhất để phòng ngừa mọi bất trắc. Thực tế thì ở trong nước hoàn toàn không cần thiết phải căng thẳng đến mức ấy.
 
 Trong trí nhớ của Triệu Kim An, ở trong nước thời điểm này hầu như chưa từng xảy ra bất kỳ vụ "bắt cóc tống tiền đại gia" nào chấn động.
 
-Tuy nhiên Đơn Vĩ bảo lương bổng đã nhận đủ, ít nhất lúc nào cũng phải bố trí hai người túc trực bên cạnh ông chủ.
+Tuy nhiên Đan Vĩ bảo lương bổng đã nhận đủ, ít nhất lúc nào cũng phải bố trí hai người túc trực bên cạnh ông chủ.
 
 Những người còn lại sẽ thay phiên nhau nghỉ ngơi.
 
@@ -120,7 +118,7 @@ Mộc Dao mang theo các mẫu sản phẩm đến Trăn Hối Tuyển. Ngồi t
 
 Từ Mạn Mạn tỏ ra khá bất ngờ: "Dao Dao, cậu không đến công ty của Triệu Kim An làm việc à?"
 
-Không chỉ Từ Mạn Mạn, mà tất cả mọi người, bao gồm cả Du Phỉ, đều đinh ninh rằng Mộc Dao chắc chắn sẽ đầu quân vào công ty của Triệu Kim An.
+Không chỉ Từ Mạn Mạn, mà tất cả mọi người, bao gồm cả Du Phi, đều đinh ninh rằng Mộc Dao chắc chắn sẽ đầu quân vào công ty của Triệu Kim An.
 
 "Thôi bỏ đi."
 
@@ -154,11 +152,11 @@ Khi hay tin Mộc Dao không về quê mà đến công ty của dì út làm vi
 
 Diêu Sân kinh ngạc đến mức mồm há hốc không khép lại được.
 
-Chỉ có Du Phỉ là người đã biết trước quyết định này của Mộc Dao. Vào cái đêm hạ quyết tâm, Mộc Dao đã rủ Du Phỉ đi uống rượu, rồi sau đó uống say mèm và khóc một trận nức nở, xé lòng.
+Chỉ có Du Phi là người đã biết trước quyết định này của Mộc Dao. Vào cái đêm hạ quyết tâm, Mộc Dao đã rủ Du Phi đi uống rượu, rồi sau đó uống say mèm và khóc một trận nức nở, xé lòng.
 
 ...
 
-Trương Vân Thiến vẫn còn ở công ty, Trương Huệ tiện miệng mở lời mời Triệu Kim An có muốn lên nhà ngồi chơi một lát không.
+Trương Vân Thiến vẫn còn ở công ty, Trương Tuệ tiện miệng mở lời mời Triệu Kim An có muốn lên nhà ngồi chơi một lát không.
 
 Triệu Kim An không hề khách sáo mà đi thẳng lên lầu. Cậu chỉ tò mò bước tới, đẩy nhẹ cánh cửa của một căn phòng ngủ.
 
@@ -166,7 +164,7 @@ Cậu đứng lặng bên cửa nhìn vào.
 
 "Kim An, đây là căn phòng dì út nó chuẩn bị riêng cho Dao Dao đấy."
 
-Trương Huệ đứng bên cạnh cất tiếng giải thích: "Sau này Dao Dao đi làm ở công ty của dì nó thì sẽ chuyển qua đây ở luôn."
+Trương Tuệ đứng bên cạnh cất tiếng giải thích: "Sau này Dao Dao đi làm ở công ty của dì nó thì sẽ chuyển qua đây ở luôn."
 
 "Vâng."
 
@@ -174,7 +172,7 @@ Triệu Kim An đương nhiên biết rõ điều đó, kiếp trước cứ m�
 
 "Dì út đã ly hôn rồi."
 
-"Vâng." Trương Huệ ngơ ngác, không hiểu vì sao Triệu Kim An lại đột nhiên hỏi câu đó.
+"Vâng." Trương Tuệ ngơ ngác, không hiểu vì sao Triệu Kim An lại đột nhiên hỏi câu đó.
 
 "Dì ấy có thường dẫn đàn ông về nhà không ạ?"
 
@@ -196,7 +194,7 @@ Kiếp trước Triệu Kim An chưa từng đặt chân tới căn phòng này,
 
 Trở về căn biệt thự của mình, Triệu Kim An vốn luôn giữ được vẻ điềm tĩnh nay trong lòng lại dấy lên chút gợn sóng bồi hồi. Cái tên "Mạch Thượng Yên Vũ Dao" rốt cuộc vẫn xuất hiện như định mệnh hay sao?
 
-Trước khi rời đi, Trương Huệ có nói với Triệu Kim An rằng: "Dao Dao bảo con bé nghĩ nhiều quá nên mệt mỏi rồi, muốn nhanh chóng bắt đầu một đoạn tình cảm mới để có thể hoàn toàn quên được cháu."
+Trước khi rời đi, Trương Tuệ có nói với Triệu Kim An rằng: "Dao Dao bảo con bé nghĩ nhiều quá nên mệt mỏi rồi, muốn nhanh chóng bắt đầu một đoạn tình cảm mới để có thể hoàn toàn quên được cháu."
 
 "Kim An, cậu làm sao thế?"
 

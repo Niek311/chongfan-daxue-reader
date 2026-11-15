@@ -1,7 +1,5 @@
 # Chương 533: Chuyện nào ra chuyện đó
 
-> **Tiêu đề gốc**: 第533章 一码归一码。
-
 "Từ tổng à, các cháu đã trả lương tháng cho tôi sòng phẳng rồi cơ mà..."
 
 Bà Lưu Mỹ Nga hai tay xua xua, ngượng ngùng đùn đẩy phong bao đỏ với Từ Mạn Mạn.
@@ -150,7 +148,7 @@ Lý Đình Đình rảo bước lại gần tủ rượu âm tường, nhìn m�
 
 "Lấy đâu ra thời gian mà bày vẽ mấy thứ đó."
 
-Tâm trí của cả Từ Mạn Mạn lẫn Triệu Kim An xưa nay vốn chẳng bao giờ để vào những chuyện phù phiếm bên ngoài. Thêm vào đó Triệu Kim An lại không có thói quen chè chén say sưa, mấy chai rượu vang ngoại này chẳng qua là do Du Phỉ tiện tay xách từ trung tâm Hoàn Vũ Trăn Phẩm về đặt tạm lên kệ để trang trí cho đỡ trống trải mà thôi.
+Tâm trí của cả Từ Mạn Mạn lẫn Triệu Kim An xưa nay vốn chẳng bao giờ để vào những chuyện phù phiếm bên ngoài. Thêm vào đó Triệu Kim An lại không có thói quen chè chén say sưa, mấy chai rượu vang ngoại này chẳng qua là do Du Phi tiện tay xách từ trung tâm Hoàn Vũ Trăn Phẩm về đặt tạm lên kệ để trang trí cho đỡ trống trải mà thôi.
 
 "Tết này còn có những ai đến chơi nữa không chị?" Lý Đình Đình lại tò mò gặng hỏi.
 

@@ -1,7 +1,5 @@
 # Chương 156: Tiểu Trạch, con ở đây đợi đi.
 
-> **Tiêu đề gốc**: 第156章 小泽，你在这等着。
-
 Triệu Kim An tựa lưng vào hàng ghế sau, không vội xuống xe.
 
 Ánh mắt anh hướng về phía người phụ nữ tên Dương Thù Mỹ ở đằng trước.

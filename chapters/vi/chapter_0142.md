@@ -1,7 +1,5 @@
 # Chương 142: Đây không phải là may mắn, mà là quyết đoán dứt khoát
 
-> **Tiêu đề gốc**: 第142章 这不是走运，这是当断则断。
-
 Trần Trạch cũng không đến mức vô tâm vô phế, chuyện này dẫu sao cũng liên quan trực tiếp đến cơ nghiệp của gia đình.
 
 Nó quyết định việc anh ta sẽ tiếp tục là một "phú nhị đại" ăn sung mặc sướng hay trở thành "phụ nhị đại" ngập đầu trong nợ nần.
@@ -80,7 +78,7 @@ Lòng tham của con người xưa nay vốn vô đáy.
 
 Người ta chỉ muốn nhìn thấy những gì mình muốn thấy. Phân tích của các chuyên gia lại vô cùng bài bản, lớp lang với hàng loạt thuật ngữ kinh tế chuyên ngành, những luận điệu êm tai ấy rất được lòng đám đông và nhận được sự hưởng ứng nhiệt liệt của vô số người.
 
-Triệu Kim An liếc nhìn Trần Trạch đang trằn trọc trở mình không yên, anh không biết Dương Thục Mỹ đã rót vào thị trường bao nhiêu tiền, nhưng trong lòng lại có đôi phần khâm phục người phụ nữ này.
+Triệu Kim An liếc nhìn Trần Trạch đang trằn trọc trở mình không yên, anh không biết Dương Thù Mỹ đã rót vào thị trường bao nhiêu tiền, nhưng trong lòng lại có đôi phần khâm phục người phụ nữ này.
 
 Nếu vừa ôm cổ phiếu lúc thị trường sụp đổ, lại vừa hứng chịu cơn bão khủng hoảng nợ dưới chuẩn ập tới mà công ty vẫn có thể sống sót trụ vững, thì quả thực bà ấy là người có bản lĩnh phi thường.
 
@@ -170,7 +168,7 @@ Trần Trạch mấp máy môi: "Bảo rồi, nhưng em nghĩ mẹ anh có chị
 
 "Với lại sao?"
 
-Từ Mạn Mạn quá hiểu tính cách của Trần Trạch, và cũng có phần hiểu rõ Dương Thục Mỹ.
+Từ Mạn Mạn quá hiểu tính cách của Trần Trạch, và cũng có phần hiểu rõ Dương Thù Mỹ.
 
 "Là dì vẫn muốn nán lại nghe ngóng thêm xem sao, bản thân anh cũng ôm ấp hy vọng, tối qua chắc chắn anh đã thức trắng đêm đọc các bài phân tích thị trường chứng khoán đúng không?"
 
@@ -204,8 +202,8 @@ Thua thì muốn gỡ, gỡ được rồi lại muốn thắng đậm hơn.
 
 Người bình thường chơi bằng tiền lương thì cùng lắm chỉ ảnh hưởng đến chất lượng cuộc sống một thời gian, đóng tài khoản lại coi như mất đi khoản tiền đó là xong.
 
-Nhưng Dương Thục Mỹ thì khác, công ty của bà ấy cần nguồn vốn để vận hành cả một cỗ máy sản xuất.
+Nhưng Dương Thù Mỹ thì khác, công ty của bà ấy cần nguồn vốn để vận hành cả một cỗ máy sản xuất.
 
-Quy mô số tiền cũng hoàn toàn khác biệt, người bình thường chỉ vài vạn tệ, còn Dương Thục Mỹ có khi lên tới hàng triệu, thậm chí hàng chục triệu tệ.
+Quy mô số tiền cũng hoàn toàn khác biệt, người bình thường chỉ vài vạn tệ, còn Dương Thù Mỹ có khi lên tới hàng triệu, thậm chí hàng chục triệu tệ.
 
 Nhìn công sức gầy dựng bao năm bỗng chốc bốc hơi, chắc chắn bà ấy sẽ mang tâm lý không cam lòng, cứ ôm hy vọng chờ đợi thị trường bật tăng trở lại...

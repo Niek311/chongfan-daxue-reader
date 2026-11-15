@@ -1,7 +1,5 @@
 # Chương 347: Cô không cần đến nữa
 
-> **Tiêu đề gốc**: 第347章 你不用来了。
-
 Trên đường phóng xe trở về Quận Sa, Dương Thù Mỹ đạp lút chân ga, kim đồng hồ tốc độ vọt thẳng lên mức 140 km/h.
 
 Qua bao nhiêu mối trung gian hỏi han, cuối cùng bà ta cũng có được số điện thoại di động của Triệu Kim An.
@@ -18,11 +16,11 @@ Triệu Kim An làm sao mà biết được. Cậu chỉ nghe ngóng loáng tho�
 
 Sự "mất tích" đường đột của Trần Trạch đêm ba mươi Tết ắt hẳn có liên quan trực tiếp đến cơn khủng hoảng này.
 
-Sau khi ngắt máy, Triệu Kim An lập tức bấm số gọi cho Đơn Vĩ.
+Sau khi ngắt máy, Triệu Kim An lập tức bấm số gọi cho Đan Vĩ.
 
 "Chào ông chủ, chúc mừng năm mới sếp!"
 
-Đơn Vĩ vô cùng bất ngờ khi thấy Triệu Kim An lại gọi điện cho mình vào đúng thời khắc thiêng liêng của đêm trừ tịch thế này.
+Đan Vĩ vô cùng bất ngờ khi thấy Triệu Kim An lại gọi điện cho mình vào đúng thời khắc thiêng liêng của đêm trừ tịch thế này.
 
 "Từ Mạn Mạn đang ở căn hộ của tôi. Cậu lập tức qua khu chung cư canh chừng một chút, đảm bảo an toàn tuyệt đối cho cô ấy."
 
@@ -32,23 +30,23 @@ Trầm ngâm vài giây, Triệu Kim An dặn dò thêm: "Chỉ cần bảo đ�
 
 "Vâng, tôi hiểu rồi thưa sếp."
 
-Đơn Vĩ lập tức bật dậy khoác áo ra khỏi nhà, chẳng màng đến việc xem chương trình Gala đón xuân trên tivi nữa.
+Đan Vĩ lập tức bật dậy khoác áo ra khỏi nhà, chẳng màng đến việc xem chương trình Gala đón xuân trên tivi nữa.
 
 Nếu Từ Mạn Mạn muốn đi tìm Trần Trạch, Triệu Kim An sẽ không ngăn cản, mà cậu cũng chẳng có tư cách hay quyền hạn gì để can thiệp.
 
-Hoặc giả như Trần Trạch có tìm đến để dây dưa níu kéo Từ Mạn Mạn, và Từ Mạn Mạn tự mình lựa chọn gặp mặt, thì Đơn Vĩ cũng chỉ có nhiệm vụ duy nhất là bảo đảm sự an nguy của cô gái nhỏ mà thôi, tuyệt đối không can dự vào chuyện tình cảm của họ.
+Hoặc giả như Trần Trạch có tìm đến để dây dưa níu kéo Từ Mạn Mạn, và Từ Mạn Mạn tự mình lựa chọn gặp mặt, thì Đan Vĩ cũng chỉ có nhiệm vụ duy nhất là bảo đảm sự an nguy của cô gái nhỏ mà thôi, tuyệt đối không can dự vào chuyện tình cảm của họ.
 
-Tâm cảnh Triệu Kim An phẳng lặng như mặt nước hồ thu, cậu bình thản chờ đợi kết quả, nói chính xác hơn là chờ tin tức từ Đơn Vĩ báo về.
+Tâm cảnh Triệu Kim An phẳng lặng như mặt nước hồ thu, cậu bình thản chờ đợi kết quả, nói chính xác hơn là chờ tin tức từ Đan Vĩ báo về.
 
-Mười phút sau, Đơn Vĩ gọi điện tới, báo rằng ánh đèn trong phòng khách tầng trên vẫn đang sáng rực.
+Mười phút sau, Đan Vĩ gọi điện tới, báo rằng ánh đèn trong phòng khách tầng trên vẫn đang sáng rực.
 
 "Người có ở bên trong không?" Triệu Kim An chỉ nhàn nhạt hỏi một câu.
 
 "Dạ có."
 
-Đơn Vĩ đứng dưới khoảng sân tối ngước nhìn lên: "Tôi vừa thấy bóng dáng của Từ tổng đứng trước khung cửa sổ kính sát đất."
+Đan Vĩ đứng dưới khoảng sân tối ngước nhìn lên: "Tôi vừa thấy bóng dáng của Từ tổng đứng trước khung cửa sổ kính sát đất."
 
-Khoảng chừng ba mươi giây sau, Đơn Vĩ lại khẳng định chắc nịch: "Chỉ có một mình cô ấy thôi ạ."
+Khoảng chừng ba mươi giây sau, Đan Vĩ lại khẳng định chắc nịch: "Chỉ có một mình cô ấy thôi ạ."
 
 "Ừ."
 
@@ -84,7 +82,7 @@ Cuối cùng cũng có người chịu nói toẹt ra sự thật mà bấy lâu
 
 Tại Quận Sa.
 
-Vợ chồng Từ Tắc Đống và Lương Huệ Trân cũng đã hớt hải rời khỏi nhà tỏa đi tìm kiếm, cùng với đó là bố đẻ của Trần Trạch cùng người mẹ kế.
+Vợ chồng Từ Tắc Đống và Lương Tuệ Trân cũng đã hớt hải rời khỏi nhà tỏa đi tìm kiếm, cùng với đó là bố đẻ của Trần Trạch cùng người mẹ kế.
 
 Trần Cẩm Thu và Dương Thù Mỹ vừa chạy vạy khắp nơi vừa không ngừng buông lời oán trách, cãi vã lẫn nhau.
 
@@ -94,7 +92,7 @@ Trần Cẩm Thu bắt đầu lùng sục từ các quán bar, vũ trường que
 
 Căn biệt thự bề thế đã bị siết nợ bán đi mất rồi, biết đâu Trần Trạch quẫn trí lại chạy sang tá túc ở nhà bạn học bè bạn nào đó.
 
-Thực ra trong thâm tâm bọn họ đều hiểu rất rõ một điều: nếu như Trần Trạch và Từ Mạn Mạn không chia tay, thì dẫu cho gia đình có xảy ra biến cố long trời lở đất đến mức này đi chăng nữa, thì giờ phút này phần lớn khả năng Trần Trạch đang ngồi quây quần ấm cúng ăn bữa cơm tất niên tại nhà của Lương Huệ Trân rồi.
+Thực ra trong thâm tâm bọn họ đều hiểu rất rõ một điều: nếu như Trần Trạch và Từ Mạn Mạn không chia tay, thì dẫu cho gia đình có xảy ra biến cố long trời lở đất đến mức này đi chăng nữa, thì giờ phút này phần lớn khả năng Trần Trạch đang ngồi quây quần ấm cúng ăn bữa cơm tất niên tại nhà của Lương Tuệ Trân rồi.
 
 Thế nhưng, chiếc điện thoại của Từ Mạn Mạn không hề có ai nhấc máy.
 
@@ -102,23 +100,23 @@ Bất kể là ai gọi đến, thậm chí ngay cả Lâm Thanh Tuyết cũng �
 
 Màn đêm Quận Sa cũng bắt đầu lất phất buông xuống những hạt mưa lạnh ngắt.
 
-Từ Tắc Đống và Lương Huệ Trân hốt hoảng chạy khắp nơi như ong vỡ tổ. Họ lao thẳng xuống khu làng đại học, sục sạo từ các quán net thâu đêm cho đến tận các dãy ký túc xá vắng lặng.
+Từ Tắc Đống và Lương Tuệ Trân hốt hoảng chạy khắp nơi như ong vỡ tổ. Họ lao thẳng xuống khu làng đại học, sục sạo từ các quán net thâu đêm cho đến tận các dãy ký túc xá vắng lặng.
 
 Dẫu sao thì tình cảm gắn bó mười mấy năm trời giữa hai gia đình đâu phải nói dứt là dứt được ngay.
 
-Về điểm này, Triệu Kim An quả thực không thể nào so bì được với Trần Trạch. Vợ chồng Từ Tắc Đống và Lương Huệ Trân từ khi Trần Trạch còn là một đứa trẻ con đã luôn mặc định xem cậu ta như chàng rể quý trong nhà.
+Về điểm này, Triệu Kim An quả thực không thể nào so bì được với Trần Trạch. Vợ chồng Từ Tắc Đống và Lương Tuệ Trân từ khi Trần Trạch còn là một đứa trẻ con đã luôn mặc định xem cậu ta như chàng rể quý trong nhà.
 
 Còn đối với Lâm Thanh Tuyết, trong mắt bọn họ cô chỉ là một kẻ xa lạ từ nơi khác đến, không hơn không kém.
 
 Triệu Kim An dẫu sao còn có tiền tài bạc vạn và một sự nghiệp lẫy lừng chống lưng, chứ Lâm Thanh Tuyết thì hai bàn tay trắng, chẳng có lấy một điểm tựa nào.
 
-Trần Cẩm Thu, Từ Tắc Đống, Lương Huệ Trân đều là những công chức có địa vị tại Quận Sa, còn Dương Thù Mỹ là một nữ doanh nhân giàu có từng trải. Một đôi trai tài gái sắc như Từ Mạn Mạn và Trần Trạch xứng đôi vừa lứa biết bao, việc họ khinh thường một cô gái tỉnh lẻ nghèo khó như Lâm Thanh Tuyết cũng là lẽ thường tình của thói đời.
+Trần Cẩm Thu, Từ Tắc Đống, Lương Tuệ Trân đều là những công chức có địa vị tại Quận Sa, còn Dương Thù Mỹ là một nữ doanh nhân giàu có từng trải. Một đôi trai tài gái sắc như Từ Mạn Mạn và Trần Trạch xứng đôi vừa lứa biết bao, việc họ khinh thường một cô gái tỉnh lẻ nghèo khó như Lâm Thanh Tuyết cũng là lẽ thường tình của thói đời.
 
 Thậm chí ngay cả chuyện chia tay năm xưa, Từ Tắc Đống và Dương Thù Mỹ vừa ngồi bàn bạc với nhau đã thống nhất dùng một món tiền nhỏ để tống khứ Lâm Thanh Tuyết đi cho khuất mắt.
 
 Nếu là Triệu Kim An của kiếp trước, có lẽ số phận của cậu trong mắt họ cũng chẳng khác gì Lâm Thanh Tuyết — một kẻ ngoại tỉnh nghèo hèn, không tiền không thế, vĩnh viễn không bao giờ lọt nổi vào mắt xanh của những gia đình danh giá chốn thị thành.
 
-Dưới màn đêm buốt giá, Đơn Vĩ co ro nép mình trong góc cầu thang tối tăm, lạnh đến mức run lẩy bẩy, hai tai dỏng lên chăm chú lắng nghe từng động tĩnh nhỏ nhất phía ngoài hành lang căn hộ.
+Dưới màn đêm buốt giá, Đan Vĩ co ro nép mình trong góc cầu thang tối tăm, lạnh đến mức run lẩy bẩy, hai tai dỏng lên chăm chú lắng nghe từng động tĩnh nhỏ nhất phía ngoài hành lang căn hộ.
 
 Chỉ cần Trần Trạch xuất hiện, hoặc Từ Mạn Mạn bước chân ra khỏi cửa, anh ta đều có thể lập tức nắm bắt được tình hình trong tích tắc.
 
@@ -184,19 +182,19 @@ Lâm Thanh Tuyết hoàn toàn không hiểu nổi rốt cuộc mình đang cố
 
 Cùng lúc đó.
 
-Triệu Kim An nhận được cuộc gọi từ Đơn Vĩ, báo rằng ánh đèn trong căn hộ tầng trên vừa mới tắt.
+Triệu Kim An nhận được cuộc gọi từ Đan Vĩ, báo rằng ánh đèn trong căn hộ tầng trên vừa mới tắt.
 
 "Ông chủ...?"
 
 "Ừ, không có việc gì nữa rồi, cậu mau về nhà ngủ đi."
 
-Đơn Vĩ: "..."
+Đan Vĩ: "..."
 
 Đứng canh cả đêm ba mươi Tết trong góc cầu thang buốt giá suốt hơn năm tiếng đồng hồ, hóa ra chỉ là để xem xem vị Từ tổng kia rốt cuộc lúc nào thì tắt đèn đi ngủ thôi sao?
 
-Đơn Vĩ hoàn toàn mù tịt không hiểu chuyện gì.
+Đan Vĩ hoàn toàn mù tịt không hiểu chuyện gì.
 
-Từ Mạn Mạn dĩ nhiên không hề hay biết Đơn Vĩ đã âm thầm túc trực ngoài cầu thang bảo vệ mình suốt cả đêm, và càng không thể ngờ được rằng từng cử chỉ, hành động của mình trong đêm trừ tịch đều nằm trọn vẹn trong "tầm mắt" của Triệu Kim An.
+Từ Mạn Mạn dĩ nhiên không hề hay biết Đan Vĩ đã âm thầm túc trực ngoài cầu thang bảo vệ mình suốt cả đêm, và càng không thể ngờ được rằng từng cử chỉ, hành động của mình trong đêm trừ tịch đều nằm trọn vẹn trong "tầm mắt" của Triệu Kim An.
 
 ...
 
@@ -238,7 +236,7 @@ Hai người cô lập tức lao vào đấu khẩu trêu đùa với Vương Ki
 
 Sáng mùng ba Tết.
 
-Đơn Vĩ đánh xe về tận làng để đón Triệu Kim An. Cậu quyết định để lại chiếc xe Mercedes thương vụ cho Triệu Trí Dũng sử dụng ở quê.
+Đan Vĩ đánh xe về tận làng để đón Triệu Kim An. Cậu quyết định để lại chiếc xe Mercedes thương vụ cho Triệu Trí Dũng sử dụng ở quê.
 
 Một mình Triệu Kim An lên xe quay trở lại Quận Sa trước.
 

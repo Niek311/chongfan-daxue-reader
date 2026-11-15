@@ -1,7 +1,5 @@
 # Chương 21: Cậu xin lỗi Triệu Kim An đi!
 
-> **Tiêu đề gốc**: 第21章 你给赵今安道歉！
-
 Tại sao giấy phép khai thác nguồn nước này lại quan trọng đến vậy?
 
 Bởi lẽ hồ Đông Giang là hồ chứa nhân tạo lớn nhất tỉnh Tương Nam, với tổng dung tích lên tới khoảng 8,12 tỷ mét khối.

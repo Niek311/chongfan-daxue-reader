@@ -1,7 +1,5 @@
 # Chương 465: Ân tình
 
-> **Tiêu đề gốc**: 第465章 恩情。
-
 Vừa bước chân ra khỏi cánh cổng bệnh viện, Tô Miến vốn dĩ đã là "quốc bảo" nâng niu của cả gia đình, nay lại càng được chăm chút như bảo bối vô giá của quốc gia.
 
 Trương chủ nhiệm trước khi tiễn đoàn đã ý tứ dặn dò: sản phụ nên hạn chế ngồi nhiều, cố gắng nằm tĩnh dưỡng nghỉ ngơi tối đa.

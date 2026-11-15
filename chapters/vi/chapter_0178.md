@@ -1,7 +1,5 @@
 # Chương 178: Mùng Tám tháng Giêng, 2 giờ 15 phút sáng
 
-> **Tiêu đề gốc**: 第178章 大年初八，凌晨2:15
-
 "Ừm, thế thì tớ lại càng phải đích thân đến ngắm cho bằng được."
 
 Thẩm Tử Ngôn khẽ nghiêng đầu nhìn Triệu Kim An, khóe môi cong lên một nụ cười rạng rỡ. Cô rất thích ngắm nhìn Triệu Kim An theo cách này, dường như đã thành một thói quen khó bỏ, kể từ sau lần tình cờ tao ngộ trên núi Nhạc Lộc vào dịp Quốc khánh năm nhất đại học...

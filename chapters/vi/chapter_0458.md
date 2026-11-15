@@ -1,7 +1,5 @@
 # Chương 458: Chúc mừng
 
-> **Tiêu đề gốc**: 第458章 恭喜。
-
 Mọi ánh mắt trong phòng đều đổ dồn về phía Triệu Kim An.
 
 Ngay cả thím Vương Kim Như khoảnh khắc này cũng nín bặt, không nỡ cất tiếng phá tan bầu không khí thiêng liêng ấy.
@@ -78,7 +76,7 @@ Lưu Hiểu Tĩnh mỉm cười lắc đầu từ tốn, cùng Đan Vĩ đặt �
 
 Bà nội và dượng hai bên nhà họ Từ hay tin cũng khẽ buông tiếng thở dài tiếc nuối, cả Từ Tắc Lương cùng toàn thể họ hàng thân thích bên nhà họ Từ cũng vậy. Đối với bọn họ, chuyện Từ Mạn Mạn sinh con trai hay con gái can hệ vô cùng trọng đại tới tương lai sau này.
 
-Có lẽ đây chính là những thanh âm xì xào to nhỏ từ thế giới bên ngoài mà Tô Miện từng nhắc tới.
+Có lẽ đây chính là những thanh âm xì xào to nhỏ từ thế giới bên ngoài mà Tô Miến từng nhắc tới.
 
 Từ Tắc Lương thậm chí khi nhận được điện thoại của Từ Tắc Đống, ngay trước mặt anh trai đã buông ra hai chữ "Đáng tiếc".
 
@@ -88,19 +86,19 @@ Tâm lý của Từ Mạn Mạn vốn dĩ rất dễ hiểu. Tỉnh dậy, cô m
 
 Lúc này đồng hồ trên màn hình điểm: 00:32.
 
-Điều đó chứng minh điều gì? Chứng minh rằng Tô Miện chuyện gì cũng có thể nắm bắt ngay từ phút giây đầu tiên.
+Điều đó chứng minh điều gì? Chứng minh rằng Tô Miến chuyện gì cũng có thể nắm bắt ngay từ phút giây đầu tiên.
 
-Tô Miện: Chúc mừng em.
+Tô Miến: Chúc mừng em.
 
 Từ Mạn Mạn: Chị sẽ sinh con trai.
 
-Tô Miện: Bố mẹ chị lại thích con gái hơn.
+Tô Miến: Bố mẹ chị lại thích con gái hơn.
 
-Từ Mạn Mạn: Tô Miện, chúc chị cũng sẽ mẹ tròn con vuông.
+Từ Mạn Mạn: Tô Miến, chúc chị cũng sẽ mẹ tròn con vuông.
 
 Nhìn ngắm con gái nhỏ say ngủ bên cạnh, Từ Mạn Mạn cúi đầu đặt lên trán con một nụ hôn khẽ khàng âu yếm. Trên tủ đầu giường bày biện mấy chiếc lắc bạc nhỏ xinh xắn: của bà nội, của thím Kim Như, và cả của mẹ Lương Tuệ Trân nhờ Lưu Hiểu Tĩnh mang sang.
 
-"Tô Miện, đây chính là lời ước hẹn của em dành cho chị."
+"Tô Miến, đây chính là lời ước hẹn của em dành cho chị."
 
 Những tin nhắn ấy, Từ Mạn Mạn không hề xóa đi dù chỉ một dòng.
 
@@ -126,17 +124,17 @@ Chỉ đơn thuần là bạn cùng phòng ký túc xá thời đại học.
 
 Chẳng ai đòi Từ Mạn Mạn phải khoe ảnh con gái, chỉ vỏn vẹn hai chữ "Chúc mừng" phẳng lặng như mặt hồ mùa thu.
 
-Đêm xuống, Diêu Tân đứng chần chừ, lưỡng lự trước cổng bệnh viện rất lâu, quanh quẩn mãi, cuối cùng mới xách túi đồ bước lên lầu.
+Đêm xuống, Diêu Sân đứng chần chừ, lưỡng lự trước cổng bệnh viện rất lâu, quanh quẩn mãi, cuối cùng mới xách túi đồ bước lên lầu.
 
-Bốn cô gái phòng 406 năm nào... Diêu Tân xách giỏ trái cây, lại móc từ trong túi ra một đôi lắc bạc nhỏ.
+Bốn cô gái phòng 406 năm nào... Diêu Sân xách giỏ trái cây, lại móc từ trong túi ra một đôi lắc bạc nhỏ.
 
 Món quà này chỉ đại diện cho cá nhân cô.
 
-Cả Thẩm Tử Ngôn lẫn Mộc Dao đều không hề dặn dò Diêu Tân phải mua sắm thứ gì.
+Cả Thẩm Tử Ngôn lẫn Mộc Dao đều không hề dặn dò Diêu Sân phải mua sắm thứ gì.
 
-Giữa họ dường như đã giăng một bức màn ngăn cách vô hình. Từ Mạn Mạn vẫn đón tiếp, chuyện trò với Diêu Tân một cách cởi mở, Diêu Tân cũng gượng cười tươi tắn, nhưng cõi lòng lại cảm thấy có một rào cản vô hình. Đó là do tâm lý của chính Diêu Tân tự làm khổ mình, mà điều đó cũng hoàn toàn dễ hiểu.
+Giữa họ dường như đã giăng một bức màn ngăn cách vô hình. Từ Mạn Mạn vẫn đón tiếp, chuyện trò với Diêu Sân một cách cởi mở, Diêu Sân cũng gượng cười tươi tắn, nhưng cõi lòng lại cảm thấy có một rào cản vô hình. Đó là do tâm lý của chính Diêu Sân tự làm khổ mình, mà điều đó cũng hoàn toàn dễ hiểu.
 
-Mãi đến tận lúc này mới tới, lần đầu tiên tới thăm. Diêu Tân ngồi bên mép giường ngắm nhìn bé Triệu Tri Nặc một lát. Bé Triệu Tri Nặc ngủ say sưa, ngoan ngoãn. Giờ đây Từ Mạn Mạn đã là mẹ rồi, chẳng còn là cô nữ sinh ngây ngô năm nào nữa.
+Mãi đến tận lúc này mới tới, lần đầu tiên tới thăm. Diêu Sân ngồi bên mép giường ngắm nhìn bé Triệu Tri Nặc một lát. Bé Triệu Tri Nặc ngủ say sưa, ngoan ngoãn. Giờ đây Từ Mạn Mạn đã là mẹ rồi, chẳng còn là cô nữ sinh ngây ngô năm nào nữa.
 
 Hoa quả trong phòng chất đống chẳng còn chỗ để. Triệu Kim An mua một bó hoa cẩm chướng to tướng.
 
@@ -144,25 +142,25 @@ Y tá nhắc nhở sợ trẻ sơ sinh bị dị ứng phấn hoa, thím Vương
 
 "Mạn Mạn này, hôm nay căng tin công ty cải thiện bữa ăn tưng bừng lắm, phong phú không sao kể xiết, cậu có biết có những món gì không? Sườn cừu, bít tết bò, bào ngư... toàn sơn hào hải vị, ăn bao no thả giàn luôn!"
 
-Diêu Tân ngồi thụp xuống bên mép giường, chăm chú ngắm nhìn bé Triệu Tri Nặc: "Đôi mắt với cái mũi giống hệt Triệu tổng."
+Diêu Sân ngồi thụp xuống bên mép giường, chăm chú ngắm nhìn bé Triệu Tri Nặc: "Đôi mắt với cái mũi giống hệt Triệu tổng."
 
-Từ Mạn Mạn nghiêng người tựa vào thành giường, ánh mắt đong đầy yêu thương dịu dàng: "Diêu Tân, đây là con của tớ và Kim An."
+Từ Mạn Mạn nghiêng người tựa vào thành giường, ánh mắt đong đầy yêu thương dịu dàng: "Diêu Sân, đây là con của tớ và Kim An."
 
-"Ừm." Diêu Tân có phần chưa hiểu hết ngụ ý.
+"Ừm." Diêu Sân có phần chưa hiểu hết ngụ ý.
 
 Từ Mạn Mạn khẽ nói: "Tớ không còn gì phải nuối tiếc nữa rồi. Kim An ở trong viện cả ngày nay cứ cười ngơ ngẩn như người mất hồn, hễ rảnh là lại muốn chọc cho Triệu Tri Nặc thức giấc, làm con bé khóc ré lên một hồi, tớ phải xua anh ấy về công ty làm việc rồi đấy."
 
 "Thím bảo đàn ông ai cũng cái nết ấy, chọc con người ta thức giấc rồi lại chẳng chịu dỗ dành, chỉ thích trêu đùa cho vui."
 
-Diêu Tân chăm chú lắng nghe, cô nghe ra niềm hạnh phúc ngập tràn trong từng câu chữ của Từ Mạn Mạn.
+Diêu Sân chăm chú lắng nghe, cô nghe ra niềm hạnh phúc ngập tràn trong từng câu chữ của Từ Mạn Mạn.
 
-Từ Mạn Mạn bỗng quay sang nhìn Diêu Tân, khẽ hỏi: "Diêu Tân, vốn dĩ cậu được điều chuyển sang bên khách sạn đúng không?"
+Từ Mạn Mạn bỗng quay sang nhìn Diêu Sân, khẽ hỏi: "Diêu Sân, vốn dĩ cậu được điều chuyển sang bên khách sạn đúng không?"
 
 "Mạn Mạn, tớ đến đây thật sự không phải vì chuyện đó đâu..."
 
-Diêu Tân vội vàng xua tay phân bua. Thẩm Tử Ngôn đột ngột rời bỏ công ty, không còn ai theo sát nữa nên chuyện điều chuyển của cô cũng tạm thời chìm vào quên lãng.
+Diêu Sân vội vàng xua tay phân bua. Thẩm Tử Ngôn đột ngột rời bỏ công ty, không còn ai theo sát nữa nên chuyện điều chuyển của cô cũng tạm thời chìm vào quên lãng.
 
-Ở chốn công sở, ai nấy đều nhìn sắc mặt cấp trên mà làm việc. Diêu Tân lại chẳng có biểu hiện gì quá đỗi nổi bật, không phạm lỗi lầm nhưng cũng chẳng lập chiến tích gì vẻ vang, thế nên phòng nhân sự đành gác lại hồ sơ.
+Ở chốn công sở, ai nấy đều nhìn sắc mặt cấp trên mà làm việc. Diêu Sân lại chẳng có biểu hiện gì quá đỗi nổi bật, không phạm lỗi lầm nhưng cũng chẳng lập chiến tích gì vẻ vang, thế nên phòng nhân sự đành gác lại hồ sơ.
 
 Vấn đề là, điều chuyển sang khách sạn thì xếp cho cô vị trí nào?
 
@@ -180,14 +178,14 @@ Từ Mạn Mạn nhẹ nhàng bảo: "Tớ hiểu mà. Đợi tớ ở cữ xong
 
 "..."
 
-Trên gương mặt Diêu Tân thoáng qua một nét kinh ngạc, cô khẽ gật đầu.
+Trên gương mặt Diêu Sân thoáng qua một nét kinh ngạc, cô khẽ gật đầu.
 
-Nán lại phòng bệnh thêm một lát rồi Diêu Tân bước chân rời khỏi bệnh viện. Cô ngồi lặng thinh bên lề đường ngoài cổng viện, cúi đầu siết chặt chiếc điện thoại rất lâu mà chẳng nỡ cất bước rời đi.
+Nán lại phòng bệnh thêm một lát rồi Diêu Sân bước chân rời khỏi bệnh viện. Cô ngồi lặng thinh bên lề đường ngoài cổng viện, cúi đầu siết chặt chiếc điện thoại rất lâu mà chẳng nỡ cất bước rời đi.
 
 Cô là vì thấy Thẩm Tử Ngôn và Mộc Dao gửi lời "Chúc mừng" vào nhóm chat nên mới đánh bạo tìm tới đây, hay nói đúng hơn là canh đúng thời điểm này. Từ Mạn Mạn thông minh nhường ấy, không nói toạc móng heo ra không có nghĩa là trong lòng không thấu suốt.
 
-Trăn Hối Tuyển - Diêu Tân: Tử Ngôn, cậu có ở đấy không?
+Trăn Hối Tuyển - Diêu Sân: Tử Ngôn, cậu có ở đấy không?
 
 Không có hồi âm.
 
-Trăn Hối Tuyển - Diêu Tân: Tớ muốn từ chức.
+Trăn Hối Tuyển - Diêu Sân: Tớ muốn từ chức.

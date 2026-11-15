@@ -1,7 +1,5 @@
 # Chương 330: Cảm giác lâm nguy
 
-> **Tiêu đề gốc**: 第330章 危机感。
-
 "Thanh Trĩ dường như có vài nét khá giống Phương Khiết."
 
 Bao nhiêu năm đầu ấp tay gối thành vợ chồng, Triệu Kim An trong vô thức vẫn quen gọi hai tiếng "Thanh Trĩ". Lúc này anh mới chợt vỡ lẽ ra, vì sao ngay từ đầu mình lại vô thức nhận lời và sẵn lòng chỉ điểm đường đi nước bước cho Phương Khiết; phải chăng chính là vì ở Phương Khiết có những nét phảng phất hình bóng của Trần Thanh Trĩ năm nào?
@@ -138,7 +136,7 @@ Mức giá trúng thầu thực tế của Tập đoàn Nice năm ấy chỉ v�
 
 Vào năm 2006, tập đoàn này thậm chí còn bạo tay thâu tóm lại thương hiệu kem đánh răng trẻ em "Nha Nha Lạc" và dòng sản phẩm chăm sóc tóc cao cấp "100 Năm Nhuận Phát" từ chính tay gã khổng lồ P&G.
 
-Năm xưa ở quê, cả bà Đoàn Thu Bình lẫn bà Vương Kim Như mỗi lần giặt giũ quần áo đều chỉ tin dùng xà phòng bánh Điêu Bài.
+Năm xưa ở quê, cả bà Đoạn Thu Bình lẫn bà Vương Kim Như mỗi lần giặt giũ quần áo đều chỉ tin dùng xà phòng bánh Điêu Bài.
 
 Triệu Kim An còn nhớ rất rõ, sau khi kết hôn cùng Trần Thanh Trĩ, cô ấy luôn có thói quen mua nước giặt Siêu Năng về dùng.
 
@@ -152,7 +150,7 @@ Lạc Cẩn Chi quả thực hoàn toàn không cảm nhận được điều đ
 
 Thẩm Tử Ngôn cũng không cảm nhận được cuộc khủng hoảng. Bố mẹ cô là Thẩm Vĩnh Đàm và Lục Mai Tiêu dạo này kiếm tiền đến mức quên ăn quên ngủ; mỗi lần Lục Mai Tiêu gọi điện thoại cho con gái đều sốt sắng hỏi: "Tử Ngôn ơi, lương của con có đủ tiêu không đấy? Để mẹ chuyển thêm tiền vào tài khoản cho con nhé."
 
-Lục Mai Tiêu cứ như thể sợ tiền kiếm được nhiều quá không tiêu hết vậy, hình ảnh đó hoàn toàn đối lập gay gắt với cảnh tượng thê thảm của các doanh nghiệp cùng ngành hay tình cảnh khốn đốn của bà Dương Thục Mỹ.
+Lục Mai Tiêu cứ như thể sợ tiền kiếm được nhiều quá không tiêu hết vậy, hình ảnh đó hoàn toàn đối lập gay gắt với cảnh tượng thê thảm của các doanh nghiệp cùng ngành hay tình cảnh khốn đốn của bà Dương Thù Mỹ.
 
 Thẩm Tử Ngôn trầm ngâm một thoáng rồi cất giọng: "Kim An này, hôm nay tụi em đi khảo sát đã chạm mặt người của Tập đoàn Rượu Mao Đài, Rượu Lang Tửu và cả Bia Thanh Đảo nữa đấy."
 

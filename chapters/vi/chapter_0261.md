@@ -1,7 +1,5 @@
 # Chương 261: Thẩm tổng chọn trước?
 
-> **Tiêu đề gốc**: 第261章 沈总先挑？
-
 Trình Tử Liên vô cùng tin tưởng Triệu Kim An. Thằng bé này xưa nay chẳng bao giờ ba hoa khoác lác, nó mà chịu bớt khiêm tốn đi một chút thôi đã là phúc đức lắm rồi.
 
 Dạy học bao nhiêu khóa, người làm thầy cô ắt hẳn đều có những học trò khiến mình đặc biệt yêu mến, mà đứa học trò Trình Tử Liên cưng nhất chính là Triệu Kim An.
@@ -172,7 +170,7 @@ Thẩm Tử Ngôn khẽ huých tay Triệu Kim An một cái. Kim An đôi khi t
 
 "Có phần của Lạc tổng không đấy?"
 
-Thẩm Tử Ngôn là người thông minh bẩm sinh, cô không hề hé răng hỏi về Đoàn Thu Bình, chuyện gì nên biết thì tự trong lòng hiểu rõ là được rồi.
+Thẩm Tử Ngôn là người thông minh bẩm sinh, cô không hề hé răng hỏi về Đoạn Thu Bình, chuyện gì nên biết thì tự trong lòng hiểu rõ là được rồi.
 
 Diêu Sân đứng tựa bên mép cốp xe, lặng lẽ đếm nhẩm trong đầu, nhiều thật đấy chứ.
 

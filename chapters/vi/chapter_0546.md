@@ -1,7 +1,5 @@
 # Chương 546: Chẳng một ai đáng tin
 
-> **Tiêu đề gốc**: 第546章 没一个可信的。
-
 La Kiến Thành thực chất chỉ là một người đại diện đứng mũi chịu sào.
 
 Còn đại diện cho ai phía sau, chẳng ai nói ra nhưng ai nấy đều ngầm hiểu.

@@ -1,7 +1,5 @@
 # Chương 328: Món tài phú ngập tràn trời đất
 
-> **Tiêu đề gốc**: 第328章 泼天的财富
-
 "Thầy Mã đấy ạ?!"
 
 Đầu dây bên kia cất tiếng hỏi có phải Triệu tổng của Trăn Nhiên hay không, Triệu Kim An trong lòng bỗng dâng lên một cảm giác phấn khích khó tả. Đó là ấn tượng sâu đậm kéo dài suốt hơn chục năm trời của kiếp trước, khi anh vẫn chỉ là một kẻ vô danh tiểu tốt chìm nghỉm giữa biển người.

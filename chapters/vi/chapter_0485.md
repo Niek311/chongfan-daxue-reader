@@ -1,7 +1,5 @@
 # Chương 485: Nơi nào có người, nơi đó có giang hồ
 
-> **Tiêu đề gốc**: 第485章 有人的地方就有江湖。
-
 Thời buổi này trên các kênh truyền hình liên tục xuất hiện những chuyên mục kinh tế, nơi các bậc đại lão trong từng ngành nghề thay phiên nhau bước lên sân khấu đàm đạo.
 
 Chưa bàn tới những ông trùm Internet vốn ưa thích phô trương thanh thế trước công chúng, ngay cả những đại lão thuộc khối ngành sản xuất chế tạo truyền thống — như vị doanh nhân chuyên làm kính ô tô, hay ông trùm Tông Khánh Hậu bán nước khoáng Wahaha — cũng đều hào hứng cầm micro tham gia các buổi "tọa đàm" nảy lửa; rồi đến cả những đại gia bất động sản khét tiếng nữa. Họ ngồi lại cùng nhau mổ xẻ về những cuộc biến chuyển mang tính thời đại của từng ngành nghề, thi thoảng còn không ngần ngại tranh cãi gay gắt, thậm chí là cá cược tiền triệu ngay trên sóng truyền hình.

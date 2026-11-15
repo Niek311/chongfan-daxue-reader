@@ -1,7 +1,5 @@
 # Chương 29: Phiên bản "Kim ốc tàng kiều" bà nội giấu cho cháu trai?
 
-> **Tiêu đề gốc**: 第29章 奶奶替孙儿版本的金屋藏娇？
-
 Triệu Kim An cứ ngỡ câu nói "Dẫn chị dâu cháu về nhà mình ngủ" của bà nội là bảo Doãn Hiểu Lan sang ngủ nhờ bên căn nhà của thím Vương Kim Như.
 
 Nào ngờ khi ba người trở về, bà nội đã cặm cụi trải xong chiếu giường ngay trong căn nhà của Triệu Kim An.

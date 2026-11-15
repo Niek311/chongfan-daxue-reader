@@ -1,7 +1,5 @@
 # Chương 198: Tôi chưa từng làm thuyết khách cho ai
 
-> **Tiêu đề gốc**: 第198章 我从不给人当说客。
-
 "Chào cậu."
 
 Lâm Thanh Tuyết khẽ nở nụ cười. Cô và Triệu Kim An trước đây không có nhiều cơ hội tiếp xúc. Ngày trước mỗi lần cô gửi ảnh qua mạng vào ban đêm, Triệu Kim An chưa bao giờ buồn hồi đáp lấy một lần; đến tận bây giờ cô mới nhận ra Triệu Kim An rất thích mở đầu bằng hai chữ "chào cậu".
@@ -102,7 +100,7 @@ Từ Tắc Đống đang ngồi ăn cơm liền ngẩng phắt đầu lên.
 
 "Mạn Mạn..."
 
-Lương Huệ Trân vội vàng lắc đầu, ra hiệu cho con gái đừng nói những lời cay nghiệt ấy.
+Lương Tuệ Trân vội vàng lắc đầu, ra hiệu cho con gái đừng nói những lời cay nghiệt ấy.
 
 "Mẹ, chẳng phải mẹ luôn miệng bảo Trần Trạch vẫn còn nhỏ dại hay sao?"
 

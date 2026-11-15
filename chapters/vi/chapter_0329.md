@@ -1,7 +1,5 @@
 # Chương 329: Trong cõi u minh
 
-> **Tiêu đề gốc**: 第329章 冥冥之中。
-
 Nhà họ Tô.
 
 Sau khi Triệu Kim An tới nơi, anh vào phòng sách ngồi trò chuyện cùng Tô Minh Tùng suốt hơn một tiếng đồng hồ.

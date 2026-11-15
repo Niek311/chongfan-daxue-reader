@@ -1,7 +1,5 @@
 # Chương 191: Báo cáo, hiểu chưa?
 
-> **Tiêu đề gốc**: 第191章 汇报，懂吗？
-
 Triệu Kim An chỉ mỉm cười, không nói gì thêm.
 
 Vương Duy Đào ngập ngừng một lát rồi lên tiếng: "Kim An này, mai với ngày kia tao ra phòng bi-a chơi, cũng sẽ lén đưa trả hết số tiền mấy hôm trước cho Lâm Thanh Tuyết, gom lại tầm khoảng bảy mươi tệ."
@@ -28,9 +26,9 @@ Vấn đề cốt tử và nan giải nhất chính là tiền thuê mặt bằn
 
 Lâm Thanh Tuyết mới "tiếp quản" quán chưa được mấy ngày, ban ngày lại bận lên giảng đường học, chỉ có buổi tối cùng dăm ba buổi chiều rảnh rỗi mới tranh thủ mở cửa đón khách, nếu không kham nổi tiền thuê nhà thì phòng bi-a tự khắc sẽ phải đóng cửa dẹp tiệm.
 
-Thế nhưng Triệu Kim An lại biết rõ đây hoàn toàn không phải chiêu trò của Trần Trạch, mà chính là thủ đoạn của Dương Thục Mỹ.
+Thế nhưng Triệu Kim An lại biết rõ đây hoàn toàn không phải chiêu trò của Trần Trạch, mà chính là thủ đoạn của Dương Thù Mỹ.
 
-Dương Thục Mỹ đã tức tốc quay về Quận Sa để đi "dọn dẹp mớ hỗn độn" cho cậu quý tử nhà mình.
+Dương Thù Mỹ đã tức tốc quay về Quận Sa để đi "dọn dẹp mớ hỗn độn" cho cậu quý tử nhà mình.
 
 Lâm Thanh Tuyết không hề ngốc nghếch, trái lại cô gái này vô cùng thông minh, sắc sảo.
 

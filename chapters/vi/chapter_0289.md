@@ -1,7 +1,5 @@
 # Chương 289: Phú nhất đại
 
-> **Tiêu đề gốc**: 第289章 创一代。
-
 Cả giảng đường bậc thang bỗng chốc rơi vào một khoảng lặng ngắt như tờ.
 
 "Lương Nguyên Lượng, cậu vừa nói cái gì cơ? Trăn Nhiên là của Kim An á!?"

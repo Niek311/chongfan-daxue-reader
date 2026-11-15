@@ -1,7 +1,5 @@
 # Chương 441: Khởi động dự án, hướng về Dương Thành
 
-> **Tiêu đề gốc**: 第441章 项目启动，羊城。
-
 Tô Quân Dương tỏ ra vô cùng hào hứng với mô hình "Một khu ba phân khu" của Khu Khai phát Kinh tế Phụ Bình.
 
 Theo đề án kêu gọi đầu tư của huyện, quy hoạch được phân bổ cụ thể: Khu công nghiệp Vương Lâm Khẩu rộng 1.500 mẫu, định hướng tập trung phát triển ngành chế tạo thiết bị và chế biến nông sản.

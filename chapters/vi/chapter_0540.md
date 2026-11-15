@@ -1,7 +1,5 @@
 # Chương 540: Oa... Một Quách Uyển Thanh đã già
 
-> **Tiêu đề gốc**: 第540章 哇....老了的郭婉清。
-
 "Em có muốn ở lại Quận Sa này đi học không?"
 
 Triệu Kim An cúi đầu ân cần hỏi.
@@ -16,7 +14,7 @@ Tống Gia Nguyệt lí nhí hỏi một câu: "Anh ơi, thế... thế còn m�
 
 "Haizz, con bé Tiểu Nguyệt này... Lúc nào trong đầu cũng chỉ đau đáu nghĩ cho mẹ nó, sao mà hiểu chuyện đến thế không biết."
 
-Từ Mạn Mạn thở dài, nhất thời chẳng biết phải nói gì hơn. Đoàn Thu Bình đúng là có phúc phận mới sinh được một đứa con gái ngoan ngoãn dường này. Tống Gia Nguyệt tuổi còn nhỏ như thế mà trong lòng đã biết suy nghĩ, lo toan chu toàn cho mẹ đến vậy. Triệu Kim An khẽ vươn tay xoa nhẹ lên mái tóc mềm của Tống Gia Nguyệt, dịu giọng dỗ dành: "Ngoan, ngủ sớm đi nhé."
+Từ Mạn Mạn thở dài, nhất thời chẳng biết phải nói gì hơn. Đoạn Thu Bình đúng là có phúc phận mới sinh được một đứa con gái ngoan ngoãn dường này. Tống Gia Nguyệt tuổi còn nhỏ như thế mà trong lòng đã biết suy nghĩ, lo toan chu toàn cho mẹ đến vậy. Triệu Kim An khẽ vươn tay xoa nhẹ lên mái tóc mềm của Tống Gia Nguyệt, dịu giọng dỗ dành: "Ngoan, ngủ sớm đi nhé."
 
 ***
 
@@ -134,7 +132,7 @@ Quách Uyển Thanh ghé sát tai vào khe cửa lắng nghe hồi lâu, rồi b
 
 Triệu Kim An cuộn tròn người lại, nghiêng mình ôm chặt lấy cánh tay Tô Miến.
 
-Chỉ có duy nhất một mình Tô Miến là luôn bao dung cho mọi lầm lỗi ngông cuồng của Triệu Kim An. Vị đại tiểu thư tính tình ngang bướng, kiêu kỳ và bá đạo đến nhường ấy, thế mà cuối cùng lại cam tâm tình nguyện tự mình lùi bước, thỏa hiệp vì hắn. Có phải vì từ thuở bé cô đã thiếu thốn hơi ấm tình mẫu tử? Có phải vì sự can dự của Đoàn Thu Bình?
+Chỉ có duy nhất một mình Tô Miến là luôn bao dung cho mọi lầm lỗi ngông cuồng của Triệu Kim An. Vị đại tiểu thư tính tình ngang bướng, kiêu kỳ và bá đạo đến nhường ấy, thế mà cuối cùng lại cam tâm tình nguyện tự mình lùi bước, thỏa hiệp vì hắn. Có phải vì từ thuở bé cô đã thiếu thốn hơi ấm tình mẫu tử? Có phải vì sự can dự của Đoạn Thu Bình?
 
 Phụ nữ trên đời này thường thích treo hai chữ "cảm giác an toàn" trên đầu môi.
 
@@ -238,7 +236,7 @@ Những lời gan ruột ấy của Quách Uyển Thanh thốt ra chính là s�
 
 Triệu Kim An quay trở lại gian phòng ngủ của Tô Miến, khẽ kéo ngăn kéo tủ đầu giường ra, rút từ trong túi áo mấy phong bao lì xì đỏ thắm đặt ngay ngắn vào bên trong.
 
-Tiền lì xì mừng tuổi cho Triệu Tri Hành và Triệu Tri Vi, Du Phỉ trước đó không hề giao lại cho Từ Mạn Mạn. Trước ngày hắn bay ra Kinh Đô, Đường Hiểu Tình, Lâm Thanh Tuyết cùng vợ chồng Vương Duy Đào, Triệu Trí Dũng đã âm thầm dúi những phong bao này vào tận tay Triệu Kim An, tha thiết dặn dò hắn nhất định phải mang ra Kinh Đô trao lại cho hai đứa trẻ Triệu Tri Hành và Triệu Tri Vi.
+Tiền lì xì mừng tuổi cho Triệu Tri Hành và Triệu Tri Vi, Du Phi trước đó không hề giao lại cho Từ Mạn Mạn. Trước ngày hắn bay ra Kinh Đô, Đường Hiểu Tình, Lâm Thanh Tuyết cùng vợ chồng Vương Duy Đào, Triệu Trí Dũng đã âm thầm dúi những phong bao này vào tận tay Triệu Kim An, tha thiết dặn dò hắn nhất định phải mang ra Kinh Đô trao lại cho hai đứa trẻ Triệu Tri Hành và Triệu Tri Vi.
 
 Triệu Kim An đứng lặng bên mép giường, chăm chú ngắm nhìn Tô Miến đang "say giấc nồng", rồi từ từ đẩy ngăn kéo khép lại.
 

@@ -1,221 +1,217 @@
-# Chương 386: Chúng ta quen nhau
+# Chương 386: Chúng ta quen nhau.
 
-> **Tiêu đề gốc**: 第386章 我们认识。
+"Vậy tại sao hồi em học lớp 11 anh lại kết bạn QQ với em?"
 
-"Thế tại sao hồi tôi học lớp mười một, anh lại kết bạn QQ với tôi?"
+Chuyện này Trần Thanh Trĩ đã nghĩ suốt hơn một năm trời mà vẫn không sao hiểu nổi, càng nghĩ càng thấy rờn rợn. Đôi mắt cô nhìn chằm chằm Triệu Kim An không rời: "Chắc chắn là anh đã tìm kiếm rồi chủ động thêm QQ của em."
 
-Khúc mắc này Trần Thanh Trĩ đã nghĩ suốt hơn một năm ròng mà nghĩ mãi không thông. Nghĩ không ra, lại càng thấy rợn người. Ánh mắt cô nhìn chằm chằm vào Triệu Kim An không rời: "Chắc chắn là anh đã chủ động tìm kiếm tài khoản của tôi để kết bạn."
+Triệu Kim An điềm tĩnh lắc đầu: "Em nhớ nhầm rồi."
 
-Triệu Kim An vẫn giữ vẻ điềm nhiên, khẽ lắc đầu: "Em nhớ nhầm rồi."
+"Không hề nhầm."
 
-"Không thể nào nhầm được."
-
-Chỉ số thông minh của Trần Thanh Trĩ xưa nay chưa từng có vấn đề: "Ngày tôi lên đại học làm thủ tục nhập học năm nhất, anh còn đích thân đến ga tàu hỏa nữa..."
+Trần Thanh Trĩ đầu óc hoàn toàn tỉnh táo: "Hôm em nhập học năm nhất, anh còn ra tận ga tàu đón..."
 
 "Trùng hợp thôi."
 
-Triệu Kim An thuận miệng đối phó: "Hồi đó Trăn Hối Tuyển mới chập chững khởi nghiệp, anh còn phải tự lái xe đi giao hàng khắp nơi."
+Triệu Kim An đáp qua loa: "Hồi đó Trăn Nhiên mới khởi nghiệp chưa lâu, anh còn phải tự lái xe đi giao hàng."
 
 "Không đúng."
 
-Trần Thanh Trĩ khẽ lắc đầu: "Trên đời này làm gì có nhiều sự trùng hợp đến thế."
+Trần Thanh Trĩ khẽ lắc đầu: "Trên đời làm gì có nhiều sự trùng hợp đến thế."
 
-"Vậy em muốn nói điều gì?"
+"Vậy rốt cuộc em muốn nói gì?"
 
-Đầu ngón tay Triệu Kim An bất giác bấm nhẹ vào đùi mình: "Rằng anh thích em à? Hay là anh thầm thương trộm nhớ em?"
+Triệu Kim An vô thức gãi nhẹ lên đùi mình: "Anh thích em? Thầm mến em à?"
 
-"Không phải, tôi tự biết mình chẳng xinh đẹp bằng bọn họ."
+"Không phải, em biết mình không xinh đẹp bằng các chị ấy."
 
-Trần Thanh Trĩ vẫn lắc đầu. Cô liếc nhìn Đường Hiểu Tình đang đứng bên cạnh dõi theo mình, rồi lại nhìn xoáy vào người học trưởng "chưa từng quen biết" này, trong lòng dâng lên một cảm giác kỳ quái khôn tả.
+Trần Thanh Trĩ vẫn lắc đầu. Cô liếc nhìn Đường Hiểu Tình đang đứng quan sát mình gần đó, rồi lại nhìn thẳng vào người đàn anh "chưa từng quen biết" trước mặt. Trong lòng cô dâng lên một cảm giác kỳ quặc khó tả.
 
-Thứ cảm giác "kỳ quái" ấy đã đeo bám cô suốt cả năm nhất, và có lẽ sẽ còn theo trọn cả năm hai đại học.
+Cảm giác "kỳ quặc" ấy đã đeo bám cô suốt cả năm nhất, và có lẽ kéo dài sang cả năm hai đại học này.
 
-"Tôi có cảm giác anh rất hiểu tôi..."
+"Em có cảm giác anh quen em..."
 
-"Chúng ta quen nhau từ trước."
+"Chúng ta quen nhau."
 
-Trần Thanh Trĩ buông lại hai câu lửng lơ ấy, xoay người rời đi nhưng bước chân cứ ngập ngừng, chốc chốc lại ngoái đầu nhìn Triệu Kim An.
+Trần Thanh Trĩ buông lại hai câu ấy rồi quay bước rời đi, vừa đi vừa ngoái đầu nhìn lại Triệu Kim An không dứt.
 
-Triệu Kim An cúi đầu châm một điếu thuốc lá, không nhìn theo bóng lưng Trần Thanh Trĩ.
+Triệu Kim An cúi đầu châm một điếu thuốc, không nhìn theo bóng lưng cô.
 
-Bốn năm hôn nhân ở kiếp trước từng khiến anh mệt mỏi đến cùng kiệt tâm can. Anh vốn chẳng ưa việc Bành Vĩnh Lệ cứ hở ra là mò lên Quận Sa, ngặt nỗi mỗi độ nghỉ hè nghỉ đông, bà ta lại rảnh rỗi quá mức...
+Cuộc hôn nhân bốn năm ở kiếp trước từng khiến anh kiệt quệ cả thể xác lẫn tinh thần. Anh vốn chẳng ưa gì việc Bành Vĩnh Lệ lên Quận Sa, thế nhưng hễ đến kỳ nghỉ đông hay nghỉ hè, bà ta lại có quá nhiều thời gian rảnh rỗi...
 
-Bà nội và thím đã vì anh mà phải chịu đựng quá nhiều ấm ức, tủi hờn.
+Bà nội và thím út đã phải chịu quá nhiều ấm ức vì anh.
 
-Mãi đến khi bà nội tạ thế, anh hạ quyết tâm ly hôn với Trần Thanh Trĩ, thím Vương Kim Như mới bùng nổ trận cãi vã long trời lở đất nhất với Bành Vĩnh Lệ.
+Mãi đến khi bà nội qua đời, anh hạ quyết tâm ly hôn với Trần Thanh Trĩ, Vương Kim Như mới cãi nhau với Bành Vĩnh Lệ một trận long trời lở đất nhất.
 
-Hôm ấy, nếu không có Triệu Kim An can ngăn, nếu không có chú Triệu Quốc Hoa gạt đi vài câu, e rằng khi bà nội nhắm mắt xuôi tay, Trần Thanh Trĩ đã chẳng thể nhìn mặt bà lần cuối. Tính thím Vương Kim Như đanh đá, thím đã định cho đóng nắp quan tài sớm chứ dứt khoát không thèm đợi Trần Thanh Trĩ tất tả chạy về.
+Nếu không phải vì Triệu Kim An, nếu không phải Triệu Quốc Hoa đỡ lời vài câu, thì khi bà nội mất, Trần Thanh Trĩ đã chẳng thể gặp bà lần cuối, bởi Vương Kim Như định đóng nắp quan tài sớm chứ không thèm đợi cô chạy về.
 
-Chú Triệu Quốc Hoa khuyên can, bảo Trần Thanh Trĩ dẫu sao cũng là dâu trưởng của đời cháu, lại là đứa cháu dâu duy nhất trong nhà.
+Triệu Quốc Hoa bảo Trần Thanh Trĩ là cháu dâu trưởng, cũng là đứa cháu dâu duy nhất.
 
-Vợ chồng chú thím vốn chỉ sinh được một mụn con gái là Triệu Duyệt Thiên, thím Vương Kim Như nổi cơn tam bành gắt gỏng: "Đến một mụn con nó còn chưa đẻ nổi, nhà họ Triệu các ông tuyệt tự rồi! Ông nghĩ mẹ dưới suối vàng còn muốn nhìn mặt nó nữa chắc!?"
+Ông và Vương Kim Như chỉ sinh được mỗi Triệu Duyệt Thiên. Vương Kim Như tính tình bộc trực chua ngoa từng gắt lên: "Một mụn con cũng chẳng đẻ nổi, nhà họ Triệu các người tuyệt hậu rồi! Ông nghĩ mẹ còn muốn nhìn mặt cô ta sao?!"
 
-Hôm bà nội mất, thím Vương Kim Như khóc đến đứt từng khúc ruột. Người phụ nữ ngày thường hay cằn nhằn cãi vặt dăm ba câu với mẹ chồng ấy, thế mà lúc hữu sự lại dám sai Triệu Hữu Hằng cùng mấy thanh niên trong họ ra đứng chặn cứng ở đầu làng, tuyên bố nếu thằng Tống Siêu Văn dám vác mặt đến thì dứt khoát không cho bước chân vào cổng làng nửa bước!!
+Hôm đó Vương Kim Như khóc rất thương tâm, dù bình thường bà vẫn hay đấu khẩu vài câu với mẹ chồng.
 
-Thế mới thấy.
+Thế mà bà lại sai Triệu Hữu Hằng cùng mấy người nữa ra đầu làng chặn cửa, tuyên bố nếu Tống Siêu Văn có vác mặt tới thì tuyệt đối không cho bước chân vào làng!!
 
-Ở chốn làng quê, chung quy vẫn cần phải có anh em họ hàng đông đúc. Miễn là anh em không đến mức đốn mạt càn rỡ, thì hễ nhà có chuyện hệ trọng, nơi dựa dẫm duy nhất vẫn cứ là người nhà mình.
+Chỉ bấy nhiêu thôi cũng đủ thấy.
 
-Người chốn thị thành có lẽ không câu nệ nhiều lề thói đến thế.
+Ở nông thôn vẫn phải đông anh em, chỉ cần anh em đừng quá quắt, hễ có chuyện gì xảy ra thì người mình trông cậy được vẫn là anh em ruột thịt.
 
-Cứ đóng chặt cửa nẻo nhà ai nấy sống, đèn nhà ai nhà nấy rạng.
+Người thành phố có lẽ không câu nệ nhiều đến thế.
 
-Chẳng thế mà trên mạng xã hội sau này mới có mẩu chuyện cười châm biếm: Thi đại học được trên sáu trăm điểm mà làm tiệc mừng đỗ đạt thì chẳng cần bỏ phong bì đi ăn cỗ làm gì, bởi những kẻ ấy một khi đã bay cao bay xa thì hiếm khi quay trở về; ngược lại, những đứa thi dưới bốn trăm điểm thì nhất định phải đi ăn cho bằng được.
+Nhà nào đóng cửa nhà nấy, đèn nhà ai nấy rạng.
 
-Trần Thanh Trĩ kiếp trước chưa từng chịu về làng Triệu Gia, nhưng Triệu Kim An hễ nhà có việc gì là đều tranh thủ quay về, dẫu không phải chuyện hiếu hỉ lớn, người không về được thì tiền mừng lễ nghĩa cũng phải đến nơi đến chốn.
+Nếu không thì trên mạng đã chẳng lưu truyền câu chuyện cười rằng: nhà ai có con thi đại học trên sáu trăm điểm mở tiệc mừng đỗ đạt thì chẳng cần đi phong bì ăn cỗ làm gì, vì những người đó một khi đã bay đi thì rất khó quay về.
 
-Biết làm sao được, bố Triệu Quốc Khánh mất sớm, Triệu Kim An bắt buộc phải gánh vác phần trách nhiệm ấy.
+Ngược lại, nhà nào thi dưới bốn trăm điểm thì nhất định phải đi mừng.
 
-...
+Trần Thanh Trĩ chẳng bao giờ về Triệu Gia Thôn, còn Triệu Kim An hễ có việc gì thường đều quay về, dù không phải việc hiếu hỉ mà người không về được thì quà cáp cũng sẽ gửi về tận nơi.
 
-Rời Quận Sa, Triệu Kim An bay ra Kinh Đô.
+Hết cách rồi, Triệu Quốc Khánh đã mất, Triệu Kim An buộc phải gánh vác mà trở về.
 
-Trước đó Tô Mặc gọi điện báo tin rằng dạo này tâm trạng Tô Miến không tốt, tính khí thất thường, rất hay nổi giận vô cớ.
+Triệu Kim An bay ra Kinh Đô.
 
-Tô Mặc chẳng dám lại gần, mấy cô hộ lý đặc biệt cũng chỉ biết nơm nớp lo sợ, đi nhẹ nói khẽ.
+Tô Mặc gọi điện báo rằng dạo này tâm trạng Tô Miến không tốt, rất hay nổi cáu.
 
-Ấy thế mà Triệu Kim An vừa đặt chân tới nơi, Tô Miến lập tức ngoan ngoãn dịu dàng trở lại.
+Tô Mặc chẳng dám lại gần, mấy cô hộ lý đặc biệt cũng phải nín thở làm việc vô cùng cẩn trọng.
 
-Cô chị họ Tô Mặc đứng bên chỉ biết trợn tròn mắt. Ngày nào cũng phải thay ga trải giường mới, hai cái con người này đúng là chẳng biết ngượng ngùng là gì.
+Thế nhưng Triệu Kim An vừa tới, Tô Miến liền vui vẻ hẳn lên.
 
-Ở lại được vài hôm thì Lạc Cẩn Chi và Du Phi cũng đáp máy bay tới Kinh Đô. Lần này họ đến để tham gia phiên đấu giá tranh danh hiệu Vua quảng cáo của đài truyền hình Trung ương năm 2010.
+Chị họ Tô Mặc chỉ biết trợn tròn mắt; hai người này ngày nào cũng thay ga trải giường, đúng là chẳng biết ngượng là gì.
 
-Nhân dịp này, Triệu Kim An còn cõng Tô Miến đi leo Vạn Lý Trường Thành.
+Vài ngày sau, Lạc Cẩn Chi và Du Phi cũng ra Kinh Đô để tham gia đấu thầu ngôi vị Tiêu Vương CCTV năm 2010.
 
-"Ông chủ lấy đâu ra lắm sức thế không biết!?"
+Triệu Kim An còn cõng Tô Miến leo Trường Thành.
 
-Đan Vĩ cùng Chu Hoa Phong và hai người nữa lẽo đẽo theo sau, muốn tiến lên đỡ hộ một tay mà chẳng ai dám mở miệng.
+"Ông chủ khỏe thật đấy?!"
 
-"Tiểu thư Tô Miến há phải là người ai muốn cõng là cõng được đâu?"
+Bốn người Đan Vĩ và Chu Phong Hoa đi phía sau, muốn lên đỡ giúp một tay nhưng lại chẳng dám mở miệng.
 
-Bọn họ không biết Quan Văn Bách dạo này biến đi đằng nào, ngay cả đội trưởng Đan Vĩ cũng mù tịt thông tin.
+"Tô Miến đâu phải người mà ai muốn cõng cũng cõng được?"
 
-Quan Văn Bách cứ như thể bốc hơi khỏi thế gian.
+Họ không biết Quan Văn Bách đã đi đâu, ngay cả Đan Vĩ cũng mù tịt.
 
-Nếu không phải thỉnh thoảng Quan Văn Bách vẫn bắt máy nghe điện thoại, có khi Đan Vĩ còn ngờ rằng tên này đã bị ông chủ bí mật thủ tiêu diệt khẩu rồi cũng nên.
+Quan Văn Bách cứ như thể bốc hơi khỏi nhân gian.
 
-Triệu Kim An cõng Tô Miến, từng bước từng bước vững chãi bước lên những bậc đá cheo leo, tuyệt nhiên không gọi cấp dưới lên đỡ.
+Nếu không phải Quan Văn Bách vẫn nghe điện thoại, có khi Đan Vĩ còn nghi ngờ chẳng lẽ anh ta bị ông chủ diệt khẩu rồi.
 
-Đi đến một đoạn dừng chân, anh mới vẫy tay ra hiệu.
+Triệu Kim An cõng Tô Miến từng bước từng bước leo lên cao, tuyệt nhiên không gọi ai giúp.
 
-"Dạ, tới liền!"
+Đến một quãng, anh dừng lại vẫy tay.
 
-Chu Hoa Phong nhanh như cắt trải một tấm đệm mềm lên, Triệu Kim An nhẹ nhàng bế Tô Miến đặt ngồi vào một hõm tường thành.
+"Vâng, tới ngay đây!"
 
-"Hết xí quách rồi."
-
-Triệu Kim An thở hổn hển, mồ hôi ướt đẫm trán, nhưng rồi mắt anh bỗng mở to kinh ngạc.
-
-Anh vừa cảm nhận được dường như bàn chân Tô Miến khẽ đá nhẹ vào người mình một cái.
-
-"Có chút chuyển biến rồi."
-
-Tô Miến đưa hai bàn tay ấm áp nâng lấy gương mặt Triệu Kim An, trực tiếp lấy tay áo dịu dàng lau mồ hôi cho anh. Triệu Kim An vội vén nhẹ gấu váy cô lên, giọng nói lắp bắp vì mừng rỡ: "Sao em không nói sớm cho anh biết?"
-
-"Đã đi lại được đâu mà nói."
-
-"Em đá anh thêm cái nữa xem nào."
+Chu Phong Hoa lập tức cầm lấy một tấm vải lót, Triệu Kim An nhẹ nhàng bế Tô Miến đặt xuống một hốc lõm trên tường thành.
 
 "Hết sức rồi."
 
-Tô Miến lấy ngón tay chỉ chỉ: "Kim An, là chân bên này nè."
+Triệu Kim An thở hổn hển, mồ hôi ướt đẫm cả trán, nhưng ngay sau đó anh bỗng trợn tròn mắt.
 
-"Tốt quá rồi, thế là tốt lắm rồi."
+Anh phát hiện chân Tô Miến hình như vừa khẽ đá mình một cái.
 
-"Chẳng phải trước đây anh từng bảo em không đi lại được cũng chẳng sao ư?"
+"Có chút hiệu quả rồi."
 
-"Sao cũng tốt hết, chỉ cần là em."
+Tô Miến nâng khuôn mặt Triệu Kim An lên, dùng tay lau mồ hôi giúp anh. Triệu Kim An khẽ vén nhẹ gấu váy cô lên, giọng nói có phần lắp bắp: "Sao em không nói với anh?"
 
-Triệu Kim An tiện tay xoa nắn bắp chân cho Tô Miến. Tô Miến ngồi trên gờ tường thành, vòng hai tay ôm lấy đầu Triệu Kim An kéo sát vào lòng: "Kim An, gió ở đây thổi vào người dễ chịu quá."
+"Cũng có đi lại được đâu."
 
-"Mọi chuyện đang tốt dần lên rồi."
+"Em đá anh thêm cái nữa đi."
 
-"Em chỉ sợ cả đời này phải ngồi xe lăn, không thể tự bước đi."
+"Hết sức rồi."
 
-"Em phải giữ tâm thái thật bình thản, đừng nóng vội. Cứ thả lỏng tinh thần ra thì chẳng mấy chốc sẽ mang thai, rồi chân cẳng cũng sẽ hồi phục lại thôi."
+Tô Miến chỉ tay xuống chân: "Kim An, bên chân này cơ."
 
-"Kim An, sau này em muốn sinh cho anh hai đứa, một trai một gái."
+"Thế cũng tốt quá rồi."
 
-Cách nói chuyện của Tô Miến xưa nay luôn thẳng thắn bộc trực như thế, cô hoàn toàn không hay biết về tình trạng thực sự của cơ thể mình.
+"Chẳng phải anh từng nói không đi được cũng tốt sao?"
 
-Triệu Kim An mỉm cười dỗ dành: "Được, đứa đầu lòng là con trai nhé, để anh trai biết yêu thương, bảo bọc em gái."
+"Sao cũng tốt hết."
 
-Nụ cười rạng rỡ nở trên môi Tô Miến: "Vâng ạ."
+Triệu Kim An thuận tay xoa bóp chân cho cô. Tô Miến ngồi trên tường thành, ôm lấy đầu Triệu Kim An vào lòng: "Kim An, gió ở đây thổi mát dễ chịu quá."
 
-Ngồi trên đoạn thành cổ kính, Triệu Kim An cứ thuận theo từng lời Tô Miến mà thủ thỉ tâm tình. Anh rất hiểu cho tâm trạng của cô, đổi lại là bất kỳ ai ngày này qua tháng nọ phải gắn mình với chiếc xe lăn thì tính khí cũng khó lòng mà vui vẻ cho được, thế nên anh mới muốn đưa cô ra ngoài hít thở khí trời.
+"Sắp khỏi hẳn rồi."
 
-Tô Mặc từng thì thầm kể với Triệu Kim An rằng đã rất nhiều năm rồi Tô Miến không chịu bước chân tới đây.
+"Em sợ cả đời này không đi lại được nữa."
 
-Hôm ấy, Tô Miến cứ nấn ná ngồi mãi trên tường thành không chịu về, cũng chẳng để Triệu Kim An cõng đi tiếp lên cao.
+"Em phải giữ tâm trạng thoải mái, đừng nóng vội. Tâm trạng thoải mái thì rất nhanh sẽ có thai, rồi cũng sẽ đi lại được thôi."
 
-Mãi đến khi ráng chiều buông xuống, trời ngả dần về nhá nhem tối, cô mới chịu cùng mọi người ra về.
+"Kim An, vậy em muốn sinh hai đứa, một trai một gái."
 
-Triệu Kim An lại cõng Tô Miến trên lưng, thỉnh thoảng lại vờ nhéo nhẹ vào đùi cô một cái để kích thích cho cô đá mình.
+Tô Miến nói năng xưa nay luôn thẳng thắn, cô không rõ tình trạng cơ thể mình thực hư thế nào.
 
-Tô Miến thừa hiểu ý đồ của anh, có điều lực chân cô quả thực còn quá yếu ớt, Triệu Kim An hầu như chẳng có cảm giác gì, ngược lại Tô Miến vì cố dùng sức mà trán rịn ra một tầng mồ hôi mỏng.
+Triệu Kim An mỉm cười: "Đứa đầu là con trai, anh trai thương em gái, được không?"
 
-"Reng... reng... reng..."
+Tô Miến bật cười: "Được."
 
-Đúng lúc này, chuông điện thoại trong túi quần anh réo vang.
+Trên tường thành, Triệu Kim An cứ thế xuôi theo lời Tô Miến mà dỗ dành. Anh hiểu tâm trạng của cô; đổi lại là bất kỳ ai ngày nào cũng phải ngồi xe lăn thì tính khí cũng khó mà tốt nổi, thế nên anh mới đưa cô ra ngoài hít thở khí trời.
 
-Triệu Kim An ngẫm nghĩ một thoáng rồi thuận miệng bảo: "Đại tiểu thư, rút điện thoại trong túi nghe giùm anh với."
+Tô Mặc từng lén kể với Triệu Kim An rằng Tô Miến đã nhiều năm rồi chưa tới đây.
 
-"Em với không tới đâu."
+Hôm đó Tô Miến ngồi mãi trên tường thành không chịu về, cũng không bắt Triệu Kim An cõng leo tiếp lên nữa.
 
-Tô Miến đang nằm áp trên lưng anh thế này thì làm sao thò tay xuống túi quần anh mà lấy cho được.
+Mãi đến khi trời sẩm tối cô mới chịu về nhà.
 
-Triệu Kim An quả thực càng ngày càng láu cá, cuối cùng cũng học lỏm được vài chiêu trò da lông của cánh đàn ông lọc lõi.
+Triệu Kim An lại cõng Tô Miến lên lưng, thỉnh thoảng cố tình véo nhẹ đùi cô một cái, mong cô đá mình thêm phát nữa.
 
-"Để chị lấy cho."
+Tô Miến thừa hiểu suy nghĩ của anh, nhưng thực sự chân cô chẳng có chút sức lực nào; Triệu Kim An chẳng cảm nhận được gì, trái lại Tô Miến còn rịn cả mồ hôi.
 
-Nào ngờ bà chị họ Tô Mặc đi bên cạnh đỡ lưng Tô Miến lại nhiệt tình quá mức, lập tức thò thẳng tay vào túi quần Triệu Kim An lôi chiếc điện thoại ra ngoài.
+"Reng reng reng."
 
-Triệu Kim An: "..."
+Đúng lúc này, điện thoại trong túi quần anh đổ chuông.
 
-Đúng là tính già hóa non, học khôn chẳng xong lại thành dại.
+Triệu Kim An nghĩ ngợi một thoáng rồi buột miệng: "Tiểu thư, giúp anh nghe điện thoại với."
 
-Tô Miến cầm lấy điện thoại, liếc nhìn màn hình rồi bảo: "Kim An, là thím gọi tới."
+"Em có với tới đâu."
 
-Nói đoạn, cô tự mình bấm nút nghe máy: "Thím ạ, cháu là Tô Miến đây."
+Tô Miến đang ở trên lưng anh thì làm sao mà lấy được điện thoại trong túi quần anh cơ chứ.
 
-"À, là bà nội gọi ạ."
+Triệu Kim An đúng là hư hỏng thật rồi, cuối cùng cũng học lỏm được chút da lông của mấy gã tra nam.
 
-Tô Miến quay sang ghé tai Triệu Kim An nói nhỏ một câu, rồi tiếp tục thưa chuyện vào máy: "Bà nội ơi, cháu với Kim An đang cùng nhau đi leo Vạn Lý Trường Thành ạ."
+"Để chị."
 
-"Leo Trường Thành đấy à? Tốt, tốt lắm, thằng Kim An nó khỏe sức..."
+Nào ngờ cô chị họ đang đi sát bên cạnh đỡ Tô Miến lại nhiệt tình giúp đỡ đến thế, thản nhiên thò tay vào túi quần Triệu Kim An móc điện thoại ra.
 
-"Kim An ơi, bà bảo chú Triệu Hữu Tài vừa tìm được vợ mới rồi đấy."
+Triệu Kim An: ......
 
-"Triệu Hữu Tài lấy vợ nữa á?"
+Học nghệ chưa tinh đã phản tác dụng.
 
-"Vâng, người trong làng làm mối cho chú ấy."
+Tô Miến cầm điện thoại, liếc nhìn màn hình hiển thị liền nói: "Kim An, là thím út gọi." Rồi cô tự mình bấm nghe: "Thím à, cháu là Tô Miến đây."
 
-Màn đêm dần buông xuống. Tô Mặc một bên cẩn thận vịn tay giữ Tô Miến, Tô Miến thì nằm áp trên lưng Triệu Kim An tíu tít trò chuyện cùng bà nội. Chiếc điện thoại không hề ghé sát tai Triệu Kim An, Đan Vĩ cùng Chu Hoa Phong và hai vệ sĩ phía sau nhìn thấy những giọt mồ hôi to như hạt đậu trên trán ông chủ cứ thế lăn dài xuống cằm.
+"Là bà nội."
 
-Họ phải căng mắt canh chừng, đề phòng Triệu Kim An kiệt sức bước hụt chân, nhỡ đâu hai người ngã nhào một cái thì nguy to.
+Tô Miến báo cho Triệu Kim An một tiếng, rồi nói tiếp vào điện thoại: "Bà ơi, cháu với Kim An đang leo Trường Thành ạ."
 
-Triệu Kim An im lặng lắng nghe, không xen vào lời nào.
+"Leo Trường Thành à, tốt quá tốt quá, Kim An khỏe thật đấy..."
 
-Bà nội khen Triệu Kim An khỏe sức. Trong thâm tâm bà cụ, Tô Miến bị tật ở chân không thể đi lại, thì Triệu Kim An phải có trách nhiệm đối xử thật tốt với cô; cũng giống như chú Triệu Quốc Hoa phải đối tốt với thím Vương Kim Như, và như Triệu Kim An ở kiếp trước đáng lẽ phải đối tốt với Trần Thanh Trĩ vậy.
+"Kim An, bà nội bảo Triệu Hữu Tài tìm được vợ rồi."
 
-Tô Miến trò chuyện với bà nội được dăm câu thì điện thoại lại được chuyển sang cho thím Vương Kim Như.
+"Triệu Hữu Tài tìm được vợ rồi á?"
 
-Bà cụ bảo tuổi mình đã cao, mọi việc trong nhà giờ đều do một tay thím dâu quán xuyến, thế là thím Vương Kim Như bắt đầu bàn chuyện lễ nghĩa cưới xin với Tô Miến. Tô Miến bảo Kim An dạo này công việc bận rộn ngập đầu, bản thân cô chân cẳng lại bất tiện chẳng thể về phụ giúp được gì.
+"Ừm, người trong làng làm mối cho đấy."
 
-Thím Vương Kim Như xua tay bảo chuyện rổ rá cạp lại cưới lần hai thì chẳng bày vẽ được mấy mâm cỗ đâu, không cần cô phải nhọc lòng phụ việc.
+Trời đã tối mịt, Tô Mặc đi bên cạnh đỡ lấy Tô Miến, còn Tô Miến nằm trên lưng Triệu Kim An vui vẻ trò chuyện với bà nội. Điện thoại không kề sát tai Triệu Kim An, bốn người Đan Vĩ và Chu Phong Hoa nhìn những giọt mồ hôi to bằng hạt đậu lăn dài trên trán Triệu Kim An mà nín thở.
 
-Tô Miến liền bảo phần rượu cúng với nước ngọt các thứ cô sẽ cho người vận chuyển về tận làng chu đáo.
+Họ phải canh chừng để đề phòng Triệu Kim An đuối sức bước hụt, nhỡ anh và Tô Miến cùng ngã xuống thì coi như xong đời.
 
-Cô xưa nay đối với Triệu Hữu Tài luôn rất đỗi quan tâm chiếu cố. Tô Mặc đi bên cạnh nghe hai người nói chuyện mà ngẩn cả người ra vì kinh ngạc.
+Triệu Kim An không lên tiếng.
 
-Đầu dây bên kia, thím Vương Kim Như lại bắt đầu sang sảng mắng Tô Miến cái tội hoang phí phá của, bảo chỉ cần gửi một phong bì tiền mừng là được rồi, việc gì phải vẽ chuyện cho tốn kém.
+Bà nội khen Triệu Kim An có sức khỏe. Trong lòng bà, Tô Miến không đi lại được nên Triệu Kim An phải đối xử thật tốt với Tô Miến, giống như Triệu Quốc Hoa phải tốt với Vương Kim Như, và Triệu Kim An của kiếp trước phải tốt với Trần Thanh Trĩ vậy.
 
-Hai người phụ nữ cứ thế rôm rả buôn đủ thứ chuyện đời thường qua điện thoại, từ gốc tích quê quán của cô vợ mới của Triệu Hữu Tài cho đến nếp sinh hoạt chốn thôn quê...
+Tô Miến nói chuyện với bà nội chưa được mấy câu lại chuyển sang buôn chuyện với Vương Kim Như.
 
-Triệu Kim An chỉ biết cắm cúi bước đi, cõng Tô Miến trên lưng mà chẳng chen nổi lấy nửa lời.
+Bà nội bảo mình tuổi cao sức yếu rồi, chuyện lớn nhỏ trong nhà đều do Vương Kim Như quyết định. Thế là Vương Kim Như liền bàn với Tô Miến xem nên đi mừng bao nhiêu lễ, Tô Miến đáp rằng Kim An công việc bận rộn, bản thân cô lại chẳng giúp được gì.
 
-"..."
+Vương Kim Như bảo cưới lần hai cũng chỉ làm vài mâm cơm thôi, không cần cô phải nhúng tay vào.
 
-Đan Vĩ và Chu Hoa Phong kín đáo liếc nhìn nhau.
+Tô Miến liền bảo rượu bia các thứ cô sẽ cho người chở thẳng về tận nơi.
 
-Trên gương mặt đầm đìa mồ hôi của ông chủ, khóe môi đang khẽ cong lên một nụ cười ấm áp.
+Cô xưa nay vẫn luôn quan tâm chu đáo đến Triệu Hữu Tài, khiến Tô Mặc nghe mà tròn mắt ngẩn người.
+
+Đầu dây bên kia, Vương Kim Như lại bắt đầu mắng Tô Miến đúng là đồ phá gia chi tử, bảo chỉ cần gửi một cái phong bì là được rồi.
+
+Hai người cứ thế buôn đủ thứ chuyện đàn bà con gái trong điện thoại, bắt đầu từ chuyện vợ mới của Triệu Hữu Tài quê quán ở đâu...
+
+Triệu Kim An cúi đầu cõng Tô Miến, suốt quãng đường chẳng chen vào nổi một câu.
+
+"....."
+
+Đan Vĩ và Chu Phong Hoa liếc nhìn nhau, ông chủ đang cười.

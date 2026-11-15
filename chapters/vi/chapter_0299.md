@@ -1,7 +1,5 @@
 # Chương 299: Chẳng ai dạy dỗ
 
-> **Tiêu đề gốc**: 第299章 没人教。
-
 Tống Gia Nguyệt hai tay nắm chặt chiếc điều khiển từ xa, đứng ngơ ngác không biết phải làm sao.
 
 Đây là nhà của anh trai, con bé không được phép tranh giành tivi với anh. Một đứa trẻ nhỏ ngần ấy tuổi thì trong đầu có thể nghĩ được điều gì sâu xa hơn cơ chứ?

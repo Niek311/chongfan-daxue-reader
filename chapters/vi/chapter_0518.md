@@ -1,7 +1,5 @@
 # Chương 518: Đón khách phương xa
 
-> **Tiêu đề gốc**: 第518章 待客。
-
 Một thoáng im lặng trôi qua giữa làn gió đông hun hút.
 
 "Đi thôi."
@@ -174,7 +172,7 @@ Còn người phụ nữ đang ngồi bất động trên chiếc xe lăn nơi t
 
 "Kim An..."
 
-Mộc Dao vạn lần không thể ngờ nổi Triệu Kim An lại tàn tạ, xơ xác đến mức độ này. Hèn chi Du Phỉ dẫu có chụp bao nhiêu bức ảnh gửi về cũng tuyệt đối không hé răng nửa lời về tung tích của anh. Mộc Dao nhìn xoáy vào gương mặt hốc hác của Triệu Kim An, một giọt nước mắt trong veo bất giác "tách" một tiếng rơi nghiêng trên gò má.
+Mộc Dao vạn lần không thể ngờ nổi Triệu Kim An lại tàn tạ, xơ xác đến mức độ này. Hèn chi Du Phi dẫu có chụp bao nhiêu bức ảnh gửi về cũng tuyệt đối không hé răng nửa lời về tung tích của anh. Mộc Dao nhìn xoáy vào gương mặt hốc hác của Triệu Kim An, một giọt nước mắt trong veo bất giác "tách" một tiếng rơi nghiêng trên gò má.
 
 Nếu bảo rằng trước kia Mộc Dao say đắm anh chỉ vì dung mạo tuấn tú ngút ngàn, thì giờ đây, vẻ đẹp kinh tài tuyệt diễm ấy đã hoàn toàn tan thành mây khói.
 

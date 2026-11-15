@@ -1,7 +1,5 @@
 # Chương 176: Sắp xếp bốn gian phòng (2)
 
-> **Tiêu đề gốc**: 第176章 4个房间怎么安排，2
-
 Cứ thử hình dung mà xem, sau này Triệu Kim An sẽ giàu có đến nhường nào. Những cô gái bên cạnh cậu tính tình đều thuộc diện hào sảng, khoáng đạt; họ sẽ chỉ nghĩ rằng người trong làng có chiếm chút lợi lộc cỏn con thì cứ để họ chiếm, so đo làm gì cho mệt, thời gian đó để tự mình kiếm tiền còn nhanh hơn gấp bội.
 
 Đặc biệt là Thẩm Tử Ngôn và Từ Mạn Mạn, ngay từ bây giờ cả hai đã bộc lộ năng lực làm việc phi phàm.

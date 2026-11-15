@@ -1,7 +1,5 @@
 # Chương 179: Toàn tâm toàn ý
 
-> **Tiêu đề gốc**: 第179章 心无旁骛。
-
 Sáng hôm sau.
 
 Thẩm Tử Ngôn gõ cửa phòng của Triệu Kim An.
@@ -66,7 +64,7 @@ Trần Trạch trả lời quán đã mở cửa rồi, nhưng chưa vào năm h
 
 Diêu Sân thì nhắn tin hỏi thăm xem hội chị em cùng phòng đang làm những gì.
 
-Mộc Dao nhảy vào hỏi thẳng xem Triệu Kim An đang ở phương trời nào, bảo mình đang cùng Du Phỉ và mấy cô bạn dạo phố mua sắm.
+Mộc Dao nhảy vào hỏi thẳng xem Triệu Kim An đang ở phương trời nào, bảo mình đang cùng Du Phi và mấy cô bạn dạo phố mua sắm.
 
 Duy chỉ có Từ Mạn Mạn là tuyệt nhiên không thấy sủi tăm.
 

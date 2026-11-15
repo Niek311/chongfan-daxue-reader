@@ -1,7 +1,5 @@
 # Chương 472: Đêm Đen, Bờ Cát
 
-> **Tiêu đề gốc**: 第472章 黑夜，海滩。
-
 Đoạn đường dẫn vào khu cảng lúc này tạm thời bị phong tỏa, không một bóng xe tải hạng nặng nào qua lại.
 
 Tô Miến hướng mắt nhìn qua khung cửa kính xe, tò mò cất giọng hỏi: "Kim An, chỗ quặng này có tất cả bao nhiêu tấn vậy anh?"
@@ -12,15 +10,15 @@ Quách Uyển Thanh ngồi cạnh tấm tắc: "Thảo nào trông lại hùng v
 
 Tô Mặc ở phía sau thì lặng lẽ nhẩm tính ra con số tiền mặt khổng lồ. Đây đâu phải là những đống quặng sắt đen thô ráp, đây rõ ràng là cả một ngọn núi vàng ròng sừng sững!
 
-Xưa nay Tô Miến chẳng bao giờ can dự hay dò hỏi công việc kinh doanh của Triệu Kim An. Những nhân sự do Hứa Mạn Mạn sắp xếp từ tổng công ty sang ngày thứ hai đã có mặt đầy đủ tại Chu Sơn. Khi Triệu Kim An lướt mắt qua danh sách, anh bất chợt sững người khi nhận ra một gương mặt quen thuộc... Diêu Sân?
+Xưa nay Tô Miến chẳng bao giờ can dự hay dò hỏi công việc kinh doanh của Triệu Kim An. Những nhân sự do Từ Mạn Mạn sắp xếp từ tổng công ty sang ngày thứ hai đã có mặt đầy đủ tại Chu Sơn. Khi Triệu Kim An lướt mắt qua danh sách, anh bất chợt sững người khi nhận ra một gương mặt quen thuộc... Diêu Sân?
 
 "Diêu Sân không phải chuẩn bị sang mảng khách sạn làm việc sao?"
 
 Thực chất công việc tại cảng Chu Sơn vô cùng đơn giản, chủ yếu là tham gia vào khâu kiểm toán và số liệu: cảng dỡ xuống bao nhiêu tấn hàng, xưởng gia công xuất ra bao nhiêu quặng, bán ra thị trường với mức giá nào. Mọi việc đều minh bạch, không đến mức phức tạp và cân não như vị trí của Mạnh Hiến Giang túc trực bên Úc.
 
-Diêu Sân sau khi nhận được thông báo nội bộ, đã chủ động gọi điện cho Hứa Mạn Mạn tha thiết xin được điều chuyển tới cảng Chu Sơn.
+Diêu Sân sau khi nhận được thông báo nội bộ, đã chủ động gọi điện cho Từ Mạn Mạn tha thiết xin được điều chuyển tới cảng Chu Sơn.
 
-Hứa Mạn Mạn từng hỏi cô bạn cùng phòng: "Tại sao cậu lại muốn đi?"
+Từ Mạn Mạn từng hỏi cô bạn cùng phòng: "Tại sao cậu lại muốn đi?"
 
 Diêu Sân chân thành bộc bạch: "Mạn Mạn, tớ muốn ra ngoài va vấp nhiều hơn. Tớ tin mình xứng đáng với sự tín nhiệm của công ty."
 
@@ -42,7 +40,7 @@ Việc Diêu Sân xin tới cảng Chu Sơn chẳng hề liên quan gì đến T
 
 Bởi suốt thời gian qua, Thẩm Tử Ngôn chưa từng hồi âm lấy một tin nhắn nào của Diêu Sân.
 
-Triệu Kim An bắt đầu phân chia và giao phó nhiệm vụ. Có vài người cứ chực mở miệng nói gì đó, nhìn sang Tô Miến rồi lại lúng túng ngậm miệng lại. Hứa Mạn Mạn ở tổng công ty vốn dĩ đã hoạch định vô cùng hợp lý từng vị trí công tác cho chuyến công tác Chu Sơn lần này.
+Triệu Kim An bắt đầu phân chia và giao phó nhiệm vụ. Có vài người cứ chực mở miệng nói gì đó, nhìn sang Tô Miến rồi lại lúng túng ngậm miệng lại. Từ Mạn Mạn ở tổng công ty vốn dĩ đã hoạch định vô cùng hợp lý từng vị trí công tác cho chuyến công tác Chu Sơn lần này.
 
 Phía Hùng tổng và La Kiến Thành hoàn toàn không có dị nghị gì trước việc Cảng vụ Hoàn Vũ cử người tới cắm chốt. Đây là lẽ đương nhiên trên thương trường, hợp tác làm ăn dựa trên pháp lý và minh bạch chứ không thể chỉ phó mặc cho hai chữ tin tưởng.
 
@@ -74,7 +72,7 @@ Tiêu Kim Dũng liếc nhìn Diêu Sân một cái. 1,26 triệu tấn quặng s
 
 Diêu Sân rụt rè bước theo phía sau. Ngày trước, cô từng ôm mộng tưởng ngây thơ rằng mấy chị em phòng 406 gồm Tử Ngôn, Mạn Mạn và Dao Dao có thể liên thủ lại để đối đầu với Tô Miến. Giờ đây tận mắt đứng trước khí chất bức người mà trầm tĩnh của Tô Miến, chút suy nghĩ nông nổi ấy hoàn toàn tan biến, cô mới nhận ra bản thân trước kia ấu trĩ và viển vông đến nhường nào.
 
-Khí chất ngút ngàn của Tô Miến... Nhớ lại ngày đó ở trường đại học, Hứa Mạn Mạn còn có thể gắng gượng "đối đầu" ngang ngửa với Tô Miến, Diêu Sân mới thấm thía khoảng cách xa xôi vạn dặm giữa người với người.
+Khí chất ngút ngàn của Tô Miến... Nhớ lại ngày đó ở trường đại học, Từ Mạn Mạn còn có thể gắng gượng "đối đầu" ngang ngửa với Tô Miến, Diêu Sân mới thấm thía khoảng cách xa xôi vạn dặm giữa người với người.
 
 Tô Miến liếc nhìn màn hình điện thoại, vẫn không thấy tin nhắn hồi âm của Thẩm Tử Ngôn.
 
@@ -140,7 +138,7 @@ Diêu Sân vội vàng bước lên một bước. Tô Miến vẫn nhìn chăm 
 
 Diêu Sân dường như hiểu ý, mà lại dường như hoàn toàn mông lung. Câu hỏi này quá đỗi bao quát và nhạy cảm, bất kể có đúng như những gì mình phỏng đoán trong lòng hay không, Diêu Sân đều không thể và không dám đưa ra câu trả lời.
 
-"Hứa Mạn Mạn tốt, hay là Thẩm Tử Ngôn tốt?"
+"Từ Mạn Mạn tốt, hay là Thẩm Tử Ngôn tốt?"
 
 Không đợi Diêu Sân lên tiếng, Tô Miến không hề quay đầu lại, tiếp tục hỏi bằng chất giọng bình thản như không: "Hay là... mối tình đầu Mộc Dao?"
 
@@ -170,7 +168,7 @@ Chẳng hiểu vì cớ gì, Thẩm Tử Ngôn đã mấy lần toan nhấc châ
 
 Hiện tại, giữa hai người họ còn có thể nói được câu gì nữa đây?
 
-Thẩm Tử Ngôn có lòng kiêu hãnh tột cùng của riêng mình. Đã có một Tô Miến, lại thêm một Hứa Mạn Mạn... cô thấy thực sự không còn cần thiết nữa rồi.
+Thẩm Tử Ngôn có lòng kiêu hãnh tột cùng của riêng mình. Đã có một Tô Miến, lại thêm một Từ Mạn Mạn... cô thấy thực sự không còn cần thiết nữa rồi.
 
 "Vô dụng thì là vô dụng, thua cuộc thì chính là thua cuộc."
 

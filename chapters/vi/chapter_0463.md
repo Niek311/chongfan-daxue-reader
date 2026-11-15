@@ -1,7 +1,5 @@
 # Chương 463: Chào mừng đến với Quận Sa
 
-> **Tiêu đề gốc**: 第463章 欢迎来到郡沙。
-
 "Vãi chưởng, lão Cốc ông cũng tậu xế hộp rồi đấy à?!"
 
 "Làm sao dám so bì với các ông được, tôi mua con xe cỏ che mưa che nắng thôi, lăn bánh tất tần tật hơn mười ba vạn."

@@ -1,7 +1,5 @@
 # Chương 500: Giữ cho vững
 
-> **Tiêu đề gốc**: 第500章 守好。
-
 "Em hiểu rõ, em cảm ơn Lạc tổng đã có lòng nhắc nhở. Nhưng đây là kế hoạch mà Kim An đã muốn dốc sức giành lấy từ trước Tết..."
 
 Từ Mạn Mạn cố gắng hết sức bình sinh để chèo chống, duy trì cỗ máy công ty vận hành bình thường. Cô tuyệt đối chẳng hề có được cái vẻ phong quang, rạng rỡ của một vị "Từ tổng" tập đoàn nghìn tỷ như miệng đời vẫn thường thêu dệt, ngợi ca.
@@ -28,7 +26,7 @@ Diêu Sân đang cắm chốt ở Cảng Chu Sơn cũng đành bất lực bó t
 
 Diêu Sân sau những năm tháng học đại học và lăn lộn thương trường đã hiểu chuyện hơn rất nhiều. Nhận được cuộc gọi giãi bày của Từ Mạn Mạn, hiếm hoi lắm cô mới kìm lại được mà không nhắn tin kể lể với Thẩm Tử Ngôn. Điều duy nhất Diêu Sân có thể làm lúc này là căng mắt ra giám sát chặt chẽ từng khâu bốc dỡ hàng hóa, nhập kho, xuất kho, tuyệt đối không để phía Chinalco chiếm dụng hay bớt xén dù chỉ một xu trên sổ sách kế toán.
 
-Từ Mạn Mạn không hề gọi điện hối thúc Du Phỉ, cũng chẳng bao giờ đem đứa con gái nhỏ Triệu Tri Nặc ra làm bia đỡ đạn, chẳng hạn như than thở rằng con bé nhớ bố hay khát sữa.
+Từ Mạn Mạn không hề gọi điện hối thúc Du Phi, cũng chẳng bao giờ đem đứa con gái nhỏ Triệu Tri Nặc ra làm bia đỡ đạn, chẳng hạn như than thở rằng con bé nhớ bố hay khát sữa.
 
 Bé Triệu Tri Nặc sinh trước cặp song sinh bốn tháng, giờ đây đã được gần nửa tuổi.
 
@@ -86,7 +84,7 @@ Nơi Kinh Đô xa xôi vẫn tuyệt nhiên không có lấy một tia hy vọng
 
 Thậm chí đến cả một cái khẽ nhúc nhích nơi đầu ngón tay cũng chưa từng xuất hiện.
 
-Nếu thực sự có một chuyển biến tốt đẹp nào đó, Du Phỉ chắc chắn đã là người đầu tiên báo tin mừng về Quận Sa.
+Nếu thực sự có một chuyển biến tốt đẹp nào đó, Du Phi chắc chắn đã là người đầu tiên báo tin mừng về Quận Sa.
 
 Ý nghĩ buột miệng của cậu bạn trai Lý Lộ hôm trước thực chất chẳng có gì sai cả. Miệng lưỡi thế gian tuy ngoài mặt không ai dám hé răng bàn tán, nhưng trong thâm tâm ai nấy đều thầm tính toán: Liệu Tô Miến còn có thể tỉnh lại được nữa không? Nếu không tỉnh lại, dẫu có cả núi tiền đắp vào duy trì sự sống thì thân xác mỏng manh kia liệu có thể chống chọi được thêm mấy năm ròng?
 
@@ -128,7 +126,7 @@ Triệu Trí Dũng ngập ngừng, khéo léo gợi mở vài câu về tình h�
 
 Mộc Dao khẽ gật đầu, ra hiệu là mình đều đã nắm rõ mọi chuyện.
 
-"Triệu Trí Dũng, có phải cậu với Du Phỉ đều đinh ninh rằng tớ quay trở về nước lần này là để tranh giành cái gì đó với Từ Mạn Mạn đúng không? Tranh giành mấy cái công ty của Kim An sao?"
+"Triệu Trí Dũng, có phải cậu với Du Phi đều đinh ninh rằng tớ quay trở về nước lần này là để tranh giành cái gì đó với Từ Mạn Mạn đúng không? Tranh giành mấy cái công ty của Kim An sao?"
 
 "Không có..."
 
@@ -152,9 +150,9 @@ Tại thôn Triệu Gia.
 
 Triệu Kim An muốn đưa Tô Miến trở về thôn Triệu Gia tĩnh dưỡng. Các bác sĩ chuyên khoa đầu ngành sau khi hội chẩn đã đưa ra ý kiến rằng đưa bệnh nhân về lại không gian thân thuộc, thanh bình có khi lại là một liệu pháp tâm lý tốt để kích thích não bộ, thử một phen cũng không hại gì. Vợ chồng Tô Minh Tùng và Quách Uyển Thanh cuối cùng đã gật đầu đồng ý.
 
-Du Phỉ nắm chặt chiếc điện thoại trong tay, nhưng tuyệt đối không hé răng báo tin cho bất kỳ ai. Cô không báo cho Mộc Dao, và cũng không gửi lấy một lời nhắn nào cho Từ Mạn Mạn.
+Du Phi nắm chặt chiếc điện thoại trong tay, nhưng tuyệt đối không hé răng báo tin cho bất kỳ ai. Cô không báo cho Mộc Dao, và cũng không gửi lấy một lời nhắn nào cho Từ Mạn Mạn.
 
-Nhìn thấy bộ dạng tiều tụy, xơ xác đến thảm thương của Triệu Kim An lúc này, Du Phỉ nhìn vào mà ruột gan đau như cắt.
+Nhìn thấy bộ dạng tiều tụy, xơ xác đến thảm thương của Triệu Kim An lúc này, Du Phi nhìn vào mà ruột gan đau như cắt.
 
 Huống hồ, vào thời điểm ngổn ngang trăm mối này, liệu Từ Mạn Mạn có thể đường hoàng bước chân về thôn Triệu Gia hay không?
 

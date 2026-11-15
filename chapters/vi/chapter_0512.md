@@ -1,7 +1,5 @@
 # Chương 512: Tựa như một cái hố không đáy
 
-> **Tiêu đề gốc**: 第512章 就像个无底洞。
-
 Dưới tầng trệt.
 
 Khu mua sắm Trăn Hối Tuyển.
@@ -140,7 +138,7 @@ Tô Mặc ở đầu dây cất giọng thở dài: "Tiền bạc chẳng phải
 
 "Bản thân cậu ấy chưa từng bớt xén hay rút riêng lấy một đồng tiền mặt nào từ công ty để tiêu xài cá nhân cả."
 
-Đó cũng chính là suy nghĩ bấy lâu nay của Du Phỉ và Từ Mạn Mạn. Trên người Triệu Kim An xưa nay thực chất chẳng có lấy bao nhiêu tiền mặt. Mỗi khi anh đi công tác xa hay ra ngoài xử lý công việc, toàn bộ mọi chi phí từ lớn đến nhỏ đều do một tay Du Phỉ quẹt thẻ chi trả.
+Đó cũng chính là suy nghĩ bấy lâu nay của Du Phi và Từ Mạn Mạn. Trên người Triệu Kim An xưa nay thực chất chẳng có lấy bao nhiêu tiền mặt. Mỗi khi anh đi công tác xa hay ra ngoài xử lý công việc, toàn bộ mọi chi phí từ lớn đến nhỏ đều do một tay Du Phi quẹt thẻ chi trả.
 
 Ngay cả số tiền mười triệu tệ mà trước đây Triệu Kim An gửi gắm riêng cho con gái Triệu Tri Nặc, Từ Mạn Mạn trong lúc ngặt nghèo cùng quẫn cũng đã cắn răng rút sạch đem đi bù vào các khoản chi khẩn cấp của công ty.
 
@@ -190,7 +188,7 @@ Lưu Hiểu Tĩnh làm sao mà không nhìn thấu tâm can bọn họ, chỉ c�
 
 Hoàn Vũ Trăn Phẩm là trung tâm thương mại quy mô lớn nhất Quận Sa, thậm chí có thể coi là đại siêu thị sầm uất bậc nhất cả vùng miền Trung rộng lớn này. Đám người đó chẳng lẽ đang toan tính nhân ngày khai trương, mỗi người sẽ vơ vét vài chiếc túi xách hàng hiệu nghìn đô xách về nhà xài miễn phí chắc? Tập đoàn không cần phải móc tiền túi ra thanh toán với các nhãn hàng quốc tế hay sao?
 
-Dõi mắt nhìn theo bóng dáng cô độc của Từ Mạn Mạn ôm con rảo bước vội vã trong dòng người, Thẩm Tử Ngôn khẽ thở dài, cất giọng trầm ngâm: "Dao Dao, cậu vẫn nên bấm máy gọi điện hỏi cho ra lẽ từ chỗ Du Phỉ xem rốt cuộc Kim An đang trốn ở xó xỉnh nào. Xem chừng chuỗi lưu chuyển dòng tiền của tập đoàn đang lâm vào khủng hoảng vô cùng nghiêm trọng rồi..."
+Dõi mắt nhìn theo bóng dáng cô độc của Từ Mạn Mạn ôm con rảo bước vội vã trong dòng người, Thẩm Tử Ngôn khẽ thở dài, cất giọng trầm ngâm: "Dao Dao, cậu vẫn nên bấm máy gọi điện hỏi cho ra lẽ từ chỗ Du Phi xem rốt cuộc Kim An đang trốn ở xó xỉnh nào. Xem chừng chuỗi lưu chuyển dòng tiền của tập đoàn đang lâm vào khủng hoảng vô cùng nghiêm trọng rồi..."
 
 "Tô Miến thì đang nằm một chỗ như thế... Còn cái tính bướng bỉnh của Từ Mạn Mạn thì dù có sụp đổ đến nơi cũng sẽ cắn răng chịu đựng một mình chứ quyết không bao giờ chịu mở mồm van nài ai..."
 
@@ -200,7 +198,7 @@ Mộc Dao lặng lẽ rút chiếc điện thoại từ trong túi xách ra, tro
 
 "Có vài điểm cốt tử sai lầm."
 
-Thẩm Tử Ngôn sở hữu một sự tự tin kiêu hãnh của riêng mình. Thẩm Vĩnh Đàm và Lục Mai Tiêu ngay từ thuở nhỏ đã dày công bồi dưỡng bản lĩnh thương trường cho cô và luôn dành trọn sự tin tưởng tuyệt đối cho con gái. Cùng là những đứa trẻ sinh ra từ vạch đích, là con nhà tài phiệt giàu có đời thứ hai, nhưng cách thức giáo dục khai phóng của nhà họ Thẩm hoàn toàn khác biệt một trời một vực so với cái cách Dương Thục Mỹ o bế, nuông chiều Trần Trạch.
+Thẩm Tử Ngôn sở hữu một sự tự tin kiêu hãnh của riêng mình. Thẩm Vĩnh Đàm và Lục Mai Tiêu ngay từ thuở nhỏ đã dày công bồi dưỡng bản lĩnh thương trường cho cô và luôn dành trọn sự tin tưởng tuyệt đối cho con gái. Cùng là những đứa trẻ sinh ra từ vạch đích, là con nhà tài phiệt giàu có đời thứ hai, nhưng cách thức giáo dục khai phóng của nhà họ Thẩm hoàn toàn khác biệt một trời một vực so với cái cách Dương Thù Mỹ o bế, nuông chiều Trần Trạch.
 
 Cô nheo mắt nhìn về hướng Từ Mạn Mạn vừa khuất bóng: "Vụ việc của Mã Tư Bình, cô ấy đã xử lý hoàn toàn sai lầm về mặt thao tác chiến lược. Nếu đổi lại là tớ..."
 

@@ -1,7 +1,5 @@
 # Chương 224: Hay là...
 
-> **Tiêu đề gốc**: 第224章 不如....
-
 Đoàn xe lại tiếp tục lăn bánh.
 
 Triệu Kim An chăm chú lái xe, khóe môi bất giác vương một nụ cười kín đáo.

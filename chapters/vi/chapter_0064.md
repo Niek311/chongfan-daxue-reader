@@ -1,7 +1,5 @@
 # Chương 64: Cậu đã dành trọn sự dịu dàng cho người nhà
 
-> **Tiêu đề gốc**: 第64章 你的温柔全给了你家里人。
-
 "Haizz, lại cãi nhau ầm ĩ lên rồi kìa."
 
 Những người đứng bên ngoài nhìn nhau đầy ái ngại. Hồ Thần rướn dài cổ dỏng tai nghe ngóng, bụng thầm nghĩ chẳng lẽ công ty sắp đổi ông chủ mới thật rồi sao? Còn cái câu "hầu cậu chơi không công suốt ba năm trời" rốt cuộc là có ý tứ gì chứ?

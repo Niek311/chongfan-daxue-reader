@@ -1,7 +1,5 @@
 # Chương 213: Giờ biết lừa người ta rồi đấy
 
-> **Tiêu đề gốc**: 第213章 现在骗人了。
-
 Triệu Kim An nhận ra mình hơi lỡ lời, làm gì có ai lại đi bêu xấu con gái lớp mình như thế, bèn chuyển chủ đề: "Tôi đang tính tuyển một cô thư ký đây."
 
 "Lý Ngải Lan chứ gì!!!"
@@ -30,7 +28,7 @@ Triệu Kim An liếc nhìn đồng hồ, lúc này là 15 giờ 48 phút, liề
 
 "Dạ, có tôi đây ông chủ."
 
-Đơn Vĩ đang cặm cụi rửa chiếc xe Mercedes ngoài sân. Những ngày Triệu Kim An không đi công tác xa, công việc của Đơn Vĩ tương đối nhàn hạ, hết cọ rửa chiếc Audi lại quay sang lau chùi chiếc Mercedes, tóm lại là hai chiếc xe của công ty chưa bao giờ dính một hạt bụi bẩn.
+Đan Vĩ đang cặm cụi rửa chiếc xe Mercedes ngoài sân. Những ngày Triệu Kim An không đi công tác xa, công việc của Đan Vĩ tương đối nhàn hạ, hết cọ rửa chiếc Audi lại quay sang lau chùi chiếc Mercedes, tóm lại là hai chiếc xe của công ty chưa bao giờ dính một hạt bụi bẩn.
 
 Ngay cả mâm vành bánh xe cũng được ông lau sáng bóng như gương, thỉnh thoảng ông lại bật nắp ca-pô lên ngó nghiêng kiểm tra máy móc.
 
@@ -46,7 +44,7 @@ Thẩm Tử Ngôn nhìn Triệu Kim An đứng nơi hành lang, khẽ nở nụ 
 
 Triệu Bác Lan cất tiếng dặn theo.
 
-Bà Lưu Mỹ Nga dạo này đã chuyển lên Quận Sa ở, nhưng mọi người vẫn quen tụ tập ăn uống dưới tầng một nhà Đơn Vĩ. Thật ra cũng không phải tụ tập thường xuyên, chỉ là mỗi lần liên hoan nội bộ thì mọi người đều chọn nhà Đơn Vĩ cho ấm cúng, chứ hiếm khi kéo nhau ra các nhà hàng hay quán ăn Hồ Nam bên ngoài.
+Bà Lưu Mỹ Nga dạo này đã chuyển lên Quận Sa ở, nhưng mọi người vẫn quen tụ tập ăn uống dưới tầng một nhà Đan Vĩ. Thật ra cũng không phải tụ tập thường xuyên, chỉ là mỗi lần liên hoan nội bộ thì mọi người đều chọn nhà Đan Vĩ cho ấm cúng, chứ hiếm khi kéo nhau ra các nhà hàng hay quán ăn Hồ Nam bên ngoài.
 
 Mọi người quay trở lại phòng làm việc bận rộn thêm một lúc. Triệu Kim An cầm điện thoại lên, bấm số gọi cho Từ Mạn Mạn.
 
@@ -78,11 +76,11 @@ Nhìn bề ngoài, bà Lưu Mỹ Nga trông cũng giống như bao người bìn
 
 Thế nhưng gương mặt bà lại rất xinh đẹp, vóc dáng và đường nét như được đúc ra từ cùng một khuôn với Đường Hiểu Tình.
 
-Bà Lưu Mỹ Nga là do Đơn Vĩ trực tiếp lái xe về quê đón lên Quận Sa. Đơn Vĩ tuyệt đối không bao giờ dám nảy sinh bất kỳ ý nghĩ tơ tưởng nào đối với bà Lưu Mỹ Nga, hay nói đúng hơn là đối với bất kỳ người phụ nữ nào xuất hiện bên cạnh Triệu Kim An, Đơn Vĩ đều giữ một khoảng cách vô cùng chừng mực và tôn kính.
+Bà Lưu Mỹ Nga là do Đan Vĩ trực tiếp lái xe về quê đón lên Quận Sa. Đan Vĩ tuyệt đối không bao giờ dám nảy sinh bất kỳ ý nghĩ tơ tưởng nào đối với bà Lưu Mỹ Nga, hay nói đúng hơn là đối với bất kỳ người phụ nữ nào xuất hiện bên cạnh Triệu Kim An, Đan Vĩ đều giữ một khoảng cách vô cùng chừng mực và tôn kính.
 
 Không phải vì bà Lưu Mỹ Nga là người đàn bà của Triệu Kim An, mà đó là sự tự giác và nguyên tắc nghề nghiệp của một người làm tài xế riêng.
 
-Xét theo lẽ thường, Đơn Vĩ và Lưu Mỹ Nga kỳ thực cũng khá xứng đôi vừa lứa, mức thu nhập và công việc hiện tại của Đơn Vĩ hoàn toàn dư sức gánh vác, "nuôi" nổi một người như bà Lưu Mỹ Nga.
+Xét theo lẽ thường, Đan Vĩ và Lưu Mỹ Nga kỳ thực cũng khá xứng đôi vừa lứa, mức thu nhập và công việc hiện tại của Đan Vĩ hoàn toàn dư sức gánh vác, "nuôi" nổi một người như bà Lưu Mỹ Nga.
 
 Bà Lưu Mỹ Nga lúc nào cũng diện một chiếc áo sơ mi vải dệt sợi tổng hợp rộng thùng thình, kéo một chiếc ghế con ngồi nhặt rau. Ở phòng trọ một mình bà thấy buồn chán vô cùng, trước kia ở dưới quê ít ra bà còn trồng luống rau, nuôi vài con gà con vịt đỡ buồn chân buồn tay.
 
@@ -164,7 +162,7 @@ Trong tâm trí bà Lưu Mỹ Nga, nếu con gái bà mà có bầu, chắc ch�
 
 "Ông chủ ơi, tôi ăn cũng thấy chẳng chua tí nào đâu!"
 
-Từ trong bếp, Đơn Vĩ cất giọng nói vọng ra.
+Từ trong bếp, Đan Vĩ cất giọng nói vọng ra.
 
 "Triệu Bác Lan ơi, thanh mai hôm nay mua ngọt lịm luôn này."
 
@@ -174,7 +172,7 @@ Từ Mạn Mạn đứng lặng một bên quan sát tất cả, cô nhận ra b
 
 Nhà Thẩm Tử Ngôn có tới hai người giúp việc, bản thân cô nàng từ nhỏ đến lớn chẳng phải động tay động chân vào bất kỳ việc nhà nào.
 
-Triệu Kim An xắn tay áo bước vào bếp. Đơn Vĩ đã mua được mớ cá sông nhỏ tươi rói, mọi nguyên liệu chuẩn bị đều đã sẵn sàng, Triệu Kim An chỉ việc cầm muôi đảo chảo. Thẩm Tử Ngôn tò mò bước theo vào xem một lát.
+Triệu Kim An xắn tay áo bước vào bếp. Đan Vĩ đã mua được mớ cá sông nhỏ tươi rói, mọi nguyên liệu chuẩn bị đều đã sẵn sàng, Triệu Kim An chỉ việc cầm muôi đảo chảo. Thẩm Tử Ngôn tò mò bước theo vào xem một lát.
 
 "Cậu có ăn thử không? Bây giờ chưa cho ớt đâu."
 
@@ -184,7 +182,7 @@ Thẩm Tử Ngôn hiếu kỳ cầm đũa nếm thử tay nghề nấu nướng 
 
 "Triệu Kim An cũng biết nấu ăn sao?"
 
-Từ Mạn Mạn không hề biết hôm nay là lần đầu tiên Triệu Kim An đích thân xuống bếp tại nhà Đơn Vĩ, ngay cả bà Lưu Mỹ Nga và Đường Hiểu Tình cũng tò mò ghé mắt nhìn vào.
+Từ Mạn Mạn không hề biết hôm nay là lần đầu tiên Triệu Kim An đích thân xuống bếp tại nhà Đan Vĩ, ngay cả bà Lưu Mỹ Nga và Đường Hiểu Tình cũng tò mò ghé mắt nhìn vào.
 
 Sau khi Thẩm Tử Ngôn nếm thử xong, Triệu Kim An bắt đầu trút ớt băm vào chảo. Trong khoảnh khắc, một mùi thơm nồng xộc thẳng lên mũi lan tỏa khắp gian bếp.
 
@@ -212,7 +210,7 @@ Từ Mạn Mạn thầm ghi nhớ từng chi tiết ấy vào lòng, bồi đắ
 
 Gian bếp vốn nhỏ hẹp, ba người đứng vào là đã thấy chật chội xoay xở không xuể.
 
-Sau khi Thẩm Tử Ngôn chạy ra ngoài, Từ Mạn Mạn liền bước vào trong. Cô muốn tìm chút việc gì đó phụ giúp cho đỡ ngại, Đơn Vĩ hiểu ý liền bảo cô bóc giúp mấy tép tỏi. Từ Mạn Mạn liền đứng nép bên bồn rửa bát, cắm cúi tỉ mẩn bóc từng tép tỏi một.
+Sau khi Thẩm Tử Ngôn chạy ra ngoài, Từ Mạn Mạn liền bước vào trong. Cô muốn tìm chút việc gì đó phụ giúp cho đỡ ngại, Đan Vĩ hiểu ý liền bảo cô bóc giúp mấy tép tỏi. Từ Mạn Mạn liền đứng nép bên bồn rửa bát, cắm cúi tỉ mẩn bóc từng tép tỏi một.
 
 Thế nhưng loay hoay mãi nửa ngày trời mà cô vẫn chưa bóc nổi hai tép tỏi.
 
@@ -226,19 +224,19 @@ Từ Mạn Mạn ngoan ngoãn đón lấy củ tỏi đã đập dập, lại ti
 
 Từ Mạn Mạn thỉnh thoảng lại ngước mắt ngắm nhìn góc nghiêng của Triệu Kim An khi cậu đứng xào nấu. Hôm nay cô lại diện một chiếc quần bò ôm sát, dáng người thực sự chuẩn mực đến từng đường nét, đường cong chữ S uốn lượn rõ rệt, toát lên một vẻ đẹp căng tràn sức sống thanh xuân.
 
-Đến lúc chuẩn bị dọn cơm thì cô nữ sinh lớp 12 Đơn Na Tề vừa tan học về tới nhà.
+Đến lúc chuẩn bị dọn cơm thì cô nữ sinh lớp 12 Đan Na Tề vừa tan học về tới nhà.
 
 "Oa, anh Kim An ơi, mấy món này là do đích thân anh xào đấy ạ?"
 
-Từ Mạn Mạn bấy giờ mới biết hôm nay quả thực là lần đầu tiên Triệu Kim An trổ tài nấu nướng tại nhà Đơn Vĩ. Mọi người quây quần ngồi quanh chiếc bàn ăn tròn, Từ Mạn Mạn bưng bát cơm, nhát đũa đầu tiên liền gắp ngay vào đĩa cá do chính tay Triệu Kim An nấu.
+Từ Mạn Mạn bấy giờ mới biết hôm nay quả thực là lần đầu tiên Triệu Kim An trổ tài nấu nướng tại nhà Đan Vĩ. Mọi người quây quần ngồi quanh chiếc bàn ăn tròn, Từ Mạn Mạn bưng bát cơm, nhát đũa đầu tiên liền gắp ngay vào đĩa cá do chính tay Triệu Kim An nấu.
 
-Đường Hiểu Tình và Đơn Na Tề đã thi nhau cất lời khen ngợi nức nở.
+Đường Hiểu Tình và Đan Na Tề đã thi nhau cất lời khen ngợi nức nở.
 
-Đơn Vĩ ngồi bên cạnh mặt nghệt ra: "..."
+Đan Vĩ ngồi bên cạnh mặt nghệt ra: "..."
 
 Mình cặm cụi nấu tận sáu món ngon lành cành đào mà chẳng thấy ai khen lấy một câu?
 
-May sao Thẩm Tử Ngôn không ăn được cay, Đơn Vĩ cười hớn hở gắp thức ăn: "Thẩm quản lý, cháu ăn nhiều chân giò hầm vào nhé."
+May sao Thẩm Tử Ngôn không ăn được cay, Đan Vĩ cười hớn hở gắp thức ăn: "Thẩm quản lý, cháu ăn nhiều chân giò hầm vào nhé."
 
 Bà Lưu Mỹ Nga đang bưng bát cơm bỗng cất lời: "Đợt tới tôi tính gói ít bánh chưng, Triệu tổng và mọi người có thích ăn bánh chưng không?"
 
@@ -268,7 +266,7 @@ Bà Lưu Mỹ Nga nghe thấy vội vàng xua tay lia lịa: "Ấy chết, khôn
 
 Triệu Bác Lan nói đỡ vào: "Dì đừng ngại ngùng làm gì, tiền nguyên liệu cả đấy."
 
-Đơn Vĩ cũng gật đầu tiếp lời: "Tôi đi chợ mua đồ ăn toàn lên tầng hai thanh toán hết đấy bà nó ạ."
+Đan Vĩ cũng gật đầu tiếp lời: "Tôi đi chợ mua đồ ăn toàn lên tầng hai thanh toán hết đấy bà nó ạ."
 
 Từ Mạn Mạn đưa mắt nhìn quanh bàn ăn, trong lòng trào dâng một cảm giác ấm cúng hệt như đang ở trong chính gia đình mình.
 

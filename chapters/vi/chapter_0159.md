@@ -1,7 +1,5 @@
 # Chương 159: Tiểu Tuyết nhà mình đâu có khoác tay Kim An chứ?
 
-> **Tiêu đề gốc**: 第159章 我的小雪不会挽今安胳膊吧？
-
 Lưu Xuyên rụng tóc từng mảng lớn vì lo nghĩ. Ông đã thế chấp toàn bộ bất động sản của gia đình, lại còn phải chạy vạy vay thêm một khoản tiền lớn từ ngân hàng.
 
 Các xưởng cung cấp linh kiện cấp dưới ngày nào cũng kéo người đến vây kín cổng đòi nợ.

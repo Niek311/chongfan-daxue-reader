@@ -1,7 +1,5 @@
 # Chương 516: Thế này là gì? Là tình yêu sao?
 
-> **Tiêu đề gốc**: 第516章 这是什么？爱情？
-
 "Thôi được rồi, hai mươi tư triệu thì hai mươi tư triệu!"
 
 "Đi mau, đi nhanh lên giùm tôi cái!!!"
@@ -92,13 +90,13 @@ Nơi Kinh Đô xa xôi.
 
 Quách Uyển Thanh đã gọi không biết bao nhiêu cuộc điện thoại, cất giọng nài nỉ: "Kim An à, con hãy đưa Tô Miến trở về đi con..."
 
-Bố mẹ của Du Phỉ là ông Du Trí Viễn và bà Lưu Văn Tinh từng lặn lội tìm về Triệu Gia Thôn một chuyến. Tận mắt nhìn thấy một Tô Miến hôn mê bất tỉnh, rồi lại nhìn sang Triệu Kim An, bà Lưu Văn Tinh kinh ngạc đến mức gần như không dám tin vào mắt mình: gò má hóp sâu, cằm gầy nhọn hoắt...
+Bố mẹ của Du Phi là ông Du Trí Viễn và bà Lưu Văn Tinh từng lặn lội tìm về Triệu Gia Thôn một chuyến. Tận mắt nhìn thấy một Tô Miến hôn mê bất tỉnh, rồi lại nhìn sang Triệu Kim An, bà Lưu Văn Tinh kinh ngạc đến mức gần như không dám tin vào mắt mình: gò má hóp sâu, cằm gầy nhọn hoắt...
 
 Chàng trai khôi ngô tuấn tú, phong độ ngời ngời ngày nào, cớ sao nay lại tiều tụy, xơ xác đến nông nỗi này?
 
 Đây chính là lần Triệu Kim An kề cận bên cạnh Tô Miến dài ngày nhất kể từ khi hai người quen biết nhau.
 
-Ngay cả một người bộc trực như Du Phỉ cũng hiểu thấu: Lúc này mới cuống cuồng chạy đến để "bù đắp", thử hỏi còn có ý nghĩa gì nữa đây?
+Ngay cả một người bộc trực như Du Phi cũng hiểu thấu: Lúc này mới cuống cuồng chạy đến để "bù đắp", thử hỏi còn có ý nghĩa gì nữa đây?
 
 Bất cứ ai chỉ cần giữ lại cho mình chút lý trí tỉnh táo đều hiểu rõ: Điều quan trọng hơn lúc này là phải chăm lo cho Triệu Tri Nặc, cho cặp song sinh Triệu Tri Hành và Triệu Tri Vi, cùng những con người đang ngày đêm thực lòng lo lắng cho anh. Những chân lý đao to búa lớn ấy, trên đời này ai mà chẳng tỏ tường?
 

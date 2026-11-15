@@ -1,7 +1,5 @@
 # Chương 423: Là tình yêu...
 
-> **Tiêu đề gốc**: 第423章 是爱情...
-
 Ga tàu cao tốc.
 
 Một tiếng "tiểu cô gia" giòn giã của Tô Quân Dương khiến Triệu Kim An giật thót mình, suýt chút nữa thì sững lại giữa dòng người.

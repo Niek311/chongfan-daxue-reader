@@ -1,7 +1,5 @@
 # Chương 409: Một chuỗi Hoàn Vũ Cảng Vụ (Hải Ngoại)
 
-> **Tiêu đề gốc**: 第409章 一串寰宇港务（海外）
-
 "Trần Trạch, bạn học của con đấy à?"
 
 Bà Dương Xu Mỹ ghé tai con trai khẽ cất tiếng hỏi.

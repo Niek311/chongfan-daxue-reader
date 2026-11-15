@@ -1,7 +1,5 @@
 # Chương 430: Mọi người đến rồi đấy à?
 
-> **Tiêu đề gốc**: 第430章 你们来了？
-
 Quan Văn Bách cúp máy, quay sang nói với Từ Mạn Mạn đang ngồi bưng bát ăn cơm bên bàn ăn: "Từ tổng, ông chủ bảo tùy cô định đoạt, miễn sao trong lòng cô cảm thấy thoải mái là được, không cần câu nệ chuyện hiếu thuận hay bất hiếu, tự cô nắm bắt là được rồi."
 
 "Còn nữa, ông chủ bảo con của hai người sau này nhất định sẽ hiếu thảo, tuyệt đối không bị ảnh hưởng bởi cô đâu."

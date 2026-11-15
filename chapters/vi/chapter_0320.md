@@ -1,7 +1,5 @@
 # Chương 320: Cậu đã cất công sang tận đấy rồi, vậy thì là cậu đấy
 
-> **Tiêu đề gốc**: 第320章 你去都去了，就你了。
-
 Nhan Hi khẽ gật đầu: "Em hiểu rõ rồi ạ."
 
 Triệu Kim An hiểu rất rõ rằng ngay cả khi phải chi ra tới bốn mươi tỷ Euro thì thương vụ này về lâu dài vẫn mang lại nguồn siêu lợi nhuận khổng lồ. Ở kiếp trước, tập đoàn vận tải biển viễn dương quốc gia cũng đã đặt bút ký vào bản hợp đồng có thời hạn ba mươi lăm năm. Thế nhưng một khi đã nắm giữ trong tay tầm nhìn xuyên thời đại của người đi trước, chẳng có lý do gì mà cậu lại không tìm cách tối đa hóa món hời này về tay mình.
@@ -162,13 +160,13 @@ Huống hồ quyền chi phối và nắm quyền kiểm soát bến cảng ấy
 
 Bên ngoài khung cửa sổ, vùng vịnh Piraeus tĩnh lặng như tờ, cả một vịnh cảng mênh mông rộng lớn không một bóng người qua lại.
 
-Cả Tô Cảnh Ngôn lẫn Tô Minh Tùng đều bày tỏ quan điểm chỉ đạo nhất quán rằng Triệu Kim An nhất định phải "bằng mọi giá thâu tóm cho bằng được" cảng Piraeus này. Thế nhưng điều khiến cậu hoàn toàn không ngờ tới là chỉ hai mươi phút sau đó, chiếc điện thoại di động lại bất ngờ reo vang, và người gọi đến lại chính là đồng chí Trần Nhuệ.
+Cả Tô Cảnh Ngôn lẫn Tô Minh Tùng đều bày tỏ quan điểm chỉ đạo nhất quán rằng Triệu Kim An nhất định phải "bằng mọi giá thâu tóm cho bằng được" cảng Piraeus này. Thế nhưng điều khiến cậu hoàn toàn không ngờ tới là chỉ hai mươi phút sau đó, chiếc điện thoại di động lại bất ngờ reo vang, và người gọi đến lại chính là đồng chí Trần Nhuế.
 
 "Dì Trần đấy ạ, dì dậy sớm thế ạ?"
 
 Triệu Kim An vừa mở miệng đã gọi một tiếng "dì Trần" vô cùng tự nhiên và gần gũi, tuyệt đối không dùng từ ngữ quá mức khách sáo, xa cách.
 
-Giọng nói của Trần Nhuệ ở đầu dây bên kia vẫn thong thả, điềm đạm như thường lệ: "Lớn tuổi rồi nên khó ngủ ấy mà. Chỗ cháu bây giờ chắc đang là nửa đêm rồi nhỉ?"
+Giọng nói của Trần Nhuế ở đầu dây bên kia vẫn thong thả, điềm đạm như thường lệ: "Lớn tuổi rồi nên khó ngủ ấy mà. Chỗ cháu bây giờ chắc đang là nửa đêm rồi nhỉ?"
 
 "Đang ở khách sạn à?"
 
@@ -186,12 +184,12 @@ Triệu Kim An vội vàng chữa ngượng: "Dì Trần ơi, ban ngày con ng�
 
 "Được nói chuyện với cháu một lát thế này làm tâm trạng buổi sáng của dì thoải mái hẳn ra đấy."
 
-Trần Nhuệ cười vui vẻ một hồi lâu, có lẽ trong giới quan trường cấp cao từ trước đến nay chưa từng có một ai dám ăn nói tếu táo, tự nhiên và không chút e dè với bà như chàng trai trẻ này.
+Trần Nhuế cười vui vẻ một hồi lâu, có lẽ trong giới quan trường cấp cao từ trước đến nay chưa từng có một ai dám ăn nói tếu táo, tự nhiên và không chút e dè với bà như chàng trai trẻ này.
 
-Thông thường những nhân vật ở tầm vóc như Trần Nhuệ sẽ không bao giờ trực tiếp can thiệp vào những thương vụ kinh tế cụ thể thế này. Những suy tính sâu xa của bà và Tô Minh Tùng hoàn toàn trùng khớp với nhận định của Dư Tĩnh. Hay nói đúng hơn là Dư Tĩnh đã đoán trúng tim đen của các vị lãnh đạo cấp cao: bọn họ đều đang nghĩ tới việc mượn cơ hội này để "trả món nợ ân tình" năm xưa cho quốc gia, chứ chưa thể nào nhìn thấy trước được đại chiến lược "Vành đai và Con đường" của hậu thế sau này.
+Thông thường những nhân vật ở tầm vóc như Trần Nhuế sẽ không bao giờ trực tiếp can thiệp vào những thương vụ kinh tế cụ thể thế này. Những suy tính sâu xa của bà và Tô Minh Tùng hoàn toàn trùng khớp với nhận định của Dư Tĩnh. Hay nói đúng hơn là Dư Tĩnh đã đoán trúng tim đen của các vị lãnh đạo cấp cao: bọn họ đều đang nghĩ tới việc mượn cơ hội này để "trả món nợ ân tình" năm xưa cho quốc gia, chứ chưa thể nào nhìn thấy trước được đại chiến lược "Vành đai và Con đường" của hậu thế sau này.
 
-Cũng có thể nói rằng xuất phát điểm và góc nhìn khi cân nhắc một vấn đề của những chính khách tầm cỡ như Tô Minh Tùng hay Trần Nhuệ hoàn toàn khác biệt với giới doanh nhân. Họ không phải là người làm kinh tế thuần túy, nên sẽ không quá đặt nặng vấn đề hiệu quả sinh lời tài chính của cảng Piraeus lên hàng đầu.
+Cũng có thể nói rằng xuất phát điểm và góc nhìn khi cân nhắc một vấn đề của những chính khách tầm cỡ như Tô Minh Tùng hay Trần Nhuế hoàn toàn khác biệt với giới doanh nhân. Họ không phải là người làm kinh tế thuần túy, nên sẽ không quá đặt nặng vấn đề hiệu quả sinh lời tài chính của cảng Piraeus lên hàng đầu.
 
-Sau khi hàn huyên thêm vài câu chuyện thường nhật, đồng chí Trần Nhuệ cuối cùng cất giọng dứt khoát đưa ra kết luận:
+Sau khi hàn huyên thêm vài câu chuyện thường nhật, đồng chí Trần Nhuế cuối cùng cất giọng dứt khoát đưa ra kết luận:
 
 "Kim An à, cháu đã cất công lặn lội sang tận đấy rồi, vậy thì việc này giao trọn cho cháu đấy."

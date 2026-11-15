@@ -1,12 +1,10 @@
 # Chương 501: Lòng người
 
-> **Tiêu đề gốc**: 第501章 人气。
-
 Lại là những chuyến tàu cao tốc vun vút lao đi.
 
 Lại là một ngày trời thu ngập tràn ánh nắng rực rỡ, hanh hao.
 
-Trên suốt chặng đường từ Kinh Đô trở về Sâm Thành, lần này Tô Miến thực sự đã “ngủ thiếp đi” rồi. Du Phỉ bao trọn toàn bộ khoang thương gia. Kỳ thực, một toa thương gia trên các chuyến tàu cao tốc đầu G thường chỉ có chừng mười lăm đến hai mươi chỗ ngồi.
+Trên suốt chặng đường từ Kinh Đô trở về Sâm Thành, lần này Tô Miến thực sự đã “ngủ thiếp đi” rồi. Du Phi bao trọn toàn bộ khoang thương gia. Kỳ thực, một toa thương gia trên các chuyến tàu cao tốc đầu G thường chỉ có chừng mười lăm đến hai mươi chỗ ngồi.
 
 Vương Kim Như ngồi bên cạnh, rốt cuộc vẫn không kìm được lòng mà hỏi khẽ một câu: “Kim An à, hai đứa Triệu Tri Hành với Triệu Tri Vi có về cùng không cháu?”
 
@@ -18,9 +16,9 @@ Hai đứa nhỏ Triệu Tri Hành và Triệu Tri Vi vừa mới qua ngày đ�
 
 Tô Miến vẫn chìm sâu trong giấc ngủ triền miên.
 
-Du Phỉ nhận ra rằng, dường như trong thâm tâm Triệu Kim An thực sự chỉ xem Tô Miến như đang say sưa ngủ một giấc dài mà thôi.
+Du Phi nhận ra rằng, dường như trong thâm tâm Triệu Kim An thực sự chỉ xem Tô Miến như đang say sưa ngủ một giấc dài mà thôi.
 
-Mộc Dao lúc này đang ở Quận Sa. Du Phỉ đã trải qua không biết bao nhiêu lần đấu tranh tư tưởng giằng xé dữ dội, nhưng sau cùng cô vẫn giấu giếm, không hé răng nói cho Mộc Dao biết một lời: Rằng Triệu Kim An và Tô Miến đã cùng nhau quay về Triệu Gia Thôn.
+Mộc Dao lúc này đang ở Quận Sa. Du Phi đã trải qua không biết bao nhiêu lần đấu tranh tư tưởng giằng xé dữ dội, nhưng sau cùng cô vẫn giấu giếm, không hé răng nói cho Mộc Dao biết một lời: Rằng Triệu Kim An và Tô Miến đã cùng nhau quay về Triệu Gia Thôn.
 
 Mộc Dao chính là người con gái đầu tiên từng đặt chân đến ngôi làng Triệu Gia Thôn này.
 
@@ -34,7 +32,7 @@ Ga tàu cao tốc Sâm Thành.
 
 Có được sự chu đáo đến mức này, thứ nhất là nhờ có tiền.
 
-Du Phỉ đã trực tiếp gọi điện thoại thu xếp và thanh toán toàn bộ chi phí hậu hĩnh.
+Du Phi đã trực tiếp gọi điện thoại thu xếp và thanh toán toàn bộ chi phí hậu hĩnh.
 
 Thứ hai là bởi đích thân Tô Cảnh Hành đã gọi một cuộc điện thoại thẳng tới bàn làm việc của Viện trưởng Bệnh viện Số 1 Sâm Thành.
 
@@ -124,7 +122,7 @@ Tô Miến nằm im lìm không thể nghe thấy. Triệu Kim An cũng không h
 
 “...”
 
-Du Phỉ và Tô Mặc là lần đầu tiên cùng Tô Miến trở về Triệu Gia Thôn. Cả hai cô gái sững sờ đứng nhìn khung cảnh trước mắt, ngơ ngác nhìn những gương mặt dân dã của bà con hai bên đường, rồi chợt phát hiện ra đã có không ít người lén rơi nước mắt tự lúc nào.
+Du Phi và Tô Mặc là lần đầu tiên cùng Tô Miến trở về Triệu Gia Thôn. Cả hai cô gái sững sờ đứng nhìn khung cảnh trước mắt, ngơ ngác nhìn những gương mặt dân dã của bà con hai bên đường, rồi chợt phát hiện ra đã có không ít người lén rơi nước mắt tự lúc nào.
 
 Triệu Hữu Tài đi ngang qua trước cổng nhà mình, anh lặng lẽ cúi gằm mặt bước nhanh vào sân.
 
@@ -166,9 +164,9 @@ Dưới gian bếp củi, Doãn Hiểu Lan rơm rớm nước mắt, lòng đau 
 
 Cơm nước xong xuôi, Triệu Kim An lập tức chui tọt vào trong phòng ngủ, khép chặt then cài.
 
-Du Phỉ và Tô Mặc ngồi hóng gió ngoài khoảng sân trước. Ban ngày rảo bước ngắm nhìn, hai cô gái nhận ra Triệu Gia Thôn hiện lên một vẻ tràn trề sức sống, khắp nơi đều xanh ngắt những luống rau và vườn cây ăn trái sum sê trĩu quả. Đây chính là diện mạo của Triệu Gia Thôn ngày hôm nay sao?
+Du Phi và Tô Mặc ngồi hóng gió ngoài khoảng sân trước. Ban ngày rảo bước ngắm nhìn, hai cô gái nhận ra Triệu Gia Thôn hiện lên một vẻ tràn trề sức sống, khắp nơi đều xanh ngắt những luống rau và vườn cây ăn trái sum sê trĩu quả. Đây chính là diện mạo của Triệu Gia Thôn ngày hôm nay sao?
 
-Tô Mặc và Du Phỉ là khách phương xa, cùng với mấy vị bác sĩ đi theo đoàn, Vương Kim Như bèn bổ mấy quả dưa hấu mát lạnh, bày thêm cả mận giòn và nho ngọt lịm ra mời. Những thứ hoa quả này nhà Triệu Hữu Tài và Triệu Hữu Hằng có rất nhiều, Triệu Dược Tiến cũng xách một giỏ từ nhà mình mang sang góp vui.
+Tô Mặc và Du Phi là khách phương xa, cùng với mấy vị bác sĩ đi theo đoàn, Vương Kim Như bèn bổ mấy quả dưa hấu mát lạnh, bày thêm cả mận giòn và nho ngọt lịm ra mời. Những thứ hoa quả này nhà Triệu Hữu Tài và Triệu Hữu Hằng có rất nhiều, Triệu Dược Tiến cũng xách một giỏ từ nhà mình mang sang góp vui.
 
 Họ ngồi hóng mát ngoài hiên, nhưng tuyệt nhiên không một ai mở miệng chuyện trò.
 
@@ -180,21 +178,21 @@ Mọi ánh mắt thỉnh thoảng lại bất giác dõi về phía căn phòng 
 
 Là bài hát của ngôi sao ca nhạc nào thế nhỉ?
 
-Du Phỉ bấm điện thoại gọi về nhà, báo với bố mẹ rằng mình đã về tới nơi và hiện đang ở Triệu Gia Thôn.
+Du Phi bấm điện thoại gọi về nhà, báo với bố mẹ rằng mình đã về tới nơi và hiện đang ở Triệu Gia Thôn.
 
 Lưu Văn Tinh ở đầu dây bên kia bảo được rồi. Bà và Du Trí Viễn đều biết thời gian qua con gái ở ngoài Kinh Đô, cũng hiểu rõ ngọn ngành những biến cố kinh hoàng đã ập xuống.
 
-Hiện tại mức lương tháng của Du Phỉ đã lên tới mười sáu ngàn tệ, chế độ bảo hiểm phúc lợi đủ đầy. Lúc này vợ chồng Lưu Văn Tinh và Du Trí Viễn chỉ một lòng mong cầu Triệu Kim An bình an vô sự, mọi sự tai qua nạn khỏi. Tối muộn, Du Phỉ trở về nhà mình ngủ.
+Hiện tại mức lương tháng của Du Phi đã lên tới mười sáu ngàn tệ, chế độ bảo hiểm phúc lợi đủ đầy. Lúc này vợ chồng Lưu Văn Tinh và Du Trí Viễn chỉ một lòng mong cầu Triệu Kim An bình an vô sự, mọi sự tai qua nạn khỏi. Tối muộn, Du Phi trở về nhà mình ngủ.
 
-Vừa bước vào cửa, Lưu Văn Tinh đã túm lấy Du Phỉ gặng hỏi xem tình hình Tô Miến giờ ra sao rồi.
+Vừa bước vào cửa, Lưu Văn Tinh đã túm lấy Du Phi gặng hỏi xem tình hình Tô Miến giờ ra sao rồi.
 
-Du Phỉ ủ rũ lắc đầu, nghẹn ngào bảo rằng ở Triệu Gia Thôn, có đến hơn một nửa dân làng mở miệng ra là gọi Tô Miến bằng thím út.
+Du Phi ủ rũ lắc đầu, nghẹn ngào bảo rằng ở Triệu Gia Thôn, có đến hơn một nửa dân làng mở miệng ra là gọi Tô Miến bằng thím út.
 
 “Dao Dao, Mạn Mạn, Tử Ngôn... điểm này các cậu vĩnh viễn chẳng bao giờ bì được với Tô Miến đâu.”
 
 “Dẫu các cậu có học theo Tô Miến mà phát phong bao lì xì, cũng không tài nào sánh nổi.”
 
-Lúc Du Phỉ quay trở lại, những người anh em họ gần chưa quá năm đời như Triệu Hữu Tài, Triệu Hữu Hằng vẫn đang ngồi trầm mặc ngoài khoảng sân trước. Đó là một sự công nhận, một niềm tôn kính sâu sắc mà những người mang dòng máu họ Triệu ở ngôi làng này dành riêng cho người thím út Tô Miến.
+Lúc Du Phi quay trở lại, những người anh em họ gần chưa quá năm đời như Triệu Hữu Tài, Triệu Hữu Hằng vẫn đang ngồi trầm mặc ngoài khoảng sân trước. Đó là một sự công nhận, một niềm tôn kính sâu sắc mà những người mang dòng máu họ Triệu ở ngôi làng này dành riêng cho người thím út Tô Miến.
 
 Đặc biệt là những người cùng chung huyết thống gần gũi trong vòng năm đời, thái độ của họ thể hiện rõ ràng nhất sự thừa nhận tuyệt đối đối với bậc trưởng bối trong gia tộc.
 
@@ -202,7 +200,7 @@ Lúc Du Phỉ quay trở lại, những người anh em họ gần chưa quá n�
 
 Đó là một tầng ý nghĩa mang tính biểu tượng thiêng liêng của cả một dòng họ.
 
-Tắm rửa xong nằm trên giường, Du Phỉ thậm chí còn miên man nghĩ rằng, sau này Triệu Tri Hành và Triệu Tri Vi trở về Triệu Gia Thôn cũng sẽ mang một ý nghĩa hoàn toàn khác biệt. Giả sử sau này Dao Dao hay Tử Ngôn cũng sinh con đẻ cái cho Kim An...
+Tắm rửa xong nằm trên giường, Du Phi thậm chí còn miên man nghĩ rằng, sau này Triệu Tri Hành và Triệu Tri Vi trở về Triệu Gia Thôn cũng sẽ mang một ý nghĩa hoàn toàn khác biệt. Giả sử sau này Dao Dao hay Tử Ngôn cũng sinh con đẻ cái cho Kim An...
 
 Người ở Triệu Gia Thôn đều mang họ Triệu, mà vai vế của Triệu Kim An trong làng lại cao đến mức lạ kỳ.
 

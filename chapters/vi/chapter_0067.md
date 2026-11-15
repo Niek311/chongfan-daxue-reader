@@ -1,7 +1,5 @@
 # Chương 67: Thích tôi là vinh hạnh của tôi, tôi chưa từng coi thường cô ấy
 
-> **Tiêu đề gốc**: 第67章 喜欢我是我的荣幸，我没有瞧不上她。
-
 Rời khỏi nhà ăn, Triệu Kim An đi thẳng tới văn phòng mà không gọi điện cho Đan Vĩ.
 
 Muốn thay đổi vận mệnh của một gia đình thực ra rất đơn giản: Tiền!

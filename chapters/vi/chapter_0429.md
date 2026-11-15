@@ -1,7 +1,5 @@
 # Chương 429: Đi đón người
 
-> **Tiêu đề gốc**: 第429章 接人。
-
 "Đã về rồi thì gọi con Mạn Mạn qua đây!"
 
 Bà nội nghiêm giọng lên tiếng: "Tôi vẫn còn sống sờ sờ ở đây, chẳng có cái đạo lý nào ở ngay gần sát sạt thế này mà đứa cháu gái hai năm trời không thèm đến thăm bà nội lấy một lần."

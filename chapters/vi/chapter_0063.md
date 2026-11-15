@@ -1,7 +1,5 @@
 # Chương 63: Bốn giờ rưỡi sáng có mặt
 
-> **Tiêu đề gốc**: 第63章 凌晨4点半到。
-
 Đến được Tư Hưng thì trời đã rạng sáng bốn giờ rưỡi.
 
 Triệu Kim An liếc nhìn đồng hồ rồi nói: "Đến nơi rồi, chính là chỗ này. Anh cứ ngả lưng ở trên xe chợp mắt một lát đi."

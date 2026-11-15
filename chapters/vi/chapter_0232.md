@@ -1,7 +1,5 @@
 # Chương 232: Danh từ thay thế
 
-> **Tiêu đề gốc**: 第232章 代名词。
-
 Quận Sa.
 
 Trên chiếc bàn trà trong phòng làm việc lúc này đang bày la liệt đủ các món ăn vặt hấp dẫn: ức gà chiên giòn, gà viên lắc phô mai, bắp rang gà, cánh gà và đùi gà nướng sốt New Orleans, rồi cả thịt heo chiên giòn rụm...
@@ -14,7 +12,7 @@ Có lẽ đúng như những gì ông từng nói, ông hoàn toàn không lo l�
 
 Không những thế, toàn bộ dòng sản phẩm mang thương hiệu Trăn Nhiên hiện tại đều đã được đưa vào bày bán trên các kệ hàng của chuỗi siêu thị Bàn Đông Lai.
 
-Đứng ở một bên, Triệu Bác Lan và Đơn Na Tề nhìn mâm đồ ăn mà không kìm được nuốt nước miếng ừng ực.
+Đứng ở một bên, Triệu Bác Lan và Đan Na Tề nhìn mâm đồ ăn mà không kìm được nuốt nước miếng ừng ực.
 
 "Đường Hiểu Tình ơi, tớ thật sự ngưỡng mộ các cậu làm việc ở siêu thị quá đi mất."
 
@@ -22,7 +20,7 @@ Triệu Bác Lan cất lời khen ngợi từ tận đáy lòng.
 
 "Anh Kim An ơi, kỳ nghỉ hè này em muốn xin vào siêu thị làm thêm có được không anh?"
 
-Sau khi kỳ thi đại học kết thúc, Đơn Na Tề đã hoàn toàn được giải phóng khỏi áp lực học hành. Cô trút bỏ bộ đồng phục học sinh cấp ba gò bó, ngày nào cũng chăm chỉ đến phụ giúp Triệu Kim An quét dọn, lau chùi phòng làm việc sạch bong kin kít. Ban đầu cô từng có ý định đăng ký theo học ngành thư ký văn phòng, nhưng về sau lại quyết định đổi sang chuyên ngành quản trị kinh doanh.
+Sau khi kỳ thi đại học kết thúc, Đan Na Tề đã hoàn toàn được giải phóng khỏi áp lực học hành. Cô trút bỏ bộ đồng phục học sinh cấp ba gò bó, ngày nào cũng chăm chỉ đến phụ giúp Triệu Kim An quét dọn, lau chùi phòng làm việc sạch bong kin kít. Ban đầu cô từng có ý định đăng ký theo học ngành thư ký văn phòng, nhưng về sau lại quyết định đổi sang chuyên ngành quản trị kinh doanh.
 
 Chọn ngành thư ký vốn là vì muốn sau này tốt nghiệp sẽ làm thư ký riêng cho Triệu Kim An.
 
@@ -32,9 +30,9 @@ Cả hai vị trí công việc đó đều quá đỗi "thân cận" với Tri�
 
 Sợ rằng sẽ có điều gì đó kiêng kỵ, khó xử cho cậu.
 
-Về điểm này, Đơn Vĩ và Đơn Na Tề đã từng đích thân mở lời hỏi qua ý kiến của Triệu Kim An. Dự định của Đơn Na Tề là sau khi tốt nghiệp đại học sẽ lập tức quay trở về cống hiến cho công ty của cậu.
+Về điểm này, Đan Vĩ và Đan Na Tề đã từng đích thân mở lời hỏi qua ý kiến của Triệu Kim An. Dự định của Đan Na Tề là sau khi tốt nghiệp đại học sẽ lập tức quay trở về cống hiến cho công ty của cậu.
 
-Nói cách khác, nếu không có sự hiện diện của Triệu Kim An, Đơn Na Tề sẽ chẳng bao giờ lựa chọn học ngành quản trị kinh doanh làm gì.
+Nói cách khác, nếu không có sự hiện diện của Triệu Kim An, Đan Na Tề sẽ chẳng bao giờ lựa chọn học ngành quản trị kinh doanh làm gì.
 
 "Kỳ nghỉ hè này em không đi chơi đâu đó với bạn bè cùng lớp à?"
 
@@ -42,15 +40,15 @@ Triệu Kim An ngẫm nghĩ một lát rồi rút ví tiền ra, lấy ra năm t
 
 "Anh Kim An, vậy thì em xin phép không khách sáo với anh nữa nhé!"
 
-Đơn Na Tề vui vẻ đón lấy xấp tiền. Cô bé thông minh và nhạy bén hơn cha mình rất nhiều, từ trước tới nay toàn là cô bé đứng ra bày mưu tính kế cho Đơn Vĩ. Thành tích học tập của cô bé cũng vô cùng xuất sắc, đã đỗ vào trường Đại học Đồng Tế danh tiếng.
+Đan Na Tề vui vẻ đón lấy xấp tiền. Cô bé thông minh và nhạy bén hơn cha mình rất nhiều, từ trước tới nay toàn là cô bé đứng ra bày mưu tính kế cho Đan Vĩ. Thành tích học tập của cô bé cũng vô cùng xuất sắc, đã đỗ vào trường Đại học Đồng Tế danh tiếng.
 
 Điều đáng tiếc duy nhất là trường đại học đó không nằm ở Quận Sa.
 
-Thế nhưng Đơn Na Tề không hề có tính cách "não yêu đương" như mấy cô nữ chính mù quáng trong tiểu thuyết ngôn tình, nhất quyết đòi sống đòi chết phải ở lại Quận Sa để học đại học bằng được.
+Thế nhưng Đan Na Tề không hề có tính cách "não yêu đương" như mấy cô nữ chính mù quáng trong tiểu thuyết ngôn tình, nhất quyết đòi sống đòi chết phải ở lại Quận Sa để học đại học bằng được.
 
 Sau khi tận mắt chứng kiến phong thái làm việc của Thẩm Tử Ngôn và Từ Mạn Mạn, cô bé hiểu rất rõ điều quan trọng nhất mình cần phải làm lúc này là gì.
 
-Không phải bảo là Đường Hiểu Tình hay Chu Sở Hân không tốt, mà là Đơn Na Tề muốn trở thành một người phụ nữ bản lĩnh như Thẩm Tử Ngôn và Từ Mạn Mạn — một người có thể thay Triệu Kim An đứng mũi chịu sào, "gánh vác một phương trời".
+Không phải bảo là Đường Hiểu Tình hay Chu Sở Hân không tốt, mà là Đan Na Tề muốn trở thành một người phụ nữ bản lĩnh như Thẩm Tử Ngôn và Từ Mạn Mạn — một người có thể thay Triệu Kim An đứng mũi chịu sào, "gánh vác một phương trời".
 
 Thẩm Tử Ngôn vừa ngắt một cuộc điện thoại, từ ngoài hành lang bước vào trong phòng, tiện tay nhón lấy một miếng thịt chiên giòn bỏ vào miệng rồi cất tiếng hỏi: "Đường Hiểu Tình, em đã học thành thạo hết các món này rồi à?"
 
@@ -82,9 +80,9 @@ Trong phòng làm việc lúc này không chỉ có các món đồ ăn chín th
 
 Tất cả đều là "hàng mẫu" do các nhà cung ứng gửi tới để Trăn Hối Tuyển thẩm định, lựa chọn đưa vào danh mục bán buôn.
 
-Hai năm trước, cuộc sống của hai cha con Đơn Vĩ và Đơn Na Tề còn vô cùng túng thiếu, chật vật, thế mà bây giờ trong phòng khách lẫn phòng ngủ ở nhà họ đều chất đầy ắp đủ loại đồ ăn ngon lành.
+Hai năm trước, cuộc sống của hai cha con Đan Vĩ và Đan Na Tề còn vô cùng túng thiếu, chật vật, thế mà bây giờ trong phòng khách lẫn phòng ngủ ở nhà họ đều chất đầy ắp đủ loại đồ ăn ngon lành.
 
-Theo như lời tâm sự của Đơn Vĩ, trước kia thỉnh thoảng có dịp dắt con gái đi siêu thị lớn, nhìn thấy cái gì ông cũng muốn mua cho con, ngặt nỗi trong túi không có tiền, tự cảm thấy bản thân làm một người cha sao mà thất bại quá. Còn bây giờ, mỗi lần bước chân vào siêu thị, ông thậm chí còn chẳng biết mình phải mua cái gì nữa, bởi vì ở nhà thứ gì cũng có sẵn rồi.
+Theo như lời tâm sự của Đan Vĩ, trước kia thỉnh thoảng có dịp dắt con gái đi siêu thị lớn, nhìn thấy cái gì ông cũng muốn mua cho con, ngặt nỗi trong túi không có tiền, tự cảm thấy bản thân làm một người cha sao mà thất bại quá. Còn bây giờ, mỗi lần bước chân vào siêu thị, ông thậm chí còn chẳng biết mình phải mua cái gì nữa, bởi vì ở nhà thứ gì cũng có sẵn rồi.
 
 Nhà Lưu Mỹ Nga cũng không ngoại lệ.
 

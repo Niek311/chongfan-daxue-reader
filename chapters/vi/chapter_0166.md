@@ -1,7 +1,5 @@
 # Chương 166: Mọi thứ đều đã đổi thay
 
-> **Tiêu đề gốc**: 第166章 一切都变了。
-
 "Chín phát?"
 
 Triệu Kim An trầm ngâm một lát rồi bước tới, đứng sóng vai cùng Tưởng Chỉ Tình bên bờ sông.

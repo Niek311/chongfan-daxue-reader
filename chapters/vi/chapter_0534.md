@@ -1,7 +1,5 @@
 # Chương 534: Sợi dây gắn kết
 
-> **Tiêu đề gốc**: 第534章 纽带。
-
 Thành phố Vũ Hán.
 
 Khu Khai thác Kinh tế Kỹ thuật Đông Hồ, Công viên Phần mềm Quang Cốc.

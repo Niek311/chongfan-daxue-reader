@@ -1,7 +1,5 @@
 # Chương 230: Rút tờ 50 rồi lại đổi tờ 100
 
-> **Tiêu đề gốc**: 第230章 拿张50又换张1百的。
-
 Bước lên tầng ba, Triệu Kim An đưa tay nhấn chuông cửa.
 
 Cánh cửa nhanh chóng mở ra.
@@ -64,7 +62,7 @@ Sau cùng, ánh mắt Dư Tĩnh dừng lại trên bộ âu phục cắt may tin
 
 Đừng nói là sinh viên nghèo, ngay cả dân văn phòng đi làm có thu nhập ổn định cũng chẳng dám mạnh tay sắm sửa.
 
-Đây là bộ trang phục được chuẩn bị cho chuyến đi tiếp kiến Ban tổ chức Olympic tại Kinh đô. Vì thời gian quá gấp rút không kịp may đo thủ công, Tô Miện và Khương Phức Hàm đã gọi điện yêu cầu thương hiệu cao cấp mang hàng mẫu đến tận biệt viện Tô gia, do chính tay ba người phụ nữ Tô Miện, Khương Phức Hàm và Quách Uyển Thanh cùng nhau ngắm nghía, tuyển chọn cho anh.
+Đây là bộ trang phục được chuẩn bị cho chuyến đi tiếp kiến Ban tổ chức Olympic tại Kinh đô. Vì thời gian quá gấp rút không kịp may đo thủ công, Tô Miến và Khương Phức Hàm đã gọi điện yêu cầu thương hiệu cao cấp mang hàng mẫu đến tận biệt viện Tô gia, do chính tay ba người phụ nữ Tô Miến, Khương Phức Hàm và Quách Uyển Thanh cùng nhau ngắm nghía, tuyển chọn cho anh.
 
 Khu nhà tập thể giảng viên này đã có phần cũ kỹ, kết cấu chỉ vỏn vẹn hai phòng ngủ và một phòng khách.
 
@@ -184,7 +182,7 @@ Nói đến đây, Dư Tĩnh bỗng thấy có điều gì đó không thuận t
 
 Bởi lẽ câu nói "ở ngôi trường này không một ai có quyền đuổi học em" của Triệu Kim An hoàn toàn đi ngược lại quy luật logic thông thường của một sinh viên làm thêm bình thường.
 
-Triệu Kim An không buồn giải thích về bối cảnh thân phận của Tô Miện. Hiện tại Tô Miện đang đảm nhiệm một vị trí công tác bên Bộ Giáo dục, nếu ông hiệu trưởng họ Cung kia thực sự muốn hạ bút ký quyết định đuổi học anh, ông ta chẳng phải cân đo đong đếm, cân nhắc thiệt hơn đến toát mồ hôi hột hay sao?
+Triệu Kim An không buồn giải thích về bối cảnh thân phận của Tô Miến. Hiện tại Tô Miến đang đảm nhiệm một vị trí công tác bên Bộ Giáo dục, nếu ông hiệu trưởng họ Cung kia thực sự muốn hạ bút ký quyết định đuổi học anh, ông ta chẳng phải cân đo đong đếm, cân nhắc thiệt hơn đến toát mồ hôi hột hay sao?
 
 "Cô Dư."
 

@@ -1,7 +1,5 @@
 # Chương 209: Đã nghĩ ra tên gì cho siêu thị chưa?
 
-> **Tiêu đề gốc**: 第209章 想好什么名字了吗？超市！！！
-
 Mộc Nhân Cường thong thả cười nhạt: "Thì cũng chỉ là chân làm thuê làm thêm thôi chứ có gì ghê gớm đâu? Chẳng phải trước đây bà cứ một mực bảo sau này nó đi làm còn phải gánh vác, cưu mang cả gia đình ông chú, Dao Dao mà lấy nó thì chỉ có nước chịu khổ chịu sở cả đời sao?"
 
 "À phải rồi, nhà nó còn một bà nội tuổi cao sức yếu nữa."
@@ -10,15 +8,15 @@ Mộc Nhân Cường thong thả cười nhạt: "Thì cũng chỉ là chân là
 
 "..."
 
-Bà Trương Huệ lảng tránh không đáp thẳng vào những lời mỉa mai ấy: "Làm thêm thời nay nó khác xưa rồi. Cái năm thi đại học nó còn phải còng lưng bán cá ngoài chợ, còn bây giờ... xem chừng thằng bé cũng có năng lực, bản lĩnh ra phết đấy."
+Bà Trương Tuệ lảng tránh không đáp thẳng vào những lời mỉa mai ấy: "Làm thêm thời nay nó khác xưa rồi. Cái năm thi đại học nó còn phải còng lưng bán cá ngoài chợ, còn bây giờ... xem chừng thằng bé cũng có năng lực, bản lĩnh ra phết đấy."
 
 Có năng lực chỉ là một phần lý do.
 
-Điều bà Trương Huệ toan tính nhiều hơn trong bụng là sau này có thể danh chính ngôn thuận lên Quận Sa ở chung một nhà với vợ chồng con gái, nhưng những suy nghĩ thầm kín ấy bà không tiện thổ lộ cùng chồng.
+Điều bà Trương Tuệ toan tính nhiều hơn trong bụng là sau này có thể danh chính ngôn thuận lên Quận Sa ở chung một nhà với vợ chồng con gái, nhưng những suy nghĩ thầm kín ấy bà không tiện thổ lộ cùng chồng.
 
 "Để cuối tuần nào rảnh tôi sẽ thu xếp lên Quận Sa một chuyến."
 
-Bà Trương Huệ dự tính lần này sẽ tìm gặp Triệu Kim An để nói chuyện cho thật rõ ràng, thấu đáo, lần trước ở cổng trường đông người quá nên chưa tiện mở lời.
+Bà Trương Tuệ dự tính lần này sẽ tìm gặp Triệu Kim An để nói chuyện cho thật rõ ràng, thấu đáo, lần trước ở cổng trường đông người quá nên chưa tiện mở lời.
 
 "Tùy bà thôi."
 
@@ -28,7 +26,7 @@ Mộc Nhân Cường thậm chí còn ngờ rằng sau này hễ cứ có ngày 
 
 Những người không làm trong ngành thương mại, tiêu dùng thường chẳng mấy khi để mắt đến cái tên Trăn Nhiên.
 
-Bà Trương Huệ cũng là một trong số đó.
+Bà Trương Tuệ cũng là một trong số đó.
 
 Rất nhiều người cầm trên tay chai trà sữa Ngu Quang uống ngon lành nhưng cũng chẳng hề hay biết đó là sản phẩm của tập đoàn Trăn Nhiên, đơn giản vì họ không có thói quen để tâm tìm hiểu.
 

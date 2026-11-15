@@ -1,8 +1,6 @@
 # Chương 155: Ba người đẹp đại náo kinh đô?
 
-> **Tiêu đề gốc**: 第155章 三女大闹京都？
-
-Trần Trạch vốn đã cẩn thận đặt trước một phòng bao vô cùng sang trọng tại nhà hàng lớn, dì Dương Thục Mỹ cũng đích thân gọi điện dặn dò chuẩn bị kỹ lưỡng.
+Trần Trạch vốn đã cẩn thận đặt trước một phòng bao vô cùng sang trọng tại nhà hàng lớn, dì Dương Thù Mỹ cũng đích thân gọi điện dặn dò chuẩn bị kỹ lưỡng.
 
 Có lẽ bọn họ cũng hiểu rõ quãng thời gian vừa qua Từ Mạn Mạn đã phải chịu đựng biết bao vất vả, nhọc nhằn.
 
@@ -46,21 +44,21 @@ Qua ống nghe, Triệu Kim An còn nghe rõ mồn một tiếng cười khúc k
 
 Thiếu vắng Triệu Kim An, lại không có Thẩm Tử Ngôn đầu tàu, hai phòng 303 và 406 rất khó để có thể tụ tập đông đủ làm một bữa liên hoan ra trò.
 
-Trần Trạch đã đặt sẵn một chiếc bánh kem sinh nhật ba tầng lộng lẫy, dì Dương Thục Mỹ cũng đặc biệt từ Quảng Châu bay về Quận Sa để chúc mừng.
+Trần Trạch đã đặt sẵn một chiếc bánh kem sinh nhật ba tầng lộng lẫy, dì Dương Thù Mỹ cũng đặc biệt từ Quảng Châu bay về Quận Sa để chúc mừng.
 
 Thế nhưng Từ Mạn Mạn lại nhẹ nhàng từ chối, bảo thôi không cần rình rang làm gì.
 
-Dương Thục Mỹ liền đề nghị chuyển về tổ chức ấm cúng tại nhà riêng, để hai bên gia đình sum vầy cùng chung vui.
+Dương Thù Mỹ liền đề nghị chuyển về tổ chức ấm cúng tại nhà riêng, để hai bên gia đình sum vầy cùng chung vui.
 
 Từ Mạn Mạn vẫn lắc đầu từ chối. Cô bảo chỉ là một ngày sinh nhật bình thường thôi mà, trên lớp đợt này nhiều bài vở ôn thi quá nên cô xin phép không về nhà.
 
-Cả Dương Thục Mỹ lẫn Trần Trạch đều đinh ninh rằng Từ Mạn Mạn đang giận dỗi, hờn trách bọn họ vì đã không đặt trọn niềm tin vào những lời cảnh báo của cô về các đơn hàng ngoại thương.
+Cả Dương Thù Mỹ lẫn Trần Trạch đều đinh ninh rằng Từ Mạn Mạn đang giận dỗi, hờn trách bọn họ vì đã không đặt trọn niềm tin vào những lời cảnh báo của cô về các đơn hàng ngoại thương.
 
-Tại nhà họ Từ, Dương Thục Mỹ đem toàn bộ câu chuyện kể lại cho vợ chồng Từ Tắc Đống và Lương Tuệ Trân nghe.
+Tại nhà họ Từ, Dương Thù Mỹ đem toàn bộ câu chuyện kể lại cho vợ chồng Từ Tắc Đống và Lương Tuệ Trân nghe.
 
 Lần này, cả ông Từ Tắc Đống lẫn bà Lương Tuệ Trân đều giữ vẻ mặt trầm ngâm, im lặng không nói lời nào.
 
-Bọn họ vốn không am hiểu chuyện làm ăn buôn bán lớn của Dương Thục Mỹ, nhưng nghe chính miệng con gái tâm sự, bảo rằng nếu cứ tiếp tục cúp tiết triền miên như thế này thì sớm muộn gì cũng bị nhà trường đuổi học.
+Bọn họ vốn không am hiểu chuyện làm ăn buôn bán lớn của Dương Thù Mỹ, nhưng nghe chính miệng con gái tâm sự, bảo rằng nếu cứ tiếp tục cúp tiết triền miên như thế này thì sớm muộn gì cũng bị nhà trường đuổi học.
 
 Bà Lương Tuệ Trân lặng lẽ bước ra ngoài ban công, bấm số gọi một cuộc điện thoại dài cho con gái.
 
@@ -166,7 +164,7 @@ Giọng điệu của Tô Miến từ Thượng Hải truyền qua vẫn thẳng
 
 Triệu Kim An trầm ngâm trong giây lát, rồi khẽ cười đáp: "Không có nhớ."
 
-Đơn Vĩ khẽ liếc mắt nhìn vào gương chiếu hậu, trong bụng thầm tò mò: Không biết ông chủ đang nói chuyện điện thoại với mỹ nhân nào thế nhỉ? Rõ ràng ông chủ chưa hề công khai hẹn hò với cô bạn gái nào cơ mà!
+Đan Vĩ khẽ liếc mắt nhìn vào gương chiếu hậu, trong bụng thầm tò mò: Không biết ông chủ đang nói chuyện điện thoại với mỹ nhân nào thế nhỉ? Rõ ràng ông chủ chưa hề công khai hẹn hò với cô bạn gái nào cơ mà!
 
 Kể từ ngày Đoạn Thu Bình về sống ở thôn Triệu Gia, thím Vương Kim Như từng kể rằng Tô Miến rất hiếm khi chủ động gọi điện về nhà nữa. Lúc ấy Triệu Kim An mới vỡ lẽ ra rằng trước đây Tô Miến vẫn thường xuyên gọi điện hỏi thăm sức khỏe của thím và bà nội anh.
 
@@ -174,14 +172,14 @@ Tô Miến vờ như chẳng hề có chuyện gì xảy ra, hai người rôm r
 
 Triệu Kim An tựa lưng vào ghế xe, ánh mắt lơ đãng nhìn qua khung cửa kính, bỗng nhiên anh cất tiếng: "Dừng xe lại một chút."
 
-Đơn Vĩ lập tức giảm tốc độ rồi từ từ tấp xe vào lề đường.
+Đan Vĩ lập tức giảm tốc độ rồi từ từ tấp xe vào lề đường.
 
 Triệu Kim An đưa mắt nhìn về phía ba bóng người đang đứng bên vệ đường cách đó không xa: Trần Trạch một tay cầm điện thoại áp vào tai nói chuyện, vẻ mặt vô cùng bực bội, chân không ngừng đá mạnh vào lốp xe ô tô; trong khi đó, một người phụ nữ sang trọng đang đứng đối diện Từ Mạn Mạn, dường như đang to tiếng trao đổi điều gì đó rất căng thẳng với cô.
 
-Người phụ nữ quyền quý ấy... chắc chắn chính là dì Dương Thục Mỹ.
+Người phụ nữ quyền quý ấy... chắc chắn chính là dì Dương Thù Mỹ.
 
 "Cậu xuống xem thử phía trước đang xảy ra chuyện gì đi."
 
 "Vâng ạ, thưa ông chủ."
 
-Đơn Vĩ vốn xuất thân là thợ sửa chữa ô tô lành nghề, anh liền mở cửa bước xuống, đi vòng ra sau cốp xách theo hộp đồ nghề sửa xe tiến về phía trước.
+Đan Vĩ vốn xuất thân là thợ sửa chữa ô tô lành nghề, anh liền mở cửa bước xuống, đi vòng ra sau cốp xách theo hộp đồ nghề sửa xe tiến về phía trước.

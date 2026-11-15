@@ -1,7 +1,5 @@
 # Chương 55: Đường hoàng đàng hoàng
 
-> **Tiêu đề gốc**: 第55章 光明正大。
-
 Sáng sớm hôm sau.
 
 Triệu Kim An vừa trở dậy, Lưu Sấm Phong và Cốc Siêu Thừa cũng vội vàng lồm cồm bò dậy theo. Cốc Siêu Thừa vừa xỏ giày vừa hỏi: "Kim An, hôm nay cậu lại đi đâu thế?"
@@ -244,7 +242,7 @@ Thẩm Tử Ngôn suy nghĩ vài giây rồi bảo: "Tớ cũng về ký túc x�
 
 Nhìn Triệu Kim An, Thẩm Tử Ngôn dường như đang cố tìm chủ đề để bắt chuyện: "Kem lạnh thế này cậu ăn được chứ?"
 
-Cô nhớ lại hôm ở nhà ăn, Triệu Kim An mua Coca cho đám con trai, còn bản thân chỉ cầm một chai nước khoáng. Khi Diêu Tân tò mò gặng hỏi, Triệu Kim An bảo mình không có thói quen uống nước ngọt có ga.
+Cô nhớ lại hôm ở nhà ăn, Triệu Kim An mua Coca cho đám con trai, còn bản thân chỉ cầm một chai nước khoáng. Khi Diêu Sân tò mò gặng hỏi, Triệu Kim An bảo mình không có thói quen uống nước ngọt có ga.
 
 Hai người đứng sóng đôi bên lề đường, một người cao một mét tám mươi mốt, một người cao một mét bảy mươi. Lưu Sấm Phong và Cốc Siêu Thừa vẫn đang đứng đợi lấy kem bên ô cửa sổ. Triệu Kim An phóng tầm mắt nhìn sang dòng xe cộ bên kia đường, còn Thẩm Tử Ngôn thì nghiêng nửa người, đưa mắt ngắm nhìn Triệu Kim An.
 
@@ -254,7 +252,7 @@ Lặng yên một lúc, Thẩm Tử Ngôn lại cất tiếng hỏi: "Bánh kế
 
 Triệu Kim An khẽ gật đầu: "Ừm."
 
-Hết chuyện để nói, Thẩm Tử Ngôn liền bảo: "Vậy để tớ cũng mua một cái ăn thử xem sao. Lúc tớ ra ngoài chạy bộ thì Diêu Tân vẫn còn đang ngủ nướng ở phòng."
+Hết chuyện để nói, Thẩm Tử Ngôn liền bảo: "Vậy để tớ cũng mua một cái ăn thử xem sao. Lúc tớ ra ngoài chạy bộ thì Diêu Sân vẫn còn đang ngủ nướng ở phòng."
 
 Mua xong chiếc bánh kếp hành, Thẩm Tử Ngôn không nán lại lâu nữa, cô cất tiếng chào tạm biệt ba người rồi rảo bước về trước một bước.
 
@@ -288,13 +286,13 @@ Lưu Sấm Phong cười hề hề rút bật lửa châm thuốc, xem chừng t
 
 ...
 
-Ở một diễn biến khác, Thẩm Tử Ngôn xách theo túi đồ ăn sáng bước chân vào phòng 406. Diêu Tân đang nằm nhoài người bên mép giường tầng liền reo lên kinh ngạc: "Oa, Tử Ngôn ơi cậu tuyệt vời quá đi mất!"
+Ở một diễn biến khác, Thẩm Tử Ngôn xách theo túi đồ ăn sáng bước chân vào phòng 406. Diêu Sân đang nằm nhoài người bên mép giường tầng liền reo lên kinh ngạc: "Oa, Tử Ngôn ơi cậu tuyệt vời quá đi mất!"
 
 Ở ký túc xá nam, đứa nào sáng sớm chịu khó xách đồ ăn sáng về phòng thì đứa đó nghiễm nhiên được phong làm "cha nuôi".
 
-Chỉ có điều thấy Thẩm Tử Ngôn lúc này mới bắt đầu ngồi ăn, Diêu Tân có chút lấy làm lạ, chạy bộ cả buổi sáng mà giờ mới ăn sao?
+Chỉ có điều thấy Thẩm Tử Ngôn lúc này mới bắt đầu ngồi ăn, Diêu Sân có chút lấy làm lạ, chạy bộ cả buổi sáng mà giờ mới ăn sao?
 
-"Tử Ngôn, giờ cậu mới ăn sáng đấy à?" Diêu Tân ngỏng đầu hỏi.
+"Tử Ngôn, giờ cậu mới ăn sáng đấy à?" Diêu Sân ngỏng đầu hỏi.
 
 "Ừm."
 

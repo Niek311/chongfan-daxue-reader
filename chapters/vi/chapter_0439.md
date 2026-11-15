@@ -1,7 +1,5 @@
 # Chương 439: Đã làm quản lý tiền sảnh rồi, cô còn muốn thăng tiến nữa sao?
 
-> **Tiêu đề gốc**: 第439章 大堂经理了，你还要进步？
-
 Tuy nhiên, chẳng có một ai buồn bận tâm lắng nghe những tiếng gào khóc kêu oan của Kiều Chính Nghiệp. Mọi thủ tục đều được tiến hành theo đúng "quy trình pháp lý chuẩn mực" để nhanh chóng hoàn tất hồ sơ khởi tố công khai. Toàn bộ những tội trạng nhơ nhớp, những vụ việc mờ ám mà gã từng tác oai tác quái tại địa phương trước đây đều bị cơ quan chức năng lật lại, xới tung lên không sót một chi tiết. Chứng cứ phạm tội rành rành như núi, Kiều Chính Nghiệp thậm chí còn chẳng có lấy một cơ hội nhỏ nhoi nào để làm đơn khiếu nại hay kháng cáo.
 
 Gã vẫn nuôi chút hy vọng hão huyền rằng "mấy vị tai to mặt lớn kia" ở hậu trường sẽ ra tay kéo mình một vệt.

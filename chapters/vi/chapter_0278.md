@@ -1,7 +1,5 @@
 # Chương 278: Không sao tức là có sao
 
-> **Tiêu đề gốc**: 第278章 没事就是有事。
-
 Dưới khoảng sân nhỏ.
 
 Đan Na Tề đang tất bật thu dọn hành lý, chuẩn bị hành trang lên đường đến Thượng Hải nhập học.
@@ -234,13 +232,13 @@ Màn đêm dần buông xuống.
 
 Tại sân bay Quận Sa.
 
-Dương Thục Mỹ bước xuống máy bay, tiếng giày cao gót gõ lộc cộc trên sàn khi bà ta sải bước ra khỏi sảnh đón. Trần Trạch vội vàng xuống xe, lật đật chạy lại đón lấy hành lý:
+Dương Thù Mỹ bước xuống máy bay, tiếng giày cao gót gõ lộc cộc trên sàn khi bà ta sải bước ra khỏi sảnh đón. Trần Trạch vội vàng xuống xe, lật đật chạy lại đón lấy hành lý:
 
 "Mẹ, để con xách cho."
 
 "Không cần!"
 
-Dương Thục Mỹ đứng sững lại tại chỗ, ánh mắt sắc lạnh trừng trừng nhìn đứa con trai mấy tháng nay chưa gặp: "Mẹ đã dặn dò con thế nào hả?"
+Dương Thù Mỹ đứng sững lại tại chỗ, ánh mắt sắc lạnh trừng trừng nhìn đứa con trai mấy tháng nay chưa gặp: "Mẹ đã dặn dò con thế nào hả?"
 
 "Mẹ..."
 
@@ -248,7 +246,7 @@ Trần Trạch cúi gằm mặt xuống, lí nhí: "Cô ta đòi một triệu t
 
 "Cho nên con liền dọn ra ngoài sống chung như vợ chồng với nó luôn đấy à?"
 
-Dương Thục Mỹ thừa hiểu Trần Trạch chỉ đang tìm cớ trốn tránh trách nhiệm: "Bây giờ con bảo mẹ phải vác cái mặt này ra đối diện với chú Từ và dì Lương của con thế nào đây hả?"
+Dương Thù Mỹ thừa hiểu Trần Trạch chỉ đang tìm cớ trốn tránh trách nhiệm: "Bây giờ con bảo mẹ phải vác cái mặt này ra đối diện với chú Từ và dì Lương của con thế nào đây hả?"
 
 Trần Trạch im thin thít, không dám hé răng nửa lời.
 

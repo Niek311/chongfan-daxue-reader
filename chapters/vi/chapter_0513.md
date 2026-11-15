@@ -1,7 +1,5 @@
 # Chương 513: Khối tài sản cá nhân
 
-> **Tiêu đề gốc**: 第513章 个人身家。
-
 Hai tiếng đồng hồ sau.
 
 Sau khi giải quyết xong xuôi các sự vụ cấp bách liên quan đến Khu Phát triển Kinh tế Phụ Bình tại trụ sở tập đoàn, Từ Mạn Mạn lại bế bé Triệu Tri Nặc đang ngủ say sưa trên tay rảo bước tiến về phía quán ăn của Lý Văn Húc.
@@ -20,7 +18,7 @@ Ngay cả đại dự án khai thác mỏ sắt khổng lồ Simandou ở tận 
 
 Bao gồm cả việc ủy thác cho Bao Uyển Yên và Giản Tài Kiệt.
 
-Cảnh ngộ này hoàn toàn khác xa một trời một vực so với những ngày tháng cô từng làm việc dưới trướng xưởng Tinh Sa của gia đình Trần Trạch năm xưa. Ở xưởng Tinh Sa thuở ấy, số cổ phiếu trong tay Dương Thục Mỹ rốt cuộc đã bán tháo hay chưa cô hoàn toàn mù tịt. Khi cô có lòng tốt đưa ra lời cảnh báo về cơn bão khủng hoảng tài chính toàn cầu sắp sửa ập đến, khuyên can nên từ chối những đơn hàng chỉ chịu đặt cọc một khoản tiền bèo bọt, thì ngay lập tức cuộc gọi sặc mùi phẫn nộ của Dương Thục Mỹ đã dội tới, gạt phăng mọi quyết định đúng đắn của cô.
+Cảnh ngộ này hoàn toàn khác xa một trời một vực so với những ngày tháng cô từng làm việc dưới trướng xưởng Tinh Sa của gia đình Trần Trạch năm xưa. Ở xưởng Tinh Sa thuở ấy, số cổ phiếu trong tay Dương Thù Mỹ rốt cuộc đã bán tháo hay chưa cô hoàn toàn mù tịt. Khi cô có lòng tốt đưa ra lời cảnh báo về cơn bão khủng hoảng tài chính toàn cầu sắp sửa ập đến, khuyên can nên từ chối những đơn hàng chỉ chịu đặt cọc một khoản tiền bèo bọt, thì ngay lập tức cuộc gọi sặc mùi phẫn nộ của Dương Thù Mỹ đã dội tới, gạt phăng mọi quyết định đúng đắn của cô.
 
 Bất cứ ai từng lăn lộn chốn thương trường hay môi trường công sở đều sẽ hiểu rất rõ, hai loại hoàn cảnh ấy là hai khái niệm hoàn toàn đối lập nhau.
 
@@ -36,11 +34,11 @@ Người đời thường hay dùng cụm từ "nô lệ của con gái" để m
 
 Quán gà đồi cá tươi Lý Tiên Sinh.
 
-Mộc Dao vừa bấm máy gọi điện thoại đi, thư ký Du Phỉ ở đầu dây bên kia bảo rằng sẽ chuyển lời lại cho Triệu Kim An.
+Mộc Dao vừa bấm máy gọi điện thoại đi, thư ký Du Phi ở đầu dây bên kia bảo rằng sẽ chuyển lời lại cho Triệu Kim An.
 
 Mộc Dao gặng hỏi dồn dập xem Triệu Kim An hiện đang ở xó xỉnh nào.
 
-Du Phỉ ấp úng ngập ngừng hồi lâu, cân nhắc đắn đo mãi mới nhỏ giọng nài nỉ: "Dao Dao à, chuyện này thực sự chị không tiện tiết lộ ra ngoài đâu, em đừng làm khó chị nữa mà."
+Du Phi ấp úng ngập ngừng hồi lâu, cân nhắc đắn đo mãi mới nhỏ giọng nài nỉ: "Dao Dao à, chuyện này thực sự chị không tiện tiết lộ ra ngoài đâu, em đừng làm khó chị nữa mà."
 
 "Anh Trạch, bữa cơm hôm nay anh dứt khoát không được giành trả tiền đâu đấy nhé!"
 
@@ -134,7 +132,7 @@ Nếu xét trên phương diện khối tài sản cá nhân hiện tại trên 
 
 Còn khối tài sản cá nhân thực tế của Từ Mạn Mạn thì quả thực rất khó để đo lường định lượng cho chuẩn xác, bởi ngay cả số tiền mười triệu tệ mà Triệu Kim An để lại cho con gái Triệu Tri Nặc, cô cũng đã rút sạch đem đi bù vào các khoản lỗ cấp bách của tập đoàn rồi. Về phần Mộc Dao, cô hùn vốn mở công ty chung với Trương Vân Thiến, trong tay chỉ nắm giữ ba mươi phần trăm cổ phần mà thôi.
 
-Mộc Dao lên tiếng phá vỡ bầu không khí: "Tớ đã gọi điện thoại cho Du Phỉ rồi, Du Phỉ bảo sẽ chuyển lời lại cho Kim An."
+Mộc Dao lên tiếng phá vỡ bầu không khí: "Tớ đã gọi điện thoại cho Du Phi rồi, Du Phi bảo sẽ chuyển lời lại cho Kim An."
 
 "Ừ."
 

@@ -1,7 +1,5 @@
 # Chương 20: Để lại thêm một số nữa
 
-> **Tiêu đề gốc**: 第20章 再留一个。
-
 Người đàn ông ngồi trong phòng ngẩng đầu lên, thuận miệng hỏi: "Hồ sơ đâu, muốn ứng tuyển vào vị trí nào thế?"
 
 "Giám đốc Marketing."

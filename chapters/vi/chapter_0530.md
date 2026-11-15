@@ -1,7 +1,5 @@
 # Chương 530: Đứng trên ngọn gió
 
-> **Tiêu đề gốc**: 第530章 赶在风口。
-
 Tại nhà hàng "Lý Tiên Sinh - Chuỗi Gà Tươi Cá Sống".
 
 Lý Văn Húc cảm thấy vô cùng vinh hạnh và thụ sủng nhược kinh khi được đón tiếp biết bao nhiêu vị sếp lớn của lớp Kế toán 1 tụ họp về quán ăn của mình.

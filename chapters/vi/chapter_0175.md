@@ -1,7 +1,5 @@
 # Chương 175: Bốn căn phòng sau này ngủ thế nào?
 
-> **Tiêu đề gốc**: 第175章 4个房间以后怎么睡？
-
 Mọi người quây quần ngồi sưởi quanh chậu than hồng.
 
 Người miền Nam khi ngồi sưởi than thường phủ thêm một tấm vải bạt hoặc chăn bông mỏng trùm quanh bàn để giữ nhiệt.
@@ -24,9 +22,9 @@ Trong phòng lúc này chỉ kê độc một chiếc giường gỗ mộc, xế
 
 Ngày xưa hai người cô của anh đi lấy chồng, của hồi môn mang theo cũng chính là những chiếc rương gỗ kiểu này.
 
-Căn phòng ngay sát bên cạnh từng là phòng của vợ chồng Triệu Quốc Khánh và Đoàn Thu Bình.
+Căn phòng ngay sát bên cạnh từng là phòng của vợ chồng Triệu Quốc Khánh và Đoạn Thu Bình.
 
-Kể từ ngày Đoàn Thu Bình tái giá theo người ta, tầng hai căn nhà bỏ trống hoàn toàn, không còn ai sinh sống.
+Kể từ ngày Đoạn Thu Bình tái giá theo người ta, tầng hai căn nhà bỏ trống hoàn toàn, không còn ai sinh sống.
 
 Ở chốn nông thôn nếp sống là như vậy: phòng ngủ chính hay phòng tân hôn cưới vợ thường được bố trí ở tầng hai hoặc tầng ba, tuyệt đối không đặt ở tầng một dưới đất.
 

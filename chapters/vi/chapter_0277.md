@@ -1,7 +1,5 @@
 # Chương 277: Hắc hóa
 
-> **Tiêu đề gốc**: 第277章 黑化。
-
 "Triệu Kim An?"
 
 Lúc này, Từ Mạn Mạn bỗng khẽ cất tiếng gọi.
@@ -76,9 +74,9 @@ Triệu Kim An chính thức "hắc hóa". Xưa nay cậu vốn là người ch�
 
 "Sống... sống chung!?"
 
-Từ Tắc Đống và Lương Huệ Trân đồng thanh thốt lên, trên mặt ngập tràn vẻ kinh hãi, ngỡ ngàng cùng bàng hoàng không dám tin.
+Từ Tắc Đống và Lương Tuệ Trân đồng thanh thốt lên, trên mặt ngập tràn vẻ kinh hãi, ngỡ ngàng cùng bàng hoàng không dám tin.
 
-Họ vừa mới dốc hết gia sản cho Dương Thục Mỹ mượn 40 vạn tệ cơ mà!
+Họ vừa mới dốc hết gia sản cho Dương Thù Mỹ mượn 40 vạn tệ cơ mà!
 
 Vậy mà thằng ranh Trần Trạch lại dám lén lút dọn ra ngoài sống chung với đứa con gái khác suốt bấy lâu nay!?
 
@@ -90,7 +88,7 @@ Sắc mặt Từ Tắc Đống biến đổi liên tục từ xanh sang trắng.
 
 Triệu Kim An không ngờ quả bom này lại do chính miệng Trần Trạch "kích nổ". Nếu đây được coi là một màn Tu La trường, thì Trần Trạch chính là kẻ cố tình châm ngòi nổ tung trận chiến ngay trước mặt phụ huynh của cô gái...
 
-Trần Trạch quá hiểu tính khí của Từ Tắc Đống và Lương Huệ Trân.
+Trần Trạch quá hiểu tính khí của Từ Tắc Đống và Lương Tuệ Trân.
 
 Giờ phút này Triệu Kim An chẳng buồn bận tâm chuyện gì khác nữa, cũng chẳng rảnh nghĩ ngợi về mối quan hệ giữa Từ Mạn Mạn và Thẩm Tử Ngôn. Cậu chỉ có một suy nghĩ duy nhất: Thằng chó Trần Trạch đừng hòng mong được sống yên ổn!
 
@@ -100,7 +98,7 @@ Từ Mạn Mạn khẽ gật đầu: "Là cô gái đó, Trần Trạch chưa t�
 
 "Đồ súc sinh vô liêm sỉ!!!"
 
-Từ Tắc Đống run rẩy cầm điện thoại lên bấm số gầm thét: "Dương Thục Mỹ! Thằng con trai quý hóa của bà đấy! Bà lập tức bay về Quận Sa ngay cho tôi! Có chuyện gì xảy ra ư? Bà tự đi mà mở mồm hỏi thằng con trai quý hóa của bà ấy!!"
+Từ Tắc Đống run rẩy cầm điện thoại lên bấm số gầm thét: "Dương Thù Mỹ! Thằng con trai quý hóa của bà đấy! Bà lập tức bay về Quận Sa ngay cho tôi! Có chuyện gì xảy ra ư? Bà tự đi mà mở mồm hỏi thằng con trai quý hóa của bà ấy!!"
 
 Triệu Kim An không hề cười cợt chế giễu Từ Tắc Đống, cậu thực sự cười không nổi.
 
@@ -130,13 +128,13 @@ Chỉ là... câu nói này liệu có còn hàm chứa một tầng ý nghĩa n
 
 Triệu Kim An không biết.
 
-Lương Huệ Trân chỉ cảm thấy đất trời như sụp đổ ngay trước mắt.
+Lương Tuệ Trân chỉ cảm thấy đất trời như sụp đổ ngay trước mắt.
 
 Tiền... tiền mất sạch. Con gái... con gái cũng chẳng còn.
 
 "Lưu Hiểu Tĩnh!"
 
-Từ Mạn Mạn liếc nhìn Lương Huệ Trân một cái rồi cất tiếng gọi ra ngoài.
+Từ Mạn Mạn liếc nhìn Lương Tuệ Trân một cái rồi cất tiếng gọi ra ngoài.
 
 Lưu Hiểu Tĩnh đang đứng ngoài hành lang giật mình, vội vã đẩy cửa bước vào: "Từ tổng."
 
@@ -178,13 +176,13 @@ Hắn thậm chí còn chẳng kịp báo cho Lâm Thanh Tuyết một tiếng.
 
 Lâm Thanh Tuyết lúc này vẫn đang ở quán bida.
 
-Dương Thục Mỹ trông gầy rộc đi đôi chút, vóc dáng không còn đẫy đà như trước mà lộ rõ vẻ tiều tụy phong trần. Trong tâm trí bà ta lúc này chỉ hiện lên vỏn vẹn ba chữ: Triệu Kim An!
+Dương Thù Mỹ trông gầy rộc đi đôi chút, vóc dáng không còn đẫy đà như trước mà lộ rõ vẻ tiều tụy phong trần. Trong tâm trí bà ta lúc này chỉ hiện lên vỏn vẹn ba chữ: Triệu Kim An!
 
 Ông chủ của Trăn Hối Tuyển tại Quận Sa, Triệu tổng của tập đoàn Trăn Nhiên!
 
 "Uổng công ta còn có ý định mời cậu ta về Dương Thành làm trợ lý! Triệu Kim An, cậu lừa ta thảm quá rồi!"
 
-Dương Thục Mỹ vội vã bàn giao lại một số công việc ở xưởng, sau đó kéo vali tức tốc đáp chuyến bay về Quận Sa.
+Dương Thù Mỹ vội vã bàn giao lại một số công việc ở xưởng, sau đó kéo vali tức tốc đáp chuyến bay về Quận Sa.
 
 Một sợi tóc lay động kéo theo toàn thân.
 

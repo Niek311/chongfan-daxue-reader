@@ -1,7 +1,5 @@
 # Chương 466: Em sẽ làm được
 
-> **Tiêu đề gốc**: 第466章 我会的。
-
 "Ăn cơm thôi nào!"
 
 Lý Ngải Lan bước vào phòng cất tiếng gọi mọi người. Khách sạn chuẩn bị sẵn bốn bàn tiệc, lớp Kế toán 1 đợt này còn hơn mười người chưa về trường kịp.
@@ -16,9 +14,9 @@ Bên cạnh mỗi bộ chén đĩa đều đặt sẵn hai bao thuốc lá Trung
 
 Lý Ngải Lan nhận được một cuộc điện thoại, là Triệu Kim An gọi bảo bếp thêm mấy món ngon nữa.
 
-Ngồi ngay trong khách sạn của Triệu Kim An, chẳng thấy Hứa Mạn Mạn đâu, cũng chưa thấy mặt Triệu Kim An, Vương Phương Dụ đưa mắt nhìn quanh quất bốn phía. Tòa tháp đôi văn phòng sừng sững cùng khách sạn quốc tế Phách Đề xa hoa lộng lẫy quả thực đã mang lại cho cô ta không ít sự ngỡ ngàng.
+Ngồi ngay trong khách sạn của Triệu Kim An, chẳng thấy Từ Mạn Mạn đâu, cũng chưa thấy mặt Triệu Kim An, Vương Phương Dụ đưa mắt nhìn quanh quất bốn phía. Tòa tháp đôi văn phòng sừng sững cùng khách sạn quốc tế Phách Đề xa hoa lộng lẫy quả thực đã mang lại cho cô ta không ít sự ngỡ ngàng.
 
-Song ngẫm lại, Hứa Mạn Mạn đang trong thời gian ở cữ, không xuất hiện cũng là lẽ thường tình.
+Song ngẫm lại, Từ Mạn Mạn đang trong thời gian ở cữ, không xuất hiện cũng là lẽ thường tình.
 
 "Quản lý Đường, Hiểu Tình ơi, sao lại có cả Hòa Thiên Hạ thế này?"
 
@@ -64,45 +62,45 @@ Mọi người xung quanh đều lấy làm lạ. Chẳng biết từ bao giờ 
 
 "Chẳng có gì cả."
 
-Lý Ngải Lan phồng má giận dỗi. Trong lòng cô nàng thầm lẩm bẩm: Hứa Mạn Mạn có một bé Triệu Tri Nặc thì thôi đi, đằng này Tô Miễn lại vừa mang thai đôi một trai một gái, thế bao giờ mới đến lượt mình mang bầu đây trời? Con gì cũng được hết á!
+Lý Ngải Lan phồng má giận dỗi. Trong lòng cô nàng thầm lẩm bẩm: Từ Mạn Mạn có một bé Triệu Tri Nặc thì thôi đi, đằng này Tô Miến lại vừa mang thai đôi một trai một gái, thế bao giờ mới đến lượt mình mang bầu đây trời? Con gì cũng được hết á!
 
 Mà tốt nhất... cũng là sinh đôi long phụng thì tuyệt vời biết bao.
 
-Tin tức Tô Miễn mang thai một trai một gái đã nhanh chóng lan truyền khắp công ty.
+Tin tức Tô Miến mang thai một trai một gái đã nhanh chóng lan truyền khắp công ty.
 
-Nhân viên trong tập đoàn vốn dĩ đã biết chuyện Tô Miễn có thai. Lẽ ra cô đã có thể đi siêu âm màu từ sớm, nhưng bấy lâu nay chẳng có chút tin tức nào lọt ra ngoài, giờ đây Hứa Mạn Mạn lại vừa hạ sinh Trưởng công chúa cho tập đoàn.
+Nhân viên trong tập đoàn vốn dĩ đã biết chuyện Tô Miến có thai. Lẽ ra cô đã có thể đi siêu âm màu từ sớm, nhưng bấy lâu nay chẳng có chút tin tức nào lọt ra ngoài, giờ đây Từ Mạn Mạn lại vừa hạ sinh Trưởng công chúa cho tập đoàn.
 
 Máu tò mò, hóng hớt của đám nhân viên lớn đến mức nào, khỏi nói cũng hình dung ra được.
 
 Chu Hoa Phong đứng một góc điềm tĩnh nhả khói thuốc.
 
-Quan Văn Bách túc trực 24/24 bảo vệ quanh khu chung cư của Hứa Mạn Mạn, quay sang hỏi Đan Vĩ bên cạnh: "Lão Đan, anh bảo xem sau chuyện này, vị thế của bé Triệu Tri Nặc sẽ tăng lên hay giảm đi?"
+Quan Văn Bách túc trực 24/24 bảo vệ quanh khu chung cư của Từ Mạn Mạn, quay sang hỏi Đan Vĩ bên cạnh: "Lão Đan, anh bảo xem sau chuyện này, vị thế của bé Triệu Tri Nặc sẽ tăng lên hay giảm đi?"
 
 Đan Vĩ nghiêm mặt: "Đừng bàn tán những chuyện này."
 
 "Ở đây toàn anh em mình với nhau, làm bộ đứng đắn làm gì." Quan Văn Bách lắc đầu: "Tôi dám cá cả công ty lúc này ai nấy đều đang thầm tính toán trong bụng."
 
-Đặng Thần Bình chen vào: "Đều là cốt nhục của ông chủ cả, lấy đâu ra chuyện tăng với giảm? Hứa tổng vẫn còn có thể sinh tiếp được cơ mà."
+Đặng Thần Bình chen vào: "Đều là cốt nhục của ông chủ cả, lấy đâu ra chuyện tăng với giảm? Từ tổng vẫn còn có thể sinh tiếp được cơ mà."
 
-Họ đều hiểu rõ nội tình. Nếu nói trong công ty Lưu Hiểu Tĩnh là người trung thành nhất với Hứa Mạn Mạn, thì Quan Văn Bách cũng coi như đã gắn chặt "mác" người của phe cô. Anh ta từng ra Thượng Hải làm việc mấy tháng trời, ngày về lại chuyên trách lo liệu an ninh cho Hứa Mạn Mạn và bé Triệu Tri Nặc.
+Họ đều hiểu rõ nội tình. Nếu nói trong công ty Lưu Hiểu Tĩnh là người trung thành nhất với Từ Mạn Mạn, thì Quan Văn Bách cũng coi như đã gắn chặt "mác" người của phe cô. Anh ta từng ra Thượng Hải làm việc mấy tháng trời, ngày về lại chuyên trách lo liệu an ninh cho Từ Mạn Mạn và bé Triệu Tri Nặc.
 
 Tâm lý nghiêng về phía Triệu Tri Nặc cũng là điều hoàn toàn dễ hiểu.
 
 ...
 
-Triệu Kim An vẫn chưa nghĩ ra nên mở lời thế nào với Hứa Mạn Mạn, còn Vương Kim Như ở nhà mấy hôm nay cứ muốn nói lại thôi, ấp a ấp úng.
+Triệu Kim An vẫn chưa nghĩ ra nên mở lời thế nào với Từ Mạn Mạn, còn Vương Kim Như ở nhà mấy hôm nay cứ muốn nói lại thôi, ấp a ấp úng.
 
-Hứa Mạn Mạn đang bế Triệu Tri Nặc trên tay, thấy dáng vẻ khó xử của Vương Kim Như, cô liền mỉm cười dịu dàng: "Thím à, Tô Miễn mang thai đôi một trai một gái rồi đúng không thím?"
+Từ Mạn Mạn đang bế Triệu Tri Nặc trên tay, thấy dáng vẻ khó xử của Vương Kim Như, cô liền mỉm cười dịu dàng: "Thím à, Tô Miến mang thai đôi một trai một gái rồi đúng không thím?"
 
 "Cháu... cháu biết rồi hả?"
 
 Vương Kim Như xoa xoa hai bàn tay vào nhau: "Mạn Mạn, cháu ngàn vạn lần đừng nghĩ ngợi linh tinh nhé. Cả nhà mình ai nấy đều thương yêu Tri Nặc nhất trần đời."
 
-Hứa Mạn Mạn cảm thấy vừa buồn cười vừa ấm lòng: "Chuyện tốt mà thím, Tri Nặc sắp có cả em trai lẫn em gái rồi."
+Từ Mạn Mạn cảm thấy vừa buồn cười vừa ấm lòng: "Chuyện tốt mà thím, Tri Nặc sắp có cả em trai lẫn em gái rồi."
 
 "....."
 
-Vương Kim Như làm sao biết được chuyện Hứa Mạn Mạn và Tô Miễn từng nhắn tin qua lại với nhau. Trước đó Hứa Mạn Mạn từng chúc Tô Miễn mẹ tròn con vuông, trong thâm tâm cô cũng đã nghĩ Tô Miễn sinh con trai, còn mình sinh con gái là trọn vẹn.
+Vương Kim Như làm sao biết được chuyện Từ Mạn Mạn và Tô Miến từng nhắn tin qua lại với nhau. Trước đó Từ Mạn Mạn từng chúc Tô Miến mẹ tròn con vuông, trong thâm tâm cô cũng đã nghĩ Tô Miến sinh con trai, còn mình sinh con gái là trọn vẹn.
 
 Bây giờ chỉ là có chút chệch hướng nhỏ ngoài dự tính mà thôi.
 
@@ -110,31 +108,31 @@ Bây giờ chỉ là có chút chệch hướng nhỏ ngoài dự tính mà thô
 
 Kinh đô Bắc Kinh.
 
-Quách Uyển Thanh cùng hai cô con dâu vừa đi mua sắm một chuyến lớn từ trung tâm thương mại trở về. Mọi người vô tình đánh thức Tô Miễn, rồi kéo nhau ríu rít vào phòng ngủ khoe từng món đồ một. Quả nhiên, mười món thì có tới tám chín món là dành cho bé gái.
+Quách Uyển Thanh cùng hai cô con dâu vừa đi mua sắm một chuyến lớn từ trung tâm thương mại trở về. Mọi người vô tình đánh thức Tô Miến, rồi kéo nhau ríu rít vào phòng ngủ khoe từng món đồ một. Quả nhiên, mười món thì có tới tám chín món là dành cho bé gái.
 
 Tông màu chủ đạo ngập tràn sắc hồng phấn và đỏ tươi rực rỡ.
 
-Tô Miễn tựa lưng vào đầu giường, bật cười nói: "Mẹ ơi, chiếc váy nhỏ mẹ cầm trên tay phải ba tuổi con bé mới mặc vừa đấy."
+Tô Miến tựa lưng vào đầu giường, bật cười nói: "Mẹ ơi, chiếc váy nhỏ mẹ cầm trên tay phải ba tuổi con bé mới mặc vừa đấy."
 
 "Chị dâu cả, bé gái tí xíu thì ai lại đi giày cao gót chứ?"
 
 "Chị dâu hai, đống kẹp tóc này của chị là tính đi buôn sỉ hay sao thế?"
 
-Tô Mặc đứng bên cạnh cười suýt ngất xỉu. Phùng Nhược Đan mua về mấy chục chiếc kẹp tóc nhỏ xinh, vờ lườm Tô Miễn đe dọa: "Thế rốt cuộc cô nương có thèm xem không nào?"
+Tô Mặc đứng bên cạnh cười suýt ngất xỉu. Phùng Nhược Đan mua về mấy chục chiếc kẹp tóc nhỏ xinh, vờ lườm Tô Miến đe dọa: "Thế rốt cuộc cô nương có thèm xem không nào?"
 
 "Đưa cho em! Rải hết lên giường đi, để em chọn xem cái nào đẹp nhất."
 
-Thực lòng mà nói, Tô Miễn thích nhất là những món đồ nhỏ nhắn đáng yêu này. Chỉ cần nghĩ đến cảnh tượng sau này con gái mình được diện đồ thật xinh xắn là lòng cô đã rộn ràng niềm vui. Cô bỗng nhớ ra điều gì liền hỏi: "Mọi người đã mua xe đẩy trẻ em chưa ạ?"
+Thực lòng mà nói, Tô Miến thích nhất là những món đồ nhỏ nhắn đáng yêu này. Chỉ cần nghĩ đến cảnh tượng sau này con gái mình được diện đồ thật xinh xắn là lòng cô đã rộn ràng niềm vui. Cô bỗng nhớ ra điều gì liền hỏi: "Mọi người đã mua xe đẩy trẻ em chưa ạ?"
 
 "Mua rồi chứ, để ngoài phòng khách kia kìa."
 
-Thấy Tô Miễn đưa mắt nhìn mình, Quách Uyển Thanh ngồi xuống mép giường, nắm lấy bàn tay thanh mảnh của con gái: "Con cứ yên tâm, mẹ sẽ chuẩn bị chu toàn tất thảy mọi thứ. Việc duy nhất của con là bình an sinh con ra, ngoài ra không phải bận tâm bất cứ chuyện gì trên đời hết."
+Thấy Tô Miến đưa mắt nhìn mình, Quách Uyển Thanh ngồi xuống mép giường, nắm lấy bàn tay thanh mảnh của con gái: "Con cứ yên tâm, mẹ sẽ chuẩn bị chu toàn tất thảy mọi thứ. Việc duy nhất của con là bình an sinh con ra, ngoài ra không phải bận tâm bất cứ chuyện gì trên đời hết."
 
-Khương Phức Hàm cũng tiếp lời: "Đúng đấy, Miễn Miễn còn có tụi chị cơ mà. Em cứ ngoan ngoãn nghe lời dặn của bác sĩ là được rồi."
+Khương Phức Hàm cũng tiếp lời: "Đúng đấy, Miến Miến còn có tụi chị cơ mà. Em cứ ngoan ngoãn nghe lời dặn của bác sĩ là được rồi."
 
-Sau phút giây kinh ngạc ban đầu, họ đều là những người hiểu rõ thể trạng đặc biệt của cô. May mắn là bác sĩ khẳng định tình trạng sức khỏe hiện tại của Tô Miễn đang tiến triển rất tốt.
+Sau phút giây kinh ngạc ban đầu, họ đều là những người hiểu rõ thể trạng đặc biệt của cô. May mắn là bác sĩ khẳng định tình trạng sức khỏe hiện tại của Tô Miến đang tiến triển rất tốt.
 
-Tô Miễn lúc này chẳng làm được việc nặng gì, chỉ có thể nằm đó buông lời chỉ đạo.
+Tô Miến lúc này chẳng làm được việc nặng gì, chỉ có thể nằm đó buông lời chỉ đạo.
 
 Cô vuốt ve mép váy nhỏ, nhận xét: "Đồ mua ngoài thế này không được tinh xảo lắm. Sau này con gái em nhất định phải mặc váy Mã Diện, đặt may thủ công riêng theo số đo."
 
@@ -144,7 +142,7 @@ Phùng Nhược Đan liếc cô một cái: "Có phải cũng phải thêu chỉ
 
 "Mẹ..."
 
-Tô Miễn khẽ gọi một tiếng, giọng điệu có chút làm nũng.
+Tô Miến khẽ gọi một tiếng, giọng điệu có chút làm nũng.
 
 "Được, được hết!"
 
@@ -152,11 +150,11 @@ Quách Uyển Thanh chiều chuộng con gái vô điều kiện. Bà lập tứ
 
 "Thế chẳng hóa ra đống váy nhỏ này tụi em mua uổng công à?"
 
-Phùng Nhược Đan thở dài than vãn: "Tô Miễn, em không thể tước đoạt niềm vui mua sắm của bọn chị tàn nhẫn như thế được đâu nhé."
+Phùng Nhược Đan thở dài than vãn: "Tô Miến, em không thể tước đoạt niềm vui mua sắm của bọn chị tàn nhẫn như thế được đâu nhé."
 
-Tô Miễn mỉm cười rạng rỡ: "Vẫn còn giày với kẹp tóc mà chị."
+Tô Miến mỉm cười rạng rỡ: "Vẫn còn giày với kẹp tóc mà chị."
 
-Nói về phương diện khí chất, dẫu cho Tô Miễn phải ngồi xe lăn thì dung mạo và cốt cách thanh tao của cô vẫn cao hơn Khương Phức Hàm và Phùng Nhược Đan một bậc. Đó là thần thái kiêu sa được hun đúc từ trong nôi của gia tộc họ Tô danh giá bậc nhất.
+Nói về phương diện khí chất, dẫu cho Tô Miến phải ngồi xe lăn thì dung mạo và cốt cách thanh tao của cô vẫn cao hơn Khương Phức Hàm và Phùng Nhược Đan một bậc. Đó là thần thái kiêu sa được hun đúc từ trong nôi của gia tộc họ Tô danh giá bậc nhất.
 
 ...
 
@@ -164,20 +162,20 @@ Nói về phương diện khí chất, dẫu cho Tô Miễn phải ngồi xe lă
 
 Điện thoại khẽ rung lên một tiếng "ting".
 
-Hứa Mạn Mạn: [Tô Miễn, chúc mừng cô, đủ nếp đủ tẻ.]
+Từ Mạn Mạn: [Tô Miến, chúc mừng cô, đủ nếp đủ tẻ.]
 
-Hai người phụ nữ dường như đã có một sự ăn ý ngầm từ trước. Tô Miễn biết rõ vào thời điểm này Hứa Mạn Mạn sẽ nhắn tin sang, cô cầm điện thoại gõ phím hồi đáp: [Cái tên Triệu Tri Nặc nghe rất hay.]
+Hai người phụ nữ dường như đã có một sự ăn ý ngầm từ trước. Tô Miến biết rõ vào thời điểm này Từ Mạn Mạn sẽ nhắn tin sang, cô cầm điện thoại gõ phím hồi đáp: [Cái tên Triệu Tri Nặc nghe rất hay.]
 
-Hứa Mạn Mạn: [Cảm ơn cô.]
+Từ Mạn Mạn: [Cảm ơn cô.]
 
-Hứa Mạn Mạn: [Cô đã nghĩ ra tên cho hai bé chưa?]
+Từ Mạn Mạn: [Cô đã nghĩ ra tên cho hai bé chưa?]
 
-Tô Miễn: [Chưa, tôi vẫn đang lật từ điển tìm chữ.]
+Tô Miến: [Chưa, tôi vẫn đang lật từ điển tìm chữ.]
 
 Một thoáng sau.
 
-Tô Miễn: [Hãy dạy dỗ Tri Nặc thật tốt nhé.]
+Tô Miến: [Hãy dạy dỗ Tri Nặc thật tốt nhé.]
 
 Khoảng năm phút trôi qua.
 
-Hứa Mạn Mạn: [Em sẽ làm được.]
+Từ Mạn Mạn: [Em sẽ làm được.]

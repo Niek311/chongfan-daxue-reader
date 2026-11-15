@@ -1,7 +1,5 @@
 # Chương 200: Kim An, lương của cậu có cao không?
 
-> **Tiêu đề gốc**: 第200章 今安，你的工资高吗？
-
 "Vậy thì xuất phát thôi."
 
 Triệu Kim An khẽ gật đầu chào mấy cô gái phòng 406, không hề dành thêm ánh nhìn đặc biệt nào cho bất kỳ ai.

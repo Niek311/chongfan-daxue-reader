@@ -1,7 +1,5 @@
 # Chương 484: Công ty, danh phận
 
-> **Tiêu đề gốc**: 第484章 公司，名分。
-
 Nhìn một dàn đàn ông trung niên đang đùn đẩy nhường nhịn nhau, Lạc Cẩn Chi hai tay khoanh trước ngực, hờ hững buông một câu: "Ngồi đâu mà chẳng được."
 
 Nếu Thẩm Tử Ngôn vẫn còn ở lại công ty, về cơ bản chẳng có gì phải tranh giành hay đắn đo cả.

@@ -1,7 +1,5 @@
 # Chương 97: Tôi không có sở thích đó.
 
-> **Tiêu đề gốc**: 第97章 我没那个爱好。
-
 "Triệu tổng, Lạc tổng, một chiếc tủ mát nếu phối hợp trưng bày như thế này có thể chứa được lượng hàng trị giá khoảng bảy trăm tệ."
 
 Trong văn phòng.

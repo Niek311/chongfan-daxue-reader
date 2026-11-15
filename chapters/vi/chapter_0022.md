@@ -1,7 +1,5 @@
 # Chương 22: Thuận theo tự nhiên
 
-> **Tiêu đề gốc**: 第22章 随遇而安。
-
 Phiên bản QQ trên điện thoại di động năm 2006 hiếm có dòng máy nào hỗ trợ tính năng ẩn trạng thái hoạt động. Tính năng ẩn thân này chỉ thực sự trở nên phổ biến trên di động vào khoảng năm 2008, khi mạng 3G và điện thoại thông minh từng bước phát triển mạnh mẽ.
 
 Điều này chứng tỏ Triệu Kim An thực sự không hề online.

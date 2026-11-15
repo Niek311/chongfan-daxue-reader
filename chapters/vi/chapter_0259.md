@@ -1,7 +1,5 @@
 # Chương 259: Luôn phải có người rời cuộc chơi
 
-> **Tiêu đề gốc**: 第259章 总要有个出局。
-
 Triệu Bác Lan nhắn tin tới chắc chắn không đơn thuần chỉ là để thông báo chuyện hắn được lên tivi.
 
 Cô nàng biết rất rõ sự hiện diện của Thẩm Tử Ngôn, Từ Mạn Mạn và cả Đường Hiểu Tình.
@@ -22,13 +20,13 @@ Triệu Bác Lan: "Kim An này, vấn đề quan trọng là mấy người bọ
 
 Triệu Bác Lan: "Nếu như không ai nhận ra mặt thím thì coi như chẳng có chuyện gì xảy ra cả."
 
-Ừ nhỉ, bọn họ làm sao mà quen biết Tô Miễn được cơ chứ!
+Ừ nhỉ, bọn họ làm sao mà quen biết Tô Miến được cơ chứ!
 
-Ngoại trừ thằng bạn thân Vương Duy Đào ra, căn bản chẳng có ai từng gặp mặt Tô Miễn cả.
+Ngoại trừ thằng bạn thân Vương Duy Đào ra, căn bản chẳng có ai từng gặp mặt Tô Miến cả.
 
 Huống hồ ai nấy đều chưa phải là bạn gái chính thức của hắn, thật chẳng hiểu Triệu Kim An hắn lại phải căng thẳng, chột dạ cái nỗi gì.
 
-Triệu Kim An hoàn toàn không hề hay biết rằng vào cái đêm dạ hội kỷ niệm ngày thành lập trường năm ngoái, lúc hắn đẩy chiếc xe lăn chở Tô Miễn dạo bước trong khuôn viên, toàn bộ nữ sinh của cả hai phòng ký túc xá 303 và 406 đều đã vô tình nhìn thấy tận mắt.
+Triệu Kim An hoàn toàn không hề hay biết rằng vào cái đêm dạ hội kỷ niệm ngày thành lập trường năm ngoái, lúc hắn đẩy chiếc xe lăn chở Tô Miến dạo bước trong khuôn viên, toàn bộ nữ sinh của cả hai phòng ký túc xá 303 và 406 đều đã vô tình nhìn thấy tận mắt.
 
 Xưa nay chưa từng làm "tra nam" lăng nhăng bao giờ nên hắn hoàn toàn thiếu kinh nghiệm xử lý trong mấy tình huống thế này. Triệu Kim An lúc này mới thấm thía rằng làm một gã đàn ông trăng hoa chẳng hề sung sướng gì, trái tim nhất định phải tôi luyện cho thật sắt đá, thần kinh phải cực kỳ vững vàng.
 
@@ -46,11 +44,11 @@ Chỉ cần vung cho chút tiền còm là cô nàng đã tự động biết th
 
 "Kim An ơi, công việc của anh bận lắm hả?"
 
-Tô Miễn ngồi bên cạnh ngước đôi mắt trong veo tò mò cất tiếng hỏi.
+Tô Miến ngồi bên cạnh ngước đôi mắt trong veo tò mò cất tiếng hỏi.
 
 "Không có đâu em."
 
-Triệu Kim An vô cùng thản nhiên đưa chiếc điện thoại sang cho Tô Miễn xem: "Mấy đứa bạn cùng lớp vừa thấy anh lướt qua trên tivi nên đang nhắn tin rôm rả ấy mà."
+Triệu Kim An vô cùng thản nhiên đưa chiếc điện thoại sang cho Tô Miến xem: "Mấy đứa bạn cùng lớp vừa thấy anh lướt qua trên tivi nên đang nhắn tin rôm rả ấy mà."
 
 Hắn đâu ngờ rằng hành động này mới chính là cảnh giới tối cao của một tay lão luyện tình trường.
 
@@ -58,7 +56,7 @@ Nếu như hắn cứ lấm la lấm lét, giấu giếm không dám cho xem th�
 
 "Thế bạn Vương Duy Đào đâu rồi anh?"
 
-Tô Miễn chăm chú nhìn vào màn hình một lúc rồi hỏi: "Ai trong số này là bạn Vương Duy Đào thế anh?"
+Tô Miến chăm chú nhìn vào màn hình một lúc rồi hỏi: "Ai trong số này là bạn Vương Duy Đào thế anh?"
 
 "Ủa, em vẫn còn nhớ đến cái tên Vương Duy Đào cơ à?"
 
@@ -80,7 +78,7 @@ Duy chỉ có Cốc Siêu Thừa là ngồi im thin thít, nhất quyết không
 
 Cậu ta còn ngây thơ thầm tưởng rằng Triệu Kim An sẽ nhận ra sự im lặng của mình, rồi sẽ chủ động @ riêng hỏi thăm một câu gì đó.
 
-Nào ngờ Triệu Kim An căn bản chẳng thèm để tâm đến sự tồn tại của cậu ta. Hắn chỉ quay sang chỉ cho Tô Miễn biết cái nick "Đào Tử" kia chính là Vương Duy Đào, sau đó còn tiện tay bấm nút thao tác trên máy giúp Tô Miễn kết bạn QQ với Vương Duy Đào.
+Nào ngờ Triệu Kim An căn bản chẳng thèm để tâm đến sự tồn tại của cậu ta. Hắn chỉ quay sang chỉ cho Tô Miến biết cái nick "Đào Tử" kia chính là Vương Duy Đào, sau đó còn tiện tay bấm nút thao tác trên máy giúp Tô Miến kết bạn QQ với Vương Duy Đào.
 
 ...
 

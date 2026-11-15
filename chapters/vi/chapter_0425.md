@@ -1,7 +1,5 @@
 # Chương 425: Phú hào chục triệu.
 
-> **Tiêu đề gốc**: 第425章 千万富豪。
-
 Mùng Một Tết.
 
 Hai anh em Tô Cảnh Ngôn và Tô Cảnh Hành dắt theo vợ con đáp chuyến bay sớm trở về Bắc Kinh sum vầy.
@@ -72,7 +70,7 @@ Tống Uyển Hòa dẫu nay đã đi làm có thu nhập đàng hoàng nhưng c
 
 "Anh trai mày bây giờ là tỷ phú nắm giữ cả trăm triệu trong tay đấy!"
 
-Tống Uyển Hòa liếc xéo người mẹ kế Đoàn Thu Bình đang cặm cụi thu dọn bát đĩa nơi bồn rửa, rồi ngồi ghé sát mép sô pha, cất giọng the thé đầy vẻ châm chọc, xúi bẩy: "Mày phải mở miệng nằng nặc đòi anh trai mày cho tiền chứ! Nó nhiều tiền như núi, chỉ cần tùy tiện bố thí cho mày một góc nhỏ thôi là cả đời này mày tha hồ ăn sung mặc sướng, không phải cực nhọc đi làm thuê làm mướn kiếm từng đồng bạc cắc như chị mày đây này. Cứ nhìn chị mà xem, đứng chôn chân ở hiệu thuốc suốt cả ngày mỏi rã rời cả lưng, vậy mà lương tháng nhận về bèo bọt chẳng bõ dính răng."
+Tống Uyển Hòa liếc xéo người mẹ kế Đoạn Thu Bình đang cặm cụi thu dọn bát đĩa nơi bồn rửa, rồi ngồi ghé sát mép sô pha, cất giọng the thé đầy vẻ châm chọc, xúi bẩy: "Mày phải mở miệng nằng nặc đòi anh trai mày cho tiền chứ! Nó nhiều tiền như núi, chỉ cần tùy tiện bố thí cho mày một góc nhỏ thôi là cả đời này mày tha hồ ăn sung mặc sướng, không phải cực nhọc đi làm thuê làm mướn kiếm từng đồng bạc cắc như chị mày đây này. Cứ nhìn chị mà xem, đứng chôn chân ở hiệu thuốc suốt cả ngày mỏi rã rời cả lưng, vậy mà lương tháng nhận về bèo bọt chẳng bõ dính răng."
 
 Tống Uyển Hòa cất giọng rủ rỉ bên tai đứa nhỏ. Cái lối dạy dỗ ti tiện ấy chẳng rõ là muốn tốt cho Tống Gia Nguyệt hay đang cố tình tiêm nhiễm những thói hư tật xấu vào đầu óc non nớt của con bé, hoặc giả sâu xa hơn chính là vì lòng dạ tư lợi ích kỷ của bản thân: chỉ cần Triệu Kim An chịu chi tiền cho Tống Gia Nguyệt, ắt hẳn cô ta cũng sẽ tìm cách bám váy ăn theo, chấm mút được đôi phần.
 
@@ -88,25 +86,25 @@ Tống Gia Nguyệt ngây thơ cầm chiếc phong bao đỏ chứa hai mươi t
 
 "Ai thèm lấy hai mươi tệ rách nát này của mày chứ?!"
 
-Tống Uyển Hòa lườm đứa em một cái cháy mặt, liếc nhìn bóng lưng nhẫn nhục làm việc của Đoàn Thu Bình rồi lại nhìn vẻ mặt ngây ngô của Tống Gia Nguyệt, trong lòng không khỏi tức tối chửi thầm: Đúng là một lũ ngu ngốc, đần độn hết chỗ nói!
+Tống Uyển Hòa lườm đứa em một cái cháy mặt, liếc nhìn bóng lưng nhẫn nhục làm việc của Đoạn Thu Bình rồi lại nhìn vẻ mặt ngây ngô của Tống Gia Nguyệt, trong lòng không khỏi tức tối chửi thầm: Đúng là một lũ ngu ngốc, đần độn hết chỗ nói!
 
-Theo tục lệ, gia đình bốn người nhà họ Tống đến mùng Hai Tết sẽ phải sang chúc Tết họ hàng bên nội. Đám bà con họ hàng bên nhà Tống Siêu Văn bao giờ cũng dành sự ưu ái, yêu quý cho Tống Uyển Hòa hơn hẳn, và luôn tỏ thái độ ghẻ lạnh, hắt hủi đối với Tống Gia Nguyệt. Điều đó cũng vô cùng dễ hiểu, bởi lẽ Tống Gia Nguyệt chỉ là đứa con do người vợ kế Đoàn Thu Bình sinh ra sau này.
+Theo tục lệ, gia đình bốn người nhà họ Tống đến mùng Hai Tết sẽ phải sang chúc Tết họ hàng bên nội. Đám bà con họ hàng bên nhà Tống Siêu Văn bao giờ cũng dành sự ưu ái, yêu quý cho Tống Uyển Hòa hơn hẳn, và luôn tỏ thái độ ghẻ lạnh, hắt hủi đối với Tống Gia Nguyệt. Điều đó cũng vô cùng dễ hiểu, bởi lẽ Tống Gia Nguyệt chỉ là đứa con do người vợ kế Đoạn Thu Bình sinh ra sau này.
 
 Hiểu rõ thân phận mình không được người ta chào đón, Tống Gia Nguyệt chỉ biết cố công lấy lòng người chị gái Tống Uyển Hòa, với hy vọng ngây thơ rằng khi sang bên nội chúc Tết sẽ không bị lũ trẻ con bên ấy xúm vào trêu chọc, bắt nạt.
 
-Kỳ thực, Từ Mạn Mạn trước đó từng kín đáo đem chuyện này ra hỏi qua ý kiến của Triệu Kim An. Riêng Tô Miến thì thừa hiểu Đoàn Thu Bình vốn chẳng ưa thích gì mình, nên cô tuyệt đối không làm cái chuyện thừa thãi là nhúng tay vào, chẳng việc gì phải tự chuốc lấy phiền toái hay làm mẹ chồng tương lai thêm chướng tai gai mắt.
+Kỳ thực, Từ Mạn Mạn trước đó từng kín đáo đem chuyện này ra hỏi qua ý kiến của Triệu Kim An. Riêng Tô Miến thì thừa hiểu Đoạn Thu Bình vốn chẳng ưa thích gì mình, nên cô tuyệt đối không làm cái chuyện thừa thãi là nhúng tay vào, chẳng việc gì phải tự chuốc lấy phiền toái hay làm mẹ chồng tương lai thêm chướng tai gai mắt.
 
 Đó chính là phong thái rất riêng của Tô Miến.
 
 Bác đã không ưa tôi thì tôi cũng chẳng thèm hạ mình lấy lòng bác, dẫu cho bác có là mẹ ruột của Triệu Kim An đi chăng nữa.
 
-Thế nhưng Từ Mạn Mạn thì khác, cô từng có khoảng thời gian kề cận tiếp xúc với cả Đoàn Thu Bình lẫn bé Tống Gia Nguyệt, thế nên cô mới tinh ý hỏi Triệu Kim An xem có cần chuẩn bị một phong bao lì xì gửi cho con bé hay không.
+Thế nhưng Từ Mạn Mạn thì khác, cô từng có khoảng thời gian kề cận tiếp xúc với cả Đoạn Thu Bình lẫn bé Tống Gia Nguyệt, thế nên cô mới tinh ý hỏi Triệu Kim An xem có cần chuẩn bị một phong bao lì xì gửi cho con bé hay không.
 
 Triệu Kim An chỉ nhàn nhạt buông một câu: "Tùy em."
 
-Từ Mạn Mạn có lưu số điện thoại của Đoàn Thu Bình nhưng lại không có số tài khoản ngân hàng, vả lại sau đó cô sực nhớ ra rằng có lẽ bà ấy đến giờ vẫn chưa hề hay biết chuyện mình đang mang thai, nghĩ đi nghĩ lại thấy không tiện nên đành gác lại chuyện ấy.
+Từ Mạn Mạn có lưu số điện thoại của Đoạn Thu Bình nhưng lại không có số tài khoản ngân hàng, vả lại sau đó cô sực nhớ ra rằng có lẽ bà ấy đến giờ vẫn chưa hề hay biết chuyện mình đang mang thai, nghĩ đi nghĩ lại thấy không tiện nên đành gác lại chuyện ấy.
 
-Đoàn Thu Bình quả thực hoàn toàn mù tịt về tình cảnh của Từ Mạn Mạn, bởi lẽ chẳng có lấy một ai rảnh rỗi chạy đến báo tin cho bà hay.
+Đoạn Thu Bình quả thực hoàn toàn mù tịt về tình cảnh của Từ Mạn Mạn, bởi lẽ chẳng có lấy một ai rảnh rỗi chạy đến báo tin cho bà hay.
 
 Thế nhưng vợ chồng Từ Tắc Đống và Lương Tuệ Trân thì đã nắm rõ mười mươi trong lòng bàn tay!
 

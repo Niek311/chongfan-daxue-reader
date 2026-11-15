@@ -1,7 +1,5 @@
 # Chương 267: Trèo cao
 
-> **Tiêu đề gốc**: 第267章 高攀了。
-
 "Năm ngàn tệ cơ á?!"
 
 Cả Phương Khiết lẫn Lưu Sấm Phong đồng thanh thốt lên, trên gương mặt hai người ngập tràn vẻ bàng hoàng không dám tin.

@@ -1,7 +1,5 @@
 # Chương 265: Cậu lấy gì để trả?
 
-> **Tiêu đề gốc**: 第265章 你拿什么还？
-
 Căn phòng trọ đang bật máy điều hòa mát lạnh, Lâm Thanh Tuyết phải mở hé cánh cửa sổ để xua bớt mùi khói thuốc lá nồng nặc. Chiếc giường rộng một mét rưỡi kê sát góc tường, bên cạnh là chiếc sọt rác chứa đầy những mẩu giấy ăn vo tròn vứt ngổn ngang.
 
 Về phương diện chăn gối này, Trần Trạch thực sự vô cùng say đắm Lâm Thanh Tuyết.
@@ -96,7 +94,7 @@ Trải qua biến cố lần trước, Lâm Thanh Tuyết đã nhìn thấu sự
 
 Đến cả Lâm Thanh Tuyết còn phân tích đâu ra đấy như vậy.
 
-Bản thân Trần Trạch hoàn toàn không đủ tư cách đại diện cho bà Dương Thục Mỹ, chuyện hệ trọng cỡ này bắt buộc phải do đích thân Dương Thục Mỹ đứng ra đàm phán.
+Bản thân Trần Trạch hoàn toàn không đủ tư cách đại diện cho bà Dương Thù Mỹ, chuyện hệ trọng cỡ này bắt buộc phải do đích thân Dương Thù Mỹ đứng ra đàm phán.
 
 Nên nhớ hiện tại mới chỉ là năm 2008, một cậu sinh viên năm ba đại học lại dám mở miệng đòi dựa vào uy tín cá nhân để vay ba triệu, năm triệu tệ, số tiền ấy đủ để mua đứt vài căn hộ cao cấp ngay giữa lòng thủ đô Bắc Kinh.
 
@@ -106,7 +104,7 @@ Còn nếu quy đổi ra giá nhà đất ở thành phố cấp tỉnh như Tr�
 
 Trần Trạch há hốc miệng, bỗng cảm thấy như vừa tìm được một chỗ dựa tinh thần.
 
-Từ nhỏ đến lớn Trần Trạch đã được bao bọc và che chở quá mức cẩn thận. Chẳng kể đến mẹ Dương Thục Mỹ và Từ Mạn Mạn, ngay cả chú Từ Tắc Đống cùng dì Lương Tuệ Trân cũng luôn yêu thương, chiều chuộng anh hết mực.
+Từ nhỏ đến lớn Trần Trạch đã được bao bọc và che chở quá mức cẩn thận. Chẳng kể đến mẹ Dương Thù Mỹ và Từ Mạn Mạn, ngay cả chú Từ Tắc Đống cùng dì Lương Tuệ Trân cũng luôn yêu thương, chiều chuộng anh hết mực.
 
 Dì Lương lúc nào mở miệng ra cũng bênh vực: "Thằng Trần Trạch là con trai, đứa trẻ nào chẳng trưởng thành muộn hơn một chút, ham chơi một tí cũng là chuyện hết sức bình thường."
 
@@ -148,7 +146,7 @@ Triệu Kim An thuận miệng hỏi một câu.
 
 "Cậu ta mở miệng đòi vay tận năm triệu tệ, tôi lấy đâu ra ngần ấy tiền chứ. Dẫu tôi có muốn cho vay thì cũng phải về xin bố mẹ tôi, mà cậu nghĩ bố mẹ tôi làm ăn kinh doanh lại hành xử như trò đùa con nít thế sao? Nếu làm ăn mà cứ tùy tiện như trẻ con chơi đồ hàng thì công ty đã sớm đóng cửa phá sản từ lâu rồi."
 
-"Ý cậu là mấy nhà máy của bà Dương Thục Mỹ ở Dương Thành sao?"
+"Ý cậu là mấy nhà máy của bà Dương Thù Mỹ ở Dương Thành sao?"
 
 Triệu Kim An tiếp lời rất nhanh.
 

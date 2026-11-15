@@ -1,7 +1,5 @@
 # Chương 68: Biến hình kế
 
-> **Tiêu đề gốc**: 第68章 变形计。
-
 Ở kiếp trước, có lẽ Triệu Kim An cũng từng bị các bạn cán sự cùng phòng mang hồ sơ hoàn cảnh ra mổ xẻ, bàn tán như thế, chỉ là khi ấy cậu không vô tình bắt gặp mà thôi. Cậu xách túi nước ngọt sang phòng ký túc xá của Vương Vĩ Đào.
 
 Nhìn thấy cả một túi to tướng toàn chai lọ nước giải khát, Vương Vĩ Đào trố mắt ngây người.
@@ -46,7 +44,7 @@ Lưu Sấm Phong vừa mới được bầu làm cán bộ lớp nên hăng hái
 
 Trần Trạch và Lưu Sấm Phong mỗi người cầm một chiếc điện thoại, màn hình cứ sáng rực liên hồi.
 
-Triệu Kim An liếc nhìn Trần Trạch, thật không hiểu nổi cậu ta và Hứa Mạn Mạn quen biết nhau ngần ấy năm trời từ thuở cởi truồng tắm mưa, rốt cuộc lấy đâu ra lắm chuyện để nhắn tin buôn dưa lê thâu đêm suốt sáng đến thế.
+Triệu Kim An liếc nhìn Trần Trạch, thật không hiểu nổi cậu ta và Từ Mạn Mạn quen biết nhau ngần ấy năm trời từ thuở cởi truồng tắm mưa, rốt cuộc lấy đâu ra lắm chuyện để nhắn tin buôn dưa lê thâu đêm suốt sáng đến thế.
 
 Mở máy tính, đăng nhập vào QQ, biểu tượng chú chim cánh cụt ở góc phải màn hình lập tức nhấp nháy không ngừng.
 
@@ -74,9 +72,9 @@ Nghĩ ngợi một thoáng, cậu cũng lịch sự gõ thêm một biểu tư�
 
 Triệu Kim An tiếp tục nhấp vào biểu tượng chim cánh cụt đang nhấp nháy khác. Người này nhắn tin tới khiến cậu có chút bất ngờ.
 
-[Mạn Đau Đau]: "Chào Triệu Kim An, mình là Hứa Mạn Mạn. Nghe Trần Trạch bảo cậu lại mang đồ khô ở quê lên, mình chưa từng được ăn bao giờ, nếu tiện thì cho mình nếm thử một chút được không?"
+[Mạn Đau Đau]: "Chào Triệu Kim An, mình là Từ Mạn Mạn. Nghe Trần Trạch bảo cậu lại mang đồ khô ở quê lên, mình chưa từng được ăn bao giờ, nếu tiện thì cho mình nếm thử một chút được không?"
 
-Đọc dòng tin nhắn này, Triệu Kim An lại bất giác nhớ tới hình ảnh Hứa Mạn Mạn trong quán bar vào cái đêm định mệnh của kiếp trước. Lời lẽ của Hứa Mạn Mạn vừa lễ phép, đúng mực, lại khéo léo nhắc tới Trần Trạch để giữ khoảng cách chừng mực.
+Đọc dòng tin nhắn này, Triệu Kim An lại bất giác nhớ tới hình ảnh Từ Mạn Mạn trong quán bar vào cái đêm định mệnh của kiếp trước. Lời lẽ của Từ Mạn Mạn vừa lễ phép, đúng mực, lại khéo léo nhắc tới Trần Trạch để giữ khoảng cách chừng mực.
 
 Triệu Kim An: "Được chứ."
 
@@ -84,7 +82,7 @@ Trưa hôm sau vừa tan học, bọn Trần Trạch đi trước ra nhà ăn x�
 
 Mở tủ đồ ra, ngẫm nghĩ một lát, cậu lấy thêm một túi nhỏ đựng ít hạt dẻ quê của bà nội.
 
-Khi Triệu Kim An bước vào nhà ăn, Trần Trạch đã gọi sẵn một bàn đầy thức ăn và ngồi sát bên cạnh Hứa Mạn Mạn. Hứa Mạn Mạn ngồi thẳng lưng đoan trang, khẽ mỉm cười gật đầu: "Chào Triệu Kim An."
+Khi Triệu Kim An bước vào nhà ăn, Trần Trạch đã gọi sẵn một bàn đầy thức ăn và ngồi sát bên cạnh Từ Mạn Mạn. Từ Mạn Mạn ngồi thẳng lưng đoan trang, khẽ mỉm cười gật đầu: "Chào Triệu Kim An."
 
 Triệu Kim An mỉm cười gật đầu chào lại: "Chào cậu."
 
@@ -92,15 +90,15 @@ Lưu Sấm Phong liền oang oang cái mồm: "Kim An, túi hạt dẻ này mày
 
 "Món này ngoài phố bán đầy, có đắt đỏ gì đâu."
 
-Triệu Kim An vừa nói vừa đưa túi hạt dẻ sang cho Hứa Mạn Mạn: "Tặng cậu này, hạt dẻ bà nội mình tự trồng ở quê đấy."
+Triệu Kim An vừa nói vừa đưa túi hạt dẻ sang cho Từ Mạn Mạn: "Tặng cậu này, hạt dẻ bà nội mình tự trồng ở quê đấy."
 
-Hứa Mạn Mạn hơi bất ngờ, liền đứng dậy hai tay đỡ lấy túi hạt dẻ, cất giọng cảm ơn dịu dàng.
+Từ Mạn Mạn hơi bất ngờ, liền đứng dậy hai tay đỡ lấy túi hạt dẻ, cất giọng cảm ơn dịu dàng.
 
 Lưu Sấm Phong: "......"
 
 Hóa ra nãy giờ mỗi mình là thằng hề à?
 
-Cậu ta liếc mắt nhìn Trần Trạch và Cốc Siêu Thừa, thấy hai đứa kia mặt mày tỉnh bơ không phản ứng gì đặc biệt, lại nhìn sang Hứa Mạn Mạn thấy cô nàng cũng nhận quà rất tự nhiên, phóng khoáng.
+Cậu ta liếc mắt nhìn Trần Trạch và Cốc Siêu Thừa, thấy hai đứa kia mặt mày tỉnh bơ không phản ứng gì đặc biệt, lại nhìn sang Từ Mạn Mạn thấy cô nàng cũng nhận quà rất tự nhiên, phóng khoáng.
 
 Trần Trạch lên tiếng: "Kim An, cơm ở nhà ăn rẻ bèo nên bữa này tao bao nhé."
 
@@ -108,11 +106,11 @@ Triệu Kim An lấy ra hai lọ đồ khô, một lọ cá mắm khô, một l�
 
 "Cậu cũng biết bắt cá cơ à?"
 
-Hứa Mạn Mạn tròn xoe mắt ngạc nhiên, giống như vừa phát hiện ra một điều gì đó vô cùng mới mẻ và thú vị.
+Từ Mạn Mạn tròn xoe mắt ngạc nhiên, giống như vừa phát hiện ra một điều gì đó vô cùng mới mẻ và thú vị.
 
 Cốc Siêu Thừa chen vào: "Tao cũng biết bắt cá mà, dân ở quê tao ai chẳng biết lội sông bắt cá."
 
-Hứa Mạn Mạn thích thú: "Thực sự rất muốn có dịp về quê các cậu chơi một chuyến."
+Từ Mạn Mạn thích thú: "Thực sự rất muốn có dịp về quê các cậu chơi một chuyến."
 
 Trần Trạch quả là một người bạn trai chuẩn mực, anh chàng lập tức vặn nắp chai nước đưa cho người yêu rồi tiếp lời: "Chuyện đó có gì khó đâu, lúc nào nghỉ lễ anh lái xe chở em đi. Quê lão Cốc cũng gần, chỉ có quê lão Lưu là hơi xa một chút thôi."
 
@@ -120,7 +118,7 @@ Lưu Sấm Phong hào hứng: "Quê tao thì phải để mùa đông hẵng t�
 
 Cốc Siêu Thừa gãi đầu cười ngượng: "Trạch ca, anh có mỗi một chiếc xe... trong khi chỉ có anh là có bạn gái, ba đứa bọn em toàn là lũ ế chỏng gọng."
 
-Hứa Mạn Mạn không tham gia vào câu chuyện trêu chọc của mấy người con trai, cô cầm đũa gắp một miếng cá khô nếm thử, rồi gật gù: "Hơi cay một chút, nhưng mà vị đậm đà và ngon lắm."
+Từ Mạn Mạn không tham gia vào câu chuyện trêu chọc của mấy người con trai, cô cầm đũa gắp một miếng cá khô nếm thử, rồi gật gù: "Hơi cay một chút, nhưng mà vị đậm đà và ngon lắm."
 
 Nói đoạn, cô lại đưa đũa gắp thêm một miếng nữa.
 
@@ -130,11 +128,11 @@ Anh chàng cứ ngỡ gia cảnh nhà Triệu Kim An thuộc dạng "nghèo rớ
 
 Nhìn bàn ăn thế này, có cá có thịt, trong hũ ngập tràn mỡ màng, xem ra cuộc sống cũng tươm tất đấy chứ.
 
-Trong trí tưởng tượng của những đứa trẻ thành thị như Trần Trạch và Hứa Mạn Mạn, người nghèo ở vùng sâu vùng xa phải giống như trên phóng sự truyền hình đưa tin: không có tiền đóng học phí, sống trong những căn nhà tranh vách đất dột nát tăm tối, ngoài trời mưa to thì trong nhà mưa nhỏ, quanh năm suốt tháng không được nếm nổi một miếng thịt.
+Trong trí tưởng tượng của những đứa trẻ thành thị như Trần Trạch và Từ Mạn Mạn, người nghèo ở vùng sâu vùng xa phải giống như trên phóng sự truyền hình đưa tin: không có tiền đóng học phí, sống trong những căn nhà tranh vách đất dột nát tăm tối, ngoài trời mưa to thì trong nhà mưa nhỏ, quanh năm suốt tháng không được nếm nổi một miếng thịt.
 
-Chương trình truyền hình thực tế "Biến Hình Kế" đang được phát sóng số đầu tiên trên đài truyền hình vệ tinh Hồ Nam và tạo nên cơn sốt lớn. Hứa Mạn Mạn cũng từng đón xem vài tập.
+Chương trình truyền hình thực tế "Biến Hình Kế" đang được phát sóng số đầu tiên trên đài truyền hình vệ tinh Hồ Nam và tạo nên cơn sốt lớn. Từ Mạn Mạn cũng từng đón xem vài tập.
 
-Khi xem, Hứa Mạn Mạn bất giác tự liên tưởng: Trần Trạch chính là công tử thành phố sung túc, còn Triệu Kim An là cậu bé vùng núi nghèo khó...
+Khi xem, Từ Mạn Mạn bất giác tự liên tưởng: Trần Trạch chính là công tử thành phố sung túc, còn Triệu Kim An là cậu bé vùng núi nghèo khó...
 
 Chỉ có Lưu Sấm Phong là người gốc Đông Bắc, vốn không quen ăn cay, lên tiếng giải thích: "Trạch ca, anh với Mạn Mạn chỉ ăn đổi gió một bữa thấy ngon miệng thôi, chứ bọn em ở quê là phải ăn triền miên suốt cả tuần lễ, ngày ba bữa cơm chỉ quanh đi quẩn lại đúng hai cái lọ này."
 
@@ -144,7 +142,7 @@ Chỉ có Lưu Sấm Phong là người gốc Đông Bắc, vốn không quen ă
 
 Cốc Siêu Thừa cũng chỉ gắp nếm một chút lấy lệ chứ không đụng đũa nhiều.
 
-Cậu ta gật đầu đồng tình: "Trạch ca, anh với Hứa Mạn Mạn thấy lạ miệng nên thích, chứ em từ hồi học lớp năm tiểu học đã phải mang mấy lọ dưa muối khô này lên trường ăn ròng rã suốt năm năm trời cho tới tận hết cấp hai. Giờ nhìn thấy là ngấy tận cổ, chẳng muốn nuốt nữa."
+Cậu ta gật đầu đồng tình: "Trạch ca, anh với Từ Mạn Mạn thấy lạ miệng nên thích, chứ em từ hồi học lớp năm tiểu học đã phải mang mấy lọ dưa muối khô này lên trường ăn ròng rã suốt năm năm trời cho tới tận hết cấp hai. Giờ nhìn thấy là ngấy tận cổ, chẳng muốn nuốt nữa."
 
 Trần Trạch trố mắt kinh ngạc: "Trường học ở quê tụi mày không có nhà ăn à!?"
 
@@ -152,7 +150,7 @@ Cốc Siêu Thừa đáp: "Nhà ăn trường chỉ nấu mỗi cơm trắng th�
 
 "Nhà ăn trường không bán thức ăn à?"
 
-Hứa Mạn Mạn vẫn giữ vẻ điềm đạm, nhưng ánh mắt cũng ánh lên sự tò mò.
+Từ Mạn Mạn vẫn giữ vẻ điềm đạm, nhưng ánh mắt cũng ánh lên sự tò mò.
 
 Trần Trạch chêm vào: "Nhà ăn có cơ hội kiếm tiền mà lại không bán á? Ở trường cấp ba của bọn anh, một cái căng-tin nhỏ xíu thôi mà không có quan hệ tay trong với ban giám hiệu thì đừng hòng chen chân vào thầu được!"
 
@@ -170,7 +168,7 @@ Triệu Kim An suốt từ đầu đến giờ chỉ lặng lẽ cúi đầu và
 
 "Kim An, còn mày thì sao?"
 
-Trần Trạch cứ đinh ninh Triệu Kim An chắc chẳng bao giờ có nổi một đồng tiền tiêu vặt, Hứa Mạn Mạn cũng tò mò đưa mắt nhìn sang cậu.
+Trần Trạch cứ đinh ninh Triệu Kim An chắc chẳng bao giờ có nổi một đồng tiền tiêu vặt, Từ Mạn Mạn cũng tò mò đưa mắt nhìn sang cậu.
 
 Triệu Kim An ngẩng đầu lên, thản nhiên nói: "Hồi đó thỉnh thoảng tôi cũng có năm tệ."
 
@@ -182,4 +180,4 @@ Bây giờ ngồi nhớ lại chuyện xưa thì thấy buồn cười vô cùng
 
 Triệu Kim An không cười, cậu nhìn vào khoảng không trước mặt, khẽ nói: "Hồi học tiểu học... tiền tiêu vặt của tôi còn nhiều hơn thế."
 
-Lưu Sấm Phong và Cốc Siêu Thừa vẫn đang cười ngặt nghẽo, duy chỉ có Hứa Mạn Mạn là đầu óc bỗng "ong" lên một tiếng. Cô sực nhớ lại lời Mộc Dao từng kể trước đây: Cha của Triệu Kim An qua đời... chính là vào những năm cậu đang học tiểu học.
+Lưu Sấm Phong và Cốc Siêu Thừa vẫn đang cười ngặt nghẽo, duy chỉ có Từ Mạn Mạn là đầu óc bỗng "ong" lên một tiếng. Cô sực nhớ lại lời Mộc Dao từng kể trước đây: Cha của Triệu Kim An qua đời... chính là vào những năm cậu đang học tiểu học.

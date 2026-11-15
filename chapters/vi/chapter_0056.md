@@ -1,14 +1,12 @@
 # Chương 56: Từ trường giữa các cậu và Triệu Kim An không hợp, vậy ai mới hợp?
 
-> **Tiêu đề gốc**: 第56章 你们和赵今安磁场不太对，谁对？
+Nhớ lại thái độ mê mẩn của Diêu Sân dành cho Triệu Kim An hôm nọ, Thẩm Tử Ngôn ngẫm nghĩ một lát rồi cất giọng hỏi:
 
-Nhớ lại thái độ mê mẩn của Diêu Tân dành cho Triệu Kim An hôm nọ, Thẩm Tử Ngôn ngẫm nghĩ một lát rồi cất giọng hỏi:
-
-— Diêu Tân, cậu đã kết bạn QQ với Triệu Kim An chưa? Có nhắn tin nói chuyện với cậu ấy không?
+— Diêu Sân, cậu đã kết bạn QQ với Triệu Kim An chưa? Có nhắn tin nói chuyện với cậu ấy không?
 
 Giọng điệu của cô rất đỗi bâng quơ, hệt như một câu buột miệng hỏi thăm thường ngày.
 
-Diêu Tân đáp:
+Diêu Sân đáp:
 
 — Kết bạn rồi.
 
@@ -18,13 +16,13 @@ Vẫn chưa kịp rửa mặt chải đầu, cô nàng ôm đĩa bánh hành, ng
 
 — Sao lại thế? — Thẩm Tử Ngôn tiếp tục gợi chuyện — Hôm ấy trông cậu háo sắc đến mức hận không thể nuốt chửng người ta vào bụng cơ mà.
 
-— Tớ cũng muốn “ăn” lắm chứ bộ! — Diêu Tân thở dài thườn thượt, mặt mày đầy vẻ hậm hực — Cơ mà tớ tự biết thân biết phận, người như cậu ấy vốn chẳng thuộc về tớ.
+— Tớ cũng muốn “ăn” lắm chứ bộ! — Diêu Sân thở dài thườn thượt, mặt mày đầy vẻ hậm hực — Cơ mà tớ tự biết thân biết phận, người như cậu ấy vốn chẳng thuộc về tớ.
 
 Thẩm Tử Ngôn thoáng chút bất ngờ.
 
-Điều Diêu Tân nói là “không thuộc về tớ”, chứ không phải “người ta chướng mắt tớ”.
+Điều Diêu Sân nói là “không thuộc về tớ”, chứ không phải “người ta chướng mắt tớ”.
 
-— Cậu xem kìa, phòng ký túc xá chúng mình nhé... — Diêu Tân thao thao bất tuyệt — Mạn Mạn với Trần Trạch... Gia cảnh điều kiện của hai người họ ra sao, rồi còn cậu với Mộc Dao nữa. Lấy ví dụ đơn giản nhé, chuyện tớ với Triệu Kim An... cũng giống hệt như chuyện Lưu Sùng Phong đang theo đuổi cậu vậy. Người sáng mắt ai chẳng nhìn ra Lưu Sùng Phong có ý với cậu, thế cậu có chịu gật đầu đồng ý làm bạn gái cậu ta không?
+— Cậu xem kìa, phòng ký túc xá chúng mình nhé... — Diêu Sân thao thao bất tuyệt — Mạn Mạn với Trần Trạch... Gia cảnh điều kiện của hai người họ ra sao, rồi còn cậu với Mộc Dao nữa. Lấy ví dụ đơn giản nhé, chuyện tớ với Triệu Kim An... cũng giống hệt như chuyện Lưu Sùng Phong đang theo đuổi cậu vậy. Người sáng mắt ai chẳng nhìn ra Lưu Sùng Phong có ý với cậu, thế cậu có chịu gật đầu đồng ý làm bạn gái cậu ta không?
 
 Thẩm Tử Ngôn chỉ mỉm cười.
 
@@ -32,21 +30,21 @@ Thẩm Tử Ngôn chỉ mỉm cười.
 
 — Ban nãy cậu bảo “người như cậu ấy”... rốt cuộc là có ý gì?
 
-— Thì cậu thử ngẫm mà xem, mấy ngày nay rảnh rỗi nằm trên giường tớ cứ nghĩ mãi về chuyện này đấy. — Diêu Tân bỗng hào hứng hẳn lên, cô nàng nằm sấp trên đệm, nhoài người ra thành giường nói với Thẩm Tử Ngôn — Hôm đó Trần Trạch bảo Triệu Kim An hợp đi làm “phi công” cho phú bà, mấy hôm nay tớ ngẫm nghĩ kỹ lại, thấy lời Trần Trạch nói cũng có vài phần chí lý.
+— Thì cậu thử ngẫm mà xem, mấy ngày nay rảnh rỗi nằm trên giường tớ cứ nghĩ mãi về chuyện này đấy. — Diêu Sân bỗng hào hứng hẳn lên, cô nàng nằm sấp trên đệm, nhoài người ra thành giường nói với Thẩm Tử Ngôn — Hôm đó Trần Trạch bảo Triệu Kim An hợp đi làm “phi công” cho phú bà, mấy hôm nay tớ ngẫm nghĩ kỹ lại, thấy lời Trần Trạch nói cũng có vài phần chí lý.
 
 — Ý cậu bảo cậu ấy hợp làm “trai bao” á?
 
 Thẩm Tử Ngôn cởi phăng chiếc áo bó sát, vòng tay ra sau lưng mở móc cài áo lót. Làn da trắng nõn như tuyết lộ ra dưới ánh đèn, từ phía sau vẫn có thể thấp thoáng nhìn thấy đường cong đẫy đà tuyệt mỹ — với khuôn ngực đầy đặn cỡ này, mỗi lần chạy bộ hẳn sẽ có đôi chút vướng víu, nặng nề.
 
-— Cũng chẳng hẳn là kiểu trai bao nuôi trong lồng kính đâu, tớ cũng chẳng biết diễn tả thế nào cho đúng nữa. — Diêu Tân nghiền ngẫm phân tích — Mấy hôm nay tớ nghĩ nát óc rồi, kiểu người như cậu ấy rốt cuộc sẽ hợp với mẫu bạn gái ra sao? Mà không, chẳng phải là tìm bạn gái, kiểu người như cậu ấy vốn chẳng cần phải nhọc công đi tìm bạn gái làm gì. Vấn đề là, mẫu phụ nữ như thế nào mới có thể xứng đôi vừa lứa với cậu ấy.
+— Cũng chẳng hẳn là kiểu trai bao nuôi trong lồng kính đâu, tớ cũng chẳng biết diễn tả thế nào cho đúng nữa. — Diêu Sân nghiền ngẫm phân tích — Mấy hôm nay tớ nghĩ nát óc rồi, kiểu người như cậu ấy rốt cuộc sẽ hợp với mẫu bạn gái ra sao? Mà không, chẳng phải là tìm bạn gái, kiểu người như cậu ấy vốn chẳng cần phải nhọc công đi tìm bạn gái làm gì. Vấn đề là, mẫu phụ nữ như thế nào mới có thể xứng đôi vừa lứa với cậu ấy.
 
 Đánh giá này quả thực cao đến mức kinh ngạc.
 
-Thẩm Tử Ngôn khựng lại động tác trên tay, chợt nhận ra những lời Diêu Tân vừa thốt ra dường như lại có lý đến lạ kỳ.
+Thẩm Tử Ngôn khựng lại động tác trên tay, chợt nhận ra những lời Diêu Sân vừa thốt ra dường như lại có lý đến lạ kỳ.
 
 Không phải là Triệu Kim An đi tìm bạn gái, mà là mẫu phụ nữ nào mới đủ tầm để sánh bước bên cạnh cậu ấy.
 
-— Tử Ngôn này, tớ đã thử ướm từng người trong phòng mình vào rồi đấy nhé. — Diêu Tân nói tiếp — Trước hết là gạt tớ ra rìa rồi. Cậu với Mộc Dao điều kiện đều tốt như thế, tớ đã nghĩ đến Mộc Dao, nhưng Mộc Dao không hợp; tớ lại thử ghép cậu với Triệu Kim An lại với nhau, cũng thấy cứ sai sai ở chỗ nào ấy. Tử Ngôn à, tớ không có ý chê cậu hay Mộc Dao không tốt đâu nhé, chỉ là... chỉ là từ trường giữa hai cậu và Triệu Kim An... hình như không cùng một tần số.
+— Tử Ngôn này, tớ đã thử ướm từng người trong phòng mình vào rồi đấy nhé. — Diêu Sân nói tiếp — Trước hết là gạt tớ ra rìa rồi. Cậu với Mộc Dao điều kiện đều tốt như thế, tớ đã nghĩ đến Mộc Dao, nhưng Mộc Dao không hợp; tớ lại thử ghép cậu với Triệu Kim An lại với nhau, cũng thấy cứ sai sai ở chỗ nào ấy. Tử Ngôn à, tớ không có ý chê cậu hay Mộc Dao không tốt đâu nhé, chỉ là... chỉ là từ trường giữa hai cậu và Triệu Kim An... hình như không cùng một tần số.
 
 — Từ trường á?!
 
@@ -54,11 +52,11 @@ Thẩm Tử Ngôn nghiêm túc ngẫm nghĩ một thoáng, rồi bật cười t
 
 — Thế còn Mạn Mạn phòng mình thì sao? Cậu vẫn chưa nhắc đến cậu ấy kìa.
 
-Diêu Tân liếc mắt nhìn ra phía cửa phòng, thấy bên ngoài vắng hoe không có ai mới ghé sát tai thì thào:
+Diêu Sân liếc mắt nhìn ra phía cửa phòng, thấy bên ngoài vắng hoe không có ai mới ghé sát tai thì thào:
 
 — Tuy tớ mới chỉ tiếp xúc với Triệu Kim An đúng một lần, nhưng mấy hôm nay ngẫm đi nghĩ lại, tớ phát hiện ra Mạn Mạn phòng mình và Triệu Kim An mới là một cặp trời sinh ăn ý nhất. Tớ cũng chẳng giải thích nổi vì sao, chỉ là trực giác mách bảo hai người họ đứng cạnh nhau cực kỳ hài hòa, vừa vặn.
 
-Thẩm Tử Ngôn sững sờ ngước nhìn Diêu Tân đang nằm ở giường tầng trên. Diêu Tân lại nghiêm túc gật đầu khẳng định thêm lần nữa.
+Thẩm Tử Ngôn sững sờ ngước nhìn Diêu Sân đang nằm ở giường tầng trên. Diêu Sân lại nghiêm túc gật đầu khẳng định thêm lần nữa.
 
 ...
 
@@ -72,7 +70,7 @@ Triệu Kim An ngoảnh lại bảo:
 
 — Không cần phải đi theo tôi đâu, ở trong trường học rất an toàn.
 
-Đơn Vĩ ấp a ấp úng, gãi đầu gãi tai:
+Đan Vĩ ấp a ấp úng, gãi đầu gãi tai:
 
 — Ông chủ, tôi... tôi cầm tiền lương của cậu rồi mà từ đầu đến giờ chẳng làm được việc gì ra hồn cả.
 
@@ -80,17 +78,17 @@ Triệu Kim An ngoảnh lại bảo:
 
 — Dạ... vậy cũng được ạ.
 
-Đơn Vĩ dĩ nhiên biết trong khuôn viên trường đại học thì tuyệt đối an toàn, sự hiện diện của một vệ sĩ như gã quả thực có cũng như không. Gã cứ ngó nghiêng dáo dác khắp xung quanh, trong lòng thậm chí còn mong mỏi có vài ba tên du côn tóc vàng hoe mắt mù nào đó nhảy xổ ra “gây sự” với ông chủ, để gã có cơ hội trổ hết ngón nghề đấm đá, giúp ông chủ vả mặt một trận ra trò.
+Đan Vĩ dĩ nhiên biết trong khuôn viên trường đại học thì tuyệt đối an toàn, sự hiện diện của một vệ sĩ như gã quả thực có cũng như không. Gã cứ ngó nghiêng dáo dác khắp xung quanh, trong lòng thậm chí còn mong mỏi có vài ba tên du côn tóc vàng hoe mắt mù nào đó nhảy xổ ra “gây sự” với ông chủ, để gã có cơ hội trổ hết ngón nghề đấm đá, giúp ông chủ vả mặt một trận ra trò.
 
 Khổ nỗi, ông chủ nhà gã chẳng những không bao giờ kiếm chuyện sinh sự, mà mỗi khi ra ngoài lại còn khiêm nhường, lễ độ đến mức khó tin.
 
-Một người chủ chu đáo, tử tế như thế thì Đơn Vĩ thích đến mê đi được, chỉ có điều... sự tồn tại của gã mờ nhạt quá.
+Một người chủ chu đáo, tử tế như thế thì Đan Vĩ thích đến mê đi được, chỉ có điều... sự tồn tại của gã mờ nhạt quá.
 
 Không thể hiện được giá trị của bản thân.
 
 Lỡ sang tháng sau ông chủ không thuê gã nữa thì biết làm sao?
 
-Triệu Kim An nhìn Đơn Vĩ một lát, rồi rẽ vào tiệm tạp hóa mua một cây thuốc lá Hoàng Phù Dung đưa cho gã. Đơn Vĩ bấy giờ mới an lòng đôi chút, ngượng ngùng xua tay:
+Triệu Kim An nhìn Đan Vĩ một lát, rồi rẽ vào tiệm tạp hóa mua một cây thuốc lá Hoàng Phù Dung đưa cho gã. Đan Vĩ bấy giờ mới an lòng đôi chút, ngượng ngùng xua tay:
 
 — Ông chủ, cậu đã trả lương hậu hĩnh cho tôi rồi mà...
 
@@ -98,9 +96,9 @@ Triệu Kim An nhìn Đơn Vĩ một lát, rồi rẽ vào tiệm tạp hóa mua
 
 — Vậy... vậy tôi không khách khí nữa nhé?
 
-Đơn Vĩ cười hề hề vài tiếng ngây ngô.
+Đan Vĩ cười hề hề vài tiếng ngây ngô.
 
-Đó là lời con gái Đơn Na Tề đã dặn dò gã từ trước: “Bố ơi, sau này bố chỉ được cười với ông chủ thôi nhé, đừng có đi cười toe toét với người ngoài.”
+Đó là lời con gái Đan Na Tề đã dặn dò gã từ trước: “Bố ơi, sau này bố chỉ được cười với ông chủ thôi nhé, đừng có đi cười toe toét với người ngoài.”
 
 Kiếp trước, Triệu Kim An chưa từng làm ông chủ lớn, nhưng cũng chẳng phải tầng lớp làm công ăn lương cày cuốc bán mạng. Anh chỉ là một kế toán viên bình thường, nghề kế toán thì không cần phải làm việc theo kiểu 996 (9 giờ sáng đến 9 giờ tối, 6 ngày/tuần), phần lớn các ngày cuối tuần đều được nghỉ trọn vẹn hai ngày.
 

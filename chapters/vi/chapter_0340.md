@@ -1,7 +1,5 @@
 # Chương 340: Con cũng không muốn nghĩ nữa.
 
-> **Tiêu đề gốc**: 第340章 我也不想了。
-
 Suốt trọn vẹn học kỳ một của năm thứ ba đại học, Mộc Dao không có lấy một cơ hội được gặp mặt Triệu Kim An.
 
 "Mẹ ơi, dạo này con chỉ có thể nhìn thấy anh Kim An qua các mặt báo trên mạng mà thôi."

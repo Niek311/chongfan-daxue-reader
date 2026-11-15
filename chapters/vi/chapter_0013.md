@@ -1,7 +1,5 @@
 # Chương 13: Không cùng một hội thì đừng cố chen vào
 
-> **Tiêu đề gốc**: 第13章 融进去的圈子别硬融。
-
 Những ngày tiếp theo, Triệu Kim An ngoan ngoãn cùng Triệu Trí Dũng ngày ngày lội sông bắt cá, đến chiều lại cưỡi xe máy ra chợ rau bày bán.
 
 Không khí World Cup đang diễn ra vô cùng sôi nổi và cuồng nhiệt, từ các trận bán kết đến trận tranh hạng ba tư.

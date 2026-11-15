@@ -1,7 +1,5 @@
 # Chương 98: Có phải anh nhớ em rồi không?
 
-> **Tiêu đề gốc**: 第98章 你是想我了吗？
-
 Thế là, ngay cả khi các ấn phẩm truyền thông và băng rôn quảng bá còn chưa kịp treo lên, mới chỉ vỏn vẹn có một căn phòng học làm việc và một bài viết được ban quản trị ghim lên đầu diễn đàn mạng nội bộ trường, vô số nam sinh đã nườm nượp kéo đến chen chúc hỏi han luật lệ thi đấu.
 
 Đối với sinh viên các trường đại học tại Quận Sa, tham gia giải đấu này chẳng tốn kém thêm bất kỳ chi phí phát sinh nào, chỉ cần leo lên một chuyến xe buýt là đã có thể đến thẳng sân đấu.
@@ -46,7 +44,7 @@ Triệu Bác Lan cũng tất bật tối mắt tối mũi, cô phải lặn lộ
 
 Công ty thời điểm này tuyệt đối không nuôi người rảnh rỗi, mỗi một cá nhân đều phải gồng mình gánh vác công việc bằng hai người thường.
 
-Triệu Bác Lan phải di chuyển chạy vạy liên tục khắp thành phố, Đơn Vĩ nghiễm nhiên trở thành tài xế riêng kiêm chân chạy việc đắc lực cho cô.
+Triệu Bác Lan phải di chuyển chạy vạy liên tục khắp thành phố, Đan Vĩ nghiễm nhiên trở thành tài xế riêng kiêm chân chạy việc đắc lực cho cô.
 
 Triệu Kim An ngồi túc trực chỉ huy trong văn phòng. Bài hát 《Yêu 105°C của em》 vẫn đang cần tìm một đơn vị sản xuất uy tín để bấm máy quay một MV thật chuyên nghiệp làm video quảng cáo, và kênh phát sóng lý tưởng nhất không đâu khác ngoài đài truyền hình vệ tinh Hồ Nam - kênh Mango TV lừng danh.
 
@@ -58,13 +56,13 @@ Triệu Kim An đưa tay day day hai bên thái dương đang căng nhức, ngư
 
 "Ông chủ, để em lái xe chở anh về nhé."
 
-Nghe thấy tiếng bước chân từ hành lang tầng hai bước xuống, Đơn Vĩ đang đứng túc trực bên cạnh chiếc Audi A6 vội vàng bước tới mở sẵn cửa xe.
+Nghe thấy tiếng bước chân từ hành lang tầng hai bước xuống, Đan Vĩ đang đứng túc trực bên cạnh chiếc Audi A6 vội vàng bước tới mở sẵn cửa xe.
 
 "Không cần đâu, tôi muốn đi dạo bộ một chút."
 
 Triệu Kim An muốn một mình thong thả thả bộ dưới trời đêm, để đầu óc được hoàn toàn thả lỏng và rũ bỏ mọi căng thẳng.
 
-Không chỉ riêng Đơn Vĩ, mà ngay cả cô bé Đơn Na Tề đang học lớp 11 với bài vở chất chồng như núi cũng nhận thức được rằng công ty đang bước vào giai đoạn mang tính bước ngoặt sống còn. Mỗi người bước chân đến đây đều hối hả, vội vã với từng bước chân.
+Không chỉ riêng Đan Vĩ, mà ngay cả cô bé Đan Na Tề đang học lớp 11 với bài vở chất chồng như núi cũng nhận thức được rằng công ty đang bước vào giai đoạn mang tính bước ngoặt sống còn. Mỗi người bước chân đến đây đều hối hả, vội vã với từng bước chân.
 
 Tháng Tư.
 
@@ -88,13 +86,13 @@ Nhìn vào màn hình điện thoại, đứng đợi một hồi lâu vẫn kh�
 
 "Triệu... Triệu Kim An...?"
 
-Diêu Tân là người đầu tiên phát hiện ra sự xuất hiện của Triệu Kim An. Chẳng hiểu vì lý do gì, nét mặt cô nàng bỗng trở nên ngượng ngùng và thiếu tự nhiên đến lạ lùng.
+Diêu Sân là người đầu tiên phát hiện ra sự xuất hiện của Triệu Kim An. Chẳng hiểu vì lý do gì, nét mặt cô nàng bỗng trở nên ngượng ngùng và thiếu tự nhiên đến lạ lùng.
 
 Triệu Kim An khẽ mỉm cười gật đầu với cô một cái, xem như một lời chào hỏi lịch sự.
 
 Bất chợt, mấy người đang ngồi quanh bàn ăn đồ nướng bên vỉa hè đều đồng loạt đứng bật dậy.
 
-Vẻ mặt của Thẩm Tử Ngôn và Hứa Mạn Mạn cũng thoáng chốc trở nên lúng túng, bối rối không kém.
+Vẻ mặt của Thẩm Tử Ngôn và Từ Mạn Mạn cũng thoáng chốc trở nên lúng túng, bối rối không kém.
 
 Mộc Dao thậm chí còn lộ rõ vẻ căng thẳng, cuống quýt.
 
@@ -142,15 +140,15 @@ Mộc Dao: "..."
 
 Mộc Dao lúc này mới bàng hoàng sực tỉnh. Hóa ra từ trước đến nay bản thân cô quả thực chưa từng để tâm suy nghĩ đến cảm nhận và lòng tự trọng của Triệu Kim An. Cô chợt nhớ mang máng hồi ấy Du Phi dường như cũng từng có lần lên tiếng nhắc nhở mình, bảo rằng Âu Cường có tình ý với cô, những buổi tụ tập nào có mặt cậu ta thì cô nên hạn chế tham gia mới phải.
 
-Triệu Kim An nhẹ nhàng rút cánh tay mình ra khỏi bàn tay níu kéo của Mộc Dao, sau đó hướng mắt về phía Thẩm Tử Ngôn và Hứa Mạn Mạn khẽ gật đầu, xem như đã chào hỏi xong xuôi.
+Triệu Kim An nhẹ nhàng rút cánh tay mình ra khỏi bàn tay níu kéo của Mộc Dao, sau đó hướng mắt về phía Thẩm Tử Ngôn và Từ Mạn Mạn khẽ gật đầu, xem như đã chào hỏi xong xuôi.
 
 Trước đây anh cũng thường chào hỏi mọi người bằng cử chỉ lịch thiệp như thế.
 
 Chỉ có điều lần này, anh tuyệt nhiên không còn bước tới gần và nở nụ cười nói câu "Chào các cậu" như ngày xưa nữa.
 
-Hứa Mạn Mạn và Thẩm Tử Ngôn đều cảm thấy vô cùng ngượng ngập, chỉ biết gượng cười gật đầu đáp lễ.
+Từ Mạn Mạn và Thẩm Tử Ngôn đều cảm thấy vô cùng ngượng ngập, chỉ biết gượng cười gật đầu đáp lễ.
 
-Chẳng hiểu vì sao, dẫu cho nơi đây đang có rất đông bạn bè tụ tập, quán ăn đêm vỉa hè cũng tấp nập người qua lại, nhưng trong lòng Thẩm Tử Ngôn và Hứa Mạn Mạn bỗng dấy lên một cảm giác tội lỗi mơ hồ, như thể bản thân vừa làm ra một hành động "phản bội" lại Triệu Kim An vậy.
+Chẳng hiểu vì sao, dẫu cho nơi đây đang có rất đông bạn bè tụ tập, quán ăn đêm vỉa hè cũng tấp nập người qua lại, nhưng trong lòng Thẩm Tử Ngôn và Từ Mạn Mạn bỗng dấy lên một cảm giác tội lỗi mơ hồ, như thể bản thân vừa làm ra một hành động "phản bội" lại Triệu Kim An vậy.
 
 "Triệu Kim An!"
 
@@ -166,7 +164,7 @@ Làm gì có chuyện trùng hợp ngẫu nhiên đến thế, chẳng qua là m
 
 Một lời nói dối ngây ngô như vậy có chăng chỉ lừa gạt được những kẻ ngốc nghếch như Lưu Sấm Phong, chứ việc gì phải ép Triệu Kim An phải tự mình vạch trần ra? Thẩm Tử Ngôn khẽ quay đầu nhìn lại, trong lòng ai nấy đều thấu rõ mười mươi.
 
-Hứa Mạn Mạn từ đầu đến cuối đứng im một chỗ, tuyệt nhiên không có ý định bước ra thanh minh.
+Từ Mạn Mạn từ đầu đến cuối đứng im một chỗ, tuyệt nhiên không có ý định bước ra thanh minh.
 
 "Tôi xin phép đi trước đây, mọi người cứ thong thả ăn nhé." Triệu Kim An dứt lời liền dứt khoát quay người cất bước.
 
@@ -188,7 +186,7 @@ Khổng Triết Vũ: "..."
 
 Chẳng phải theo phép lịch sự thì cậu phải chủ động bước lại gần bàn này hay sao? Cứ đứng trơ trơ ở đằng xa nói chuyện kiểu đó à?
 
-Khóe môi Hứa Mạn Mạn khẽ nhếch lên tạo thành một nụ cười kín đáo đầy thích thú, sợ bị người khác nhìn thấy nên cô vội nghiêng đầu cúi mặt xuống giấu đi.
+Khóe môi Từ Mạn Mạn khẽ nhếch lên tạo thành một nụ cười kín đáo đầy thích thú, sợ bị người khác nhìn thấy nên cô vội nghiêng đầu cúi mặt xuống giấu đi.
 
 Thẩm Tử Ngôn đứng bên cạnh cũng không kìm được mà bật cười thầm.
 
@@ -226,7 +224,7 @@ Anh rút máy ra nhìn lướt qua màn hình một cái, đến một câu chà
 
 "Em ăn no rồi."
 
-Hứa Mạn Mạn đưa mắt nhìn theo bóng lưng Triệu Kim An vừa khuất dần, sau đó cầm lấy chiếc túi xách đặt trên ghế, cất giọng bảo mình muốn về ký túc xá trước.
+Từ Mạn Mạn đưa mắt nhìn theo bóng lưng Triệu Kim An vừa khuất dần, sau đó cầm lấy chiếc túi xách đặt trên ghế, cất giọng bảo mình muốn về ký túc xá trước.
 
 Thẩm Tử Ngôn cũng nhìn đồng hồ trên tay rồi tiếp lời: "Ký túc xá sắp đến giờ đóng cửa rồi, tụi em xin phép về trước đây."
 
@@ -234,7 +232,7 @@ Trần Trạch vội vớ lấy chùm chìa khóa xe BMW: "Để anh lái xe ch�
 
 "Thôi không cần đâu, bọn em đi bộ một đoạn cho tiêu cơm, thời gian từ giờ đến lúc khóa cổng cũng vừa vặn."
 
-Hứa Mạn Mạn từng nghe Trần Trạch kể rằng Triệu Kim An và Đường Hiểu Tình đang đi làm thêm bên ngoài, nhìn cảnh Triệu Kim An một thân một mình bươn chải đến tận đêm muộn mới lầm lũi trở về trường... Hứa Mạn Mạn bỗng cảm thấy cuộc sống đại học hiện tại của bản thân có phần quá đỗi lười biếng và vô vị.
+Từ Mạn Mạn từng nghe Trần Trạch kể rằng Triệu Kim An và Đường Hiểu Tình đang đi làm thêm bên ngoài, nhìn cảnh Triệu Kim An một thân một mình bươn chải đến tận đêm muộn mới lầm lũi trở về trường... Từ Mạn Mạn bỗng cảm thấy cuộc sống đại học hiện tại của bản thân có phần quá đỗi lười biếng và vô vị.
 
 ...
 

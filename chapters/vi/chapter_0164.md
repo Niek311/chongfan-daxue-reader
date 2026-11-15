@@ -1,24 +1,22 @@
 # Chương 164: Bánh bao thịt ném chó
 
-> **Tiêu đề gốc**: 第164章 肉包子打狗。
-
 Đại học Trung Nam.
 
-Ngay sau khi hoàn thành môn thi cuối cùng của học kỳ, Trầm Tử Ngôn đã lập tức thu dọn hành lý bay thẳng về Tô Châu.
+Ngay sau khi hoàn thành môn thi cuối cùng của học kỳ, Thẩm Tử Ngôn đã lập tức thu dọn hành lý bay thẳng về Tô Châu.
 
-Diêu Sân nhìn theo mà thực sự không tài nào hiểu nổi. Đợt nghỉ hè vừa rồi Trầm Tử Ngôn cũng lặn lội ở mãi tận Thường Đức, cách hành xử ấy quả thực chẳng giống một cô nữ sinh đại học đang độ tuổi yêu đương chút nào. Những cô gái trẻ khi đã phải lòng một ai đó thì thông thường sẽ rất thích quấn quýt, bám dính lấy người yêu, có chăng chỉ là mức độ nhiều hay ít mà thôi.
+Diêu Sân nhìn theo mà thực sự không tài nào hiểu nổi. Đợt nghỉ hè vừa rồi Thẩm Tử Ngôn cũng lặn lội ở mãi tận Thường Đức, cách hành xử ấy quả thực chẳng giống một cô nữ sinh đại học đang độ tuổi yêu đương chút nào. Những cô gái trẻ khi đã phải lòng một ai đó thì thông thường sẽ rất thích quấn quýt, bám dính lấy người yêu, có chăng chỉ là mức độ nhiều hay ít mà thôi.
 
 Diêu Sân vừa gấp quần áo cho vào vali, vừa lẩm bẩm sắp xếp thứ tự mức độ bám người yêu của các thành viên trong phòng ký túc xá 406:
 
 "Dao Dao không nghi ngờ gì nữa, chắc chắn xếp ở vị trí quán quân số một."
 
-Diêu Sân ngẫm nghĩ một thoáng rồi tự xếp bản thân mình ở vị trí á quân số hai, Từ Mạn Mạn đứng thứ ba, còn Trầm Tử Ngôn thì đội sổ ở vị trí cuối cùng.
+Diêu Sân ngẫm nghĩ một thoáng rồi tự xếp bản thân mình ở vị trí á quân số hai, Từ Mạn Mạn đứng thứ ba, còn Thẩm Tử Ngôn thì đội sổ ở vị trí cuối cùng.
 
 Nhưng ngẫm kỹ lại từng chút một, cô nàng chợt nhận ra có điều gì đó sai sai!!
 
 "Kể từ ngày đầu tiên bước chân vào trường nhập học hồi năm thứ nhất tới giờ, ròng rã suốt ba học kỳ trôi qua, hình như Mạn Mạn chưa từng một lần bám dính lấy Trần Trạch thì phải."
 
-Diêu Sân bắt đầu cảm thấy phân vân, lưỡng lự. Rốt cuộc giữa Từ Mạn Mạn và Trầm Tử Ngôn, ai mới thực sự là người xếp bét bảng?
+Diêu Sân bắt đầu cảm thấy phân vân, lưỡng lự. Rốt cuộc giữa Từ Mạn Mạn và Thẩm Tử Ngôn, ai mới thực sự là người xếp bét bảng?
 
 Ai mới là người khi rơi vào lưới tình lại ít chịu quấn quýt bên bạn trai nhất?
 
@@ -56,17 +54,17 @@ Diêu Sân cũng không rõ tại sao, từ tận đáy lòng cô luôn cảm th
 
 Đến ngày Diêu Sân lên xe hoa về nhà chồng, Từ Mạn Mạn lại tiếp tục gửi tặng một phong bao mừng cưới đỏ chót, dày cộp.
 
-Năm ấy Diêu Sân vốn dĩ định mở lời hỏi mượn Trầm Tử Ngôn trước, sau đó mới tính tới việc hỏi Từ Mạn Mạn.
+Năm ấy Diêu Sân vốn dĩ định mở lời hỏi mượn Thẩm Tử Ngôn trước, sau đó mới tính tới việc hỏi Từ Mạn Mạn.
 
 Thế nhưng kết quả là Từ Mạn Mạn chẳng hề đắn đo, vừa nghe xong liền sốt sắng hỏi ngược lại Diêu Sân rằng liệu số tiền đó đã đủ để chi trả cho việc sửa sang, hoàn thiện nội thất hay chưa, lãi suất vay ngân hàng thời điểm này đang cao lắm đấy...
 
 Diêu Sân hít nhẹ một hơi: "Mạn Mạn, mùi hương trên người cậu thơm và dễ chịu quá đi mất."
 
-Trên cơ thể Từ Mạn Mạn luôn phảng phất một làn hương dịu ngọt, đượm nét dịu dàng làm mát rượi tâm can, hít hà mùi hương ấy khiến người ta có một cảm giác bình yên và an tâm đến lạ kỳ. Diêu Sân trước giờ vẫn luôn đinh ninh rằng cả Từ Mạn Mạn lẫn Trầm Tử Ngôn đều là những mẫu phụ nữ có bản lĩnh phi thường, vô cùng kiên cường và có thể "gánh vác được sóng gió".
+Trên cơ thể Từ Mạn Mạn luôn phảng phất một làn hương dịu ngọt, đượm nét dịu dàng làm mát rượi tâm can, hít hà mùi hương ấy khiến người ta có một cảm giác bình yên và an tâm đến lạ kỳ. Diêu Sân trước giờ vẫn luôn đinh ninh rằng cả Từ Mạn Mạn lẫn Thẩm Tử Ngôn đều là những mẫu phụ nữ có bản lĩnh phi thường, vô cùng kiên cường và có thể "gánh vác được sóng gió".
 
 Giờ đây thì chẳng cần phải phỏng đoán hồ nghi làm gì nữa.
 
-Từ Mạn Mạn đã chứng minh được khả năng chịu đựng áp lực tuyệt vời của mình, còn Trầm Tử Ngôn thì đã khẳng định được năng lực làm việc xuất chúng trên thương trường.
+Từ Mạn Mạn đã chứng minh được khả năng chịu đựng áp lực tuyệt vời của mình, còn Thẩm Tử Ngôn thì đã khẳng định được năng lực làm việc xuất chúng trên thương trường.
 
 Hai người bọn họ chỉ là đang bộc lộ bản lĩnh xuất sắc ở những khía cạnh và góc độ hoàn toàn khác nhau mà thôi.
 

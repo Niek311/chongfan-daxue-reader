@@ -1,235 +1,235 @@
-# Chương 390: Em hận anh
+# Chương 390: Em hận anh.
 
-> **Tiêu đề gốc**: 第390章 我恨你。
+Triệu Kim An càng nổi giận hơn, sải bước tiến về phía Từ Mạn Mạn: "Hay là không biết phải nói thế nào?"
 
-Triệu Kim An càng giận dữ hơn, sải bước dồn về phía Từ Mạn Mạn: "Là không biết phải nói thế nào sao?"
-
-Từ Mạn Mạn lấy tay ôm chặt lấy bụng, lùi về sau một bước.
+Từ Mạn Mạn đưa tay ôm lấy bụng, lùi lại một bước.
 
 "Đừng! Ông chủ!"
 
-Đơn Vỹ và Quan Văn Bách sợ hết hồn vía, lập tức lao lên chắn ngay trước người Từ Mạn Mạn, giơ tay cản Triệu Kim An lại. Hai người có cãi nhau thì cãi, chứ tuyệt đối đừng manh động! Lúc nóng giận mà lỡ tay một cái thì sau này hối hận không kịp.
+Đan Vĩ và Quan Văn Bách hoảng hồn lập tức lao lên chắn trước mặt Từ Mạn Mạn, giơ tay giữ chặt Triệu Kim An lại; hai người cãi nhau thì cứ cãi chứ tuyệt đối đừng manh động, lỡ tay một cái là sau này hối hận cũng chẳng kịp đâu.
 
-Đây là lần đầu tiên họ thấy Triệu Kim An nổi trận lôi đình đến mức này.
+Đây là lần đầu tiên họ thấy Triệu Kim An nổi giận đến nhường này.
 
-Dù rằng họ chẳng rõ rốt cuộc ông chủ muốn Từ tổng phải nói ra điều gì.
+Dù chẳng hiểu ông chủ đang muốn Từ tổng phải nói điều gì.
 
-"Cô thật sự không có gì muốn nói sao?"
+"Em không còn gì muốn nói nữa sao?"
 
-Triệu Kim An nhìn chằm chằm Từ Mạn Mạn, ngọn lửa giận ngùn ngụt bốc lên. Mà Từ Mạn Mạn nhìn Triệu Kim An, cảm xúc dồn nén bấy lâu rốt cuộc cũng vỡ òa bùng nổ.
+Triệu Kim An nhìn Từ Mạn Mạn đầy giận dữ, còn Từ Mạn Mạn nhìn thẳng vào Triệu Kim An rồi bỗng bùng nổ.
 
-"Anh muốn em phải nói cái gì chứ!?"
+"Anh muốn em nói cái gì bây giờ?!"
 
-Đây là lần đầu tiên Từ Mạn Mạn lớn tiếng đến vậy: "Em không hề thích Trần Trạch! Em chưa từng lựa chọn Trần Trạch, chưa bao giờ chọn anh ta cả! Em bước lên tầng thượng hôm ấy không phải là để chọn Trần Trạch!"
+Lần đầu tiên trong đời Từ Mạn Mạn gào lên lớn tiếng đến thế: "Em không hề thích Trần Trạch, em không hề chọn Trần Trạch, từ đầu đến cuối em chưa từng chọn anh ta, em lên sân thượng hôm đó không phải vì chọn Trần Trạch!"
 
-"Nhưng em không cách nào giải thích được!!"
+"Nhưng em không có cách nào giải thích được!!"
 
-"Anh ta đòi nhảy lầu, em mới phải chạy lên."
+"Anh ta đòi nhảy lầu, nên em mới chạy lên."
 
-"Đêm trừ tịch anh ta bỗng dưng biến mất, em sợ anh ta nghĩ quẩn mà tìm đến cái chết, nhưng điều đó đâu có nghĩa là em thích anh ta!"
+"Đêm giao thừa anh ta mất tích, em sợ anh ta nghĩ quẩn làm chuyện dại dột, nhưng em không hề thích anh ta!"
 
-"Em không biết phải giải thích với anh thế nào nữa... Em với anh ta quen biết nhau suốt hai mươi năm trời. Hai mươi năm ấy, em làm sao có thể trơ mắt đứng nhìn mà dửng dưng làm ngơ cho được?"
+"Em không biết phải giải thích với anh thế nào nữa. Em và anh ta quen biết nhau hai mươi năm, hai mươi năm trời em không thể làm ngơ vô cảm được."
 
-"Thế sau này thì sao? Sau này gặp chuyện có phải cô cũng không làm ngơ được đúng không?"
+"Thế còn sau này thì sao? Có phải vẫn không làm ngơ vô cảm được đúng không?"
 
-Triệu Kim An vừa giận vừa bất lực cất giọng: "Hai mươi năm? Cứ vin vào hai mươi năm mãi sao? Đời người rốt cuộc có được mấy lần hai mươi năm hả?"
+Triệu Kim An vừa giận dữ vừa bất lực hỏi ngược lại: "Hai mươi năm? Cứ mở miệng ra là hai mươi năm? Cả một đời người có được mấy cái hai mươi năm hả?"
 
 "Không có!"
 
-Từ Mạn Mạn tức giận đẩy mạnh Triệu Kim An: "Em từng nói em sẽ không lấy anh, nhưng em làm gì còn cách nào khác? Em đâu thể gả cho anh được! Em sai rồi, Kim An... Em chưa từng nghĩ cho cảm nhận của anh và Lâm Thanh Tuyết..."
+Từ Mạn Mạn tức giận đẩy mạnh vào ngực Triệu Kim An: "Em đã bảo là sẽ không lấy anh rồi, em còn biết làm sao nữa? Em không gả cho anh được, em sai rồi, Kim An, em đã không nghĩ tới cảm nhận của anh và Lâm Thanh Tuyết..."
 
-"Em không biết, em thật sự không hề hay biết, em chưa từng nghĩ đến chuyện đó... Là em đi hỏi Lâm Thanh Tuyết rồi mới..."
+"Em không biết, em thực sự không biết, em không nghĩ nhiều được đến thế, em đi hỏi Lâm Thanh Tuyết rồi mới..."
 
-"Em nói không lại anh, cái gì anh cũng sắp đặt liệu trước đâu vào đấy hết rồi."
+"Em cãi không lại anh, chuyện gì anh cũng tính toán nói trước hết cả rồi."
 
-Từ Mạn Mạn nghẹn lời, trăm mối tơ vò không sao giãi bày. Trong tâm trí cô lúc này chỉ còn nhớ lại lần đầu tiên nhìn thấy tấm ảnh của Triệu Kim An, lần đầu tiên nếm thử món dưa khô xào, lần đầu tiên nảy sinh sự tò mò về thôn Triệu Gia mà ngồi canh trước màn hình tivi xem chương trình "Biến Hình Kế", rồi lần đầu tiên ngoắc tay hẹn ước cùng Triệu Kim An...
+Từ Mạn Mạn trăm miệng khó bào chữa. Cô chỉ biết rằng lần đầu tiên mình nhìn thấy ảnh Triệu Kim An, lần đầu tiên ăn món rau muối khô, lần đầu tiên nảy sinh tò mò về Triệu Gia Thôn mà ngồi canh xem *Biến Hình Kế*, lần đầu tiên ngoắc ngón tay hứa hẹn với Triệu Kim An...
 
-Triệu Kim An trầm giọng nói: "Trần Trạch có bạn gái mới rồi."
+Triệu Kim An nói: "Trần Trạch lại có bạn gái mới rồi đấy."
 
-Từ Mạn Mạn nhìn thẳng vào mắt Triệu Kim An, gằn từng tiếng rõ mồn một: "Em hận anh!"
+Từ Mạn Mạn nhìn thẳng vào mắt Triệu Kim An, gào lớn: "Em hận anh!"
 
 "Kim An, em hận anh."
 
-Miệng cô thốt lên hai tiếng "Kim An" thân thương đến thế, nhưng lời thốt ra lại là hận anh đến thấu xương.
-
-"Còn gì nữa không?" Triệu Kim An bình thản hỏi.
-
-"Em hối hận rồi, hối hận vì đã quen biết anh."
-
-"Còn gì nữa? Tại sao lại không nói cho tôi biết?"
-
-Ánh mắt Triệu Kim An hạ thấp xuống, nhìn vào bụng Từ Mạn Mạn. Từ Mạn Mạn không hề rơi lệ, chỉ cắn chặt bờ môi đáp: "Ai mà thèm thích nó chứ? Em không muốn làm anh phải khó xử... Em nghĩ mãi rồi, trên đời này chẳng có ai thích nó đâu."
+Từ Mạn Mạn miệng vẫn gọi hai tiếng Kim An, nhưng lời thốt ra lại là hận anh.
 
 "Còn gì nữa không?"
 
-"Em ăn cái gì cũng muốn nôn... Em thèm ăn đầu cá hấp ớt băm, thèm ăn thịt bò khô Quận Sa rồi."
+Triệu Kim An nhàn nhạt hỏi.
+
+"Em hối hận rồi, hối hận vì đã quen biết anh."
+
+"Còn gì nữa không? Tại sao không báo cho anh biết?"
+
+Triệu Kim An cúi đầu nhìn xuống bụng Từ Mạn Mạn. Từ Mạn Mạn không khóc, cô mím chặt môi nói: "Ai mà thèm thích nó chứ? Em không muốn anh phải khó xử, em nghĩ nát óc rồi, chẳng có ai thích nó đâu."
+
+"Còn gì nữa không?"
+
+"Em ăn gì cũng buồn nôn muốn ói, em thèm ăn đầu cá hấp ớt băm, thèm ăn thịt bò khô rồi."
 
 "....."
 
-Quan Văn Bách nhìn đống mì tôm văng tung tóe khắp nơi, giữa đêm hôm khuya khoắt thế này ở đất Thượng Hải thì biết đi đâu đào đâu ra quán ăn Hồ Nam bây giờ?
+Quan Văn Bách liếc nhìn đống mì tôm vương vãi khắp nơi; nửa đêm nửa hôm thế này ở Thượng Hải biết đào đâu ra quán ăn Tương Nam bây giờ?
 
-Đơn Vỹ rón rén bước về phía tủ lạnh, mở cửa ra xem.
+Đan Vĩ lặng lẽ bước tới mở cánh cửa tủ lạnh ra xem.
 
-Khá lắm, ngoài sữa tươi với bánh quy ra thì chẳng bới đâu ra nổi một cọng rau.
+Chà, ngoài sữa tươi và bánh quy ra thì chẳng có nổi một cọng rau xanh nào.
 
-"Từ tổng liệu có thật sự làm nổi một người mẹ không đây? Đến một chút kỹ năng sống cơ bản cũng chẳng có."
+"Từ tổng thế này liệu có làm tốt vai trò một người mẹ không đây? Kỹ năng sống chẳng có chút nào cả."
 
-Quan Văn Bách và Chu Hoa Phong lập tức mở cửa chạy ra ngoài, quyết tâm lùng sục cho bằng được quán ăn Hồ Nam nào còn mở cửa thâu đêm.
+Quan Văn Bách và Chu Phong Hoa lập tức chạy ra ngoài tìm bằng được quán ăn Tương Nam nào mở cửa xuyên đêm.
 
-"Cái này đâu phải Từ tổng thèm ăn, là đứa bé trong bụng thèm ăn đấy chứ."
+"Đây đâu phải Từ tổng thèm ăn, là đứa bé trong bụng thèm ăn đấy chứ."
 
-Triệu Kim An cất bước đi vào phòng ngủ. Căn phòng ngủ đơn sơ chẳng có chút ấm cúng, đồ đạc cũ kỹ lạc hậu, chăn đệm trên giường cũng mỏng tang. Anh đưa tay sờ vào tấm chăn vẫn còn vương hơi ấm, ngước mắt nhìn Từ Mạn Mạn: "Mỏng thế này, không thấy lạnh sao?"
+Triệu Kim An bước vào phòng ngủ. Một căn phòng chẳng hề ấm cúng chút nào, đồ đạc toàn kiểu cũ kỹ lỗi thời, chăn đệm cũng chẳng lấy gì làm dày dặn. Anh nhấc tấm chăn vẫn còn vương hơi ấm lên nhìn Từ Mạn Mạn: "Mỏng thế này, có lạnh không?"
 
 "Em không lạnh."
 
-Từ Mạn Mạn xưa nay chẳng sợ nóng cũng chẳng sợ lạnh, cô chỉ sợ đau mà thôi.
+Từ Mạn Mạn vốn chẳng sợ lạnh cũng chẳng sợ nóng, cô chỉ sợ đau thôi.
 
-Triệu Kim An nói: "Nó sẽ lạnh."
+Triệu Kim An nói: "Con sẽ lạnh."
 
-"Nó không lạnh."
+"Con không lạnh đâu."
 
-"Sao cô biết?"
+"Sao em biết?"
 
-"Nó nằm trong bụng em."
-
-"....."
-
-Ở ngoài phòng khách, Đơn Vỹ phát hiện mình chẳng tài nào hiểu nổi lấy một câu trong cuộc đối thoại giữa Triệu Kim An và Từ Mạn Mạn.
+"Con nằm trong bụng em mà."
 
 "....."
 
-Triệu Kim An cũng chẳng biết phải nói chuyện tiếp với Từ Mạn Mạn thế nào. Anh nhìn chiếc áo khoác của mình vắt trên giường: "Tôi sẽ thích nó."
+Ngoài phòng khách, Đan Vĩ phát hiện mình chẳng hiểu nổi một câu nào, hoàn toàn không theo kịp mạch đối thoại giữa Triệu Kim An và Từ Mạn Mạn.
 
-Từ Mạn Mạn nói: "Không cần anh thích."
+"....."
 
-Triệu Kim An: "....."
+Triệu Kim An chẳng biết đối đáp thế nào với Từ Mạn Mạn, anh nhìn chiếc áo khoác của mình trên giường rồi nói: "Anh sẽ thích con."
 
-"Tôi cũng hối hận rồi."
+Từ Mạn Mạn đáp: "Không cần anh thích."
+
+Triệu Kim An: ......
+
+"Anh cũng hối hận rồi."
 
 "Anh hối hận cái gì?"
 
-"Là do cô tự mình tìm đến tôi trước."
+"Là do em chủ động tìm tới anh trước đấy chứ."
 
-Đến nước này thì Triệu Kim An đúng là giở thói mặt dày vô lại. Từ Mạn Mạn nghiêm túc đáp: "Em sẽ tự mình nuôi nấng nó khôn lớn."
+Đúng là Triệu Kim An giở thói mặt dày vô sỉ rồi. Từ Mạn Mạn nghiêm túc nói: "Em sẽ tự mình nuôi sống con."
 
-"Thế thì trả tiền đây. Mười vạn tệ tiền thưởng cuối năm là tiền túi cá nhân tôi cho cô đấy."
+"Vậy em trả tiền lại đây, 100.000 tệ tiền thưởng cuối năm đó là tiền túi cá nhân anh cho em đấy."
 
-Từ Mạn Mạn: "....."
+Từ Mạn Mạn: .....
 
-"Trả ngay bây giờ."
+"Trả ngay bây giờ đi."
 
-Triệu Kim An cầm chiếc áo khoác lên, cẩn thận khoác lên vai cho Từ Mạn Mạn. Từ Mạn Mạn cúi đầu, giọng trầm xuống: "Sẽ chẳng có ai thích nó đâu."
+Triệu Kim An cầm lấy một chiếc áo khoác choàng lên vai cho Từ Mạn Mạn. Từ Mạn Mạn cúi đầu khẽ nói: "Chẳng có ai thích nó đâu."
 
-Ý cô muốn nói đến Tô Miện, Thẩm Tử Ngôn, và có lẽ là cả bà nội, thím Vương Kim Như, Đoạn Thu Bình, cho đến cả Từ Tắc Đống và Lương Tuệ Trân.
+Người cô nhắc tới chính là Tô Miến, Thẩm Tử Ngôn, có lẽ cả bà nội, Vương Kim Như, Đoạn Thu Bình, Từ Tắc Đống và Lương Tuệ Trân nữa.
 
-"Ngày nào cô cũng ăn mì tôm à?"
+"Ngày nào em cũng ăn mì tôm à?"
 
-"Có lúc em thèm ăn cay quá, nên mua một lọ ớt Lão Can Ma."
+"Thỉnh thoảng em thèm ăn cay lắm, có mua một lọ tương ớt Lao Gan Ma."
 
-Triệu Kim An khẽ bật cười: "Chua con trai, cay con gái."
+Triệu Kim An bật cười: "Chua trai cay gái đấy."
 
 Từ Mạn Mạn hỏi: "Anh không thích con gái à?"
 
-"Đã đi bệnh viện khám lần nào chưa?"
+"Đã đi bệnh viện khám thai lần nào chưa?"
 
-"Đi một lần rồi, bác sĩ bảo mọi thứ đều rất tốt."
+"Đi khám một lần rồi, bác sĩ bảo rất tốt."
 
-Từ Mạn Mạn năm nay mới hai mươi mốt tuổi, sức khỏe đương độ xuân thì, căn bản chẳng có gì phải lo lắng, cứ thuận theo tự nhiên mang thai là được.
+Từ Mạn Mạn mới 21 tuổi, chẳng có gì phải lo lắng cả, cứ mang thai bình thường là được.
 
-Triệu Kim An ngồi xuống mép giường, chầm chậm vươn tay chạm vào bụng Từ Mạn Mạn. Động tác của anh vô cùng cẩn trọng và nâng niu, cứ như thể sợ chạm mạnh một chút là làm vỡ mất bảo vật. Từ Mạn Mạn đâu biết rằng kiếp trước Triệu Kim An chưa từng được một lần làm cha.
+Triệu Kim An ngồi xuống mép giường, đưa tay khẽ chạm lên bụng Từ Mạn Mạn, dáng vẻ vô cùng cẩn trọng dè dặt, cứ sợ chạm mạnh tay lại làm hỏng mất. Từ Mạn Mạn đâu biết rằng ở kiếp trước Triệu Kim An chưa từng được làm bố.
 
-"Kim An, ở chỗ này cơ."
+"Kim An, chỗ này cơ."
 
-Từ Mạn Mạn đứng đó, cầm lấy bàn tay Triệu Kim An đặt vào đúng vị trí rồi khẽ bảo: "Giờ chưa sờ thấy gì đâu, nó còn bé tí tẹo, bụng em còn chưa lộ rõ mà."
-
-"Hì hì."
-
-Triệu Kim An nở nụ cười, trông ngây ngô ngốc nghếch đến lạ lùng.
-
-"Em cứ ăn vào là nôn ra hết, người trong công ty mới phát hiện đấy."
-
-Trút bỏ hết uất ức trong lòng, Từ Mạn Mạn lại trở về với vẻ điềm đạm thường ngày, phong thái của một tiểu thư khuê các gia giáo, hiểu biết lễ nghĩa. Phải thừa nhận rằng sự giáo dục của Từ Tắc Đống dành cho Từ Mạn Mạn ở một phương diện nào đó quả thực rất thành công.
-
-Triệu Kim An một tay móc điện thoại ra, nhưng nhìn đồng hồ thấy đã quá muộn nên lại thôi, không gọi đi đâu nữa.
-
-"Liệu bà nội và thím có mổ gà gửi lên cho Từ Mạn Mạn không nhỉ?"
-
-Ở thôn Triệu Gia xưa nay vẫn thế. Hễ trong nhà có người mang thai là lại hầm canh gà bồi bổ. Kiếp trước, bà nội và thím năm nào cũng nuôi cả đàn gà, chỉ mong ngóng ngày Trần Thanh Trĩ có bầu. Cũng có thể nói, bà nội và thím vốn chẳng có nhiều tiền.
-
-Họ không thể nào học theo những người giàu có lắm tiền nhiều của ngoài kia, cứ hễ mang bầu là thưởng ngần này tiền, sinh con trai thưởng bao nhiêu, sinh con gái lại thưởng bấy nhiêu.
-
-"Kim An, em muốn nói với anh một chuyện này."
-
-Từ Mạn Mạn nhìn anh với vẻ mặt vô cùng nghiêm túc. Cô không biết Triệu Kim An vừa rút điện thoại ra là định gọi cho ai.
-
-Triệu Kim An gật đầu: "Cô nói đi."
-
-"Con của em... sau này em không muốn để bố mẹ em chăm sóc dù chỉ một ngày. Em không muốn quá khắt khe nghiêm khắc với nó."
-
-"Anh đừng nghĩ là em bất hiếu."
-
-Từ Mạn Mạn muốn nói rõ ràng trước. Cô không muốn đứa con của mình tiếp xúc quá nhiều với Từ Tắc Đống. Kiểu giáo dục áp đặt đến ngạt thở ấy, cô đã phải cắn răng chịu đựng suốt hai mươi năm ròng rã, tuyệt đối không muốn con mình phải giẫm lên vết xe đổ ấy thêm một lần nào nữa.
+Từ Mạn Mạn đứng yên, cầm lấy bàn tay Triệu Kim An đặt đúng vào vị trí rồi nói: "Không sờ thấy gì đâu, con còn bé lắm, bụng còn chưa lộ rõ mấy."
 
 "Hì hì."
 
-Triệu Kim An vừa xoa xoa bụng cô vừa bật cười.
+Triệu Kim An cười ngây ngô như một kẻ ngốc.
+
+"Tại em ăn gì cũng nôn ói hết nên mọi người ở công ty mới phát hiện ra."
+
+Sau khi trút hết nỗi lòng, Từ Mạn Mạn lại trở về dáng vẻ bình thường, cứ như cô tiểu thư khuê các hiểu lễ nghĩa gia giáo ngày nào. Chỉ có thể nói cách giáo dục của Từ Tắc Đống đối với Từ Mạn Mạn xét ở một khía cạnh nào đó rất thành công.
+
+Triệu Kim An một tay rút điện thoại ra, nhưng thấy trời khuya quá rồi nên lại thôi không gọi nữa.
+
+"Không biết bà nội với thím út có mổ gà gửi cho Từ Mạn Mạn không nhỉ?"
+
+Ở Triệu Gia Thôn là thế, hễ có bầu là phải hầm canh gà tẩm bổ. Kiếp trước bà nội và thím út năm nào cũng nuôi rất nhiều gà, chỉ để chờ ngày Trần Thanh Trĩ mang thai; cũng có thể nói bà nội và thím út không có nhiều tiền.
+
+Họ không thể học theo mấy người giàu có, hễ có bầu là thưởng ngay bao nhiêu tiền, sinh con trai thưởng bao nhiêu, sinh con gái thưởng bao nhiêu.
+
+"Kim An, em muốn nói với anh chuyện này."
+
+Từ Mạn Mạn vẻ mặt vô cùng nghiêm túc, cô không biết Triệu Kim An vừa rút điện thoại ra định gọi cho ai.
+
+Triệu Kim An gật đầu: "Em nói đi."
+
+"Con của em, sau này... em không muốn cho bố mẹ em trông nom dùm dù chỉ một ngày, em không muốn quá nghiêm khắc với con."
+
+"Anh đừng nghĩ em bất hiếu."
+
+Từ Mạn Mạn nói rõ ràng ngay từ đầu, cô không muốn để con mình tiếp xúc với Từ Tắc Đống. Kiểu giáo dục đó quá ngột ngạt, cô đã phải chịu đựng suốt hai mươi năm trời rồi, không muốn con mình lại phải đi vào vết xe đổ ấy nữa.
+
+"Hì hì."
+
+Triệu Kim An vừa xoa bụng cô vừa khẽ cười.
 
 "Anh cười cái gì?"
 
-"Câu này là chính miệng cô nói đấy nhé, không muốn quá nghiêm khắc với nó, sau này đừng có mà đổi ý hối hận đấy."
+"Câu này là tự em nói ra đấy nhé, không muốn nghiêm khắc với con, sau này đừng có mà hối hận đấy."
 
-Từ Mạn Mạn đời nào hối hận. Đứa bé này bất kể giống ai thì nhất định cũng sẽ rất ngoan ngoãn và hiểu chuyện.
+Từ Mạn Mạn làm sao mà hối hận được chứ; đứa trẻ này dù giống ai thì cũng sẽ rất trầm tính và ngoan ngoãn nghe lời thôi.
 
-Chừng một tiếng rưỡi sau, Quan Văn Bách và Chu Hoa Phong mới thở hổn hển xách đồ quay về.
+Khoảng một tiếng rưỡi sau, Quan Văn Bách và Chu Phong Hoa đã quay về.
 
-"Ông chủ, Từ tổng, cơm nước xong xuôi rồi ạ!"
+"Ông chủ, Từ tổng, ăn cơm thôi ạ."
 
-Lúc này đã là 4 giờ 45 phút sáng.
+Đồng hồ điểm 4 giờ 45 phút sáng.
 
-Gian phòng khách đã được Đơn Vỹ quét dọn lau chùi sạch sẽ tinh tươm.
+Phòng khách đã được Đan Vĩ dọn dẹp sạch sẽ tinh tươm.
 
-Trên bàn ăn bày biện la liệt các món đặc sản Hồ Nam: đầu cá hấp ớt băm, thịt bò khô thơm lừng cùng mấy món xào đậm đà cay xé lưỡi.
+Trên bàn ăn bày la liệt đầu cá hấp ớt băm, thịt bò khô cùng đủ các món ăn Tương Nam.
 
-Từ Mạn Mạn ngồi ngay ngắn chỉnh tề, hai tay nâng bát cơm, đôi đũa lập tức hướng về phía đĩa ớt đỏ rực. Đơn Vỹ cùng mấy người Quan Văn Bách đứng nhìn mà lòng không khỏi xót xa cho đứa nhỏ này. Đứa con đầu lòng của Triệu tổng Trăn Nhiên lừng lẫy, thế mà lại phải trốn chui trốn lủi trong căn nhà trọ cũ nát ăn mì tôm qua ngày đoạn tháng thế này sao?
+Từ Mạn Mạn ngồi ngay ngắn bưng bát cơm, đầu đũa gắp thẳng vào mấy miếng ớt cay. Đan Vĩ, Quan Văn Bách mấy người đứng nhìn mà thấy thương thay cho đứa bé; đường đường là đứa con đầu lòng của Triệu tổng nhà Trăn Nhiên cơ mà, vậy mà phải chui rúc trong căn nhà trọ tồi tàn ăn mì tôm qua ngày?
 
-Mấy người họ vốn tinh ý, từ lúc nãy đã nhìn thấy lọ tương ớt Lão Can Ma đặt chỏng chơ trong góc bếp rồi.
+Họ vốn tinh mắt, từ lúc mới bước vào đã liếc thấy lọ tương ớt Lao Gan Ma đặt trên bàn rồi.
 
-Đang ăn dở, Triệu Kim An bỗng nhiên đặt đũa xuống cái cạch.
+Đang ăn dở, Triệu Kim An bỗng dưng buông đũa xuống.
 
 "Kim An, sao thế anh?"
 
-Từ Mạn Mạn quay sang nhìn anh. Triệu Kim An đảo mắt một vòng, tặc lưỡi: "Lỗ to rồi."
+Từ Mạn Mạn quay sang nhìn Triệu Kim An. Đầu óc Triệu Kim An xoay chuyển cực nhanh: "Lỗ rồi."
 
 "Cái gì lỗ cơ?"
 
-"Đại hội thể thao của trường vốn dĩ chỉ cần tài trợ hai vạn, thế mà tôi lại vung tay tài trợ hẳn năm vạn."
+"Hội thao trường vốn dĩ chỉ tốn 20.000 tệ, anh lại đi tài trợ hẳn 50.000 tệ."
 
-Từ Mạn Mạn: "....."
+Từ Mạn Mạn: ......
 
-Cô cứ ngỡ chuyện làm ăn kinh doanh gì của công ty bị thua lỗ bạc tỷ cơ chứ.
+Cô còn tưởng công ty có thương vụ làm ăn nào bị thua lỗ nặng cơ đấy.
 
-"..... Thế này mà cũng tính toán được sao?"
+".....Thế cũng tính được à?"
 
-Đơn Vỹ cùng mấy người kia trố mắt nhìn nhau, chẳng biết phải đỡ lời thế nào cho phải.
+Đám Đan Vĩ há hốc mồm, hoàn toàn cạn lời chẳng biết nối tiếp thế nào.
 
-"Ba vạn tệ đấy."
+"30.000 tệ."
 
-Triệu Kim An liếc nhìn bụng Từ Mạn Mạn: "Một nghìn tệ một hộp sữa bột, thế là mất toi ba mươi hộp sữa bột của con rồi."
+Triệu Kim An liếc nhìn bụng Từ Mạn Mạn: "Một nghìn tệ một hộp sữa bột, mất đứt tiền mua 30 hộp sữa cho con rồi."
 
-Từ Mạn Mạn khẽ bật cười, hai tay nâng bát cơm ăn từng miếng nhỏ thong thả.
+Từ Mạn Mạn bật cười, bưng bát cơm ăn từng miếng nhỏ nhẹ nhàng.
 
-"Ông chủ, anh đừng có nhìn tôi thế chứ!"
+"Ông chủ, đừng nhìn tôi."
 
-Đơn Vỹ giật thót mình, vội vàng xua tay lia lịa. Quan Văn Bách cũng lập tức phụ họa vào để làm dịu bầu không khí: "Đúng đấy ông chủ ơi, tiền sữa bột cho cháu anh đừng hòng trừ vào tiền lương của bọn em đấy nhé!"
+Đan Vĩ giật mình xua tay lia lịa, Quan Văn Bách cũng vội vàng hùa theo làm dịu bầu không khí: "Đúng đấy ông chủ, tiền sữa bột anh đừng có trừ vào lương tụi tôi nhé."
 
-"Tôi tính toán có gì sai à?"
+"Anh tính sai chỗ nào à?"
 
-Triệu Kim An hết sức nghiêm túc quay sang hỏi Từ Mạn Mạn: "Một tháng bốn hộp sữa bột, tính ra là bốn nghìn tệ rồi."
+Triệu Kim An hỏi Từ Mạn Mạn với vẻ mặt hết sức nghiêm túc: "Một tháng uống 4 hộp sữa bột, vị chi là 4.000 tệ."
 
-"Ồ."
+"Ờ."
 
-"Ồ là sao?"
+"Ờ?"
 
-"Vâng."
+"Ừm."
 
-Dưới gầm bàn, Từ Mạn Mạn nhẹ nhàng nắm lấy bàn tay Triệu Kim An, khẽ bảo: "Công ty đầu tư hết tiền rồi sao anh?..."
+Dưới gầm bàn, Từ Mạn Mạn khẽ nắm lấy bàn tay Triệu Kim An: "Công ty đầu tư hết tiền rồi..."

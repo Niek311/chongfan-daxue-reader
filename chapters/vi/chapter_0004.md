@@ -1,7 +1,5 @@
 # Chương 4: Kim An, "liếm cẩu" là cái giống gì thế?
 
-> **Tiêu đề gốc**: 第4章 今安，什么是舔狗？
-
 "Cho chị ít cá này, tối về rán giòn thêm một đĩa thức ăn."
 
 Triệu Kim An nghiêng miệng giỏ tre.

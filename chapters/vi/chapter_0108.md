@@ -1,7 +1,5 @@
 # Chương 108: Ông chú của tôi, khuyết điểm ngắn nhất cũng đã được bù đắp
 
-> **Tiêu đề gốc**: 第108章 我的这个叔，最短的短板也补齐了。
-
 "Kim An, lát nữa mày đừng nói năng linh tinh đấy nhé."
 
 Triệu Kim An rảo bước đi theo Triệu Trí Dũng tiến lại gần. Triệu Trí Dũng làm động tác giới thiệu, Triệu Kim An liền thản nhiên nói: "Tôi là chú họ của nó."

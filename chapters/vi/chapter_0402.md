@@ -1,26 +1,24 @@
 # Chương 402: Tin tức lan truyền.
 
-> **Tiêu đề gốc**: 第402章 消息扩散。
-
 Ở một góc khác.
 
-Bà Vương Kim Như áp chặt chiếc điện thoại vào tai, ríu rít trò chuyện với Tô Miện vô cùng vui vẻ. Trong phút chốc, bà bỗng cảm thấy Tô Miện mang thai được kể cũng là điều may mắn, nếu không trong lòng bà cứ canh cánh nỗi áy náy khôn nguôi, cảm giác như chính mình vừa làm điều gì đó phản bội lại con bé.
+Bà Vương Kim Như áp chặt chiếc điện thoại vào tai, ríu rít trò chuyện với Tô Miến vô cùng vui vẻ. Trong phút chốc, bà bỗng cảm thấy Tô Miến mang thai được kể cũng là điều may mắn, nếu không trong lòng bà cứ canh cánh nỗi áy náy khôn nguôi, cảm giác như chính mình vừa làm điều gì đó phản bội lại con bé.
 
 Thế nhưng Từ Mạn Mạn cũng thật lòng quá đỗi ngoan ngoãn, hiểu chuyện.
 
-Mu bàn tay hay lòng bàn tay thì cũng đều là thịt cả. Vương Kim Như gọi điện thoại giọng oang oang chẳng buồn giấu giếm, chuyện Tô Miện có thai lập tức truyền khắp cả thôn Triệu Gia.
+Mu bàn tay hay lòng bàn tay thì cũng đều là thịt cả. Vương Kim Như gọi điện thoại giọng oang oang chẳng buồn giấu giếm, chuyện Tô Miến có thai lập tức truyền khắp cả thôn Triệu Gia.
 
-Triệu Hữu Hằng vừa nghe ngóng được phong thanh tin tức đã là người đầu tiên xách đôi gà trống thiến chạy sang, bảo để dành bồi bổ sức khỏe cho Tô Miện.
+Triệu Hữu Hằng vừa nghe ngóng được phong thanh tin tức đã là người đầu tiên xách đôi gà trống thiến chạy sang, bảo để dành bồi bổ sức khỏe cho Tô Miến.
 
 Triệu Bằng Vũ là người thứ hai sang góp vui, còn sốt sắng hỏi có cần lên rừng đào măng mùa đông không để anh ta đi lấy.
 
 Bố mẹ Triệu Trí Dũng cũng tất tả kéo sang, ngó nghiêng chuồng gà nhà họ Triệu một lượt rồi dặn dò khi nào cần cứ ới một tiếng, ông bà sẽ lại bắt thêm mang sang.
 
-Người làng thôn Triệu Gia ai nấy đều ngóng cổ chờ mong ngày cô thím út Tô Miện về thăm quê, thành thử đám cưới tập hai của Triệu Hữu Tài ngược lại chẳng còn mấy ai đoái hoài, chú ý nữa.
+Người làng thôn Triệu Gia ai nấy đều ngóng cổ chờ mong ngày cô thím út Tô Miến về thăm quê, thành thử đám cưới tập hai của Triệu Hữu Tài ngược lại chẳng còn mấy ai đoái hoài, chú ý nữa.
 
 Thế nhưng lúc này.
 
-Tô Miện lại không về được nữa rồi, căn bản là không thể về.
+Tô Miến lại không về được nữa rồi, căn bản là không thể về.
 
 "Bà nội ơi, lần này cháu lại chẳng thể về thăm bà được rồi... Bác sĩ dặn cháu phải nằm yên trên giường tịnh dưỡng nhiều ạ."
 
@@ -40,27 +38,27 @@ Vương Kim Như chớp chớp mắt, cố ý oang oang cất cao giọng trêu 
 
 Chẳng mấy chốc, trong sân nhà họ Triệu đã tụ tập đông đảo các bà, các chị trong làng kéo sang xúm vào phụ giúp một tay. Mọi người mồm năm miệng mười bàn tán rôm rả, thi nhau kể ra tới bốn, năm loại bánh giầy truyền thống khác nhau. Triệu Bằng Vũ bắc chiếc thang tre trèo lên xà nhà lấy xuống hũ mật ong rừng nguyên chất cất kỹ bấy lâu nay.
 
-Anh ta cùng Chương Ngọc Ni đều chịu ơn nâng đỡ rất nhiều từ Triệu Kim An, theo vai vế trong dòng họ thì phải gọi Tô Miện một tiếng "thím út".
+Anh ta cùng Chương Ngọc Ni đều chịu ơn nâng đỡ rất nhiều từ Triệu Kim An, theo vai vế trong dòng họ thì phải gọi Tô Miến một tiếng "thím út".
 
-Tô Miện dẫu đang ở tận Kinh Đô xa xôi, mới chỉ vừa thử que phát hiện có thai, thế mà thôn Triệu Gia dưới này đã lập tức rộn ràng, náo nhiệt hẳn lên.
+Tô Miến dẫu đang ở tận Kinh Đô xa xôi, mới chỉ vừa thử que phát hiện có thai, thế mà thôn Triệu Gia dưới này đã lập tức rộn ràng, náo nhiệt hẳn lên.
 
 ...
 
 Triệu Hữu Hằng ghé tiệm tạp hóa trong làng định đổi thuốc lá. Trong quán lúc này đang tụ tập một đám phụ nữ ngồi buôn chuyện rôm rả.
 
-"Hữu Hằng, chú lại sang đây mua thuốc lá đấy à? Bên nhà anh trai chú thuốc lá chất đống như núi, Tô Miện cho người chở về bao nhiêu xe cơ mà?"
+"Hữu Hằng, chú lại sang đây mua thuốc lá đấy à? Bên nhà anh trai chú thuốc lá chất đống như núi, Tô Miến cho người chở về bao nhiêu xe cơ mà?"
 
 "Tôi sang đổi thuốc lá thôi. Mấy bao thuốc kia đắt đỏ quá, đổi lấy thuốc lá Bạch Sa hút cho được nhiều bao."
 
-"Tô Miện có bầu rồi, mai mốt sinh con ra thì chú phải xưng hô thế nào đây hả? Ha ha ha!"
+"Tô Miến có bầu rồi, mai mốt sinh con ra thì chú phải xưng hô thế nào đây hả? Ha ha ha!"
 
 Mọi người cười ồ lên trêu chọc.
 
 "Xưng hô thế nào á? Bằng vai phải lứa, cứ gọi thẳng tên chứ sao!"
 
-Triệu Hữu Hằng chẳng hề phật ý, toét miệng cười xòa. Tô Miện có thai, cả anh ta lẫn Triệu Hữu Tài đều mừng rỡ từ tận đáy lòng. Vợ anh ta cũng đang tót sang nhà Vương Kim Như phụ giã bánh giầy rồi: "Thôi, chẳng đổi nữa! Hôm nay có chuyện vui, tôi cũng hút hẳn một bao thuốc xịn cho sướng mồm!"
+Triệu Hữu Hằng chẳng hề phật ý, toét miệng cười xòa. Tô Miến có thai, cả anh ta lẫn Triệu Hữu Tài đều mừng rỡ từ tận đáy lòng. Vợ anh ta cũng đang tót sang nhà Vương Kim Như phụ giã bánh giầy rồi: "Thôi, chẳng đổi nữa! Hôm nay có chuyện vui, tôi cũng hút hẳn một bao thuốc xịn cho sướng mồm!"
 
-"Mà này, nhà Tô Miện rốt cuộc làm ăn buôn bán gì thế nhỉ? Cô ấy với thằng Kim An giàu nứt đố đổ vách thế, sau này con cái liệu có chịu về cái làng khỉ ho cò gáy này chơi không? Thôn mình thì có cái gì ngon, cái gì vui đâu."
+"Mà này, nhà Tô Miến rốt cuộc làm ăn buôn bán gì thế nhỉ? Cô ấy với thằng Kim An giàu nứt đố đổ vách thế, sau này con cái liệu có chịu về cái làng khỉ ho cò gáy này chơi không? Thôn mình thì có cái gì ngon, cái gì vui đâu."
 
 "Ai bảo là không có gì chơi hả?"
 
@@ -70,7 +68,7 @@ Thu tiền á?
 
 Ai dám thu tiền, và ai nỡ thu tiền cơ chứ?
 
-Cho dù Triệu Kim An và Tô Miện có rộng lượng xua tay bảo không sao, thì chớ có quên còn một bà "Giám đốc Vương" lù lù ở đó! Ai mà dám hó hé nửa câu, dù chỉ là đặt điều nói xấu sau lưng nửa lời, thì coi như đừng hòng bán được bất kỳ thứ nông sản nào cho Vương Kim Như nữa.
+Cho dù Triệu Kim An và Tô Miến có rộng lượng xua tay bảo không sao, thì chớ có quên còn một bà "Giám đốc Vương" lù lù ở đó! Ai mà dám hó hé nửa câu, dù chỉ là đặt điều nói xấu sau lưng nửa lời, thì coi như đừng hòng bán được bất kỳ thứ nông sản nào cho Vương Kim Như nữa.
 
 "Chưa hết đâu nhé, dưới sông còn tha hồ lội mò cá, bắt cua đồng nữa."
 
@@ -82,7 +80,7 @@ Cua dưới sông nhỏ tý hin, người thôn Triệu Gia chê chẳng buồn 
 
 ...
 
-Triệu Kim An lái xe trở về, suốt dọc đường liên tục gọi mấy cuộc điện thoại nói chuyện với Tô Miện.
+Triệu Kim An lái xe trở về, suốt dọc đường liên tục gọi mấy cuộc điện thoại nói chuyện với Tô Miến.
 
 Vừa bước chân vào đến sân nhà, anh liền ngẩn tò te tại chỗ.
 
@@ -164,7 +162,7 @@ Nghĩ tới những chuyện cũ kiếp trước, Triệu Kim An bế bổng Tri
 
 ...
 
-Tin Tô Miện có thai không thể giấu được, Đoàn Thu Bình gọi điện thoại tới.
+Tin Tô Miến có thai không thể giấu được, Đoạn Thu Bình gọi điện thoại tới.
 
 "Mẹ... mẹ sắp được làm bà nội rồi ư?"
 
@@ -174,7 +172,7 @@ Tống Siêu Văn và Tống Uyển Hòa ở nhà đang ngồi xiên thịt nư�
 
 "Lên nhà anh trai mà ở nhà lầu xe hơi rộng rãi sang trọng, chứ cái xó nhà chật hẹp này của chúng ta..."
 
-Tống Gia Nguyệt và Đoàn Thu Bình từng lên Quận Sa ở trọn một tháng trời. Triệu Kim An giàu nứt đố đổ vách như thế, vậy mà Tống Uyển Hòa chẳng xơ múi, chấm mút được lấy một đồng cắc nào, thành thử lời ăn tiếng nói cứ chua ngoa, cay nghiệt.
+Tống Gia Nguyệt và Đoạn Thu Bình từng lên Quận Sa ở trọn một tháng trời. Triệu Kim An giàu nứt đố đổ vách như thế, vậy mà Tống Uyển Hòa chẳng xơ múi, chấm mút được lấy một đồng cắc nào, thành thử lời ăn tiếng nói cứ chua ngoa, cay nghiệt.
 
 "Uyển Hòa! Con bớt nói vài câu đi!"
 
@@ -184,7 +182,7 @@ Tống Uyển Hòa ám chỉ mấy chiếc váy xinh xắn mà Thẩm Tử Ngôn
 
 Bao gồm cả chiếc vali kéo mà Từ Mạn Mạn mang từ Trăn Hối Tuyển về cho cô bé.
 
-Đoàn Thu Bình phơi quần áo ngoài ban công, Tống Uyển Hòa cố tình vạch mác áo ra xem, đắt gấp mấy lần đồ cô ta đang mặc trên người.
+Đoạn Thu Bình phơi quần áo ngoài ban công, Tống Uyển Hòa cố tình vạch mác áo ra xem, đắt gấp mấy lần đồ cô ta đang mặc trên người.
 
 Cô bé Tống Gia Nguyệt mới học lớp một tuy chưa hiểu hết sự đời, nhưng tâm hồn trẻ thơ lại vô cùng nhạy cảm và tinh tế. Cô bé lẳng lặng tụt xuống khỏi ghế sofa, cầm lấy chiếc điều khiển nhẹ nhàng đặt lên bàn trà: "Chị ơi, em nhường chị xem ti vi đấy, em vào phòng làm bài tập đây ạ."
 
@@ -220,4 +218,4 @@ Giọng Thẩm Tử Ngôn nghẹn ngào nén chặt từng tiếng gằn ra từ
 
 Diêu Thần vừa đi tới hành lang, cách cửa phòng chừng bốn năm mét thì khựng bước lại.
 
-Ở phía đối diện, cô bạn học cùng lớp Du Phỉ cũng dừng bước, đưa mắt nhìn Diêu Thần...
+Ở phía đối diện, cô bạn học cùng lớp Du Phi cũng dừng bước, đưa mắt nhìn Diêu Thần...

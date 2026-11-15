@@ -1,18 +1,16 @@
 # Chương 125: Ánh mắt anh nhìn cô ấy không giống bình thường
 
-> **Tiêu đề gốc**: 第125章 你看她的眼神不一样。
-
-Triệu Kim An cúi đầu tập trung vào công việc, anh đã xóa sạch toàn bộ tin nhắn liên lạc với Hứa Mạn Mạn.
+Triệu Kim An cúi đầu tập trung vào công việc, anh đã xóa sạch toàn bộ tin nhắn liên lạc với Từ Mạn Mạn.
 
 Trên thực tế, cả hai người cũng chẳng biết phải mở lời trò chuyện về điều gì.
 
 Ắt hẳn sẽ chẳng ai thốt ra câu hỏi: "Có phải cậu vừa đến nhà máy của gia đình Trần Trạch không?"
 
-Hứa Mạn Mạn đâu phải bạn gái của anh, có lẽ chẳng có chàng trai nào lại tự luyến và viển vông đến mức độ ấy.
+Từ Mạn Mạn đâu phải bạn gái của anh, có lẽ chẳng có chàng trai nào lại tự luyến và viển vông đến mức độ ấy.
 
 Chiếc máy điều hòa trong phòng phả ra từng luồng gió mát rượi, xua tan cái oi ả cuối hè.
 
-Hứa Mạn Mạn vốn là một người trầm tính, cô khẽ liếc nhìn Triệu Kim An một cái, rồi chăm chú nghiên cứu các sản phẩm bày biện bên trong tủ mát.
+Từ Mạn Mạn vốn là một người trầm tính, cô khẽ liếc nhìn Triệu Kim An một cái, rồi chăm chú nghiên cứu các sản phẩm bày biện bên trong tủ mát.
 
 "Triệu Kim An, Tử Ngôn có phòng làm việc riêng ở đây không?"
 
@@ -24,7 +22,7 @@ Triệu Kim An ngẩng đầu lên, mỉm cười đáp: "Lạc tổng có bảo
 
 "Ừm, thỉnh thoảng mới tới."
 
-Hứa Mạn Mạn bỗng nhiên cởi đôi dép lê ra, quỳ gối lên chiếc ghế sô pha, vươn tay nghịch mấy chậu cây trầu bà xanh mướt đặt trên bậu cửa sổ. Đôi bàn chân trắng nõn nà lộ ra ngoài, chiếc quần jean bó sát ôm trọn lấy bờ mông săn chắc, căng tràn đường cong.
+Từ Mạn Mạn bỗng nhiên cởi đôi dép lê ra, quỳ gối lên chiếc ghế sô pha, vươn tay nghịch mấy chậu cây trầu bà xanh mướt đặt trên bậu cửa sổ. Đôi bàn chân trắng nõn nà lộ ra ngoài, chiếc quần jean bó sát ôm trọn lấy bờ mông săn chắc, căng tràn đường cong.
 
 Quả thực là... vừa tròn trịa lại vừa cong vút.
 
@@ -32,7 +30,7 @@ Triệu Kim An thoáng sững người: "......"
 
 Anh vốn không có thói quen nhìn lén con gái nhà người ta... nhưng vẫn không kìm được mà liếc mắt nhìn thêm vài cái.
 
-Hình ảnh này hoàn toàn trái ngược với vẻ đoan trang, kín kẽ thường thấy của Hứa Mạn Mạn trong tâm trí anh.
+Hình ảnh này hoàn toàn trái ngược với vẻ đoan trang, kín kẽ thường thấy của Từ Mạn Mạn trong tâm trí anh.
 
 "Triệu Kim An, mấy chậu trầu bà này do ai trồng thế?"
 
@@ -40,11 +38,11 @@ Hình ảnh này hoàn toàn trái ngược với vẻ đoan trang, kín kẽ th
 
 "Chăm khéo thật đấy."
 
-Hứa Mạn Mạn cứ thế tựa người vào lưng sô pha, khẽ khàng vuốt ve từng chiếc lá xanh biếc. Chính bản thân cô cũng không hiểu vì sao, chỉ biết rằng mỗi khi ở cạnh Triệu Kim An, lòng cô lại cảm thấy vô cùng nhẹ nhõm và thư thái.
+Từ Mạn Mạn cứ thế tựa người vào lưng sô pha, khẽ khàng vuốt ve từng chiếc lá xanh biếc. Chính bản thân cô cũng không hiểu vì sao, chỉ biết rằng mỗi khi ở cạnh Triệu Kim An, lòng cô lại cảm thấy vô cùng nhẹ nhõm và thư thái.
 
 Cả hai người không trò chuyện thêm câu nào nữa.
 
-Hứa Mạn Mạn giữ im lặng tuyệt đối, không hề phát ra bất kỳ tiếng động nào làm xao nhãng công việc của Triệu Kim An.
+Từ Mạn Mạn giữ im lặng tuyệt đối, không hề phát ra bất kỳ tiếng động nào làm xao nhãng công việc của Triệu Kim An.
 
 Triệu Kim An thỉnh thoảng lại nghe một cuộc điện thoại công việc, thời gian còn lại thì đôi bàn tay thoăn thoắt gõ phím lạch cạch trên bàn làm việc.
 
@@ -52,13 +50,13 @@ Triệu Kim An thỉnh thoảng lại nghe một cuộc điện thoại công vi
 
 Bớt đi vài phần chói chang gay gắt, lại đượm thêm vài phần lười biếng, dịu dàng của sắc vàng mùa thu.
 
-Hứa Mạn Mạn hết mân mê chiếc lá này lại chạm nhẹ vào chiếc lá khác, cô như kẻ tham lam muốn đắm mình tận hưởng trọn vẹn khoảnh khắc bình yên và thư thái hiếm hoi này.
+Từ Mạn Mạn hết mân mê chiếc lá này lại chạm nhẹ vào chiếc lá khác, cô như kẻ tham lam muốn đắm mình tận hưởng trọn vẹn khoảnh khắc bình yên và thư thái hiếm hoi này.
 
 Triệu Bác Lan từ phòng làm việc bên cạnh bước ra, liếc nhìn đồng hồ: 17 giờ 25 phút.
 
 "Vẫn chưa về cơ à?"
 
-Hứa Mạn Mạn đã ngồi trong phòng suốt hai tiếng rưỡi đồng hồ rồi. Triệu Bác Lan ghé mắt nhìn vào bên trong.
+Từ Mạn Mạn đã ngồi trong phòng suốt hai tiếng rưỡi đồng hồ rồi. Triệu Bác Lan ghé mắt nhìn vào bên trong.
 
 Cửa phòng không đóng.
 
@@ -72,19 +70,19 @@ Cậu chú họ này không làm "chuyện xấu" là tốt rồi.
 
 Cô đưa tay gõ nhẹ lên cánh cửa: "Kim An ơi, tối nay ăn cơm ở đâu thế, có cần bảo chú Đan Vĩ đi chợ mua ít đồ ăn về nấu không?"
 
-Hứa Mạn Mạn quay sang nở nụ cười nhẹ nhàng với Triệu Bác Lan: "Em xin phép về nhà đây ạ."
+Từ Mạn Mạn quay sang nở nụ cười nhẹ nhàng với Triệu Bác Lan: "Em xin phép về nhà đây ạ."
 
 Rồi cô quay sang Triệu Kim An: "Triệu Kim An, tớ về nhé."
 
 "Được rồi, cậu về cẩn thận."
 
-Triệu Kim An thực lòng khâm phục sức kiên nhẫn của Hứa Mạn Mạn. Mấy chậu trầu bà bé tí mà cô có thể ngồi ngắm nghía, mân mê suốt cả một buổi chiều ròng rã.
+Triệu Kim An thực lòng khâm phục sức kiên nhẫn của Từ Mạn Mạn. Mấy chậu trầu bà bé tí mà cô có thể ngồi ngắm nghía, mân mê suốt cả một buổi chiều ròng rã.
 
 Hơn nữa lại còn có thể giữ nguyên tư thế quỳ trên sô pha suốt hơn một tiếng đồng hồ.
 
 Đến tư thế ngồi cũng chẳng hề xê dịch hay thay đổi, quỳ một chỗ lâu như thế mà chân không bị tê dại hay sao?
 
-Nghĩ lại thì hình tượng này của Hứa Mạn Mạn lại vô cùng ăn khớp với ký ức kiếp trước của anh, chỉ là khác nhau về mặt tư thế mà thôi.
+Nghĩ lại thì hình tượng này của Từ Mạn Mạn lại vô cùng ăn khớp với ký ức kiếp trước của anh, chỉ là khác nhau về mặt tư thế mà thôi.
 
 Một đằng là ngồi im lìm ở góc quán bar suốt mấy tiếng đồng hồ, dáng ngồi bất động không đổi.
 
@@ -110,7 +108,7 @@ Bản thân hai người họ cũng chưa từng nảy sinh bất kỳ ý nghĩ 
 
 "Kim An này, cô gái chiều nay là ai thế anh?"
 
-"Hứa Mạn Mạn."
+"Từ Mạn Mạn."
 
 Triệu Bác Lan nghiêng đầu nhìn Triệu Kim An: "Ánh mắt anh nhìn cô ấy có chút là lạ đấy nhé."
 
@@ -122,7 +120,7 @@ Triệu Bác Lan ngước mặt lên nhìn thẳng vào mắt Triệu Kim An, c�
 
 "Không đơn thuần chỉ là lòng thương cảm dành cho hoàn cảnh của chị Tô Miến đâu... em cảm nhận rõ lắm đấy."
 
-"Nhưng ánh mắt anh nhìn Hứa Mạn Mạn... em không tài nào diễn tả nổi. Nó khác hẳn với Thẩm Tử Ngôn nhé, anh nhìn Thẩm Tử Ngôn... trong mắt toàn là công việc với kinh doanh thôi."
+"Nhưng ánh mắt anh nhìn Từ Mạn Mạn... em không tài nào diễn tả nổi. Nó khác hẳn với Thẩm Tử Ngôn nhé, anh nhìn Thẩm Tử Ngôn... trong mắt toàn là công việc với kinh doanh thôi."
 
 Bàn tay Triệu Bác Lan hơi lành lạnh, hai tay cô ôm chặt lấy cánh tay Triệu Kim An.
 

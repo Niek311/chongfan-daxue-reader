@@ -1,7 +1,5 @@
 # Chương 145: Treo lơ lửng chưa quyết.
 
-> **Tiêu đề gốc**: 第145章 悬而未决。
-
 Đêm đã về khuya.
 
 Từ Tắc Đống châm một điếu thuốc lá, một tay chống hông đi đi lại lại trong phòng ngủ với vẻ đăm chiêu.
@@ -86,7 +84,7 @@ Có lẽ mức lương ba ngàn tệ vào năm 2007 là một con số tương �
 
 Trong khi bên này Triệu Kim An hào phóng tăng lương cho cấp dưới.
 
-Thì ở một diễn biến khác, Dương Thục Mỹ buộc phải cắn răng bán tháo một lượng cổ phiếu chịu lỗ nặng để gom tiền thanh toán khoản lương đang nợ công nhân suốt mấy ngày qua.
+Thì ở một diễn biến khác, Dương Thù Mỹ buộc phải cắn răng bán tháo một lượng cổ phiếu chịu lỗ nặng để gom tiền thanh toán khoản lương đang nợ công nhân suốt mấy ngày qua.
 
 Mô hình gia công sản xuất vốn dĩ là ngành thâm dụng lao động, hàm lượng công nghệ thấp nên số lượng công nhân trong xưởng cực kỳ đông đúc.
 
@@ -94,7 +92,7 @@ Khất nợ vài ba ngày thì còn bấm bụng chịu được, chứ nếu d�
 
 Công nhân chắc chắn sẽ đình công làm ầm ĩ lên, rồi tin đồn thất thiệt xưởng sắp vỡ nợ phá sản sẽ lan truyền khắp nơi.
 
-Khoảng thời gian này Dương Thục Mỹ tâm lực hao mòn, tiều tụy đến cùng cực vì toàn bộ khối tài sản bị kẹp cứng trên sàn chứng khoán.
+Khoảng thời gian này Dương Thù Mỹ tâm lực hao mòn, tiều tụy đến cùng cực vì toàn bộ khối tài sản bị kẹp cứng trên sàn chứng khoán.
 
 Có lẽ do cơ địa trời phú, vóc dáng của bà không hề bị sụt cân gầy gò đi chút nào, thân hình vẫn giữ được nét đẫy đà, quyến rũ. Mỗi lần đứng dậy khỏi ghế làm việc, bà lại phải theo thói quen đưa tay kéo nhẹ ống quần lên.
 
@@ -102,7 +100,7 @@ Vòng eo thon gọn, bờ hông nở nang, vòng ba nảy nở đẫy đà.
 
 Nếu không kéo chỉnh lại một chút thì nếp gấp quần sẽ bó sát lộ liễu.
 
-Dương Thục Mỹ đã từng nghĩ đến việc dứt khoát cắt lỗ bán tháo toàn bộ cổ phiếu, nhưng trong lòng lại tiếc nuối không cam tâm. Bản thân bà vốn là người dám từ bỏ biên chế nhà nước để nhảy ra ngoài biển lớn kinh doanh, trong huyết quản luôn có sẵn máu liều lĩnh ăn thua, nếu không có chút máu cờ bạc ấy thì bà đâu đủ dũng khí vứt bỏ bát cơm sắt ổn định.
+Dương Thù Mỹ đã từng nghĩ đến việc dứt khoát cắt lỗ bán tháo toàn bộ cổ phiếu, nhưng trong lòng lại tiếc nuối không cam tâm. Bản thân bà vốn là người dám từ bỏ biên chế nhà nước để nhảy ra ngoài biển lớn kinh doanh, trong huyết quản luôn có sẵn máu liều lĩnh ăn thua, nếu không có chút máu cờ bạc ấy thì bà đâu đủ dũng khí vứt bỏ bát cơm sắt ổn định.
 
 Nếu không thì giờ này chắc bà vẫn đang ngồi chung một cơ quan nhà nước với Lương Tuệ Trân rồi.
 
@@ -178,13 +176,13 @@ Chính vì vậy mà đêm nay Trần Trạch mới chuyển hướng sang muố
 
 "Này Tử Ngôn, Mạn Mạn, hai cậu dạo này rốt cuộc đang bận rộn cái trò gì thế hả?"
 
-Diêu Tân rốt cuộc không nhịn nổi nữa liền lên tiếng than thở: "Phòng ký túc xá của chúng mình sắp biến thành văn phòng công sở làm việc rồi đấy. Mình với Dao Dao đến nói to một câu cũng thấy ngại. Hai cậu có thể dành chút thời gian buôn chuyện với anh em được không? Ngày nào leo lên giường cũng ôm khư khư chiếc máy tính thế kia."
+Diêu Sân rốt cuộc không nhịn nổi nữa liền lên tiếng than thở: "Phòng ký túc xá của chúng mình sắp biến thành văn phòng công sở làm việc rồi đấy. Mình với Dao Dao đến nói to một câu cũng thấy ngại. Hai cậu có thể dành chút thời gian buôn chuyện với anh em được không? Ngày nào leo lên giường cũng ôm khư khư chiếc máy tính thế kia."
 
-Mộc Dao ngồi xếp bằng trên giường vừa mút hộp sữa tươi vừa cười bảo: "Diêu Tân, cậu có uống sữa không? Tự lấy mà uống nhé."
+Mộc Dao ngồi xếp bằng trên giường vừa mút hộp sữa tươi vừa cười bảo: "Diêu Sân, cậu có uống sữa không? Tự lấy mà uống nhé."
 
 Thẩm Tử Ngôn liếc nhìn Từ Mạn Mạn một cái: "Mấy cậu không theo dõi thị trường chứng khoán à?"
 
-Diêu Tân trèo xuống giường lấy hộp sữa: "Tụi mình lấy đâu ra tiền mà chơi cổ phiếu, xem mấy cái thứ nhức đầu đó làm gì cho mệt xác."
+Diêu Sân trèo xuống giường lấy hộp sữa: "Tụi mình lấy đâu ra tiền mà chơi cổ phiếu, xem mấy cái thứ nhức đầu đó làm gì cho mệt xác."
 
 Bốn cô gái trong phòng 406 xưa nay đều rất hào phóng xởi lởi với nhau. Tuy nhiên con gái và con trai hoàn toàn khác biệt, ở ký túc xá nam thì ngoại trừ tiền mặt để trên bàn không ai dám đụng vào ra, còn những thứ đồ đạc khác đều có thể tùy tiện xài chung.
 
@@ -196,7 +194,7 @@ Chưa kể, vòng một của Từ Mạn Mạn dường như cũng rất săn ch
 
 Mộc Dao cúi đầu nhìn xuống ngực mình, khẽ thở dài đầy vẻ buồn phiền.
 
-Cô và Diêu Tân thực sự chẳng hề bận tâm đến mấy chuyện kinh tế vĩ mô làm gì.
+Cô và Diêu Sân thực sự chẳng hề bận tâm đến mấy chuyện kinh tế vĩ mô làm gì.
 
 Cả Từ Mạn Mạn lẫn Thẩm Tử Ngôn lúc này đều đang ôm trong lòng những nỗi trăn trở ngổn ngang riêng. Một người thì đang khổ sở giằng xé cùng gia đình bạn trai trong cơn bão sập sàn chứng khoán, một người thì đang đau đầu cân não điều chỉnh lại toàn bộ chiến lược kinh doanh sống còn của gia tộc, tâm trí đâu mà rảnh rang ngồi buôn chuyện phiếm.
 

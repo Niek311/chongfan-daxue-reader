@@ -1,7 +1,5 @@
 # Chương 165: Chín lần lướt sóng
 
-> **Tiêu đề gốc**: 第165章 9下.....
-
 Ở một diễn biến khác.
 
 Bà Trương Tuệ cố tình xin nghỉ phép một ngày để cùng em gái Trương Vân Thiến lái xe ô tô lên tận Quận Sa đón con gái rượu về quê ăn Tết.

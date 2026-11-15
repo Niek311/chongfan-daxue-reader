@@ -1,7 +1,5 @@
 # Chương 219: Mối quan hệ, sự hiển hiện của quyền lực
 
-> **Tiêu đề gốc**: 第219章 人脉，权力的显现。
-
 Người đầu tiên lên tiếng phản bác là Thẩm Tử Ngôn: "Kim An này, ai nói xấu sau lưng bảo cậu keo kiệt thế hả?"
 
 "Cậu chứ ai, cậu với Triệu Bác Lan."
@@ -78,7 +76,7 @@ Thẩm Tử Ngôn bật cười: "Thế hệ bố mẹ tôi thời đó cứ th�
 
 Triệu Bác Lan và Đường Hiểu Tình ngồi nghe mà tròn xoe mắt, hết sức ngỡ ngàng.
 
-Thực ra ông Thẩm Vĩnh Đàm và bà Dương Thục Mỹ có nét khá tương đồng trong tư duy kinh doanh, chỉ có điều quy mô làm ăn của ông Thẩm lớn hơn rất nhiều mà thôi.
+Thực ra ông Thẩm Vĩnh Đàm và bà Dương Thù Mỹ có nét khá tương đồng trong tư duy kinh doanh, chỉ có điều quy mô làm ăn của ông Thẩm lớn hơn rất nhiều mà thôi.
 
 Ông Thẩm Vĩnh Đàm xuất phát từ lòng tốt muốn ủng hộ Triệu Kim An, nhưng ông đâu thể ngờ rằng chuỗi siêu thị tương lai của Triệu Kim An sau này sẽ mang lại sự trợ lực to lớn đến nhường nào cho các doanh nghiệp của gia đình ông.
 

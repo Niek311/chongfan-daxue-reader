@@ -1,7 +1,5 @@
 # Chương 157: Dì à, dì đào góc tường thế này thì...
 
-> **Tiêu đề gốc**: 第157章 阿姨，你这墙角挖的...
-
 Từ Mạn Mạn ngồi bên cạnh không có phản ứng gì, cô đã quá quen với cách nói chuyện thẳng thắn, kiệm lời của Triệu Kim An.
 
 "Dài dòng quá sao?"

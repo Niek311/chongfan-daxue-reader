@@ -1,7 +1,5 @@
 # Chương 3: Chị dâu họ Doãn Hiểu Lan.
 
-> **Tiêu đề gốc**: 第3章 堂嫂尹晓兰。
-
 Dòng nước sông cạn trơ đáy, trong vắt đến mức có thể nhìn thấu từng hòn cuội nhỏ.
 
 Ở những khúc sông nước sâu, bộ kích điện công suất nhỏ chẳng thể nào phát huy tác dụng, rất khó để bắt được cá.

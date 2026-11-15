@@ -1,225 +1,223 @@
-# Chương 392: Người đến trước
-
-> **Tiêu đề gốc**: 第392章 先入为主。
+# Chương 392: Ấn tượng đầu tiên
 
 "..."
 
-Quặng tổng há hốc mồm, đến lúc này mới vỡ lẽ ra tất cả. Công ty... vừa sa thải người mà họ tuyệt đối không bao giờ được phép đụng tới.
+Quảng tổng há hốc miệng, lúc này mới vỡ lẽ ra, cái này... công ty lại vừa đuổi đúng cái người đáng lẽ tuyệt đối không được đuổi.
 
-Bàn làm việc của Từ Mạn Mạn được dọn dẹp vô cùng ngăn nắp.
+Bàn làm việc của cô được dọn dẹp rất gọn gàng.
 
-Quan Văn Bách cùng Chu Hoa Phong cẩn thận thu dọn từng món đồ, thể hiện rõ ràng mình đến đây là để thu xếp đồ đạc giúp Từ tổng. Trưởng phòng nhân sự liếc xéo sang gã Trần Tư Lương đang đứng chết trân ở bên cạnh; chính cái thứ không có mắt này ban nãy còn xúi bẩy cô ta tìm cách khấu trừ tiền đền bù của Từ Mạn Mạn.
+Quan Văn Bách và Chu Phong Hoa bước tới thu dọn đồ đạc, tỏ rõ mình đến để lấy giúp đồ cho Từ tổng. Trưởng phòng nhân sự quay sang liếc nhìn Trần Tư Lương đang đứng chết trân bên cạnh, chính cái gã này trước đó còn xúi giục mình cắt xén tiền bồi thường của Từ Mạn Mạn.
 
-Trong lúc Từ Mạn Mạn còn đang chìm trong giấc ngủ, chiếc điện thoại bên gối khẽ "đinh" lên một tiếng.
+Trong lúc Từ Mạn Mạn vẫn đang say giấc, điện thoại trên bàn khẽ rung lên một tiếng "ting".
 
-Phía công ty đã dùng tốc độ nhanh nhất chuyển thẳng toàn bộ khoản tiền đền bù theo đúng luật lao động, không thiếu một xu vào thẻ lương của cô.
+Công ty kia đã lập tức chuyển toàn bộ tiền đền bù đúng theo luật lao động, không thiếu lấy một xu vào thẳng thẻ lương của Từ Mạn Mạn với tốc độ nhanh nhất.
 
-Chẳng có bất kỳ ai dại dột đi đắc tội với Triệu Kim An chỉ vì dăm ba đồng bạc lẻ. Số tiền bồi thường đó thậm chí còn chưa bằng một bữa tiệc rượu tiếp khách. Trưởng phòng nhân sự lập tức mách tội lên cấp trên, khiến Quặng tổng tức đến tím mặt, ngay tại chỗ yêu cầu tổ trưởng Trần Tư Lương tự thu dọn đồ đạc tìm nơi khác mà kiếm ăn.
+Chẳng ai dại gì vì chút tiền lẻ ấy mà đắc tội với Triệu Kim An, số tiền đó còn chẳng đủ chi phí cho một bữa tiệc tiếp khách. Bên nhân sự lập tức mách lẻo lên trên, Quảng tổng tức điên người, thẳng tay bảo trưởng nhóm Trần Tư Lương tự đi mà tìm bến đỗ mới.
 
-Nếu như Từ Mạn Mạn chưa từ chức, Quặng tổng đã có thể mượn chiếc cầu nối này để móc nối quan hệ thân thiết với Triệu Kim An.
+Giá mà Từ Mạn Mạn chưa nghỉ việc, Quảng tổng đã có thể bắc cầu làm quen với Triệu Kim An rồi.
 
-Từ Mạn Mạn cũng sẽ niệm chút tình xưa nghĩa cũ với công ty, biết đâu sau này Trăn Nhiên hay Cảng vụ Hoàn Vũ có vòng gọi vốn nào, công ty bọn họ còn có thể chen chân vào húp chút canh thừa.
+Từ Mạn Mạn hẳn cũng sẽ niệm tình cũ với công ty, khéo sau này khi Trăn Nhiên hay Hoàn Vũ Cảng Vụ gọi vốn, bọn họ còn có cơ hội ké được chút cháo thơm.
 
-Cả công ty đầu tư xôn xao như vỡ tổ.
+Cả công ty được một phen nhốn nháo sôi sục.
 
-Đó là Trăn Nhiên và Cảng vụ Hoàn Vũ cơ đấy! Cô gái trẻ suốt nửa năm qua ngày ngày ngồi làm việc cạnh bọn họ... quả thực là giấu mình quá sâu!
-
-...
+Trăn Nhiên và Hoàn Vũ Cảng Vụ cơ đấy, cô gái nhỏ làm chung với mình suốt nửa năm trời... đúng là giấu nghề quá kỹ đi mất!
 
 Quận Sa.
 
-Du Phi vừa nhận được tin liền lập tức chạy đôn chạy đáo khắp nơi để tìm mua một căn nhà cũ sang nhượng lại.
+Việc đầu tiên Du Phi làm là đi tìm mua một căn nhà cũ ngoài thị trường.
 
-Chuyện này cô không dám để lọt ra ngoài dù chỉ là nửa lời phong thanh.
+Chuyện này cô không dám hé răng tiết lộ ra ngoài nửa lời.
 
-Du Phi thật sự không dám tưởng tượng nổi nếu Thẩm Tử Ngôn và Mộc Dao biết chuyện thì phản ứng sẽ dữ dội đến nhường nào.
+Du Phi thậm chí chẳng dám tưởng tượng nổi nếu Thẩm Tử Ngôn và Mộc Dao biết chuyện thì phản ứng của hai người đó sẽ ra sao.
 
-Từ Mạn Mạn tuy rất muốn, nhưng cô biết mình không thể dọn vào ở trong nhà của Triệu Kim An. Cô không muốn đặt anh vào thế khó xử, cũng chẳng hề có ý định "thách thức" vị thế của Tô Miến. Điều duy nhất Từ Mạn Mạn mong mỏi lúc này chỉ là có thể bình an sinh hạ đứa con trong bụng.
+Từ Mạn Mạn muốn sống cùng nhưng không thể dọn vào nhà Triệu Kim An, cô không muốn khiến anh khó xử. Cô chưa từng có ý định "thách thức" vị trí của Tô Miến, bây giờ Từ Mạn Mạn chỉ muốn bình an sinh đứa bé này ra mà thôi.
 
-Vợ chồng Từ Tắc Đống và Lương Tuệ Trân ở quê nhà chẳng hề hay biết chút gì, hoàn toàn không biết con gái rượu của mình đã mang thai tới tháng thứ tư.
+Từ Tắc Đống và Lương Tuệ Trân hoàn toàn không hay biết gì, con gái mang thai bốn tháng rồi mà hai người vẫn mù tịt.
 
-Ở tận Dương Thành, Dương Thục Mỹ và Trần Trạch lại càng mù tịt.
+Dương Thù Mỹ và Trần Trạch ở tận Dương Thành đương nhiên cũng chẳng hay biết.
 
-Du Phi đích thân tới siêu thị Trăn Hối Tuyển, tỉ mỉ lựa chọn đủ loại đồ dùng sinh hoạt thiết yếu.
+Du Phi ghé qua Trăn Hối Tuyển, tự tay chọn mua đủ loại đồ dùng sinh hoạt.
 
-Tiêu chí duy nhất: Chỉ chọn đồ đắt nhất, không cần chọn đồ vừa tiền!
+Chỉ chọn thứ đắt nhất, không thèm cân nhắc đắt rẻ!
 
-"Thư ký Du, cô vừa mua nhà chuyển chỗ ở đấy à?"
+"Thư ký Du, cậu mới mua nhà chuyển chỗ ở à?"
 
-Nghe tin Du Phi tới, Liễu Ôn Ninh từ trên lầu bước xuống xem thử, trong lòng không khỏi kinh ngạc, cười nói trêu chọc: "Thư ký Du này, tôi thật sự tò mò muốn biết lương tháng của cô là bao nhiêu đấy. Mua sắm thế này thì..."
+Nghe tin Du Phi đến, Liễu Ôn Ninh xuống lầu ngó qua một cái, trong lòng thoáng giật mình rồi cười trêu: "Thư ký Du, tớ tò mò muốn biết lương tháng của cậu bao nhiêu mà mua sắm hoành tráng thế..."
 
-"Bộ vỏ chăn đệm tám nghìn tệ kia mà người làm công ăn lương như chúng ta dám dùng sao?"
+"Bộ vỏ chăn ga tám nghìn tệ là thứ tụi mình dám dùng chắc?"
 
-Trong lòng Du Phi cũng cười thầm: Đây là tôi còn chưa bắt đầu sắm sửa đồ cho trẻ sơ sinh đâu đấy, đến lúc đó có thấy con số tám mươi nghìn tệ thì chị cũng đừng có mà giật mình.
+Du Phi trong lòng cũng buồn cười thầm, đây là tớ còn chưa sắm đồ sơ sinh cho em bé đấy nhé, đến lúc thấy hóa đơn tám vạn tệ cậu đừng có giật mình.
 
-"Kim An cũng thật là, không chịu đưa Mạn Mạn đi bệnh viện siêu âm sớm một chút xem là con trai hay con gái."
+"Kim An cũng thật là, sao không đưa Từ Mạn Mạn đi bệnh viện siêu âm sớm xem là con trai hay con gái."
 
-Du Phi vô cùng tò mò. Đặt vào vị trí của bất kỳ ai trong công ty thì cũng sẽ tò mò như thế mà thôi, bởi đây chính là đứa con đầu lòng của Triệu Kim An.
+Du Phi tò mò lắm chứ, đổi vào ai ở công ty này mà chẳng tò mò, đây là đứa con đầu lòng của Triệu Kim An mà.
 
-"Thư ký Du, không có chữ ký duyệt của Triệu tổng thì vẫn phải thanh toán tiền đấy nhé."
+"Thư ký Du, không có chữ ký của Triệu tổng là vẫn phải trả tiền đấy nhé."
 
-Liễu Ôn Ninh nửa đùa nửa thật nhắc nhở. Đây là quy định nghiêm ngặt của công ty, ngay cả bảo mẫu Lưu Mỹ Nga khi tới siêu thị mua sắm cũng phải quẹt thẻ mua hàng đàng hoàng, nếu không đến lúc kiểm kê kho sẽ không thể khớp sổ sách.
+Liễu Ôn Ninh nửa đùa nửa thật, đây là quy định của công ty, ngay cả bác giúp việc Lưu Mỹ Nga đến mua đồ cũng phải quẹt thẻ mua sắm, nếu không lúc kiểm kê sổ sách sẽ không khớp.
 
-"Trả chứ, nhất định phải trả tiền đầy đủ."
+"Trả tiền, chắc chắn trả tiền."
 
-Du Phi cố nhịn cười, thầm nghĩ trong bụng: Từ tổng của Trăn Hối Tuyển các người sắp sửa quay về rồi đấy, chỉ xem ngày nào Từ tổng chính thức tái xuất mà thôi!
+Du Phi nhịn cười, thầm nghĩ Từ tổng của các cậu sắp quay về Trăn Hối Tuyển rồi đấy, chỉ chờ xem Từ tổng định ngày nào tái xuất giang hồ thôi!
 
 Trả tiền ư?
 
-Đợi đến khi đứa bé trong bụng chào đời, hai trung tâm thương mại mới xây xong, sau này tiểu thái tử đó muốn vào siêu thị lấy món gì ăn, cô còn dám mở miệng đòi tiền nó chắc? Đứa trẻ bé tí teo thì biết thanh toán tiền nong là cái gì!
+Đợi đứa bé trong bụng chào đời, hai trung tâm thương mại mới xây xong, sau này thằng bé hay con bé muốn lấy gì trong siêu thị ăn, các cậu dám đòi nó trả tiền chắc? Bé xíu thế thì biết trả tiền là cái gì?
 
-"Sau này có ngày các người phải đau đầu cho xem."
+"Sau này còn khối chuyện khiến các cậu đau đầu."
 
-Du Phi chợt nhớ lại hồi nhỏ ước mơ lớn nhất của mình là bố mẹ mở một tiệm tạp hóa, để mình thích ăn cái gì thì cứ tự nhiên thò tay lấy cái đó.
+Du Phi chợt nhớ hồi nhỏ mình từng ước bố mẹ mở một tiệm tạp hóa, để muốn ăn gì là cứ thế lấy ăn thỏa thích.
 
-...
+Hôm đó đúng vào sinh nhật lần thứ hai mươi hai của Từ Mạn Mạn, Từ Tắc Đống và Lương Tuệ Trân bỗng nhớ tới cô con gái đang ở Thượng Hải.
 
-Hôm nay là sinh nhật tròn 22 tuổi của Từ Mạn Mạn. Ở tận quê nhà, Từ Tắc Đống và Lương Tuệ Trân chợt nhớ tới đứa con gái đang ở Thượng Hải xa xôi.
+Triệu Kim An nhịn không được bèn hỏi khẽ một câu: "Bố mẹ em biết chuyện chưa?"
 
-Triệu Kim An ngồi bên cạnh, không kìm được khẽ hỏi một câu: "Bố mẹ em đã biết chuyện chưa?"
+"Chưa ạ."
 
-"Chưa biết ạ."
-
-Từ Mạn Mạn lắc đầu. Cô hiểu Triệu Kim An định nói gì, khẽ cất lời: "Kim An, em tự lo được, không cần người khác phải chăm sóc đâu."
+Từ Mạn Mạn lắc đầu, cô hiểu Triệu Kim An muốn nói gì: "Kim An, em không cần người chăm sóc đâu."
 
 "Em có thích trẻ con không?"
 
-Triệu Kim An chỉ nhớ ở kiếp trước, trên vòng bạn bè hay tài khoản video ngắn của Trần Trạch chưa từng một lần đăng ảnh khoe con cái. Là do Từ Mạn Mạn không muốn sinh sao?
+Triệu Kim An chỉ biết kiếp trước trên trang cá nhân hay tài khoản video ngắn của Trần Trạch chưa từng khoe ảnh con cái, chẳng lẽ là do Từ Mạn Mạn không muốn sinh?
 
 "Sao lại không thích chứ?"
 
-Từ Mạn Mạn nhìn Triệu Kim An với vẻ mặt vô cùng kỳ quặc: "Đó là con của chính em mà."
+Từ Mạn Mạn nhìn Triệu Kim An với ánh mắt kỳ lạ: "Là con của em cơ mà."
 
-Chuyện này Triệu Kim An chưa từng có ý định giấu giếm bà nội và thím, mà thực tế cũng chẳng thể nào giấu nổi.
+Chuyện này Triệu Kim An không định giấu bà nội và thím út, mà thực tế cũng chẳng giấu nổi.
 
-Anh rút điện thoại ra, bấm số ngay trước mặt Từ Mạn Mạn.
+Anh rút điện thoại ra, gọi ngay trước mặt Từ Mạn Mạn.
 
-"Anh gọi điện nói với bà nội một tiếng."
+"Anh báo cho bà nội một tiếng."
 
-"Đừng, Kim An... thôi đi anh."
+"Đừng, Kim An, thôi đi."
 
-Từ Mạn Mạn vội đưa tay ra ngăn lại. Vốn dĩ cô đã chuẩn bị sẵn tâm lý sẽ một mình nuôi con khôn lớn.
+Từ Mạn Mạn vội đưa tay ngăn lại, vốn dĩ cô định tự mình nuôi con khôn lớn.
 
-Triệu Kim An không tránh đi, trực tiếp bấm gọi vào số máy của Vương Kim Như.
+Triệu Kim An không tránh đi, bấm số gọi thẳng cho Vương Kim Như.
 
-Toàn thân Từ Mạn Mạn căng cứng, vẻ mặt đầy hồi hộp căng thẳng nhìn chằm chằm vào chiếc điện thoại trên tay Triệu Kim An. Cô biết Tô Miến đã từng về Triệu gia thôn ra mắt, biết đám Triệu Trí Dũng và Triệu Bác Lan đều đã gọi Tô Miến là thím nhỏ.
+Từ Mạn Mạn ngồi thẳng lưng lại, căng thẳng nhìn chằm chằm chiếc điện thoại trong tay Triệu Kim An. Cô biết Tô Miến từng về Triệu Gia Thôn rồi, cả Triệu Chí Dũng lẫn Triệu Bác Lan đều gọi Tô Miến là thím út.
 
-Đầu dây bên kia đổ chuông một hồi lâu mới có người nhấc máy.
+Chuông reo một hồi lâu mới có người nhấc máy.
 
-"Alo! Kim An à, có chuyện gì thế cháu?"
+"Alo! Kim An đấy à, có chuyện gì thế?"
 
-Giọng Vương Kim Như sang sảng vang lên. Triệu Kim An áp điện thoại bên tai, chậm rãi nói: "Thím à, thím được lên chức bà nội rồi đấy."
+Giọng Vương Kim Như sang sảng. Triệu Kim An áp điện thoại vào tai: "Thím à, thím sắp lên chức bà rồi đấy."
 
-"Cái gì cơ? Tô Miến có thai rồi à!?"
+"Cái gì? Tô Miến có bầu rồi à?!"
 
-Nghe thấy cái tên đó, Từ Mạn Mạn liền cúi gằm mặt xuống, mười đầu ngón tay lặng lẽ xoắn chặt lấy gấu áo.
+Nghe thấy câu ấy, Từ Mạn Mạn cúi gằm mặt, những ngón tay lặng lẽ xoắn lấy vạt áo.
 
-"Không phải, là Từ Mạn Mạn. Thím có biết cô ấy đấy."
+"Không phải, là Từ Mạn Mạn, thím biết cô ấy mà."
 
-Đầu dây bên kia bỗng chốc rơi vào khoảng lặng ngắt như tờ.
+Đầu dây bên kia bỗng im bặt.
 
-Từ Mạn Mạn chủ động bước lùi ra xa, để Triệu Kim An có không gian tiện nói chuyện điện thoại với Vương Kim Như. Cô ngồi xuống trước bàn máy tính, mở hòm thư điện tử ra, bên trong là những phần công việc của công ty mà Triệu Kim An vẫn chưa kịp xử lý.
+Từ Mạn Mạn tự giác đứng dậy lánh sang chỗ khác để Triệu Kim An tiện nói chuyện với Vương Kim Như. Cô ngồi xuống trước bàn máy tính, mở hòm thư điện tử ra, bên trong toàn là thư công việc từ công ty gửi tới mà Triệu Kim An chưa kịp xử lý.
 
-Trước đây, Từ Mạn Mạn từng hai lần nói với Triệu Kim An một câu: "Kim An, sau này em sẽ giúp anh kiếm tiền."
+Từ Mạn Mạn từng nói với Triệu Kim An hai lần câu: "Kim An, sau này em sẽ kiếm tiền giúp anh."
 
-Lời hứa ấy trong lòng cô trước nay chưa từng thay đổi.
+Câu nói ấy trong lòng cô chưa bao giờ thay đổi.
 
-Mà giờ đây, dường như nó lại mang thêm một tầng ý nghĩa thiêng liêng khác?
+Chỉ là bây giờ nó lại mang thêm một tầng ý nghĩa khác chăng?
 
-Không có Từ Tắc Đống và Lương Tuệ Trân, không có bà nội cùng Vương Kim Như, cũng không có Đoàn Thu Bình bên cạnh... Kể từ ngày biết mình mang thai, Từ Mạn Mạn đã tự chuẩn bị sẵn tâm lý cho mọi tình huống tồi tệ nhất.
+Không có Từ Tắc Đống và Lương Tuệ Trân, không có bà nội và Vương Kim Như, cũng chẳng có Đoạn Thu Bình, ngay từ ngày biết mình mang thai, Từ Mạn Mạn đã chuẩn bị sẵn tâm lý rồi.
 
-Thế nhưng tận sâu trong đáy lòng, cô vẫn không kìm được mà nhen nhóm một niềm mong mỏi khôn nguôi.
+Nhưng tận sâu trong đáy lòng, cô vẫn thầm mong mỏi.
 
-Mong mỏi bà nội và thím của anh có thể đón nhận đứa con trong bụng mình.
+Mong mỏi bà nội và thím út có thể chấp nhận đứa bé đang lớn lên trong bụng mình.
 
-Đó là lẽ thường tình của con người. Càng thiếu thốn thứ gì, người ta lại càng khao khát có được thứ đó hơn bao giờ hết.
+Đó là tâm lý thường tình của con người.
 
-Trong phòng văng vẳng tiếng nói trầm ổn của Triệu Kim An. Câu đầu tiên anh nói với Vương Kim Như chính là: "Thím được lên chức bà nội rồi."
+Người ta càng thiếu thốn thứ gì thì lại càng khao khát có được thứ ấy.
 
-Từ Mạn Mạn khẽ ngước mắt nhìn bóng lưng anh. Người đáng lẽ phải nhận tin đó chẳng phải là bà Đoàn Thu Bình sao?
+Từ trong phòng vọng ra giọng nói của Triệu Kim An, anh bảo với Vương Kim Như là "Thím sắp lên chức bà rồi đấy".
 
-Dù rằng Vương Kim Như cũng được tính là bà nội, nhưng ở Triệu gia thôn, con cháu chỉ gọi là "bà thím", còn Triệu Duyệt Thiên thì gọi Đoàn Thu Bình là bác gái lớn.
+Từ Mạn Mạn khẽ liếc nhìn, chẳng phải đáng lẽ là Đoạn Thu Bình sao?
 
-...
+Tuy Vương Kim Như cũng tính là bà, ở Triệu Gia Thôn hay gọi là "bà út", còn Triệu Duyệt Thiên thì gọi Đoạn Thu Bình là bác gái.
 
-Triệu gia thôn.
+Tại Triệu Gia Thôn.
 
-Vương Kim Như cúp điện thoại, đứng ngây người một lúc lâu để trấn tĩnh lại tinh thần. Sau khi đã tiêu hóa hết mớ tin tức chấn động, bà mới quay sang nhìn bà nội: "Mẹ ơi, thằng cháu đích tôn bảo bối của mẹ chẳng phải thứ người tốt lành gì đâu."
+Vương Kim Như cúp máy rồi ngồi ngẩn ra một lúc lâu, tiêu hóa xong tin động trời này mới quay sang nói với bà nội: "Mẹ à, thằng cháu quý hóa của mẹ chẳng phải người tử tế gì đâu."
 
-Bà nội im lặng không nói một lời.
+Bà nội không nói gì.
 
-Doãn Hiểu Lan ở trong bếp một mình lẳng lặng rửa bát, lỡ tay đổ quá nhiều nước rửa chén.
+Doãn Hiểu Lan đứng trong bếp lặng lẽ rửa bát một mình, tay lỡ đổ hơi nhiều nước rửa chén.
 
 "Nhanh thế cơ à?"
 
-Triệu Quốc Hoa châm một điếu thuốc lá, trong bụng đang nôn nóng muốn xem bà nội và Vương Kim Như sẽ dùng cái bài "tiêu chuẩn kép", "ba chuẩn" thế nào để xử tội Triệu Kim An...
+Triệu Quốc Hoa châm một điếu thuốc, ông chú đang hóng xem bà nội và Vương Kim Như sẽ áp dụng tiêu chuẩn kép hay tiêu chuẩn ba kiểu gì đây...
 
-"Quốc Hoa này, cô Từ tổng kia trông mặt mũi ra sao hả ông?" Vương Kim Như quay sang hỏi chồng.
+"Quốc Hoa, Từ tổng trông mặt mũi thế nào?"
 
-Triệu Quốc Hoa hơi cúi đầu, rít thuốc sòng sọc: "Công ty có bao giờ tổ chức cho tôi lên Quận Sa họp hành gì đâu, tôi đã gặp bao giờ mà biết."
+Vương Kim Như quay sang hỏi chồng.
 
-"Anh cả xưa nay đâu phải phường trăng hoa ong bướm, sao thằng Kim An lại..."
+Triệu Quốc Hoa cúi đầu rít thuốc phì phèo: "Công ty có tổ chức lên Quận Sa họp hành bao giờ đâu mà biết, tôi cũng chưa từng gặp mặt."
 
-Nói một cách công bằng, cả nhà họ chưa từng có ai gặp mặt Từ Mạn Mạn, chưa từng tiếp xúc lấy một lần. Nếu bảo bọn họ có tình cảm sâu nặng gì với Từ Mạn Mạn thì tuyệt đối là chuyện không tưởng. Hình bóng Tô Miến đã in sâu vào trong tâm trí mọi người từ trước mất rồi.
+"Anh cả ngày xưa đâu phải người lăng nhăng, sao thằng Kim An lại..."
 
-"Mẹ ơi, thế còn con bé Tô Miến..."
+Nói thật lòng thì ở nhà chưa ai từng gặp Từ Mạn Mạn ngoài đời, càng chưa từng tiếp xúc. Bảo họ có tình cảm sâu sắc với Từ Mạn Mạn là chuyện không thể nào, dù sao Tô Miến cũng đã chiếm trọn ấn tượng đầu tiên mất rồi.
 
-"Chị đừng có gào toáng lên như thế."
+"Mẹ, thế còn Tô Miến thì sao..."
 
-"Con biết rồi, con đâu có hồ đồ đến mức ấy."
+"Thím đừng có la oang oang lên như thế."
 
-Vương Kim Như chút chừng mực đó vẫn nắm rõ. Bà nội chống gậy đứng dậy, bước chầm chậm ra chuồng gà sau sân.
+"Con biết rồi, con đâu đến nỗi không biết điều thế đâu."
 
-Chuyện này xảy ra quá đỗi bất ngờ, vượt xa khỏi mọi dự liệu của bà cụ.
+Chút chừng mực ấy Vương Kim Như vẫn có. Bà nội lẳng lặng đứng dậy đi ra phía chuồng gà.
 
-"Chị Đoàn Thu Bình đã biết chuyện chưa?"
+Chuyện này thực sự nằm ngoài dự liệu của bà.
 
-"Con không rõ, thằng Kim An không nhắc tới. Con cũng chẳng thèm nói cho chị ta biết đâu, con mới là bà nội danh chính ngôn thuận, chính miệng thằng Kim An nói thế đấy."
+"Đoạn Thu Bình biết chuyện chưa?"
 
-Vương Kim Như cùng Triệu Quốc Hoa rảo bước theo sau. Bà nội chẳng buồn để ý đến lời ba hoa của cô con dâu, cụ khựng lại một nhịp rồi thở dài thườn thượt: "Làm thế này thì sau này biết ăn nói sao cho phải đạo với con bé Tô Miến đây."
+"Con không biết, Kim An không nói. Con cũng chẳng thèm báo cho bà ta đâu, con mới là bà nội của cháu nó, chính miệng Kim An nói thế đấy."
 
-"Mẹ à, cái thai đã bốn tháng rồi đấy."
+Vương Kim Như và Triệu Quốc Hoa đi theo ra sau. Bà nội chẳng thèm để ý lời Vương Kim Như, bà khựng lại một nhịp rồi thở dài sườn sượt: "Thế thì có lỗi với con bé Tô Miến quá."
 
-"Là lỗi của thằng Kim An. Người ta dứt ruột đẻ ra, nuôi nấng một đứa con gái khôn lớn nhường ấy đâu phải chuyện dễ dàng gì..."
+"Mẹ ơi, thai được bốn tháng rồi đấy."
 
-Vương Kim Như và Triệu Quốc Hoa đồng loạt gật đầu. Triệu Quốc Hoa còn dỏng tai lên nín thở chờ nghe phần tiếp theo. Hai người mau mắng thằng Kim An đi chứ! Tội này của thằng Kim An phạm phải đâu có nhỏ, nghe xem kìa, bốn tháng rồi đấy!
+"Lỗi là tại thằng Kim An, người ta nuôi lớn một đứa con gái đâu có dễ dàng gì..."
 
-Mau gọi điện chửi cho nó một trận nên thân, cấm cửa không cho nó về làng, bỏ đói cho nó biết mặt!
+Vương Kim Như và Triệu Quốc Hoa gật đầu tán thành. Triệu Quốc Hoa còn vểnh tai chờ nghe tiếp, hai người mau mắng thằng Kim An đi chứ! Thằng nhóc này lần này gây họa to rồi, nghe mà xem, tận bốn tháng rồi đấy!
 
-"Mẹ ơi, mấy con gà mái già này... thôi thì kệ nó đi, cứ để chúng nó đẻ trứng đã." Vương Kim Như chỉ tay vào chuồng gà nói.
+Mau gọi điện chửi cho nó một trận, cấm cửa không cho nó vác mặt về nhà, cắt cơm nó luôn đi!
 
-Bà nội liền bảo: "Ngày mai đến phiên chợ huyện, chị đi mua thêm ít gà con giống tốt về nuôi. Gà nhà mình tự nuôi thả vườn ăn vừa ngon lại vừa bổ dưỡng."
+"Mẹ, mấy con gà mái già này... thôi kệ, cứ để chúng nó đẻ trứng đi."
+
+Vương Kim Như chỉ tay về phía chuồng gà nói.
+
+Bà nội bảo: "Mai đi chợ phiên thím mua thêm nhiều gà con về nuôi, gà nhà tự nuôi ăn vừa ngon lại bổ dưỡng."
 
 "Mẹ, con biết rồi."
 
-Khoản này thì Vương Kim Như hào phóng hết nấc: "Ngày mai con sẽ lái chiếc BMW của con đi chợ phiên gom hàng."
+Khoản này Vương Kim Như hào phóng lắm: "Mai con lái con xe BMW của con đi chợ phiên."
 
 "..."
 
-Triệu Quốc Hoa đứng bên cạnh bỗng thấy cả người không ổn chút nào. Ơ kìa! Thế là xong rồi đấy à!?
+Triệu Quốc Hoa sững sờ cả người, ơ kìa! Chỉ thế thôi á?!
 
-Hai người không định dạy cho thằng Kim An một bài học nhớ đời sao?
+Hai người không định dạy cho thằng Kim An một bài học à?
 
-Đây chẳng phải là dung túng, tiếp tay cho giặc hay sao chứ!
+Thế này chẳng khác nào tiếp tay cho giặc sao!
 
-"Đoàn Thu Bình chưa gọi điện về thì chắc là vẫn chưa hay biết gì đâu."
+"Đoạn Thu Bình không gọi điện về thì chắc là chưa biết đâu."
 
-Bà nội trầm ngâm một lát rồi bảo: "Chị thu xếp rồi chịu khó lên Quận Sa một chuyến đi. Nhà mình tuyệt đối không thể vờ như không biết gì được."
+Bà nội dặn tiếp: "Dù sao thím cũng phải lên Quận Sa một chuyến, nhà mình không thể làm ngơ coi như không biết được."
 
-"Mẹ, con đi thật đấy nhé?"
+"Mẹ, thế con đi thật nhé?"
 
-Nếu không phải vì bà nội ngăn cản từ trước, Vương Kim Như đã sớm phóng xe lên Quận Sa chơi từ lâu rồi. Lần trước khi Đoàn Thu Bình dắt theo Tống Gia Nguyệt lên đó, Vương Kim Như đã sốt sắng muốn đi, nhưng bà nội sợ hai bà thông gia lại chạm mặt rồi cãi vã ầm ĩ trong nhà, khiến Triệu Kim An đứng ở giữa khó xử không tập trung làm ăn được.
+Nếu không có bà nội cản lại thì Vương Kim Như đã vọt lên Quận Sa từ lâu rồi. Lần trước Đoạn Thu Bình dẫn Tống Gia Nguyệt lên, Vương Kim Như cũng đòi đi theo, nhưng bà nội sợ Vương Kim Như và Đoạn Thu Bình lên đó lại đấu khẩu cãi cọ ầm ĩ, để Triệu Kim An kẹt ở giữa chẳng làm ăn được gì.
 
-Vương Kim Như cười hớn hở: "Nói đi cũng phải nói lại, con với cô Từ tổng đó tính ra cũng coi như là đồng nghiệp cũ của nhau đấy, trước đây gọi điện thoại trao đổi công việc suốt."
+Vương Kim Như cười hì hì: "Tính ra tôi với Từ tổng cũng coi như đồng nghiệp đấy, hồi trước gọi điện cho nhau suốt."
 
-"Chị lên đó thì tém cái miệng lại, bớt buôn chuyện linh tinh đi... Nhìn gương con bé Chương Ngọc Ni mà xem, đám con gái trẻ bây giờ không giống như thế hệ của chúng ta ngày xưa đâu."
+"Thím bớt lắm mồm lại đi... Thím nhìn con bé Chương Ngọc Ni xem, con gái thời nay không giống người thời bọn mình ngày xưa nữa đâu."
 
-"Mẹ này, con lắm mồm nhiều chuyện hồi nào đâu?"
+"Mẹ, con lắm mồm hồi nào đâu chứ?"
 
-Chẳng ai thèm đôi co với Vương Kim Như. Bà nội dặn dò tiếp: "Nếu bố mẹ con bé có ở trên đó, chị nhớ ăn nói cho tử tế, hòa nhã, đừng có mở miệng ba câu là sấn sổ cãi cọ với thông gia đấy."
+Chẳng ai buồn đáp lời Vương Kim Như, bà nội nói tiếp: "Nếu bố mẹ con bé có ở đấy thì thím ăn nói cho khéo vào, đừng có nói ba câu đã cãi nhau tay đôi với thông gia."
 
-Bọn họ nào biết hoàn cảnh thực tế của gia đình Từ Tắc Đống và Lương Tuệ Trân, theo lẽ thường cứ nghĩ cha mẹ đẻ của cô gái nhất định sẽ tìm tới đòi một lời giải thích thỏa đáng, lại càng không nắm rõ tính cách, nhân phẩm của Từ Mạn Mạn ra sao.
+Ở nhà không ai biết gia thế của Từ Tắc Đống và Lương Tuệ Trân, họ theo bản năng cứ nghĩ bố mẹ nhà gái hẳn sẽ đòi một lời giải thích thỏa đáng, lại càng chẳng rõ tính tình Từ Mạn Mạn ra sao.
 
-Biết đâu người ta lại có những yêu cầu, đòi hỏi khắt khe gì thì sao?
+Nhỡ đâu nhà gái có yêu cầu gì thì sao?
 
-Vương Kim Như vỗ ngực bôm bốp cam đoan: "Mẹ cứ yên tâm tuyệt đối, trình độ văn hóa với tố chất của con bây giờ cao lắm rồi!"
+Vương Kim Như vỗ ngực cam đoan: "Mẹ cứ yên tâm đi, trình độ văn hóa của con bây giờ cao lắm rồi

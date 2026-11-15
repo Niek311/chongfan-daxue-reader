@@ -1,7 +1,5 @@
 # Chương 14: Đến làng họ Triệu
 
-> **Tiêu đề gốc**: 第14章 来了赵家村。
-
 Trưa hôm sau, vừa dùng xong bữa cơm trưa.
 
 Hai cô gái nhỏ xúng xính sửa soạn thật xinh đẹp. Du Phi diện một chiếc váy liền thân màu xanh nhạt mát mắt, còn Mộc Dao khoác lên mình chiếc váy đầm trắng tinh khôi, vai đeo túi xách nhỏ, chân mang đôi giày vải trắng thanh thoát.

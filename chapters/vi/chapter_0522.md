@@ -1,7 +1,5 @@
 # Chương 522: Lượng đổi dẫn đến chất đổi
 
-> **Tiêu đề gốc**: 第522章 量变引起质变。
-
 Sang ngày thứ tư, Thẩm Tử Ngôn một thân một mình lặng lẽ quay về Tô Thành.
 
 Cô không cất lời khuyên can Mộc Dao.

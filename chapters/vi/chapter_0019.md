@@ -1,7 +1,5 @@
 # Chương 19: Chia tay rồi
 
-> **Tiêu đề gốc**: 第19章 分手了。
-
 "Cốc, cốc!"
 
 Đúng lúc này, tiếng gõ cửa vang lên, nhân viên phục vụ bắt đầu bưng từng đĩa thức ăn thịnh soạn bước vào phòng bao.

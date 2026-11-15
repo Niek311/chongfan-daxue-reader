@@ -1,7 +1,5 @@
 # Chương 111: Sợ anh em chịu khổ, lại sợ anh em lái Land Rover
 
-> **Tiêu đề gốc**: 第111章 既怕兄弟过的苦，又怕兄弟开路虎。
-
 Triệu Quốc Hoa gọi điện lên bảo ở nhà đang vào vụ cấy lúa, năm nay chú thả thêm cá đồng vào ruộng lúa hoa.
 
 Làng họ Triệu chỉ cấy một vụ lúa nước trong năm, nên đúng tầm này mới bắt đầu cấy mạ.

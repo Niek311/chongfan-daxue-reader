@@ -1,7 +1,5 @@
 # Chương 62: Tống Siêu Văn: Sếp ơi...
 
-> **Tiêu đề gốc**: 第62章 宋超文：老板....
-
 Kể từ lúc rời khỏi Hiên Tụ Đức, Đan Vĩ vẫn luôn túc trực đứng gác ở bên ngoài.
 
 Cú đấm ban nãy của Lưu Sấm Phong, nếu không phải biết đối phương là bạn cùng phòng ký túc xá của ông chủ, Đan Vĩ đã sớm lao vào quật ngã cậu ta xuống đất rồi. Hiếm hoi lắm mới thấy có kẻ dám động tay động chân với sếp mình cơ chứ.

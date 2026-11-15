@@ -1,235 +1,225 @@
-# ﻿Chương 370: Tờ Giấy Nhắn
+# Chương 370: Mảnh giấy nhắn
 
-> **Tiêu đề gốc**: 第370章 纸条。
+Trần Trạch buông xuôi hẳn rồi.
 
-Trần Trạch nằm xuôi tay.
+Không kiếm được đơn hàng nào, lúc này có muốn không buông xuôi cũng chẳng biết làm sao.
 
-Không lấy được đơn hàng, bây giờ dù có muốn làm gì cũng chẳng được.
+Cậu ta biết Lâm Thanh Tuyết và nhóm Lưu Sấm Phong đã xuống Dương Thành, cũng đã ghé xem qua mấy gian hàng của Lâm Thanh Tuyết.
 
-Anh biết Lâm Thanh Tuyết và Lưu Xung Phong đã đến Dương Thành, cũng đã xem qua mấy cái shop của Lâm Thanh Tuyết.
+Biết nói thế nào nhỉ?
 
-Phải nói thế nào nhỉ?
+Trần Trạch chợt nhận ra Lâm Thanh Tuyết dường như còn giỏi giang hơn cả Từ Mạn Mạn. Chỉ có thể nói rằng thời điểm này kinh doanh trên Taobao thực sự quá dễ kiếm tiền; lựa chọn đúng đắn quan trọng hơn nỗ lực, phải đợi đến khi cạnh tranh ngày càng khốc liệt thì mới bắt đầu thử thách năng lực thực sự của một con người.
 
-Trần Trạch bỗng nhận ra Lâm Thanh Tuyết hình như còn giỏi hơn Từ Mạn Mạn — chỉ có thể nói Đào Bảo bây giờ làm ăn dễ thật, đơn giản là chọn đúng thời điểm còn hơn nỗ lực bản thân. Đến khi cạnh tranh càng ngày càng khốc liệt mới là lúc thử thách năng lực thật sự của người ta.
+Ngay cả một người như Cốc Siêu Thừa bây giờ cũng đã kiếm được tiền rồi.
 
-Bây giờ kể cả Cốc Siêu Thừa cũng kiếm được tiền.
+Cũng giống như chuyện có người hiện tại mua được một căn nhà ở Kinh Đô, còn bạn 4 năm sau mới tốt nghiệp đại học tới Kinh Đô làm việc; bạn không mua nổi nhà chẳng chứng tỏ bạn kém cỏi hơn người ta, đó thuần túy là vấn đề thời cơ và sự lựa chọn.
 
-Cũng như người ta mua được căn nhà ở Kinh Đô bây giờ — bốn năm sau khi cậu ra trường đi làm, cậu không thể mua được không có nghĩa cậu kém hơn họ, chỉ là vấn đề thời điểm và lựa chọn mà thôi.
+Nhóm Lâm Thanh Tuyết lại rủ nhau xuống Dương Thành chọn mẫu.
 
-Lâm Thanh Tuyết rủ nhau về Dương Thành chọn hàng lần này.
+Lưu Sấm Phong và Phương Khiết còn thuê hẳn một kho hàng ở khu Làng Đại học, tuyển thêm nhân viên phụ trách đóng gói. Lá gan của họ cũng dần lớn hơn, có hôm dám chi tới vài nghìn tệ chạy quảng cáo từ khóa Trực thông xa.
 
-Lưu Xung Phong và Phương Khiết còn thuê kho ở khu đại học thành thành phố, thuê thêm nhân viên để đóng gói. Họ cũng dần dạn dĩ hơn, có hôm mở quảng cáo Trực Thông Xa lên mấy ngàn tệ một ngày.
+"Hờ hờ, Kim An rời khỏi Dương Thành rồi."
 
-"Hehe, Kim An đã rời Dương Thành rồi."
+Lưu Sấm Phong cúp điện thoại; từ khi thuê được nhân viên làm việc, Lưu Sấm Phong chính thức trở thành "ông chủ Lưu" đúng nghĩa.
 
-Lưu Xung Phong cúp điện thoại, thuê được người làm việc thì Lưu Xung Phong đích thực là "Lưu ông chủ" rồi.
+"À phải rồi, doanh số gian hàng của Mộc Dao cũng cao lắm đấy."
 
-"À nhỉ, shop của Mộc Dao dạo này bán cũng chạy lắm."
+Cốc Siêu Thừa gật đầu phụ họa: "Nhưng hình như Mộc Dao không có ở Quận Sa, nghe nói đi nước ngoài rồi."
 
-Cốc Siêu Thừa gật đầu phụ họa: "Nhưng nghe đâu Mộc Dao không còn ở Quận Sa nữa, nghe nói ra nước ngoài rồi."
+Dẫu sao cũng không học cùng một trường đại học nên tin tức của bọn họ đến chậm hơn một nhịp.
 
-Dẫu sao không cùng trường đại học, tin tức của họ chậm hơn một bước.
+Phương Khiết và Lâm Thanh Tuyết đưa mắt nhìn nhau; cả hai đều đã biết Mộc Dao chính là mối tình đầu thời cấp ba của Triệu Kim An.
 
-Phương Khiết và Lâm Thanh Tuyết nhìn nhau — họ cũng đã biết Mộc Dao là người yêu thời trung học của Triệu Kim An rồi.
+Tại Quận Sa.
 
----
+Diêu Sân tan làm trở về ký túc xá, nhìn thấy trên bàn học có đặt một mảnh giấy nhắn.
 
-Quận Sa.
+"Diêu Sân, tớ đi chuyến tàu lúc 10 giờ, tớ tới Hỗ Thị đây, tạm biệt nhé."
 
-Diêu Tiểu tan làm về đến phòng, thấy trên bàn có một tờ giấy.
+"Nếu bố mẹ tớ có lên trường tìm, cậu nhắn lại giúp tớ một tiếng."
 
-"Diêu Tiểu, tôi đi chuyến tàu mười giờ, tôi đến Hộ Thị rồi. Tạm biệt."
+Đưa mắt nhìn quanh phòng, chăn màn trên giường của Từ Mạn Mạn được gấp gọn gàng ngay ngắn, bàn học cũng ngăn nắp sạch sẽ.
 
-"Nếu ba mẹ tôi đến trường tìm, nhớ nói giúp một tiếng."
+Chỉ duy nhất chiếc vali là không thấy đâu.
 
-Nhìn quanh phòng — chăn gối trên giường Từ Mạn Mạn gấp gọn, bàn học ngay ngắn sạch sẽ.
+Kéo cánh tủ quần áo ra, đồ đạc bên trong cũng chẳng còn một mảnh.
 
-Chỉ không còn chiếc vali.
+Từ Mạn Mạn đã ngủ lại văn phòng Trăn Hối Tuyển suốt cả một học kỳ, vốn dĩ ở ký túc xá cũng chẳng để lại bao nhiêu đồ; ngay cả đống đồ mà Lưu Hiểu Tĩnh thu dọn giúp, Từ Mạn Mạn cũng không mang về phòng.
 
-Kéo cửa tủ ra — quần áo đã không còn nữa.
+Cô thậm chí còn chẳng buồn quay lại công ty để lấy.
 
-Từ Mạn Mạn đã ngủ lại văn phòng Trăn Hội Tuyển suốt cả học kỳ vừa rồi, trong phòng vốn cũng chẳng có bao nhiêu thứ. Đồ đạc mà Lưu Hiểu Tĩnh giúp thu dọn, Từ Mạn Mạn cũng chưa kịp lấy về phòng.
+Diêu Sân cầm mảnh giấy nhắn ngồi phịch xuống ghế học, tựa lưng ra sau thẫn thờ ngẩn người.
 
-Cũng không có về lấy.
+Phòng ký túc xá 406 giờ đây thực sự chỉ còn lại một mình cô.
 
-Diêu Tiểu cầm tờ giấy ngồi xuống ghế, dựa lưng vào, ngồi thẫn thờ.
+Cô nhấc máy gọi báo cho Thẩm Tử Ngôn biết: "Tử Ngôn à, Mạn Mạn đi Hỗ Thị rồi."
 
-Phòng 406 chỉ còn lại một mình cô.
+Sau đó cô lại nhắn tin báo một tiếng cho Mộc Dao đang ở tận Hàn Quốc xa xôi.
 
-Cô gọi điện báo cho Thẩm Tử Ngôn: "Tử Ngôn ơi, Mạn Mạn đi Hộ Thị rồi."
+"Nếu bố mẹ tớ có lên trường tìm, cậu nhắn lại giúp tớ một tiếng."
 
-Xong lại nhắn tin cho Mộc Dao đang ở tận nước H báo một câu.
+Diêu Sân lại nhấc mảnh giấy lên, lẩm nhẩm đọc thầm thêm một lượt nữa.
 
-"Nếu ba mẹ tôi đến trường tìm, nhớ nói giúp một tiếng."
+Có lẽ trong cả phòng 406, Diêu Sân là người đầu tiên nhận ra mối quan hệ giữa Từ Mạn Mạn và bố mẹ cô vốn chẳng hề tốt đẹp; nếu không thì chẳng có lý nào đi thành phố khác thực tập mà cô lại không thèm hé răng nói với bố mẹ lấy một lời.
 
-Diêu Tiểu lại cầm tờ giấy lên, khẽ đọc lại lần nữa.
+Từ Mạn Mạn cứ thế lặng lẽ ra đi.
 
-Chắc có lẽ trong phòng 406, Diêu Tiểu là người đầu tiên hiểu ra — Từ Mạn Mạn và cha mẹ có quan hệ không tốt lắm, không thì không có lý do gì đi thực tập ở thành phố nào đó mà cũng không buồn báo cho cha mẹ một câu.
+Một thân một mình kéo vali rời khỏi Quận Sa.
 
-Từ Mạn Mạn cứ thế đi rồi.
+Chỉ để lại vỏn vẹn một mảnh giấy nhắn trong ký túc xá cho Diêu Sân.
 
-Một mình kéo chiếc vali rời Quận Sa.
+Không hề nói cho Diêu Sân biết mình vào công ty nào, làm chức vụ gì, lương tháng bao nhiêu.
 
-Chỉ để lại trong phòng một tờ giấy cho Diêu Tiểu.
+Cô chỉ dặn Diêu Sân: đừng lo lắng cho mình, mình đi làm việc thôi.
 
-Không nói với Diêu Tiểu là công ty nào, chức vụ gì, lương tháng bao nhiêu.
+Và cũng giống hệt như Mộc Dao.
 
-Chỉ nói với Diêu Tiểu: đừng lo, mình đi làm rồi.
+Từ Mạn Mạn chẳng hề nhắn lấy một tin nào cho Triệu Kim An.
 
-Cũng như Mộc Dao — Từ Mạn Mạn không nhắn tin cho Triệu Kim An.
+Từ Quận Sa đi tàu hỏa tới Hỗ Thị mất khoảng 10 tiếng đồng hồ. Từ Mạn Mạn không đi máy bay; cô thích ngồi tàu hỏa, lặng lẽ ngắm nhìn khung cảnh bên ngoài cửa sổ không ngừng lùi lại phía sau.
 
-Từ Quận Sa đến Hộ Thị đi tàu hỏa mất khoảng mười tiếng. Từ Mạn Mạn không đi máy bay — cô thích đi tàu, nhìn những khung cảnh bên đường cứ liên tiếp lùi xa dần về phía sau.
+Năm ngày sau, Lương Tuệ Trân mới lên trường tìm người.
 
-Năm ngày sau, Lương Huệ Trân đến trường tìm con.
+Vì gọi điện cho con gái mãi không liên lạc được nên bà mới phải lặn lội tới tận ký túc xá.
 
-Bà thấy điện thoại con gái mãi không nghe máy mới tìm đến trường.
+Diêu Sân không nói nửa lời, cũng chẳng buồn gọi một tiếng "cô", chỉ giữ gương mặt lạnh băng đưa thẳng mảnh giấy nhắn cho Lương Tuệ Trân.
 
-Diêu Tiểu không nói một câu, không gọi "cô ơi" — mặt lạnh tanh, trực tiếp đưa tờ giấy cho Lương Huệ Trân.
+Lương Tuệ Trân biết tin, rồi Dương Thù Mỹ mới hay chuyện, và thế là bà mới tìm tới gặp Triệu Kim An.
 
-Lương Huệ Trân biết rồi, Dương Thục Mỹ mới biết, rồi mới đến tìm Triệu Kim An.
+Người mà Diêu Sân quý mến nhất vẫn là Từ Mạn Mạn. Không phải cô không thích Thẩm Tử Ngôn hay Mộc Dao, nhưng Lương Tuệ Trân là mẹ ruột của bạn mình, chuyện gia đình người ta thì người ngoài nào có tư cách xen vào nói năng gì.
 
-Diêu Tiểu thương Từ Mạn Mạn nhất — không phải cô không thương Thẩm Tử Ngôn hay Mộc Dao, nhưng Lương Huệ Trân là mẹ ruột, chuyện trong gia đình người ngoài nói gì cũng không tiện.
+Tô Thành nằm rất gần Hỗ Thị.
 
----
+Triệu Kim An và nhóm Thẩm Tử Ngôn đi khảo sát thêm một vòng các xưởng gia công nữa. Anh cũng thẳng thắn chia sẻ với Thẩm Vĩnh Đàm và Lục Mai Tiêu rằng bản thân không hề có ý định lấn sâu vào quá nhiều ngành nghề cùng lúc.
 
-Tô Thành cách Hộ Thị rất gần.
+Thẩm Tử Ngôn cứ đinh ninh Triệu Kim An sẽ ghé qua Hỗ Thị.
 
-Triệu Kim An và Thẩm Tử Ngôn lại vòng thêm một vòng qua các xưởng gia công. Triệu Kim An nói thẳng với Thẩm Vĩnh Đàm và Lục Mỵ Tiêu: anh không có kế hoạch đầu tư quá sâu vào quá nhiều ngành.
+Ngay cả Du Phi và Liễu Ôn Ninh cũng đều nghĩ như vậy.
 
-Thẩm Tử Ngôn tưởng Triệu Kim An sẽ đến Hộ Thị.
+Thế nhưng kết quả Triệu Kim An lại đáp xuống Hàng Thành, hẹn gặp thầy Mã tại đây.
 
-Du Phi và Liễu Ôn Ninh cũng nghĩ vậy.
+Thầy Mã tỏ ra vô cùng hứng thú với dự án Hoàn Vũ Cảng Vụ. Triệu Kim An đoán rằng ở thời điểm này, trong đầu thầy Mã hẳn đã manh nha hình hài của mô hình thương mại điện tử xuyên biên giới rồi, chỉ là vẫn còn đang nằm trong giai đoạn ấp ủ ý tưởng mà thôi.
 
-Kết quả Triệu Kim An lại đi Hàng Thành, ở Hàng Thành hẹn gặp Thầy Mã.
+Kim Đông đang dốc sức xây dựng hệ thống kho bãi khắp trong nước, còn mục tiêu của Hoàn Vũ Cảng Vụ là kết nối chuỗi cung ứng toàn cầu.
 
-Thầy Mã tỏ ra rất hứng thú với Hoàn Vũ Cảng Vụ. Triệu Kim An đoán rằng ở thời điểm này Thầy Mã hẳn đã có manh nha ý tưởng về thương mại điện tử xuyên biên giới — chỉ là vẫn còn nằm trong đầu chưa thành hình.
+Hai người trò chuyện vô cùng tâm đầu ý hợp.
 
-Kim Đông đang xây dựng kho hàng khắp nơi trong nước, còn mục tiêu của Hoàn Vũ Cảng Vụ là kết nối toàn cầu.
+Triệu Kim An nhân tiện giới thiệu Thẩm Tử Ngôn làm quen, còn cố ý nhắc thêm một câu rằng cô đang mở gian hàng kinh doanh trên sàn Taobao của thầy.
 
-Hai người nói chuyện rất hợp.
+Thầy Mã rất nể mặt, cười gật đầu tỏ ý đã nắm rõ.
 
-Triệu Kim An còn giới thiệu Thẩm Tử Ngôn, đặc biệt nhắc một câu: cô ấy có shop trên Đào Bảo của anh đó.
+Thực chất xét ở thời điểm hiện tại, giá trị tài sản của thầy Mã còn cao hơn Triệu Kim An. Các công ty Internet vốn dĩ là vậy, tốc độ tăng trưởng cực kỳ thần tốc; thứ họ chơi là gọi vốn và định giá doanh nghiệp, chỉ cần thị trường vốn gật đầu công nhận là giá trị bay vút lên ngay.
 
-Thầy Mã rất có mặt mũi, gật đầu tỏ ý hiểu.
+Nói đúng hơn là định giá của Ali hiện tại cao hơn Trăn Nhiên.
 
-Thực ra lúc này thân giá của Thầy Mã đã vượt hơn Triệu Kim An rồi — công ty internet phát triển nhanh thế này, họ nói về vốn hóa định giá, chỉ cần thị trường vốn công nhận là xong.
+Chỉ có điều thầy Mã chỉ nắm giữ trực tiếp và gián tiếp 7,64% cổ phần, về sau tỷ lệ sở hữu trực tiếp còn giảm xuống chỉ còn 2,37%, hoàn toàn khác với Triệu Kim An — người nắm giữ tới 67% cổ phần Trăn Nhiên và 100% cổ phần Hoàn Vũ Cảng Vụ.
 
-Đúng hơn mà nói là định giá của Ali cao hơn Trăn Nhiên.
+Tại Tô Thành bất chợt đổ một cơn mưa lớn.
 
-Chỉ có điều Thầy Mã chỉ nắm trực tiếp và gián tiếp 7,64% cổ phần, về sau tỉ lệ trực tiếp còn giảm xuống còn 2,37% — không như Triệu Kim An giữ 67% Trăn Nhiên và 100% Hoàn Vũ Cảng Vụ.
+Triệu Kim An quay sang nói với Thẩm Tử Ngôn một câu: "Nghe như bài *Thanh Hoa Sứ* của Châu Kiệt Luân ấy nhỉ."
 
----
+Thẩm Tử Ngôn cúi đầu khẽ cười, vén một lọn tóc mai ra sau tai rồi nói: "Nếu anh thích khung cảnh mưa bụi Giang Nam thế này thì cứ dời công ty về đây đi."
 
-Tô Thành đổ xuống một trận mưa lớn.
+"..."
 
-Triệu Kim An nói với Thẩm Tử Ngôn: "Bài Thanh Hoa Từ của Châu Đổng."
+Triệu Kim An thầm nghĩ làm thế thì Tô Cảnh Hành chẳng nổi trận lôi đình lên à, trừ phi dời hẳn về Kinh Đô thì may ra.
 
-Thẩm Tử Ngôn cúi đầu cười nhẹ, vén một lọn tóc lên tai: "Cậu thích mưa khói Giang Nam thì cứ chuyển công ty về đây."
+Bước chân trên những phiến đá xanh ướt mưa, Liễu Ôn Ninh và Du Phi cũng hiếm khi có dịp nhàn nhã thưởng ngoạn cảnh đẹp. Thẩm Tử Ngôn sóng bước bên cạnh Triệu Kim An; cô nghiêng đầu nhìn anh, chần chừ một thoáng rồi khẽ đưa tay khoác lấy cánh tay anh.
 
-"....."
+Cô cúi gằm mặt xuống.
 
-Triệu Kim An thầm nghĩ Tô Cảnh Hành mà nghe chắc nổi giận, trừ khi chuyển về Kinh Đô.
+Không ngắm phong cảnh xung quanh nữa, ánh mắt chỉ dõi theo những phiến đá xanh vừa được nước mưa gột rửa sạch bong.
 
-Bước trên những viên đá xanh rêu phủ, Liễu Ôn Ninh và Du Phi cũng hiếm khi được thư thả ngắm cảnh thế này. Thẩm Tử Ngôn và Triệu Kim An đi sánh bước, Thẩm Tử Ngôn nghiêng đầu nhìn sang, do dự rồi cũng đưa tay ra khẽ khoác lấy cánh tay Triệu Kim An.
+Du Phi nhìn chằm chằm cảnh đó một lúc rồi lặng lẽ dời tầm mắt đi chỗ khác.
 
-Cúi đầu.
+Sau ngần ấy ngày làm việc chung, Liễu Ôn Ninh phát hiện ra một điểm khá thú vị: Thẩm tổng của Trăn Nhiên làm việc theo phong cách phóng khoáng, quyết liệt, còn Từ tổng thì lại tỉ mỉ và kiên nhẫn hơn nhiều.
 
-Không nhìn phong cảnh nữa, chỉ nhìn những viên đá xanh được mưa rửa sạch bóng dưới chân.
+"Hương Ngộ" là tên dòng nước giặt tự doanh của Trăn Hối Tuyển.
 
-Du Phi chăm chú nhìn một lúc rồi quay đi nơi khác.
+Tên thương hiệu này là do Mộc Dao nghĩ ra rồi nhắn cho Du Phi, nói rằng mang hàm ý "tình cờ gặp gỡ hương thơm tuyệt diệu".
 
-Tiếp xúc bao nhiêu ngày, Liễu Ôn Ninh nhận ra một điều: Thẩm tổng của Trăn Nhiên làm việc phóng khoáng đại khí, còn Từ tổng thì kiên nhẫn hơn.
+Câu khẩu hiệu ấy được in thẳng lên thân chai, và Du Phi cũng giấu nhẹm chuyện đó là ý tưởng của Mộc Dao.
 
----
+Triệu Kim An nhận xét đúng một câu "sến súa quá", nhưng rồi cũng lười chẳng buồn vắt óc nghĩ tên khác.
 
-"Hương Ngộ" — đó là nhãn hiệu nước giặt tự nhãn của Trăn Hội Tuyển.
+Du Phi lén nhắn tin báo tin vui cho Mộc Dao.
 
-Tên thương hiệu do Mộc Dao đặt, gửi qua Du Phi, nói ý nghĩa là tình cờ gặp gỡ một làn hương thơm ngát.
+Thư ký Du Phi: *Dao Dao ơi, Kim An đồng ý rồi, nước giặt sẽ lấy tên là Hương Ngộ nhé.*
 
-Câu này được in lên thân chai. Du Phi không tiết lộ đó là ý của Mộc Dao.
+Mạch Thượng Yên Vũ Dao: *(icon mặt cười).*
 
-Triệu Kim An bình một câu "quê kiểng quá" — nhưng cũng lười bỏ công sức nghĩ thêm.
+Mộc Dao thực chất chỉ mượn cách chơi chữ đồng âm với hai từ "tương ngộ" mà thôi.
 
-Du Phi lén nhắn tin báo cho Mộc Dao.
+Thế nhưng cuối cùng họ vẫn chẳng thể tương ngộ. Khi Mộc Dao và Trương Vân Thiến từ Hàn Quốc trở về, hai người đáp thẳng xuống Dương Thành, thì Triệu Kim An đã rời khỏi Dương Thành tới Tô Thành từ lâu, rồi sau đó quay về Quận Sa.
 
-Thư ký Du Phi: Dao Dao ơi, Kim An đồng ý rồi, nước giặt cứ đặt tên là Hương Ngộ nhé.
+"Dao Dao này, thương hiệu ngách này chắc chắn sẽ nổi đình nổi đám cho xem."
 
-Mộc Dao trên đường: (mặt cười).
+"Dì út ơi, cháu muốn về thăm nhà một chuyến."
 
-Mộc Dao chỉ là chơi chữ đồng âm — "hương" với "tương," tức là "tương ngộ" — gặp gỡ nhau.
+"Ừ, cháu cứ về đi, công ty ở đây có dì trông nom cho rồi."
 
-Nhưng rốt cuộc không có cuộc gặp gỡ nào — Mộc Dao và Trương Vân Khê từ nước H trở về, thẳng đến Dương Thành, còn Triệu Kim An đã rời Dương Thành từ lâu, đang ở Tô Thành, sau đó về lại Quận Sa.
+Trương Vân Thiến tuy có chút thực dụng, nhưng đối với cô cháu gái Mộc Dao thì chẳng có điểm nào để chê, bà thực sự chia cổ tức sòng phẳng cho Mộc Dao.
 
-"Dao Dao, cái nhãn nhỏ lẻ này nhất định sẽ nổi."
+Thực ra ở kiếp trước Mộc Dao cũng từng về Dương Thành như thế, chỉ có điều không báo cho Du Phi biết nên cả Du Phi lẫn Triệu Kim An đều chẳng hề hay hay.
 
-"Dì ơi, con muốn về nhà một chuyến."
+Vì tòa nhà văn phòng mới vẫn chưa xây xong, sau khi trở về Quận Sa, Triệu Kim An đành chuyển tạm từ khu tứ hợp viện sang văn phòng của Trăn Hối Tuyển làm việc.
 
-"Không sao, con cứ về đi, công ty đã có dì trông coi."
+Anh cầm chai nước giặt Hương Ngộ lên hỏi Đường Hiểu Tình: "Loại nước giặt này dùng thấy hiệu quả thế nào?"
 
-Trương Vân Khê hơi thực dụng một chút, nhưng với Mộc Dao thì không có gì chê được — cô ấy chia lợi nhuận thật sự cho Mộc Dao.
+"Giặt xong quần áo thơm phức luôn anh ạ."
 
-Thực ra kiếp trước Mộc Dao cũng đã từng về Dương Thành, chỉ là không báo cho Du Phi — Du Phi và Triệu Kim An đều không biết mà thôi.
+Đường Hiểu Tình hễ cười lên là lại để lộ hai chiếc răng khểnh nhỏ nhắn cực kỳ đáng yêu.
 
----
+"..."
 
-Văn phòng mới chưa xây xong, Triệu Kim An về Quận Sa đã dọn từ căn nhà trong sân qua làm việc tạm tại Trăn Hội Tuyển.
+Triệu Kim An há miệng định nói gì đó rồi lại thôi: "Thế thôi à? Hay là dạo này em chẳng thèm tự giặt đồ nữa, toàn do mẹ em giặt hộ hết phải không?"
 
-Anh cầm chai Hương Ngộ hỏi Đường Hiểu Tình: "Loại nước giặt này hiệu quả thế nào?"
+"Bộ quần áo anh đang mặc trên người bây giờ cũng là do mẹ em giặt đấy chứ đâu."
 
-"Giặt xong quần áo thơm phức."
+Đường Hiểu Tình thầm nghĩ hiệu quả tốt hay không thì tự anh mặc vào là biết rõ nhất rồi còn gì, giặt sạch sẽ lại còn thơm tho thì chính là tốt chứ sao nữa.
 
-Đường Hiểu Tình cười một cái lộ ra hai chiếc răng nanh nhỏ xinh.
+"..."
 
-"....."
+Triệu Kim An bật cười: "Giờ em cũng biết cãi lại anh rồi cơ đấy."
 
-Triệu Kim An định nói tiếp: "Thế thôi sao? Hay là cậu bây giờ quần áo cũng không tự giặt nữa, để mẹ giặt hết?"
+"Hi hi."
 
-"Mẹ tôi đang giặt cho cậu đấy."
+Đường Hiểu Tình ngượng ngùng cười tít mắt, nụ cười của cô lúc nào cũng rạng rỡ như ánh mặt trời.
 
-Đường Hiểu Tình thầm nghĩ: hiệu quả tốt hay xấu cậu tự biết chứ, giặt sạch rồi thơm thì đó là tốt rồi.
+"Em thử nghiệm rồi, vò tay giặt sạch bong luôn."
 
-"....."
+"Các giáo sư bên Trung Nam cũng bảo công thức này dịu nhẹ không làm hại sợi vải đâu anh."
 
-Triệu Kim An phì cười: "Cậu cũng biết cãi lại rồi đó nhỉ."
+Phòng làm việc bên cạnh vốn dành cho Phó Tổng giám đốc vẫn bỏ trống không người ngồi, bởi Liễu Ôn Ninh trước nay chưa từng chuyển sang đây làm việc.
 
-"Hehe."
+Suy nghĩ một hồi, Đường Hiểu Tình vẫn quyết định kể lại cho Triệu Kim An nghe, còn việc anh nghĩ thế nào, xử lý ra sao thì cô không quản nổi.
 
-Đường Hiểu Tình cười hơi ngượng ngùng, nụ cười của cô lúc nào cũng rực rỡ như nắng.
-
-"Đã thử nghiệm rồi, giặt tay sạch lắm."
-
-"Giáo sư bên Trung Nam Công Đại còn xác nhận không làm hỏng vải."
-
-Phòng kế bên — vị trí Phó Tổng Giám đốc bỏ trống, Liễu Ôn Ninh vẫn chưa chuyển về văn phòng này làm việc.
-
-Đường Hiểu Tình suy nghĩ rồi quyết định vẫn cứ nói cho Triệu Kim An biết — chuyện xử lý thế nào là việc của anh, không phải của cô.
-
-"Kim An ơi, hôm hội chợ việc làm ở trường, Mạn Mạn và Mộc Dao có đến."
+"Kim An, hôm diễn ra ngày hội việc làm ở trường, Mạn Mạn và Mộc Dao có ghé qua đấy."
 
 "Ừ."
 
-"Họ có chèn ép Mạn Mạn một chút..."
+"Mấy người bên công ty mình có hơi bắt nạt Mạn Mạn..."
 
-Đường Hiểu Tình kể lại đầu đuôi chuyện hôm đó, không thêm thắt, không thêm mắm muối, chỉ trình bày sự thật.
+Đường Hiểu Tình kể lại đầu đuôi câu chuyện hôm đó một cách rành mạch, không hề thêm mắm dặm muối, chỉ thuật lại đúng sự thật.
 
-"....."
+"..."
 
-Lưu Hiểu Tĩnh đứng cạnh lặng lẽ nghe, liếc trộm xem thần sắc Triệu Kim An — không đọc ra được gì, trong lòng thầm nghĩ: thật không nên đắc tội với ai, Đường Hiểu Tình, Thẩm tổng, Từ tổng — sếp lớn tự mình có thể chèn ép thì được...
+Lưu Hiểu Tĩnh đứng bên cạnh lặng lẽ lắng nghe, khẽ liếc mắt nhìn trộm sắc mặt Triệu Kim An nhưng chẳng đoán được cảm xúc gì. Cô thầm nhủ sau này nhất định không được phép đắc tội với bất kỳ ai trong số này: Đường Hiểu Tình, Thẩm tổng, Từ tổng — chỉ có ông chủ mới có quyền bắt nạt họ thôi...
 
-Nghe kìa, Đường Hiểu Tình đã báo cáo lên sếp rồi.
+Nghe thử xem, Đường Hiểu Tình vừa mách lẻo với ông chủ rồi đấy.
 
-Ngược lại, nếu là Đường Hiểu Tình bị chèn ép, Từ tổng cũng sẽ báo lên sếp cho.
+Ngược lại, nếu đổi vị trí là Đường Hiểu Tình bị người ta ức hiếp, chắc chắn Từ tổng cũng sẽ mách lại với ông chủ y như vậy.
 
-Không ngờ Triệu Kim An lại cười, đẩy nhẹ vào trán Đường Hiểu Tình đang thì thầm kể: "Vậy họ có chèn ép cậu không?"
+Nào ngờ Triệu Kim An chỉ khẽ bật cười, đưa tay đẩy nhẹ vào trán cô nàng Đường Hiểu Tình đang ghé sát nói thầm: "Thế họ có bắt nạt em không?"
 
 Lưu Hiểu Tĩnh: (°д°)
 
-Đường Hiểu Tình xoa trán cười ngơ ngác — cô không biết tâm hồn phong phú của Lưu Hiểu Tĩnh đến vậy.
+Đường Hiểu Tình đưa tay xoa xoa trán cười ngây ngô, hoàn toàn không hay biết màn kịch nội tâm của Lưu Hiểu Tĩnh lúc này phong phú đến nhường nào.
 
-"....."
+"..."
 
-Lưu Hiểu Tĩnh trong lòng giật mình, cúi mắt nhìn xuống mũi giày — sếp Triệu chiều Đường Hiểu Tình thật, không trách trong công ty ai cũng nói đừng nhìn Đường Hiểu Tình vị trí không cao, nhưng cô ấy theo sếp còn sớm hơn cả Thẩm tổng.
+Lưu Hiểu Tĩnh giật mình trong bụng, vội cúi gằm mặt nhìn mũi giày của mình. Hóa ra Triệu tổng lại cưng chiều Đường Hiểu Tình đến thế; thảo nào người trong công ty vẫn rỉ tai nhau rằng đừng thấy chức vụ của Đường Hiểu Tình không cao mà coi thường, cô ấy vốn là người theo chân ông chủ còn sớm hơn cả Thẩm tổng đấy.
 
-Diêu Tiểu vào công ty chức vụ còn quá thấp.
+Chức vụ của Diêu Sân trong công ty còn quá thấp.
 
-Không còn Từ Mạn Mạn ở Trăn Hội Tuyển nữa, Diêu Tiểu chỉ là Diêu...
+Không còn Từ Mạn Mạn ở Trăn Hối Tuyển nữa, Diêu Sân rốt cuộc cũng chỉ là Diêu...

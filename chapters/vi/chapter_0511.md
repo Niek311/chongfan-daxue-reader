@@ -1,7 +1,5 @@
 # Chương 511: Từ tổng nói được
 
-> **Tiêu đề gốc**: 第511章 徐总说可以。
-
 Cả hội trường bỗng chốc im bặt không một tiếng động.
 
 "..."
@@ -160,7 +158,7 @@ Tình cảnh lúc này quả thực có phần ngượng ngùng, khó xử khôn
 
 Trần Trạch ngập ngừng giây lát rồi vẫn chủ động rảo bước tiến lại gần cất tiếng chào, khẽ cúi gầm mặt xuống: "Hai bác... hai bác dạo này vẫn khỏe cả chứ ạ?"
 
-Vào thời điểm nguy nan ngặt nghèo nhất của đời người, chính Từ Tắc Đống đã không ngần ngại vét sạch túi cho Dương Thục Mỹ vay bốn trăm ngàn tệ. Khi ấy Trần Trạch còn đang mải mê dọn ra ngoài khuôn viên trường thuê phòng sống thử chung đụng với Lâm Thanh Tuyết. Món nợ ân tình nặng tựa thái sơn ấy, bất cứ ai còn mang trong mình chút lương tri của con người cũng đều phải cảm thấy cắn rứt hổ thẹn đến tận đáy lòng.
+Vào thời điểm nguy nan ngặt nghèo nhất của đời người, chính Từ Tắc Đống đã không ngần ngại vét sạch túi cho Dương Thù Mỹ vay bốn trăm ngàn tệ. Khi ấy Trần Trạch còn đang mải mê dọn ra ngoài khuôn viên trường thuê phòng sống thử chung đụng với Lâm Thanh Tuyết. Món nợ ân tình nặng tựa thái sơn ấy, bất cứ ai còn mang trong mình chút lương tri của con người cũng đều phải cảm thấy cắn rứt hổ thẹn đến tận đáy lòng.
 
 "Cậu quay về Quận Sa làm cái gì?"
 

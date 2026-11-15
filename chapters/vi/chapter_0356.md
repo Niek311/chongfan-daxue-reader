@@ -1,275 +1,277 @@
-# Chương 356: Tôi chẳng thể tự cứu lấy mình.
+# Chương 356: Em Không Cứu Nổi Chính Mình
 
-> **Tiêu đề gốc**: 第356章 我救不了自己。
+Nghe tin Triệu tổng của Trăn Nhiên chuẩn bị xây trung tâm thương mại và tòa nhà văn phòng, các đơn vị xây dựng đua nhau nộp hồ sơ dự thầu, tất cả đều được Triệu Kim An giao cho Thẩm Tử Ngôn xử lý.
 
-Hay tin Triệu tổng của Chân Nhiên chuẩn bị xây dựng trung tâm thương mại và cao ốc văn phòng, các đơn vị thi công nườm nượp gửi hồ sơ dự thầu. Triệu Kim An giao toàn bộ việc này cho Thẩm Tử Ngôn tiếp nhận.
+Vốn dĩ nếu Từ Mạn Mạn còn ở công ty, Triệu Kim An sẽ hỏi qua ý kiến của cô.
 
-Nếu trước đây còn Từ Mạn Mạn ở công ty, Triệu Kim An nhất định sẽ hỏi ý kiến cô.
+Dù sao tầng dưới cũng là trung tâm thương mại Trăn Hối Tuyển, chứ không chỉ toàn bộ là văn phòng của Trăn Nhiên và Hoàn Vũ Cảng Vụ.
 
-Bởi lẽ toàn bộ tầng dưới sẽ là đại siêu thị Chân Hối Tuyển, chứ không đơn thuần chỉ là văn phòng làm việc của Chân Nhiên và Cảng vụ Hoàn Vũ.
+Về phần thiết kế, Triệu Kim An giao cho viện thiết kế của các đơn vị liên quan phụ trách.
 
-Về phần thiết kế kiến trúc, Triệu Kim An giao phó cho Viện thiết kế trực thuộc các cơ quan ban ngành liên quan.
+Thẩm Tử Ngôn đặt tên cho dự án là: Quảng trường Hoàn Vũ Thời Đại.
 
-Thẩm Tử Ngôn đặt tên cho dự án: Quảng trường Thời Đại Hoàn Vũ.
+Đường Hiểu Tình vô cùng phấn khích, công ty sắp có tòa nhà văn phòng của riêng mình rồi.
 
-Đường Hiểu Tình vô cùng phấn khởi, công ty sắp có một tòa cao ốc văn phòng thuộc về riêng mình rồi.
+Không riêng gì Đường Hiểu Tình, ngay cả Du Phi, Triệu Chí Dũng và mọi người đều háo hức không kém. Cả công ty đều cảm thấy đường đường là doanh nghiệp lớn mà vẫn chui rúc trong một căn nhà dân hai tầng ở khu đại học thế này thì đúng là chẳng ra làm sao.
 
-Không chỉ Đường Hiểu Tình, cả Du Phỉ, Triệu Trí Dũng và toàn thể nhân viên trong công ty đều háo hức khôn xiết. Mọi người đều chung một suy nghĩ: tập đoàn lớn mạnh cỡ này mà đến giờ vẫn phải chen chúc làm việc trong căn nhà dân hai tầng ở khu Đại học Thành thì quả thực có phần khó coi.
+Tâm trạng của Triệu Kim An có phần dao động. Ban đầu anh dự định đầu tư hai tỷ rưỡi tệ, sau đó một hơi nâng thẳng ngân sách lên ba tỷ rưỡi.
 
-Tâm trạng Triệu Kim An có phần xáo trộn, ban đầu anh chỉ dự tính kinh phí khoảng 2,5 tỷ tệ, nhưng sau đó đùng một cái nâng ngân sách vọt lên 3,5 tỷ tệ.
+“Kim An, cậu điên rồi à?”
 
-"Kim An, cậu phát điên rồi à?"
+Thẩm Tử Ngôn đang trực tiếp làm việc với viện thiết kế, không khỏi kinh ngạc: “Ba tỷ rưỡi tệ, cậu định xây văn phòng xa hoa đến mức nào thế?”
 
-Thẩm Tử Ngôn đang làm việc với viện thiết kế liền trợn tròn mắt: "Ba phẩy năm tỷ tệ! Cậu định xây tòa cao ốc xa hoa lộng lẫy đến mức nào cơ chứ?"
+“Chi phí xây dựng cao lắm sao?”
 
-"Chi phí xây dựng thế này là cao lắm sao?"
+Triệu Kim An khẽ cười, nhưng nhìn kỹ sẽ thấy nụ cười ấy hơi gượng gạo: “Cậu chưa xem tòa nhà Tân Hải của Tencent à? Chi phí xây dựng khởi điểm đã năm tỷ tệ rồi.”
 
-Triệu Kim An cười cười, nếu nhìn kỹ sẽ nhận ra nụ cười của anh có phần gượng gạo: "Cậu không nhìn thấy Tòa nhà Tân Hải của Tencent à? Kinh phí xây dựng của người ta ít nhất cũng từ năm tỷ tệ trở lên đấy."
+“Tòa nhà Tân Hải nào cơ, chẳng phải là tòa nhà Tencent sao?”
 
-"Tòa nhà Tân Hải gì cơ? Chẳng phải là Tencent Đại Hạ sao?"
+Thẩm Tử Ngôn ngơ ngác đầy vẻ nghi ngờ: “Ba mươi chín tầng, tổng chiều cao một trăm chín mươi ba mét ấy.”
 
-Thẩm Tử Ngôn tròn mắt hoài nghi: "Tòa nhà đó ba mươi chín tầng, cao một trăm chín mươi ba mét mà."
+“...”
 
-"..."
+Lúc này Triệu Kim An mới sực nhớ ra mình bị lệch mốc thời gian, tòa nhà Tân Hải của Tencent mãi đến năm 2011 mới khởi công, chia làm tháp Nam năm mươi tầng và tháp Bắc ba mươi chín tầng. Anh vội vàng chữa cháy:
 
-Triệu Kim An lúc này mới giật mình nhớ ra mình nhớ nhầm mốc thời gian. Tòa nhà Tencent Tân Hải phải đến tận năm 2011 mới khởi công xây dựng, gồm tháp Nam 50 tầng và tháp Bắc 39 tầng. Anh vội vàng chữa cháy:
+“Tớ từng nói chuyện với anh Tiểu Mã rồi, anh ấy đang có dự định đó.”
 
-"Hôm trước ngồi tán gẫu với anh Mã, nghe anh ấy chia sẻ dự định tương lai thế thôi."
+Triệu Kim An sợ Thẩm Tử Ngôn sinh nghi, tự dưng lại thấy mình dự đoán được hai năm sau Tencent sẽ xây tòa nhà văn phòng gì.
 
-Triệu Kim An sợ Thẩm Tử Ngôn sinh nghi việc mình có thể đoán trước hai năm sau Tencent sẽ xây tòa nhà văn phòng bề thế ra sao.
+“À.”
 
-"Ồ."
+Thẩm Tử Ngôn chần chừ gật đầu.
 
-Thẩm Tử Ngôn bán tín bán nghi gật đầu.
+Từ Mạn Mạn rời công ty, Thẩm Tử Ngôn chẳng hề tỏ ra vui mừng chút nào.
 
-Từ Mạn Mạn rời khỏi công ty, Thẩm Tử Ngôn không hề tỏ ra vui mừng ra mặt.
+Đường Hiểu Tình vẫn là Đường Hiểu Tình của ngày nào, chẳng bị bất kỳ ai làm lung lay; cô chỉ biết mình sẽ không rời bỏ công ty, càng không rời bỏ Triệu Kim An.
 
-Đường Hiểu Tình vẫn là Đường Hiểu Tình của ngày nào, không màng thế sự, chẳng chịu tác động từ bất kỳ ai. Trong lòng cô bé ngốc nghếch ấy chỉ khắc ghi một điều: cô sẽ không bao giờ rời khỏi công ty, càng không bao giờ rời xa Triệu Kim An.
+Liễu Ôn Ninh lên thay thế vị trí của Từ Mạn Mạn, thế nhưng cô ta không thể trở thành một trong “hai trụ cột của công ty” như lời mọi người vẫn đồn.
 
-Liễu Ôn Ninh tiếp quản vị trí chức vụ mà Từ Mạn Mạn để lại, nhưng cô không thể trở thành một trong "Song cự đầu" trong miệng mọi người.
+Bản thân Liễu Ôn Ninh cũng tự biết mình không thể thay thế nổi Từ Mạn Mạn.
 
-Bản thân Liễu Ôn Ninh cũng tự hiểu mình không bao giờ thay thế nổi Từ Mạn Mạn.
+Danh xưng “hai trụ cột” không phải do chức vụ quyết định, mà được khẳng định bằng năng lực làm việc và sự tin tưởng tuyệt đối của Triệu Kim An.
 
-Danh xưng "Song cự đầu" của công ty chưa từng được quyết định bởi chức vụ trên giấy tờ, mà nó được tạo nên từ năng lực làm việc thực thụ cùng sự tín nhiệm tuyệt đối từ Triệu Kim An.
+Diêu Sân đoán già đoán non thế nào cũng không ngờ người thứ hai rút lui lại chính là Từ Mạn Mạn.
 
-Diêu Tân đoán già đoán non đủ kiểu cũng không thể ngờ người thứ hai lựa chọn rút lui khỏi cuộc chiến tình cảm này lại là Từ Mạn Mạn.
+Cô càng không hiểu nổi Từ Mạn Mạn: cậu đã rút lui rồi thì sang giúp Trần Trạch đi chứ, giống như học kỳ năm hai từng ra tay cứu nhà Trần Trạch khỏi cảnh khốn cùng ấy.
 
-Cô càng không thể hiểu nổi suy nghĩ của Từ Mạn Mạn. Nếu cậu đã chọn rời khỏi Chân Nhiên, sao không quay sang giúp đỡ Trần Trạch đi? Giống như kỳ học năm hai năm ấy, một tay cậu vực dậy cả gia đình họ Trần từ cõi chết cơ mà?
+“Mạn Mạn, đổi tên mạng đi thôi.”
 
-"Mạn Mạn, cậu đổi biệt danh mạng đi thôi."
+“Sao thế?”
 
-"Sao thế?"
+Trong phòng ký túc xá 406 lúc này chỉ có Diêu Sân và Từ Mạn Mạn, còn Thẩm Tử Ngôn và Mộc Dao đều bận công việc. Diêu Sân vỗ vỗ thành giường: “Cậu đừng đặt tên là Mạn Đau Đau nữa, ngày nào cũng nằm bẹp trên giường thì đổi thành Mạn Nằm Thẳng đi.”
 
-Ký túc xá 406 lúc này chỉ có hai người Diêu Tân và Từ Mạn Mạn. Thẩm Tử Ngôn và Mộc Dao đều bận rộn trăm công nghìn việc ở công ty. Diêu Tân vỗ vỗ vào mép giường: "Cậu đừng lấy tên là 'Mạn đau đáu' nữa, suốt ngày nằm ườn trên giường như thế này thì đổi thành 'Mạn nằm bẹp' cho rồi."
+“Diêu Sân, tớ chẳng còn chỗ nào để đi nữa rồi.”
 
-"Diêu Tân, tớ chẳng còn nơi nào để đi nữa rồi."
+Từ Mạn Mạn nằm ngửa, hai tay đan vào nhau đặt trên bụng phẳng lì, mắt nhìn trân trân lên trần nhà.
 
-Từ Mạn Mạn nằm ngửa trên giường, hai bàn tay đan vào nhau đặt lên bụng phẳng, đôi mắt vô hồn nhìn chăm chú lên trần nhà, khẽ thì thầm.
+Diêu Sân trèo lên giường nhìn cô một cái: “Chìa khóa chiếc Audi cũng bị thu lại rồi à?”
 
-Diêu Tân trèo lên thang nhìn sang: "Chìa khóa chiếc Audi cũng bị thu lại rồi à?"
+“Ừ.”
 
-"Ừ."
+“Còn cứu được không?”
 
-"Còn cứu vãn được không?"
+Diêu Sân hỏi một câu đầy ẩn ý.
 
-Diêu Tân hỏi một câu mang hàm ý nước đôi.
+“Đều hết thuốc chữa rồi.”
 
-"Đều hết thuốc chữa rồi."
+Từ Mạn Mạn hiểu rõ hàm ý của bạn: “Thứ duy nhất cứu được Dương Thù Mỹ chỉ có tiền thôi.”
 
-Từ Mạn Mạn thừa hiểu câu hỏi của bạn: "Thứ duy nhất có thể cứu được Dương Thù Mỹ bây giờ chỉ có tiền."
+“Còn phía Triệu Kim An thì sao?”
 
-"Thế còn bên phía Triệu Kim An thì sao?" Diêu Tân lại gặng hỏi.
+Diêu Sân lại hỏi.
 
-Từ Mạn Mạn khẽ lắc đầu, khóe môi thoáng nét cười thê lương: "Diêu Tân, tớ... chẳng thể tự cứu lấy chính mình."
+Từ Mạn Mạn khẽ lắc đầu: “Diêu Sân, tớ không cứu nổi chính mình.”
 
-Diêu Tân không hiểu được hàm ý sâu xa trong câu nói ấy.
+Diêu Sân nghe mà chẳng hiểu gì.
 
-Câu nói này có lẽ chỉ có Mộc Dao mới thực sự thấu hiểu. Dạo này Mộc Dao rất hiếm khi về ký túc xá ngủ, ngoại trừ những lúc lên lớp gặp Từ Mạn Mạn trên giảng đường, buổi tối tan ca cô đều về ngủ lại ở chỗ Trương Vân Thiến.
+Câu nói ấy có lẽ chỉ có Mộc Dao mới thấu hiểu. Dạo này Mộc Dao rất ít khi về ký túc xá; ngoài những lúc lên lớp gặp Từ Mạn Mạn ở giảng đường, tối nào tan làm cô cũng về ngủ ở chỗ Trương Vân Thiến.
 
-Mộc Dao đã đi học và thi lấy bằng lái xe.
+Mộc Dao vừa đi thi lấy bằng lái xe.
 
-Từ Mạn Mạn không còn chiếc Audi nữa, Trương Vân Thiến liền nhượng lại chiếc BMW của mình cho Mộc Dao cầm lái.
+Từ Mạn Mạn mất chiếc Audi, còn Trương Vân Thiến lại giao hẳn chiếc BMW của mình cho Mộc Dao lái.
 
-Du Phỉ từng nói với cô: "Dao Dao, dạo này cậu trưởng thành nhiều quá, chỉ là sự thay đổi này diễn ra nhanh quá khiến tớ thấy chưa quen."
+Du Phi từng nói với cô: “Dao Dao, cậu trưởng thành rồi đấy, chỉ là thay đổi nhanh quá khiến tớ nhất thời chưa quen.”
 
-Mộc Dao chỉ mỉm cười lặng lẽ.
+Mộc Dao chỉ mỉm cười.
 
-Có lẽ ở kiếp trước, sau khi dứt khoát chia tay Triệu Kim An, Mộc Dao cũng đã đột ngột trưởng thành trong một đêm như thế.
+Có lẽ ở kiếp trước, sau khi chia tay Triệu Kim An, Mộc Dao cũng đã trưởng thành như thế này chăng.
 
-Vợ chồng Từ Tắc Đống và Lương Tuệ Trân vẫn chưa thể chờ được kết quả mà họ mong mỏi: Từ Mạn Mạn ngoan ngoãn trở về nhà.
+Từ Tắc Đống và Lương Tuệ Trân rốt cuộc vẫn không đợi được điều họ mong mỏi: Từ Mạn Mạn trở về nhà.
 
-Vương Kim Như gọi điện thoại tới công ty mới biết chuỗi cung ứng của Chân Hối Tuyển đã đổi người tiếp quản, người phụ trách giờ là Liễu tổng. Bà vội vàng gọi điện thoại cho Từ Mạn Mạn gặng hỏi: "Từ tổng, sao tự dưng cháu lại từ chức ở Chân Hối Tuyển thế?"
+Vương Kim Như gọi điện tới mới biết bên Trăn Hối Tuyển đã đổi người, đầu mối liên hệ chuyển sang Liễu tổng. Bà ta còn gọi thẳng cho Từ Mạn Mạn hỏi: “Từ tổng, sao cháu lại xin nghỉ ở Trăn Hối Tuyển thế?”
 
-Chuyện Từ Mạn Mạn chủ động nộp đơn từ chức là do chính miệng Liễu Ôn Ninh nói cho Vương Kim Như hay.
+Chuyện Từ Mạn Mạn chủ động từ chức là do chính Liễu Ôn Ninh kể cho Vương Kim Như nghe.
 
-Triệu Kim An lần thứ hai bước chân vào quán net chơi game. Anh gọi Vương Duy Đào đi cùng để so tài bắn CS.
+Triệu Kim An lần thứ hai bước chân vào quán net chơi game, gọi Vương Duy Đào đi bắn CS cùng mình.
 
-Chẳng ngờ lời vừa truyền đi, hơn nửa lớp Kế toán 1 rồng rắn kéo tới theo. Triệu Kim An gọi ngay nhân viên quản lý quán net lại, hào sảng tuyên bố hôm nay anh bao trọn gói toàn bộ tiền máy, mỗi người còn được phục vụ một suất cơm thố nóng hổi kèm nước ngọt uống thả ga.
+Ai ngờ hơn nửa lớp Kế toán 1 cũng kéo nhau tới. Triệu Kim An liền gọi nhân viên trông quán tới bảo hôm nay anh bao trọn, mỗi người một suất cơm niêu kèm đồ uống thỏa thích.
 
-Đám bạn học reo hò ầm ĩ: "Triệu tổng hào phóng quá!"
+Cả đám bạn học reo hò vang dội: “Triệu tổng hào phóng quá!”
 
-Đơn Vĩ và mấy tay vệ sĩ đi cùng chẳng biết chơi trò gì trong quán net, đến cả việc mở trang web xem phim trực tuyến cũng lúng túng không biết bấm vào đâu.
+Đám Đan Vĩ chẳng biết chơi gì trong quán net, ngay cả cách mở phim xem ở đâu cũng mù tịt.
 
-Cả quán net ngập tràn tiếng cười nói huyên náo của sinh viên lớp Kế toán 1. Mấy bạn nữ phần lớn ngồi xem phim bộ hoặc rủ nhau nhảy Audition.
+Khắp quán net vang vọng tiếng cười nói rộn ràng của sinh viên lớp Kế toán 1; đám con gái phần lớn chỉ xem phim hoặc nhảy Audition.
 
-"Kim An, trình độ bắn CS của cậu còi thật đấy!"
+“Kim An, trình bắn CS của cậu tệ thật đấy.”
 
-Lưu Sấm Phong vừa ngắm bắn làm một phát headshot ngoạn mục, liền thò đầu qua vách ngăn cười hì hì: "Này Kim An, bao giờ thì dẫn bọn tao đi hát karaoke hay đi quán bar một chuyến đi? Phố bar Giải Phóng Tây ở Quận Sa nổi tiếng lẫy lừng khắp nơi như thế, bọn này từ lúc lên đại học đến giờ chưa từng được đặt chân tới lần nào."
+Lưu Sấm Phong vừa bắn một phát trúng đầu, thò đầu sang trêu chọc: “Suỵt, Kim An, bao giờ đi KTV hay quán bar một bữa đi? Phố quán bar Quận Sa nổi tiếng thế mà bọn này chưa được đi lần nào.”
 
-"Đúng đấy Kim An, bọn tao làm gì có tiền mà dám bén mảng vào những chỗ ấy tiêu xài."
+“Đúng đấy, Kim An, bọn tớ làm gì có tiền mà vào đó tiêu.”
 
-Triệu Kim An khẽ cười: "Quán bar không đắt đỏ xa xỉ như các cậu tưởng tượng đâu, có cách chơi theo kiểu bình dân ít tiền mà."
+Triệu Kim An bật cười: “Quán bar không đắt đỏ như các cậu nghĩ đâu, có kiểu chơi bình dân ít tốn kém mà.”
 
-"Bình dân thì bọn tao cũng đào đâu ra tiền mà đú!"
+“Ít tốn kém bọn tớ cũng chẳng kham nổi đâu.”
 
-Chẳng ngờ một đám nữ sinh ngồi gần đó cũng hùa theo hưởng ứng rôm rả. Con phố Giải Phóng Tây ở Quận Sa thực sự quá đỗi nổi tiếng.
+Không ngờ một đám nữ sinh cũng hùa theo reo lên; đường Giải Phóng Tây của Quận Sa vốn nổi tiếng khắp nơi.
 
-Triệu Kim An gật đầu sảng khoái: "Được thôi, thích thì đi."
+Triệu Kim An gật đầu bảo được thôi.
 
-Nhân viên trông quán net loay hoay cả buổi mới nhận ra Triệu Kim An, cũng là lần đầu tiên anh ta thấy có người hào phóng gọi một lúc hơn ba mươi suất cơm thố. Anh ta vội vàng lén gọi điện báo cho ông chủ: Triệu tổng của tập đoàn Chân Nhiên đang ngồi chơi net ở quán mình đấy!
+Cậu nhân viên trông quán loay hoay mãi mới nhận ra Triệu Kim An, đây cũng là lần đầu tiên có khách gọi một lúc hơn ba mươi phần cơm niêu. Cậu ta lén gọi điện báo cho ông chủ, nói rằng Triệu tổng của Trăn Nhiên đang ngồi chơi ở quán mình.
 
-Ông chủ nghe xong kích động đến phát run, lập tức hạ lệnh: Từ nay về sau quán net này chỉ nhập và bán độc quyền các sản phẩm nước giải khát của Chân Nhiên!
+Ông chủ nghe xong mừng rỡ ra mặt, tuyên bố từ nay về sau quán net chỉ bán duy nhất sản phẩm của Trăn Nhiên.
 
-Thực ra, ông chủ quán net này ở kiếp trước từng là người chủ thuê Triệu Kim An làm thêm việc bán thời gian.
+Thực ra, ông chủ quán net này kiếp trước từng là sếp chỗ Triệu Kim An đi làm thêm.
 
-Cả đám chơi game quậy phá ở quán net đến tận một giờ sáng. Vài cậu bạn còn thèm thuồng gọi thêm suất cơm thố thứ hai. Lý Ngải Lan cứ ngỡ đêm nay sẽ thức trắng ở quán net nên mon men muốn chen vào ngồi chung buồng máy với Triệu Kim An.
+Cả nhóm chơi ở quán net mãi tới một giờ sáng, có mấy người ăn liền hai phần cơm niêu. Lý Ngải Lan tưởng mọi người định thức trắng đêm ở quán nên muốn ngồi chung một khoang ghế với Triệu Kim An.
 
-Chẳng ngờ Vương Duy Đào – một gã đực rựa – lại kiên quyết bám trụ chắn ngay cạnh Triệu Kim An không chịu nhường chỗ. Cậu ta sợ Lý Ngải Lan sẽ biến thành một Quan Linh thứ hai.
+Nào ngờ một thằng con trai như Vương Duy Đào lại canh chừng Triệu Kim An khư khư không rời nửa bước, cậu ta sợ Lý Ngải Lan lại giở trò thành Quan Linh thứ hai.
 
-"Chị Tô Miến à, em chỉ có thể giúp chị giữ sếp đến nước này thôi đấy nhé."
+“Chị Tô Miến à, em chỉ giúp chị được đến thế này thôi.”
 
-Lý Ngải Lan tức tối liếc xéo Quan Linh, còn Quan Linh thì làm ra vẻ thục nữ khiến Phương Khiết và Lâm Thanh Tuyết nhìn mà thấy buồn cười khó hiểu.
+Lý Ngải Lan thì đề phòng Quan Linh như phòng trộm, làm Phương Khiết và Lâm Thanh Tuyết đứng cạnh nhìn mà chẳng hiểu mô tê gì.
 
-Tối hôm sau.
+Ngày hôm sau.
 
-Ngoại trừ Trần Trạch, đám sinh viên lớp Kế toán 1 đã sớm tụ tập đông đủ tại phố Giải Phóng Tây, thậm chí còn kéo theo một số bạn học bên Kế toán 2. Mấy cô bạn không liên lạc được với Triệu Kim An liền túm lấy lớp trưởng Vương Học Ân hỏi dồn dập.
+Trừ Trần Trạch ra, toàn bộ sinh viên lớp Kế toán 1 đã kéo nhau tới đường Giải Phóng Tây từ sớm, ngoài ra còn có vài bạn bên lớp Kế toán 2; họ không liên lạc được với Triệu Kim An nên phải hỏi thăm qua lớp trưởng Vương Học Ân.
 
-Triệu Kim An hào phóng đặt thêm mấy bàn VIP, toàn bộ đều là những bàn nằm ở vị trí trung tâm đắc địa nhất của quán bar.
+Triệu Kim An đặt thêm mấy bàn lớn nữa, toàn bộ đều là những bàn đẹp nhất ngay khu vực trung tâm quán bar.
 
-Ví như các bàn số đẹp 888, 999, 666 – những vị trí đắt giá nhất chỉ dành cho khách sộp.
+Ví dụ như bàn 888, 999, 666, đây đều là những vị trí đắc địa nhất trong quán.
 
-Thế là đêm hôm ấy, quán bar "Mị Lực Tứ Xạ" dường như biến thành đêm hội ngộ dành riêng cho đám sinh viên đại học. Vào thời điểm bấy giờ, quán bar Mị Lực Tứ Xạ được xem là tụ điểm ăn chơi nổi tiếng bậc nhất Quận Sa, trước cửa luôn có hai hàng mỹ nữ xinh đẹp đứng cúi chào đón khách.
+Thế là tối hôm ấy, quán bar Mị Lực Tứ Xạ bỗng dưng biến thành sân chơi riêng của sinh viên đại học. Lúc bấy giờ, Mị Lực Tứ Xạ được xem là quán bar nổi tiếng nhất Quận Sa, trước cửa lúc nào cũng có hai hàng chân dài đứng đón khách.
 
-"Mẹ kiếp, có cả mấy em Tây da ngăm nữa kìa!"
+“Chết tiệt, còn có cả em da đen nữa kìa!”
 
-Lưu Sấm Phong cười tít cả mắt, vừa bước vào trong đã nhanh nhảu chạy tọt tới chiếm ngay vị trí chính giữa của chiếc ghế sofa bàn 888.
+Lưu Sấm Phong cười ngoác cả miệng, vừa bước vào đã ngồi ngay vào vị trí chính giữa bàn 888.
 
-"Ngồi đi, ngồi xuống hết đi chứ!"
+“Ngồi xuống đi chứ!”
 
-Cậu ta hào hứng vỗ vỗ lên mặt đệm da. Vài bạn học tính tình nhút nhát vẫn còn cảm giác rụt rè, bỡ ngỡ trước khung cảnh xập xình đèn màu.
+Gã vỗ vỗ mặt ghế, nhưng nhiều bạn học vẫn còn hơi rụt rè, chưa quen cảnh này.
 
-"Sao Triệu Kim An vẫn chưa tới nhỉ?"
+“Sao Triệu Kim An vẫn chưa tới nhỉ?”
 
-Người trả tiền chưa xuất hiện, đa phần sinh viên đều chưa dám buông thả bản thân, cảm giác thiếu đi chỗ dựa an toàn.
+Người trả tiền chưa đến, nhiều bạn không dám thả lỏng, cứ cảm giác thiếu thiếu cảm giác an toàn.
 
-Triệu Kim An không bao trọn cả quán bar, bởi quán bar mà bao trọn gói thì mất hết không khí náo nhiệt vốn có.
+Triệu Kim An không bao trọn quán, bởi đi bar mà bao hết cả quán thì mất hết cả cái thú vị.
 
-Mấy cô đào tiếp thị rượu ngoài cửa cũng thấy làm lạ, chẳng hiểu sao hôm nay lại có nhiều khách bắt taxi, thậm chí có người còn đi cả xe buýt đến quán bar thế này.
+Mấy cô gái đứng ngoài cửa cũng thấy lạ, sao hôm nay lắm người bắt taxi tới thế, thậm chí có người còn đi xe buýt đến nữa chứ.
 
-Quái lạ thật, đám nhóc sinh viên này lấy đâu ra tiền mà mở thẻ VIP cơ chứ? Rồi mấy chị em làm nghề tiếp thị rượu với hoạt náo viên làm sao kiếm chác hoa hồng đây?
+Quái thật, đám người này đào đâu ra tiền nạp thẻ VIP? Rồi mấy chị em tổ tiếp thị khuấy động không khí kiếm tiền kiểu gì?
 
-Bên trong quán bar, thấy Lưu Sấm Phong ung dung ngồi chễm chệ ở vị trí VIP bàn 888, lập tức có mấy cô nàng ăn mặc "mát mẻ" lả lơi tiến lại gần mời rượu. Nhìn dáng vẻ phong lưu kia, ai cũng đinh ninh cậu ta chính là đại gia chi tiền cho cả đám.
+Bên trong quán bar, thấy Lưu Sấm Phong ngồi chễm chệ giữa bàn 888, mấy cô nàng ăn mặc “mát mẻ” liền sà tới mời gã uống rượu; nhìn dáng vẻ đó ai cũng tưởng gã là người chi tiền.
 
-Lưu Sấm Phong được tâng bốc thì phổng mũi, ai mời cũng cụng ly cạn chén. Nhưng chỉ mười phút sau, cậu ta đã rơi vào cảnh dở khóc dở cười, muốn độn thổ cho xong.
+Lưu Sấm Phong ai mời cũng tiếp, nhưng chỉ mười phút sau gã bắt đầu thấy hơi kẹt cứng, khó mà xuống nước.
 
-Mấy cô nàng kia bắt đầu vây quanh đòi tiền boa, mỗi người tám trăm tệ.
+Mấy cô gái kia thi nhau đòi tiền gã, mỗi người tám trăm tệ.
 
-Lại còn hai cô ỏng ẹo trèo thẳng lên quầy bar uốn éo múa lửa, mỗi bài nhảy tính giá hai trăm tệ.
+Còn có hai cô leo lên quầy bar uốn éo nhảy nhót, mỗi điệu nhảy hai trăm tệ.
 
-Bầu không khí lập tức trở nên lúng túng, ngượng ngùng cùng cực, xung quanh vẫn còn rất nhiều khách lạ đang chỉ trỏ nhìn vào.
+Không khí trở nên hơi ngượng ngập, dù sao trong quán vẫn còn nhiều khách khác.
 
-May sao quản lý quán bar kịp thời chạy tới dẫn đám đào rượu đi, ghé tai dặn dò nhỏ nhẹ rằng những bàn này đều do Triệu tổng của Chân Nhiên đích thân đặt trước.
+May mà một quản lý kịp tới dẫn đám con gái kia đi, khẽ ghé tai giải thích rằng toàn bộ mấy bàn này đều do Triệu tổng của Trăn Nhiên đặt trước.
 
-"Đắt thế cơ à? Uốn éo có mấy cái mà đòi tận hai trăm tệ!?"
+“Đắt thế cơ à? Lắc mông vài cái mà đã hai trăm rồi?”
 
-Không chỉ riêng Lưu Sấm Phong, rất nhiều nam sinh lần đầu bước chân vào quán bar đều há hốc mồm kinh ngạc. Họ có cảm giác nơi này chẳng khác nào tụ điểm "trấn lột" tiền một cách công khai.
+Không chỉ Lưu Sấm Phong, rất nhiều nam sinh lần đầu bước chân vào quán bar, ai nấy đều cảm thấy chẳng khác nào ăn cướp trắng trợn.
 
-Thời gian: 22 giờ 45 phút.
+22 giờ 45 phút.
 
-Đám đông đứng ngoài cửa cuối cùng cũng nhìn thấy ánh đèn pha quyền uy của chiếc Rolls-Royce Phantom lướt tới.
+Người đứng ngoài cửa cuối cùng cũng trông thấy chiếc Rolls-Royce Phantom trứ danh.
 
-Xe vừa tấp vào lề đường, dàn tiếp tân xinh đẹp ngoài cửa đã vội vã sải bước tiến lại nghênh đón.
+Xe vừa tấp vào lề đường, đám con gái đứng đón khách lập tức ùa lên phía trước.
 
-Triệu Kim An trong bộ âu phục phẳng phiu lịch lãm, chân đi giày da bóng lộn bước xuống xe. Đơn Vĩ và Quan Văn Bách mặt mày lạnh như tiền, ánh mắt đầy cảnh giác đi kèm hai bên. Phía sau, từ chiếc xe thương vụ Mercedes-Benz, Chu Hoa Phong cùng ba vệ sĩ vạm vỡ khác cũng đồng loạt sải bước áp sát bảo vệ.
+Triệu Kim An diện vest chỉnh tề, chân đi giày da bóng loáng bước xuống, theo sát sau là Đan Vĩ và Quan Văn Bách với ánh mắt đầy cảnh giác; từ chiếc xe thương mại Mercedes phía sau còn có thêm ba vệ sĩ nữa gồm Chu Phong Hoa bước xuống.
 
-Đích thân ông chủ quán bar đã túc trực chờ sẵn ngoài sảnh từ sớm, tươi cười khom lưng dẫn đường đưa Triệu Kim An tiến vào bên trong.
+Ông chủ quán bar đã đứng đợi sẵn ngoài cửa từ lâu, đích thân dẫn Triệu Kim An vào trong.
 
-Lưu Sấm Phong đã sớm thức thời nhường lại chỗ ngồi, chiếc ghế sofa bàn 888 lúc này chẳng ai dám bén mảng ngồi vào nữa, bởi cứ ngồi xuống là mất tiền triệu như chơi.
+Lưu Sấm Phong đã sớm nhường lại chỗ, bàn 888 chẳng còn ai dám ngồi vì sợ tốn tiền.
 
-"Trưởng phòng!"
+“Trưởng phòng!”
 
-Triệu Kim An ngồi xuống chính giữa chiếc ghế sofa danh giá, cất giọng sang sảng: "Cứ tự nhiên đi, hôm nay tôi bao toàn bộ, cậu muốn gọi gì cứ việc gọi thả ga."
+Triệu Kim An ngồi vào chính giữa, cất giọng hào sảng: “Đừng khách sáo, hôm nay tớ bao, cậu cứ gọi thoải mái đi.”
 
-"Mau gọi mấy em vào nhảy tiếp đi chứ!"
+“Gọi người ra nhảy đi chứ.”
 
-Phương Khiết trừng mắt nhìn trân trân vào Lưu Sấm Phong, khiến cậu ta hoảng hốt xua tay lia lịa: "Thôi thôi, xin kiếu, tao không dám đâu!"
+Phương Khiết trừng mắt nhìn chằm chằm Lưu Sấm Phong, khiến gã cuống quýt xua tay: “Thôi, thôi khỏi!”
 
-"Hahaha..."
+“Khà khà khà...”
 
-Một tràng cười như nắc nẻ của đám nam sinh vang lên giòn giã.
+Cả đám nam sinh cười rộ lên như ngỗng kêu.
 
-Triệu Kim An khẽ vẫy tay ra hiệu. Người quản lý vội vã bước lại gần cúi đầu lắng nghe. Chưa đầy vài phút sau, một hàng dài các cô đào trẻ trung xinh đẹp đã đứng tề chỉnh trước bàn 888, đồng thanh cúi rạp người chào: "Kính chào ông chủ, chúc ông chủ buổi tối vui vẻ!"
+Triệu Kim An vẫn vẫy tay ra hiệu, một quản lý vội cúi đầu tiến lại gần. Chẳng mấy chốc, một hàng dài các cô gái đứng xếp hàng ngay ngắn trước bàn 888, đồng loạt cúi gập người chào: “Chào buổi tối ông chủ!”
 
-"Mẹ kiếp đỉnh thật sự!!!"
+“Đỉnh thật sự!!!”
 
-Đám nam sinh trố mắt nhìn với vẻ ngập tràn thèm thuồng và ngưỡng mộ. Lần đầu tiên trong đời, họ được tận mắt chứng kiến sức mạnh ma mị của đồng tiền.
+Đám nam sinh nhìn mà thèm thuồng ra mặt, lần đầu tiên được tận mắt chứng kiến sức quyến rũ của đồng tiền.
 
-Lâm Thanh Tuyết, Phương Khiết, Quan Linh cùng toàn thể nữ sinh đưa mắt nhìn lướt qua những cô nàng ăn mặc thiếu vải kia, rồi tất cả ánh mắt đều đồng loạt đổ dồn về phía Triệu Kim An.
+Lâm Thanh Tuyết, Phương Khiết, Quan Linh cùng đám nữ sinh liếc nhìn dàn chân dài ăn mặc “mát mẻ” kia, rồi đồng loạt quay sang nhìn Triệu Kim An.
 
-Triệu Kim An đưa tay chỉ vào mấy bàn VIP xung quanh, ý bảo bao trọn toàn bộ dàn tiếp thị rượu này chia đều cho các bàn.
+Triệu Kim An chỉ tay sang mấy bàn bên cạnh, ra hiệu nhận hết toàn bộ.
 
-Người quản lý chẳng cần hỏi thêm nửa lời, Triệu tổng của Chân Nhiên mà lại thiếu tiền sao? Anh ta lập tức gọi thêm một nhóm đào rượu khác tới, Triệu Kim An hào phóng nhận hết, dặn chỉ cần ngồi rót rượu và trò chuyện góp vui là được.
+Quản lý chẳng hỏi thêm nửa lời, tầm cỡ Triệu tổng của Trăn Nhiên mà còn sợ thiếu tiền sao? Anh ta lại gọi thêm một tốp nữa ra, Triệu Kim An vẫn nhận hết như thường, chỉ để ngồi tiếp rượu cho có không khí.
 
-Đôi khi, để đám bạn học trẻ tuổi sớm mở mang tầm mắt với thế giới xô bồ này cũng là một điều tốt.
+Đôi khi cho đám bạn mở mang tầm mắt sớm một chút cũng tốt.
 
-"Lão Lưu, sau này mày có giàu nứt đố đổ vách thì cũng chẳng thể có được cái khí chất uy phong như Kim An đâu." Vương Học Ân ghé tai trêu chọc Lưu Sấm Phong.
+“Lão Lưu, dù cậu có tiền cũng chẳng có nổi cái khí chất này của Kim An đâu.”
 
-Lý Ngải Lan liếc xéo Quan Linh một cái. Quan Linh nhìn chăm chú vào bóng lưng Triệu Kim An rồi từ từ cúi thấp đầu xuống.
+Vương Học Ân ghé tai trêu chọc Lưu Sấm Phong.
 
-Chỉ có Vương Duy Đào thỉnh thoảng lại liếc nhìn màn hình điện thoại, đối với những cô nàng nóng bỏng ngồi bên cạnh chuốc rượu thì hoàn toàn xem như không khí.
+Lý Ngải Lan liếc nhìn Quan Linh, còn Quan Linh nhìn Triệu Kim An rồi khẽ cúi đầu xuống.
 
-Triệu Kim An không gọi ai ngồi cạnh chuốc rượu cho mình, cũng chẳng buồn bước ra giữa sàn nhảy uốn éo. Anh ngồi ngay ngắn trên chiếc ghế sofa da êm ái, điềm tĩnh dõi mắt ngắm nhìn đám bạn học đang thỏa sức "cuồng hoan".
+Chỉ có Vương Duy Đào thỉnh thoảng lại liếc nhìn điện thoại, hoàn toàn làm ngơ trước cô gái ngồi cạnh rót rượu cho mình.
 
-Đơn Vĩ mang vào hai cây thuốc lá Hòa Thiên Hạ loại hảo hạng, bóc ra rải đều lên các bàn tiệc.
+Triệu Kim An không gọi ai ngồi cạnh tiếp rượu, cũng chẳng ra giữa sàn nhún nhảy, anh chỉ ngồi ngay ngắn trên ghế sofa nhìn đám bạn học “quẩy hết mình”.
 
-"Sao không vào nhảy cùng mọi người?" Triệu Kim An quay sang hỏi cô bé Đường Hiểu Tình đang ngồi thu lu bên cạnh.
+Đan Vĩ còn mang vào hai cây thuốc lá Hòa Thiên Hạ, chia đều cho mấy bàn.
 
-Đường Hiểu Tình lắc đầu: "Em không biết nhảy."
+“Không ra chơi à?”
 
-"Thích nơi này không?"
+Triệu Kim An quay sang hỏi Đường Hiểu Tình ngồi bên cạnh, cô lắc đầu: “Tớ không biết chơi.”
 
-"Dạ không thích, ồn ào nhức đầu lắm ạ."
+“Có thích chỗ này không?”
 
-Đường Hiểu Tình chưa từng đặt chân tới chốn này, chỉ vì tò mò nên mới đi theo, lúc này chỉ biết ngồi ngoan ngoãn trên ghế đảo mắt nhìn quanh quất.
+“Không thích, ồn ào quá.”
 
-Triệu Kim An thầm nghĩ phen này mình tốn tiền uổng phí rồi. Chẳng có mấy cậu con trai dám giở trò táy máy tay chân với đám đào rượu, âu cũng vì có đám bạn nữ cùng lớp ngồi ngay bên cạnh, mấy gã đực rựa này không dám buông thả bản năng mà đành phải gồng mình giả vờ làm người đứng đắn.
+Đường Hiểu Tình chưa từng tới đây nên chỉ thấy tò mò, ngồi trên ghế nhìn ngó xung quanh.
 
-Thời gian: 0 giờ 30 phút rạng sáng.
+Triệu Kim An chỉ thấy số tiền bỏ ra hôm nay hơi phí phạm, chẳng có mấy thằng con trai dám sàm sỡ mấy cô gái kia; có lẽ vì có nữ sinh cùng lớp ngồi cạnh nên mấy tên này ngại ngùng giả vờ đứng đắn.
 
-Triệu Kim An cất tiếng chào một câu rồi đứng dậy chuẩn bị rời đi. Thấy anh đứng lên, đám bạn học cũng lục tục đòi về theo, dẫu vài người vẫn còn tiếc hùi hụi chưa muốn tàn cuộc nhưng cũng đành phải cất bước.
+0 giờ 30 phút.
 
-Vương Duy Đào cầm điện thoại rảo bước theo sát: "Kim An, đi nhanh lên một chút."
+Triệu Kim An lên tiếng ra hiệu chuẩn bị về. Thấy vậy cả đám bạn học cũng rục rịch đứng dậy theo, những người vẫn còn ham vui cũng đành ngậm ngùi ra về.
 
-"Mọi người không chơi tiếp sao?" Triệu Kim An quay đầu hỏi lại.
+Vương Duy Đào cầm điện thoại trên tay: “Kim An, đi nhanh lên chút.”
 
-"Bọn tao đến để mở rộng tầm mắt cho biết mùi đời thế là đủ rồi."
+“Các cậu không chơi nữa à?”
 
-Một đám đông lục tục kéo theo sau lưng anh. Triệu Kim An mỉm cười gật đầu, cất bước tiến ra khỏi cửa quán bar.
+Triệu Kim An quay đầu lại hỏi.
 
-"Kim An!"
+“Bọn tớ chỉ tới mở mang tầm mắt thôi mà.”
 
-Bất chợt, một giọng nói quen thuộc vang lên ngay trước sảnh lớn.
+Cả nhóm lục tục nối đuôi nhau đi sau, Triệu Kim An gật đầu rồi sải bước ra khỏi quán bar.
 
-Tô Miến đang ngồi lặng lẽ trên chiếc xe lăn ngay trước cửa quán bar, bên cạnh là Ngô Hiểu đứng cầm ô che chắn gió đêm.
+“Kim An!”
 
-Bước chân Triệu Kim An đột ngột khựng lại.
+Tô Miến đang đợi ngay trước cửa quán bar trên chiếc xe lăn, bên cạnh là Ngô Hiểu đứng im lặng.
 
-"Ai thế kia!?"
+Triệu Kim An khựng bước chân lại.
 
-Toàn bộ đám người đi sau như đạp phanh gấp dừng bước lại. Ngoại trừ Vương Duy Đào, chẳng ai ở đây nhận ra người phụ nữ ngồi trên xe lăn kia là ai.
+“Ai thế!?”
 
-"Kim An, anh chơi đã thỏa thích chưa?"
+Cả đám người phía sau đồng loạt phanh gấp. Ngoại trừ Vương Duy Đào, ở đây chẳng một ai quen biết Tô Miến.
 
-Tô Miến đặt hai bàn tay lên thành xe lăn, ngẩng khuôn mặt thanh tú lên nhìn thẳng vào Triệu Kim An.
+“Kim An, anh chơi đủ chưa?”
 
-"Chơi chán rồi thì... về nhà thôi anh."
+Tô Miến đặt hai tay lên thành xe lăn, ngẩng đầu nhìn Triệu Kim An.
+
+“Chơi đủ rồi thì về nhà thôi.”

@@ -1,7 +1,5 @@
 # Chương 118: Trách nhiệm nặng nề mà đường còn dài
 
-> **Tiêu đề gốc**: 第118章 任重而道远。
-
 Hôm ấy, khi Từ Mạn Mạn mang túi hạt dẻ về phòng ký túc xá, cô đã không đem ra chia cho mọi người cùng ăn.
 
 Bảo rằng đó là món hạt dẻ ngon nhất từng được ăn trong đời, ắt hẳn có phần nhờ vào hiệu ứng tâm lý và lăng kính cảm xúc riêng tư của cô gái.
@@ -72,25 +70,25 @@ Chu Sở Hân dứt khoát đưa tay ôm chặt lấy cánh tay Triệu Kim An, 
 
 Triệu Kim An chỉ khẽ mỉm cười, mắt nhìn thẳng về phía trước không thèm liếc nhìn cô nàng lấy nửa cái.
 
-Dưới sân, Đơn Vĩ đang cặm cụi xách xô nước rửa xe.
+Dưới sân, Đan Vĩ đang cặm cụi xách xô nước rửa xe.
 
-Bất kể là chiếc xe Audi sang trọng hay chiếc xe tải giao hàng bụi bặm, hễ qua tay Đơn Vĩ cầm lái là anh chàng đều lau chùi, cọ rửa sạch bong kin kít.
+Bất kể là chiếc xe Audi sang trọng hay chiếc xe tải giao hàng bụi bặm, hễ qua tay Đan Vĩ cầm lái là anh chàng đều lau chùi, cọ rửa sạch bong kin kít.
 
-Công ty đang thiếu trầm trọng những tài xế biết lái xe để giao hàng đến các đại lý, nên Đơn Vĩ lúc này kiêm luôn chân tài xế lái xe tải đi giao hàng khắp nơi.
+Công ty đang thiếu trầm trọng những tài xế biết lái xe để giao hàng đến các đại lý, nên Đan Vĩ lúc này kiêm luôn chân tài xế lái xe tải đi giao hàng khắp nơi.
 
-Nghe thấy giọng điệu nhõng nhẽo của Chu Sở Hân vọng xuống từ tầng hai, Đơn Vĩ ngẩng đầu lên nhìn rồi cũng bật cười lắc đầu.
+Nghe thấy giọng điệu nhõng nhẽo của Chu Sở Hân vọng xuống từ tầng hai, Đan Vĩ ngẩng đầu lên nhìn rồi cũng bật cười lắc đầu.
 
 Tính tình Chu Sở Hân vốn chất phác, không chút mưu mô toan tính, ăn nói có phần bộc trực, bốc đồng, nghĩ gì trong bụng là tuôn ra hết bằng lời.
 
 Cả Đường Hiểu Tình lẫn Thẩm Tử Ngôn mỗi lần gặp đều lễ phép gọi cô là "chị Hân".
 
-Đơn Vĩ vung mạnh chiếc khăn lau xe rũ nước, ngửa cổ lên cười trêu: "Này Chu Sở Hân, trên đời này làm quái gì có ai đi xin tăng lương theo cái kiểu mặt dày như cô cơ chứ?"
+Đan Vĩ vung mạnh chiếc khăn lau xe rũ nước, ngửa cổ lên cười trêu: "Này Chu Sở Hân, trên đời này làm quái gì có ai đi xin tăng lương theo cái kiểu mặt dày như cô cơ chứ?"
 
 "Anh thì biết cái gì mà xen vào! Đây là chuyện nội bộ giữa thư ký với ông chủ, anh lo rửa xe của anh đi!"
 
 "Hừ, đúng là bái phục cô luôn."
 
-Đơn Vĩ cười khì một tiếng, cúi đầu tiếp tục công việc lau rửa xe.
+Đan Vĩ cười khì một tiếng, cúi đầu tiếp tục công việc lau rửa xe.
 
 "Kim An à?"
 
@@ -166,11 +164,11 @@ Việc làm ăn của gia đình cậu ta tương đối khấm khá, nghe đâu
 
 Từ đồ dùng gia dụng, đồ nội thất lắp ghép, bàn ghế ngoài trời, cho đến các sản phẩm dệt may gia đình như rèm cửa, chăn ga gối đệm... họ đều có nhúng tay vào.
 
-Anh từng nghe loáng thoáng người ta kể mẹ của Trần Trạch – bà Dương Thục Mỹ – là một nữ cường nhân vô cùng tháo vát và sắc sảo trên thương trường.
+Anh từng nghe loáng thoáng người ta kể mẹ của Trần Trạch – bà Dương Thù Mỹ – là một nữ cường nhân vô cùng tháo vát và sắc sảo trên thương trường.
 
 Về sau này, sau khi tốt nghiệp đại học, Trần Trạch cũng đứng ra kế thừa một phần sản nghiệp của gia đình, chuyên tâm phụ trách mảng hàng dệt may và thời trang may mặc xuất khẩu.
 
-Chẳng rõ sau này bà Dương Thục Mỹ có còn tiếp tục duy trì mảng sản xuất linh kiện điện tử nữa hay không.
+Chẳng rõ sau này bà Dương Thù Mỹ có còn tiếp tục duy trì mảng sản xuất linh kiện điện tử nữa hay không.
 
 Cụ thể quy mô làm ăn của Trần Trạch thực chất lớn đến mức nào, Triệu Kim An cũng không nắm quá rõ.
 
@@ -196,7 +194,7 @@ Lạc Cẩn Chi thực chất chỉ là thích gọi điện thoại tán gẫu 
 
 Cúp máy xong, Triệu Kim An vươn vai một cái thật dài, trong lòng dâng lên cảm giác trách nhiệm nặng nề mà con đường phía trước còn muôn vàn gian nan.
 
-Xét về quy mô và lợi nhuận ròng hiện tại của Trăn Nhiên... có lẽ vẫn chưa thể sánh bằng cơ ngơi của bà Dương Thục Mỹ đâu nhỉ?
+Xét về quy mô và lợi nhuận ròng hiện tại của Trăn Nhiên... có lẽ vẫn chưa thể sánh bằng cơ ngơi của bà Dương Thù Mỹ đâu nhỉ?
 
 Triệu Bác Lan vừa cúp một cuộc điện thoại khác, quay sang bảo: "Kim An, ông chủ Lưu lại vừa gọi điện tới than khóc thảm thiết, bảo nếu công ty mình không chịu chuyển tiền thanh toán nốt thì cái xưởng nhỏ của ông ấy sắp phải đóng cửa phá sản đến nơi rồi."
 
@@ -236,6 +234,6 @@ Doanh nghiệp hiện tại đang vận hành theo mô hình "lăn cầu tuyết
 
 Làm ngành hàng tiêu dùng nhanh này, có một câu châm ngôn kinh điển luôn đúng: trong giai đoạn mở rộng và thâu tóm thị trường, đừng vội bàn đến chuyện lợi nhuận, nâng cao tối đa thị phần mới là chìa khóa sống còn quyết định kẻ thắng người thua.
 
-Triệu Kim An cũng chỉ chợt nghĩ bâng quơ, tự thấy việc làm ăn hiện tại của mình có thể chưa bằng quy mô của bà Dương Thục Mỹ. Nhưng mô hình gia công xuất khẩu OEM như của bà ấy rất khó có thể bứt phá lên quy mô khổng lồ, không phải vì không thể mở rộng, mà bởi bản chất của ngành gia công đơn thuần luôn có trần phát triển giới hạn.
+Triệu Kim An cũng chỉ chợt nghĩ bâng quơ, tự thấy việc làm ăn hiện tại của mình có thể chưa bằng quy mô của bà Dương Thù Mỹ. Nhưng mô hình gia công xuất khẩu OEM như của bà ấy rất khó có thể bứt phá lên quy mô khổng lồ, không phải vì không thể mở rộng, mà bởi bản chất của ngành gia công đơn thuần luôn có trần phát triển giới hạn.
 
 Tiềm năng tăng trưởng của nó vốn dĩ đã bị đóng khung ngay từ điểm xuất phát rồi.

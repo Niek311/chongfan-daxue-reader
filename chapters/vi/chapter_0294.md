@@ -1,7 +1,5 @@
 # Chương 294: Mòn mỏi ngóng trông
 
-> **Tiêu đề gốc**: 第294章 翘首以盼。
-
 Mười phút sau, chiếc xe Audi rẽ vào hầm giữ xe của khu chung cư.
 
 Đoạn Thu Bình lóng ngóng không biết mở cửa xe kiểu gì, bà đẩy mấy cái không được nên chẳng dám đẩy mạnh, cuối cùng phải đợi Triệu Bác Lan vòng sang kéo cửa ra giúp.
@@ -48,9 +46,9 @@ Họ không rõ Đoạn Thu Bình sẽ ở lại đây bao lâu, còn Đoạn Th
 
 "Kính coong."
 
-Đúng lúc này tiếng chuông cửa lại vang lên lần nữa, người bước vào là Hứa Mạn Mạn.
+Đúng lúc này tiếng chuông cửa lại vang lên lần nữa, người bước vào là Từ Mạn Mạn.
 
-"Cháu chào bác ạ, cháu là Hứa Mạn Mạn."
+"Cháu chào bác ạ, cháu là Từ Mạn Mạn."
 
 "Chào... chào cháu."
 
@@ -58,15 +56,15 @@ Họ không rõ Đoạn Thu Bình sẽ ở lại đây bao lâu, còn Đoạn Th
 
 Đó là phản xạ đầu tiên nảy ra trong đầu Đoạn Thu Bình.
 
-Hứa Mạn Mạn xách mấy chiếc túi bách hóa bước vào, đưa mắt nhìn Đoạn Thu Bình rồi lại nhìn sang bé Tống Gia Nguyệt. Cô lấy hai hộp đồ ăn chế biến sẵn đặt lên bàn ăn: "Tiểu Nguyệt ngoan, cái này chị mang đến cho em ăn này."
+Từ Mạn Mạn xách mấy chiếc túi bách hóa bước vào, đưa mắt nhìn Đoạn Thu Bình rồi lại nhìn sang bé Tống Gia Nguyệt. Cô lấy hai hộp đồ ăn chế biến sẵn đặt lên bàn ăn: "Tiểu Nguyệt ngoan, cái này chị mang đến cho em ăn này."
 
 Bên trong túi còn có hoa quả tươi nhập khẩu và các loại đồ dùng vệ sinh cá nhân cao cấp.
 
-"Hứa tổng, cô đã ăn cơm tối chưa?" Lưu Mỹ Nga ân cần hỏi.
+"Từ tổng, cô đã ăn cơm tối chưa?" Lưu Mỹ Nga ân cần hỏi.
 
 "Bác ơi, cháu ăn ở công ty rồi ạ."
 
-Đây là lần đầu tiên Hứa Mạn Mạn đặt chân đến nhà riêng của Triệu Kim An. Cô tò mò đưa mắt ngắm nhìn khắp nơi, thậm chí còn nhẹ nhàng đẩy cửa phòng ngủ chính hé nhìn vào bên trong một lát. Đoạn Thu Bình cứ thế chăm chú dõi theo từng cử chỉ của Hứa Mạn Mạn.
+Đây là lần đầu tiên Từ Mạn Mạn đặt chân đến nhà riêng của Triệu Kim An. Cô tò mò đưa mắt ngắm nhìn khắp nơi, thậm chí còn nhẹ nhàng đẩy cửa phòng ngủ chính hé nhìn vào bên trong một lát. Đoạn Thu Bình cứ thế chăm chú dõi theo từng cử chỉ của Từ Mạn Mạn.
 
 Cô gái này trước đây chưa từng đến đây sao?
 
@@ -76,7 +74,7 @@ Ngôi nhà này xa hoa và lạ lẫm quá đỗi.
 
 "Căn nhà trống trải thật đấy."
 
-Hứa Mạn Mạn cũng không quá đỗi ngạc nhiên, phong cách này rất đúng với con người Triệu Kim An, đúng với hình ảnh một Triệu Kim An trầm mặc trong tâm trí cô.
+Từ Mạn Mạn cũng không quá đỗi ngạc nhiên, phong cách này rất đúng với con người Triệu Kim An, đúng với hình ảnh một Triệu Kim An trầm mặc trong tâm trí cô.
 
 "Chị Mạn Mạn, chị chu đáo quá, em đang định lát nữa chạy xuống siêu thị mua đồ vệ sinh cá nhân đây."
 
@@ -84,11 +82,11 @@ Hứa Mạn Mạn cũng không quá đỗi ngạc nhiên, phong cách này rất
 
 "Sẵn đồ ở siêu thị nhà mình nên chị mang qua luôn cho tiện."
 
-Hứa Mạn Mạn bước lại gần bàn ăn, nhìn Tống Gia Nguyệt rồi dịu dàng nói: "Không sao đâu em, em cứ ăn tự nhiên đi nhé, ở đây còn nhiều lắm."
+Từ Mạn Mạn bước lại gần bàn ăn, nhìn Tống Gia Nguyệt rồi dịu dàng nói: "Không sao đâu em, em cứ ăn tự nhiên đi nhé, ở đây còn nhiều lắm."
 
 "Đúng đấy, đúng đấy, cháu muốn ăn gì cũng có cả." Lưu Mỹ Nga phụ họa theo.
 
-Hứa Mạn Mạn nở nụ cười hòa nhã với Tống Gia Nguyệt, rồi quay sang Đoạn Thu Bình: "Bác gái ơi, ban ngày rảnh rỗi bác cứ dẫn bé Tiểu Nguyệt sang siêu thị Trăn Hối Tuyển chơi nhé ạ."
+Từ Mạn Mạn nở nụ cười hòa nhã với Tống Gia Nguyệt, rồi quay sang Đoạn Thu Bình: "Bác gái ơi, ban ngày rảnh rỗi bác cứ dẫn bé Tiểu Nguyệt sang siêu thị Trăn Hối Tuyển chơi nhé ạ."
 
 "Được... cảm ơn cháu."
 
@@ -96,9 +94,9 @@ Hứa Mạn Mạn nở nụ cười hòa nhã với Tống Gia Nguyệt, rồi q
 
 "Vâng, cháu về cẩn thận nhé."
 
-Hứa Mạn Mạn đoan trang, nhã nhặn lại vô cùng mực thước, trong nét lịch thiệp vẫn giữ một khoảng cách chừng mực nhất định. Đoạn Thu Bình ngồi ngẩn ngơ một hồi, tự hỏi cô gái này rốt cuộc có mối quan hệ sâu nông thế nào với Kim An?
+Từ Mạn Mạn đoan trang, nhã nhặn lại vô cùng mực thước, trong nét lịch thiệp vẫn giữ một khoảng cách chừng mực nhất định. Đoạn Thu Bình ngồi ngẩn ngơ một hồi, tự hỏi cô gái này rốt cuộc có mối quan hệ sâu nông thế nào với Kim An?
 
-Hứa Mạn Mạn chỉ đảo qua một vòng rồi xin phép rời đi trước.
+Từ Mạn Mạn chỉ đảo qua một vòng rồi xin phép rời đi trước.
 
 Đợi sau khi hai mẹ con Đoạn Thu Bình dùng bữa xong, Lưu Mỹ Nga liền dọn dẹp bàn ăn mang vào bếp rửa bát đĩa. Đoạn Thu Bình vốn quen lao động lam lũ nên cực kỳ không quen với cảm giác được người khác hầu hạ, phục vụ thế này.
 
@@ -144,7 +142,7 @@ Con bé sợ nhỡ đâu anh trai đột ngột trở về lại không thích s
 
 Triệu Kim An chưa về, Đoạn Thu Bình đành dẫn Tống Gia Nguyệt ở tạm lại căn hộ. Tống Gia Nguyệt chỉ ngồi ngoan ngoãn xem tivi, tuyệt đối không dám chạm tay hay sờ soạng vào bất cứ đồ vật nào trong nhà. Lưu Mỹ Nga thấy đứa bé ở nhà anh trai ruột mà lại khép nép, cẩn trọng từng li từng tí như vậy thì trong lòng không khỏi lấy làm lạ lùng.
 
-Hứa Mạn Mạn mấy ngày sau vẫn không thấy bóng dáng hai mẹ con Đoạn Thu Bình ghé qua Trăn Hối Tuyển.
+Từ Mạn Mạn mấy ngày sau vẫn không thấy bóng dáng hai mẹ con Đoạn Thu Bình ghé qua Trăn Hối Tuyển.
 
 Lần này tin tức của Thẩm Tử Ngôn có phần chậm trễ, cô hoàn toàn không hay biết chuyện mẹ ruột của Triệu Kim An đã lên Quận Sa.
 

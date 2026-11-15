@@ -1,7 +1,5 @@
 # Chương 202: Kẻ tám lạng, người nửa cân
 
-> **Tiêu đề gốc**: 第202章 不相上下。
-
 Từ Mạn Mạn không chỉ cần kiếm tiền, mà cô còn cần một vị trí thực sự trong công ty, chức vụ càng cao càng tốt. Thật ra tiền bạc chỉ là chuyện thứ yếu, bởi hơn ai hết, Từ Mạn Mạn quá hiểu tính nết của cha mình.
 
 Lòng cô vừa nóng lòng như lửa đốt, lại vừa có đôi chút âu lo, phấp phỏng.
@@ -42,7 +40,7 @@ Triệu Kim An đang ngồi thảnh thơi dưới mái hiên gặm dưa chuột,
 
 "Mau vào phòng ôn bài đi, sắp thi đại học đến nơi rồi đấy."
 
-Mỗi lần nhìn thấy Đơn Na Tề, Triệu Kim An lại bất giác nhớ tới Trần Thanh Trĩ, cô gái nhỏ ở quê nhà cũng sắp bước vào kỳ thi đại học bước ngoặt của cuộc đời.
+Mỗi lần nhìn thấy Đan Na Tề, Triệu Kim An lại bất giác nhớ tới Trần Thanh Trĩ, cô gái nhỏ ở quê nhà cũng sắp bước vào kỳ thi đại học bước ngoặt của cuộc đời.
 
 "Triệu Kim An!"
 
@@ -50,7 +48,7 @@ Mỗi lần nhìn thấy Đơn Na Tề, Triệu Kim An lại bất giác nhớ t
 
 Triệu Kim An ngẩng đầu lên. Cậu khá thích ngắm nhìn Từ Mạn Mạn trong chiếc quần jeans giản dị, tôn lên vóc dáng thanh mảnh.
 
-Đơn Na Tề liếc nhìn Từ Mạn Mạn một cái, rồi ngoan ngoãn chạy vào bếp lấy một quả dưa chuột, tuy chưa gọt vỏ nhưng đã rửa sạch sẽ dưới vòi nước, đưa tận tay Từ Mạn Mạn rồi mới quay vào phòng tập trung ôn bài.
+Đan Na Tề liếc nhìn Từ Mạn Mạn một cái, rồi ngoan ngoãn chạy vào bếp lấy một quả dưa chuột, tuy chưa gọt vỏ nhưng đã rửa sạch sẽ dưới vòi nước, đưa tận tay Từ Mạn Mạn rồi mới quay vào phòng tập trung ôn bài.
 
 Từ Mạn Mạn nói lời cảm ơn, rồi nhìn Triệu Kim An đang ngồi bệt dưới nền đất, ngập ngừng một lát rồi cũng bắt chước ngồi bệt xuống bên cạnh cậu.
 
@@ -234,7 +232,7 @@ Thế vận hội Olympic sẽ chính thức khai mạc vào ngày 8 tháng 8, m
 
 "Kim An, tình hình cũng hệt như lần trước chúng ta đến thôi."
 
-Triệu Bác Lan và Đơn Vĩ cùng đi theo chuyến này. Ban ngày, họ đã đích thân chạy thêm một chuyến nữa đến trụ sở Ban tổ chức Olympic.
+Triệu Bác Lan và Đan Vĩ cùng đi theo chuyến này. Ban ngày, họ đã đích thân chạy thêm một chuyến nữa đến trụ sở Ban tổ chức Olympic.
 
 Lạc Cẩn Chi gọi điện thoại tới. Trước đó Triệu Kim An đã bảo cô cứ yên tâm ở lại vùng Đông Bắc đẩy nhanh tiến độ xây dựng nhà máy nước, còn việc giành quyền tài trợ cứ để cậu đích thân tìm cách lo liệu.
 
@@ -266,4 +264,4 @@ Triệu Bác Lan há hốc mồm, ngạc nhiên hỏi: "Kim An, em dâu... Tô M
 
 "Vâng."
 
-Triệu Kim An khẽ gật đầu, rồi quay sang dặn Đơn Vĩ: "Lát nữa anh không cần phải đi theo bọn tôi nữa đâu..."
+Triệu Kim An khẽ gật đầu, rồi quay sang dặn Đan Vĩ: "Lát nữa anh không cần phải đi theo bọn tôi nữa đâu..."

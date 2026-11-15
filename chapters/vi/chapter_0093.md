@@ -1,7 +1,5 @@
 # Chương 93: Đi rồi cũng tốt, đi rồi cũng tốt
 
-> **Tiêu đề gốc**: 第93章 走了好，走了好。
-
 Chiếc xe bảo mẫu sang trọng từ từ lăn bánh rồi khuất dần nơi cuối con đường.
 
 Triệu Kim An rút ra một điếu thuốc châm lửa. Bây giờ một bao thuốc anh có thể kéo dài hút suốt ba ngày.
@@ -12,27 +10,27 @@ Triệu Kim An tự thấy kiếp này mình chẳng thể làm nổi một kẻ
 
 "Reng... reng... reng..."
 
-Chuông điện thoại trong túi bỗng reo vang, màn hình hiển thị tên Đoàn Thu Bình.
+Chuông điện thoại trong túi bỗng reo vang, màn hình hiển thị tên Đoạn Thu Bình.
 
-Đoàn Thu Bình làm dâu ở thôn họ Triệu ngần ấy năm trời, trong làng chắc chắn sẽ có người đem mọi chuyện kể lại cho bà, từ việc Triệu Kim An lái chiếc xe Audi bóng lộn về quê, cho đến chuyện tày đình là con trai dắt bạn gái về nhà đón Tết.
+Đoạn Thu Bình làm dâu ở thôn họ Triệu ngần ấy năm trời, trong làng chắc chắn sẽ có người đem mọi chuyện kể lại cho bà, từ việc Triệu Kim An lái chiếc xe Audi bóng lộn về quê, cho đến chuyện tày đình là con trai dắt bạn gái về nhà đón Tết.
 
 "Kim An à, sao con không dẫn con bé qua đây cho mẹ gặp mặt xem sao?"
 
-Trong lòng Đoàn Thu Bình có lẽ đang chất chứa không ít tủi thân và phiền muộn. Con trai dẫn bạn gái về ra mắt gia đình ăn Tết mà chẳng buồn hé răng nói với mẹ ruột lấy nửa lời, mãi đến khi người trong làng gọi điện sang bà mới hay biết.
+Trong lòng Đoạn Thu Bình có lẽ đang chất chứa không ít tủi thân và phiền muộn. Con trai dẫn bạn gái về ra mắt gia đình ăn Tết mà chẳng buồn hé răng nói với mẹ ruột lấy nửa lời, mãi đến khi người trong làng gọi điện sang bà mới hay biết.
 
-Càng nghĩ, Đoàn Thu Bình lại càng cảm thấy bản thân làm mẹ sao mà thất bại ê chề đến thế.
+Càng nghĩ, Đoạn Thu Bình lại càng cảm thấy bản thân làm mẹ sao mà thất bại ê chề đến thế.
 
 Triệu Kim An không muốn giải thích rườm rà, chỉ nhàn nhạt đáp: "Cô ấy đi rồi ạ."
 
 "Thế... nghe, nghe người ta đồn con bé có chút tàn tật phải không con?"
 
-Đoàn Thu Bình đã cố gắng dùng cách diễn đạt uyển chuyển và giữ kẽ nhất, chuyện không đi lại được chỉ gói gọn trong mấy chữ "có chút tàn tật".
+Đoạn Thu Bình đã cố gắng dùng cách diễn đạt uyển chuyển và giữ kẽ nhất, chuyện không đi lại được chỉ gói gọn trong mấy chữ "có chút tàn tật".
 
 Đứng ở vị thế của một người mẹ, Triệu Kim An hoàn toàn thấu hiểu được nỗi lòng của bà. Anh rít một hơi thuốc thật sâu, từ từ phả ra một làn khói trắng mờ ảo, khẽ "vâng" một tiếng.
 
 "Kim An ơi là Kim An, sao con lại... sao con lại đi tìm một người như thế chứ?"
 
-Giọng nói của Đoàn Thu Bình trong ống nghe trở nên gấp gáp, cuống cuồng: "Dẫu cho con bé có xinh đẹp tuyệt trần, dẫu cho nhà nó có giàu nứt đố đổ vách đi chăng nữa, thì con... con phải chăm sóc phục vụ nó cả một đời đấy, cả một đời người lận! Con năm nay mới bao nhiêu tuổi đầu? Rốt cuộc con có hiểu được cái gánh nặng ấy nó lớn đến nhường nào không hả con?!"
+Giọng nói của Đoạn Thu Bình trong ống nghe trở nên gấp gáp, cuống cuồng: "Dẫu cho con bé có xinh đẹp tuyệt trần, dẫu cho nhà nó có giàu nứt đố đổ vách đi chăng nữa, thì con... con phải chăm sóc phục vụ nó cả một đời đấy, cả một đời người lận! Con năm nay mới bao nhiêu tuổi đầu? Rốt cuộc con có hiểu được cái gánh nặng ấy nó lớn đến nhường nào không hả con?!"
 
 "Mẹ đừng nói nữa, cô ấy đi rồi."
 
@@ -40,17 +38,17 @@ Tâm trạng Triệu Kim An vẫn phẳng lặng như mặt hồ không một g�
 
 "Đi rồi cũng tốt, đi rồi cũng tốt... À phải rồi, thế bà nội con..."
 
-Đoàn Thu Bình còn toan dông dài thêm vài câu nữa.
+Đoạn Thu Bình còn toan dông dài thêm vài câu nữa.
 
 Triệu Kim An đã dứt khoát bấm nút cúp máy.
 
-Vừa hay tin này, nếu không phải vì đã cận kề Tết Nguyên đán thì Đoàn Thu Bình đã muốn bế ngay bé Tống Gia Nguyệt chạy thốc sang thôn Triệu Gia rồi. Cả Tống Uyển Hòa cũng nóng lòng muốn đi cùng, cô ả vô cùng tò mò muốn tận mắt xem thử cậu "em trai hờ" này rốt cuộc kiếm được cô bạn gái ra làm sao.
+Vừa hay tin này, nếu không phải vì đã cận kề Tết Nguyên đán thì Đoạn Thu Bình đã muốn bế ngay bé Tống Gia Nguyệt chạy thốc sang thôn Triệu Gia rồi. Cả Tống Uyển Hòa cũng nóng lòng muốn đi cùng, cô ả vô cùng tò mò muốn tận mắt xem thử cậu "em trai hờ" này rốt cuộc kiếm được cô bạn gái ra làm sao.
 
 Tối hôm qua, Tống Uyển Hòa còn tỏ vẻ tiếc nuối thở dài: "Tiếc thật đấy, thằng Kim An đỗ vào trường đại học danh giá như thế."
 
 Tống Siêu Văn tiếp lời: "Thằng bé lại có tướng mạo khôi ngô tuấn tú nữa chứ."
 
-Đến sáng hôm nay, khi nghe ngóng được tin Tô Miến ngồi trước sân phát tiền mừng tuổi rào rào cho đám con cháu trong họ, Tống Uyển Hòa liền quay sang cười toe toét với Đoàn Thu Bình: "Dì à, nếu đàng gái mà giàu có đến mức ấy... thì kể ra cũng chẳng tệ chút nào đâu."
+Đến sáng hôm nay, khi nghe ngóng được tin Tô Miến ngồi trước sân phát tiền mừng tuổi rào rào cho đám con cháu trong họ, Tống Uyển Hòa liền quay sang cười toe toét với Đoạn Thu Bình: "Dì à, nếu đàng gái mà giàu có đến mức ấy... thì kể ra cũng chẳng tệ chút nào đâu."
 
 Thực ra cũng chẳng thể trách người ta thực dụng hay hám của, âu cũng chỉ là phản xạ tâm lý rất đỗi bình thường của con người mà thôi.
 
@@ -162,13 +160,13 @@ Lại còn yêu cầu đàng trai phải có sẵn nhà lầu, xe hơi, rồi s�
 
 Khoản tiền sính lễ cưới vợ cho cháu trai đã lo liệu xong xuôi, tảng đá đè nặng trong lòng bà nội bấy lâu nay rốt cuộc cũng được trút bỏ, điều bà canh cánh lo âu nhất cả đời này chính là đứa cháu trai côi cút này.
 
-Đoàn Thu Bình gọi điện thoại sang cho bà nội để dò la tin tức. Bà biết thừa tính nết con trai mình, bây giờ Triệu Kim An nghe lời bà nội nhất, nếu như bà cụ không gật đầu đồng ý thì Triệu Kim An tuyệt đối sẽ không bao giờ cưới Tô Miến về làm vợ.
+Đoạn Thu Bình gọi điện thoại sang cho bà nội để dò la tin tức. Bà biết thừa tính nết con trai mình, bây giờ Triệu Kim An nghe lời bà nội nhất, nếu như bà cụ không gật đầu đồng ý thì Triệu Kim An tuyệt đối sẽ không bao giờ cưới Tô Miến về làm vợ.
 
 Bà nội chỉ đáp lại đúng một câu nhẹ tênh: "Con cháu tự có phúc phận của con cháu."
 
-Thực ra trước khi tái giá, Triệu Kim An cũng là một đứa con hết mực ngoan ngoãn nghe lời mẹ, điều này chính Đoàn Thu Bình là người hiểu rõ hơn ai hết.
+Thực ra trước khi tái giá, Triệu Kim An cũng là một đứa con hết mực ngoan ngoãn nghe lời mẹ, điều này chính Đoạn Thu Bình là người hiểu rõ hơn ai hết.
 
-Vì chuyện này, đây là lần đầu tiên Đoàn Thu Bình to tiếng tranh cãi vài câu với bà nội qua điện thoại. Bà nội thấu hiểu cho tâm lý của người làm mẹ nên không hề giận dỗi, thế nhưng Đoàn Thu Bình thì lại bực bội không nguôi.
+Vì chuyện này, đây là lần đầu tiên Đoạn Thu Bình to tiếng tranh cãi vài câu với bà nội qua điện thoại. Bà nội thấu hiểu cho tâm lý của người làm mẹ nên không hề giận dỗi, thế nhưng Đoạn Thu Bình thì lại bực bội không nguôi.
 
 Đứa con trai do chính tay mình mang nặng đẻ đau, nuôi nấng suốt bao nhiêu năm trời, vậy mà giờ đây đến cả chuyện chung thân đại sự của nó bà cũng chẳng còn quyền can thiệp hay "quản" nổi nữa rồi.
 
@@ -176,8 +174,8 @@ Bà nội chỉ đành nhẹ nhàng khuyên giải: "Chị lo lắng chuyện n�
 
 "Sớm ư?!"
 
-Thực lòng mà nói cũng không thể hoàn toàn trách Đoàn Thu Bình được. Tô Miến đường đột về thôn Triệu Gia vào đúng dịp Tết, trong làng đồn đại ầm ĩ khắp nơi, bà con họ hàng ai nấy đều đã cất tiếng gọi "thím nhỏ" ngọt xớt, nhìn vào chẳng khác nào hai đứa đã "đính ước" trăm năm xong xuôi cả rồi.
+Thực lòng mà nói cũng không thể hoàn toàn trách Đoạn Thu Bình được. Tô Miến đường đột về thôn Triệu Gia vào đúng dịp Tết, trong làng đồn đại ầm ĩ khắp nơi, bà con họ hàng ai nấy đều đã cất tiếng gọi "thím nhỏ" ngọt xớt, nhìn vào chẳng khác nào hai đứa đã "đính ước" trăm năm xong xuôi cả rồi.
 
-Đoàn Thu Bình liên tục nhận được mấy cuộc điện thoại của người quen, bản thân bà cũng phải gọi về làng để gặng hỏi sự tình.
+Đoạn Thu Bình liên tục nhận được mấy cuộc điện thoại của người quen, bản thân bà cũng phải gọi về làng để gặng hỏi sự tình.
 
 Nếu như bọn họ mà biết được thân thế và gia thế thực sự của Tô Miến hiển hách đến nhường nào thì chắc chắn sẽ không đời nào suy nghĩ nông cạn như thế nữa. Vấn đề ở đây không phải là nhà họ Triệu có ưng thuận hay không, mà là bản thân Tô Miến có chịu gả cho Triệu Kim An hay không, và liệu những bậc bề trên trong gia tộc họ Tô có đời nào chấp thuận cho một thiên kim tiểu thư như nàng gả về một chốn thôn quê nghèo hèn như nhà họ Triệu...

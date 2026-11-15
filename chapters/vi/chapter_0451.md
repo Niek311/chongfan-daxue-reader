@@ -1,7 +1,5 @@
 # Chương 451: May mắn
 
-> **Tiêu đề gốc**: 第451章 幸运的。
-
 Gáo nước lạnh dội xuống phiến đá nóng, một luồng hơi nước đặc quánh lại bốc lên hầm hập.
 
 Nhiệt độ trong phòng xông hơi Sauna càng lúc càng cao.
@@ -66,29 +64,29 @@ Hai người đang dở câu chuyện thì cánh cửa phòng xông hơi bị đ
 
 "Mẹ kiếp, Kim An, mày chỉnh nhiệt độ kiểu gì mà nóng thế này? Định nấu chín người ta luôn đấy à?"
 
-Lưu Sấm Phong sấn sổ bước vào, dáng vẻ bộc trực như mọi khi. Phía sau, Quan Linh và Phương Khiết khoác tay nhau cùng bước tới, mấy cậu nam sinh thì lăng xăng vây quanh Quan Linh. Dương Thục Mỹ khẽ khàng ngồi xuống bên cạnh Vương Phương Dụ, hai người ghé tai thì thào vài câu.
+Lưu Sấm Phong sấn sổ bước vào, dáng vẻ bộc trực như mọi khi. Phía sau, Quan Linh và Phương Khiết khoác tay nhau cùng bước tới, mấy cậu nam sinh thì lăng xăng vây quanh Quan Linh. Dương Thù Mỹ khẽ khàng ngồi xuống bên cạnh Vương Phương Dụ, hai người ghé tai thì thào vài câu.
 
 Phương Khiết cười trêu với Quan Linh: "Phương Dụ à, quan hệ mẹ chồng nàng dâu nhà cậu tốt thật đấy."
 
-Triệu Kim An hướng ánh mắt về phía Dương Thục Mỹ, đổi cách xưng hô: "Dương tổng."
+Triệu Kim An hướng ánh mắt về phía Dương Thù Mỹ, đổi cách xưng hô: "Dương tổng."
 
-Lòng Dương Thục Mỹ thắt lại một nhịp. Đến rồi đấy!
+Lòng Dương Thù Mỹ thắt lại một nhịp. Đến rồi đấy!
 
 "Triệu tổng."
 
 Nói đoạn, bà đứng dậy đổi chỗ, bước sang phía bên kia của Vương Phương Dụ, ngồi sát ngay cạnh Triệu Kim An.
 
-Vương Phương Dụ nhìn theo động tác đổi chỗ của Dương Thục Mỹ, trong lòng dấy lên một cảm giác là lạ.
+Vương Phương Dụ nhìn theo động tác đổi chỗ của Dương Thù Mỹ, trong lòng dấy lên một cảm giác là lạ.
 
 Bác gái sao lại nghe lời anh ấy thế nhỉ? Vừa gọi một tiếng đã...
 
-Dương Thục Mỹ lúc này chỉ thầm cầu nguyện giữa chốn thanh thiên bạch nhật, bao nhiêu con mắt đang đổ dồn vào, Triệu Kim An sẽ không có hành động nào quá mức "thân mật". Bà vội vàng khơi chuyện để đánh lạc hướng mọi người: "Phương Khiết này, hôm nào dự án bất động sản mở bán, cháu với xưởng trưởng Lưu cứ đến xem nhé."
+Dương Thù Mỹ lúc này chỉ thầm cầu nguyện giữa chốn thanh thiên bạch nhật, bao nhiêu con mắt đang đổ dồn vào, Triệu Kim An sẽ không có hành động nào quá mức "thân mật". Bà vội vàng khơi chuyện để đánh lạc hướng mọi người: "Phương Khiết này, hôm nào dự án bất động sản mở bán, cháu với xưởng trưởng Lưu cứ đến xem nhé."
 
 "Cứ tìm Phương Dụ và Trần Trạch, hai đứa thích căn nào, tầng nào thì cứ chọn trước."
 
 "Dạ, cháu cảm ơn bác."
 
-Phương Khiết không nhận lời mà cũng chẳng từ chối. Mấy cậu nam sinh cùng đi với Lưu Sấm Phong thì mắt như tóe lửa, chỉ hận không thể kéo phắt Triệu Kim An ra để chen vào ngồi cạnh. Mẫu phụ nữ mặn mà, đằm thắm và chín muồi như Dương Thục Mỹ thậm chí còn có sức hút chết người hơn cả Quan Linh.
+Phương Khiết không nhận lời mà cũng chẳng từ chối. Mấy cậu nam sinh cùng đi với Lưu Sấm Phong thì mắt như tóe lửa, chỉ hận không thể kéo phắt Triệu Kim An ra để chen vào ngồi cạnh. Mẫu phụ nữ mặn mà, đằm thắm và chín muồi như Dương Thù Mỹ thậm chí còn có sức hút chết người hơn cả Quan Linh.
 
 Đã thế, trên người bà còn mang theo hai vầng hào quang rực rỡ: nữ tổng tài thành đạt và mẹ của bạn học.
 
@@ -136,9 +134,9 @@ Hành lang khách sạn lúc đêm muộn.
 
 Vương Phương Dụ cầm một hộp sữa tươi nguyên chất đưa cho Triệu Kim An, một lần nữa bày tỏ sự áy náy: "Triệu tổng, gửi anh này. Uống sữa ấm trước khi ngủ sẽ giúp anh dễ ngủ hơn đấy."
 
-Dương Thục Mỹ cắm thẻ mở cửa phòng mình, trong lòng vẫn thắc thỏm không yên, tự hỏi liệu nửa đêm Triệu Kim An có nhắn tin sang hay không.
+Dương Thù Mỹ cắm thẻ mở cửa phòng mình, trong lòng vẫn thắc thỏm không yên, tự hỏi liệu nửa đêm Triệu Kim An có nhắn tin sang hay không.
 
-Phương Khiết đã trút bỏ bộ đồ bơi. Hôm nay cô là người mặc kín đáo nhất hội, kín đáo hơn cả Dương Thục Mỹ. Đứng trước gương trong phòng tắm, nhìn ngắm thân hình của chính mình phản chiếu trên mặt kính, Phương Khiết bỗng thấy hơi hối hận vì ban nãy đã ăn mặc bảo thủ đến thế.
+Phương Khiết đã trút bỏ bộ đồ bơi. Hôm nay cô là người mặc kín đáo nhất hội, kín đáo hơn cả Dương Thù Mỹ. Đứng trước gương trong phòng tắm, nhìn ngắm thân hình của chính mình phản chiếu trên mặt kính, Phương Khiết bỗng thấy hơi hối hận vì ban nãy đã ăn mặc bảo thủ đến thế.
 
 Cô đưa tay chỉnh lại gọng kính cận màu đen. Mọi đường cong ẩn hiện dưới làn nước, vóc dáng của Phương Khiết thực ra đẫy đà và đậm đà nét đàn bà hơn Vương Phương Dụ rất nhiều, mang lại một sự tương phản ngầm đầy mê hoặc.
 
@@ -158,7 +156,7 @@ Quan Linh bước dấn lên vài bước, cất giọng thì thào run rẩy. C
 
 Triệu Kim An chỉ lạnh lùng buông một câu: "Về đi."
 
-Thực tế, cả Vương Phương Dụ lẫn Dương Thục Mỹ lúc này đều đang áp tai vào khe cửa phòng mình để nghe ngóng. Đối với hành động táo bạo của Quan Linh, họ chẳng hề thấy bất ngờ. Giả sử Quan Linh có thuận lợi bước chân vào phòng anh, họ cũng coi đó là chuyện hiển nhiên.
+Thực tế, cả Vương Phương Dụ lẫn Dương Thù Mỹ lúc này đều đang áp tai vào khe cửa phòng mình để nghe ngóng. Đối với hành động táo bạo của Quan Linh, họ chẳng hề thấy bất ngờ. Giả sử Quan Linh có thuận lợi bước chân vào phòng anh, họ cũng coi đó là chuyện hiển nhiên.
 
 Chỉ riêng Du Phi, với nhan sắc và vóc dáng đều thuộc hạng trung bình, là không một ai mảy may nghi ngờ hay để mắt tới.
 
@@ -166,7 +164,7 @@ Ngoài hành lang, tiếng bước chân xa dần rồi hoàn toàn im bặt.
 
 ...
 
-Sáng sớm hôm sau, Quan Linh cùng mấy cậu bạn cùng lớp đã bắt xe quay về Thâm Quyến để kịp giờ chấm công ở công ty. Dương Thục Mỹ trằn trọc cả đêm ngủ không ngon giấc, đến khi thức dậy thì hai chiếc xe hơi của Triệu Kim An cũng đã rời đi từ lúc nào.
+Sáng sớm hôm sau, Quan Linh cùng mấy cậu bạn cùng lớp đã bắt xe quay về Thâm Quyến để kịp giờ chấm công ở công ty. Dương Thù Mỹ trằn trọc cả đêm ngủ không ngon giấc, đến khi thức dậy thì hai chiếc xe hơi của Triệu Kim An cũng đã rời đi từ lúc nào.
 
 Vương Phương Dụ kéo cửa ghế lái, đưa mắt nhìn quanh quất, trong lòng bỗng dấy lên sự tò mò vô hạn đối với Từ Mạn Mạn và Lâm Thanh Tuyết ở tận Quận Sa xa xôi.
 

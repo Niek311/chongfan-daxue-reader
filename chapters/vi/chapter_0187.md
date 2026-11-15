@@ -1,7 +1,5 @@
 # Chương 187: Tưởng đã hiểu mà như chưa hiểu
 
-> **Tiêu đề gốc**: 第187章 明白了又好像没明白。
-
 Triệu Kim An lại biết rõ, mọi chuyện đâu có đơn giản như vậy.
 
 Cậu từng tiếp xúc với Dương Thù Mỹ hai lần, thừa hiểu bà hài lòng và ưng ý Từ Mạn Mạn đến mức nào.

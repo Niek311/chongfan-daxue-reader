@@ -1,7 +1,5 @@
 # Chương 234: Phản ứng dây chuyền
 
-> **Tiêu đề gốc**: 第234章 后续反应。
-
 Thật không ai ngờ tới, trong trường đột nhiên râm ran lan truyền tin tức Đường Hiểu Tình nhận mức lương làm thêm lên tới ba ngàn tệ một tháng!
 
 Tin sốt dẻo này chỉ trong chớp mắt đã lan truyền với tốc độ chóng mặt khắp toàn bộ lớp Kế toán 1!

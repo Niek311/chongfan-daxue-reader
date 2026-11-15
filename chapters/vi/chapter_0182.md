@@ -1,7 +1,5 @@
 # Chương 182: Hiệu ứng cánh bướm
 
-> **Tiêu đề gốc**: 第182章 蝴蝶效应。
-
 "Lưu Sấm Phong xem ra còn đáng thương hơn, vé tàu về quê của Lâm Thanh Tuyết là do cậu ấy mua, kết quả cô ta lại nán lại trường... để ở bên Trần Trạch."
 
 Thẩm Tử Ngôn không thèm hỏi Lâm Thanh Tuyết quay lại trường vào ngày nào nữa, bởi chuyện đó đã chẳng còn cần thiết.

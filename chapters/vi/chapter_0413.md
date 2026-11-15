@@ -1,7 +1,5 @@
 # Chương 413: Quá đáng lắm rồi!
 
-> **Tiêu đề gốc**: 第413章 太过分了！
-
 Thế trận của Thẩm Tử Ngôn lúc này chỉ có một chữ: Đợi, chờ bằng được mới thôi.
 
 Diêu Sân ngồi bên cạnh hai tay chắp trước ngực, thầm khấn trời khấn Phật cầu mong Từ Mạn Mạn ngàn vạn lần đừng xuất hiện.
@@ -70,7 +68,7 @@ Ngồi ở phía sau lúc này, biết đâu chừng lại chính là vị "côn
 
 Vì sao lại không dùng từ "thái tử"?
 
-Bởi vì ở tít tận thủ đô kinh kỳ còn có một tiểu thư Tô Miến danh gia vọng tộc nữa. Đám tài xế kiêm vệ sĩ năm người của Quan Văn Bách và Đơn Vĩ từng lén lút mở một kèo cá cược nho nhỏ sau lưng ông chủ:
+Bởi vì ở tít tận thủ đô kinh kỳ còn có một tiểu thư Tô Miến danh gia vọng tộc nữa. Đám tài xế kiêm vệ sĩ năm người của Quan Văn Bách và Đan Vĩ từng lén lút mở một kèo cá cược nho nhỏ sau lưng ông chủ:
 
 Nếu Tô Miến sinh con gái, mà Từ Mạn Mạn lại hạ sinh một mụn con trai, thì đứa bé ấy... có được coi là "thái tử" hay không?
 

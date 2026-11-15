@@ -1,7 +1,5 @@
 # Chương 220: Bị cắm sừng mà vẫn làm lành được?
 
-> **Tiêu đề gốc**: 第220章 戴了绿帽还能和好？
-
 Điều khiến tất cả mọi người không khỏi ngỡ ngàng là Lưu Sấm Phong và Trần Trạch lại có thể làm lành với nhau!
 
 Hai người họ kẹp sách giáo trình dưới nách, vừa đi vừa cười nói rôm rả bước vào giảng đường, lẵng đẵng theo sau là Cốc Siêu Thừa với gương mặt hậm hực, uất ức đến nghẹn ngào.

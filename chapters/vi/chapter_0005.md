@@ -1,7 +1,5 @@
 # Chương 5: Bán cá chứ làm gì.
 
-> **Tiêu đề gốc**: 第5章 卖鱼啊。
-
 "Mộc Dao, Triệu Kim An không lên tìm cậu à?"
 
 Mộc Dao khoác trên mình chiếc váy liền thân màu xanh lam nhạt thanh nhã, vóc dáng cao ráo một mét sáu mươi sáu, đường nét cơ thể thướt tha mềm mại như đóa hoa trà vừa hé nở trong sớm mai đầu xuân.

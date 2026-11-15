@@ -1,7 +1,5 @@
 # Chương 509: Cuối cùng cậu cũng tới?
 
-> **Tiêu đề gốc**: 第509章 你终于来了？
-
 Phía trước tiền sảnh của Hoàn Vũ Trăn Phẩm bày la liệt hàng trăm đôi lẵng hoa chúc mừng đỏ rực, toàn bộ đều được quy chuẩn đồng bộ do chính công ty đứng ra đặt mua trang trí.
 
 Hôm nay là ngày khai trương thứ hai.
@@ -10,9 +8,9 @@ Lâm Thanh Tuyết đã tới.
 
 Trần Trạch và Vương Phương Dụ cũng tới.
 
-Mộc Dao cùng mẹ Trương Huệ cũng tới, thế nhưng dòng người đổ về đây chen chúc xem náo nhiệt vẫn đông nghịt như ngày đầu tiên. Ngày hôm qua là Liễu Ôn Ninh chủ trì nghi thức cắt băng khánh thành. Hôm đó Trần Trạch đã một mình len lén tới xem, nhưng chẳng hề thấy bóng dáng Từ Mạn Mạn đâu.
+Mộc Dao cùng mẹ Trương Tuệ cũng tới, thế nhưng dòng người đổ về đây chen chúc xem náo nhiệt vẫn đông nghịt như ngày đầu tiên. Ngày hôm qua là Liễu Ôn Ninh chủ trì nghi thức cắt băng khánh thành. Hôm đó Trần Trạch đã một mình len lén tới xem, nhưng chẳng hề thấy bóng dáng Từ Mạn Mạn đâu.
 
-Vợ chồng Từ Tắc Đống và Lương Huệ Trân cùng cả đoàn họ hàng nhà họ Từ chen lấn đứng tít phía trước, cũng mỏi mắt ngóng tìm nhưng chẳng thấy bóng dáng Từ Mạn Mạn ở đâu cả.
+Vợ chồng Từ Tắc Đống và Lương Tuệ Trân cùng cả đoàn họ hàng nhà họ Từ chen lấn đứng tít phía trước, cũng mỏi mắt ngóng tìm nhưng chẳng thấy bóng dáng Từ Mạn Mạn ở đâu cả.
 
 Bọn họ ai nấy đều đinh ninh rằng Từ Mạn Mạn sẽ là người xuất hiện rạng rỡ để cắt băng khánh thành trong ngày đại lễ trọng đại này.
 
@@ -52,11 +50,11 @@ Tầng năm của trung tâm thương mại là nơi quy tụ những thương h
 
 Tầng một là dãy quầy mỹ phẩm cao cấp. Hai nhãn hàng Giản Mộ và Vân Thoa của Mộc Dao không có quầy chuyên doanh ở đây, mà chỉ được đưa vào hai siêu thị Trăn Hối Tuyển mới mở.
 
-Một ngày trước khi khai trương, Trương Huệ từng ngây thơ hỏi con gái: "Dao Dao à, trung tâm thương mại của Kim An hoành tráng thế này, mình không có lấy một chút cơ hội nào chen chân vào đặt quầy sao con?"
+Một ngày trước khi khai trương, Trương Tuệ từng ngây thơ hỏi con gái: "Dao Dao à, trung tâm thương mại của Kim An hoành tráng thế này, mình không có lấy một chút cơ hội nào chen chân vào đặt quầy sao con?"
 
 "Trung tâm thương mại của Kim An cơ đấy!"
 
-Còn bây giờ, Trương Huệ tuyệt đối không bao giờ thốt ra câu nói ấy nữa. Đến những thương hiệu đỉnh cao như Louis Vuitton hay Chanel đặt ở Hoàn Vũ Trăn Phẩm này còn chưa được xếp vào hàng xa xỉ phẩm đắt đỏ nhất. Người đàn bà cả đời quanh quẩn ở thị trấn Tư Tinh như Trương Huệ hôm nay thực sự đã được mở rộng tầm mắt.
+Còn bây giờ, Trương Tuệ tuyệt đối không bao giờ thốt ra câu nói ấy nữa. Đến những thương hiệu đỉnh cao như Louis Vuitton hay Chanel đặt ở Hoàn Vũ Trăn Phẩm này còn chưa được xếp vào hàng xa xỉ phẩm đắt đỏ nhất. Người đàn bà cả đời quanh quẩn ở thị trấn Tư Tinh như Trương Tuệ hôm nay thực sự đã được mở rộng tầm mắt.
 
 Bà bấm điện thoại gọi về cho ông Mộc Nhân Cường, cười cay đắng bảo: Lương bổng cả đời của hai vợ chồng mình vào đây khéo chẳng dám mở miệng hỏi giá món nào đâu ông nó ạ.
 
@@ -94,7 +92,7 @@ Thẩm Tử Ngôn cất giọng ngắt lời: "Cậu đã gặp Từ Mạn Mạn
 
 "Cô ấy có nói Kim An đang ở đâu không?"
 
-"Không nói. Lần này... ngay cả chị Du Phỉ cũng nhất quyết không chịu hé răng nửa lời với tớ."
+"Không nói. Lần này... ngay cả chị Du Phi cũng nhất quyết không chịu hé răng nửa lời với tớ."
 
 Đúng lúc này, hệ thống loa phát thanh của trung tâm thương mại bỗng vang lên giai điệu da diết của ca khúc "Sorry, Xin Lỗi". Chất giọng khàn khàn, trầm ấm và u buồn đặc trưng của Triệu Kim An chầm chậm cất lên:
 

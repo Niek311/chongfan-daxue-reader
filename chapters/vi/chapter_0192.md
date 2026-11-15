@@ -1,7 +1,5 @@
 # Chương 192: Chiều gió đã đổi hướng.
 
-> **Tiêu đề gốc**: 第192章 风向变了。
-
 "Không làm lỡ dở tiến độ của tôi là tốt rồi. Cái chân giám đốc kinh doanh cấp tỉnh này của tôi cũng nơm nớp lo thành tích bết bát lại bị Thẩm giám đốc giáng chức đày ngược về Chu Châu thì đúng là chẳng còn mặt mũi nào nhìn ai nữa."
 
 "Trên con đường công danh chức nghiệp chỉ có thăng tiến chứ mấy ai chịu lùi bước."
@@ -142,7 +140,7 @@ Không phải là người ta bắt đầu có cái nhìn thiện cảm hơn v�
 
 Cánh con gái thi nhau dùng lời lẽ gay gắt lên án, chỉ trích Trần Trạch thậm tệ, ngay cả cánh con trai trong lớp cũng cảm thấy coi thường cái lối hành xử thiếu bản lĩnh của cậu ta.
 
-Bọn họ đều đinh ninh rằng đó là sự lựa chọn ích kỷ của cá nhân Trần Trạch, hoàn toàn không hề hay biết đến sự tồn tại cùng bàn tay can thiệp lạnh lùng phía sau của Dương Thục Mỹ.
+Bọn họ đều đinh ninh rằng đó là sự lựa chọn ích kỷ của cá nhân Trần Trạch, hoàn toàn không hề hay biết đến sự tồn tại cùng bàn tay can thiệp lạnh lùng phía sau của Dương Thù Mỹ.
 
 "Trần Trạch xưa nay đâu phải loại người hèn hạ như thế chứ!"
 

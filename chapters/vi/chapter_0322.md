@@ -1,7 +1,5 @@
 # Chương 322: Bất chấp tất cả!
 
-> **Tiêu đề gốc**: 第322章 豁出去了。
-
 Quận Sa.
 
 Các sinh viên lớp Kế toán 1 đột nhiên phát hiện cả Triệu Kim An lẫn cô giáo Dư Tĩnh đều cùng lúc vắng mặt. Ngoại trừ Đường Hiểu Tình ra, ngay cả Vương Duy Đào cũng chẳng hề hay biết chuyện Triệu Kim An đã cùng cô Dư Tĩnh bay ra nước ngoài.
@@ -192,12 +190,12 @@ Lâm Thanh Tuyết tháo dây an toàn, đẩy cửa bước xuống xe, quay l�
 
 Ở một diễn biến khác.
 
-Dương Thục Mỹ tự mình lái xe tìm đến tận văn phòng công ty Trăn Nhiên, nhưng Triệu Bác Lan lại thông báo rằng Triệu Kim An đã đi công tác vắng nhà.
+Dương Thù Mỹ tự mình lái xe tìm đến tận văn phòng công ty Trăn Nhiên, nhưng Triệu Bác Lan lại thông báo rằng Triệu Kim An đã đi công tác vắng nhà.
 
 Còn việc bao giờ anh trở về thì không ai dám khẳng định chắc chắn.
 
-Dương Thục Mỹ bước xuống cầu thang trên đôi giày cao gót với tâm trạng thất thần, hồn xiêu phách lạc. Hôm nay bà diện một chiếc áo khoác dạ sang trọng, bên trong là chiếc váy ren hoa có vài mảng xuyên thấu tinh tế, lấp ló đường cong cơ thể đẫy đà, quyến rũ chết người.
+Dương Thù Mỹ bước xuống cầu thang trên đôi giày cao gót với tâm trạng thất thần, hồn xiêu phách lạc. Hôm nay bà diện một chiếc áo khoác dạ sang trọng, bên trong là chiếc váy ren hoa có vài mảng xuyên thấu tinh tế, lấp ló đường cong cơ thể đẫy đà, quyến rũ chết người.
 
-Chỉ cần Triệu Kim An có mặt ở văn phòng ngày hôm nay, Dương Thục Mỹ đã hạ quyết tâm sẽ chơi tất tay, bất chấp tất cả.
+Chỉ cần Triệu Kim An có mặt ở văn phòng ngày hôm nay, Dương Thù Mỹ đã hạ quyết tâm sẽ chơi tất tay, bất chấp tất cả.
 
 Cái gì mà bạn cùng phòng đại học của con trai, bà chẳng thèm màng tới nữa rồi!

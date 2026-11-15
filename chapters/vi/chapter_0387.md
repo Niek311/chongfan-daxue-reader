@@ -1,235 +1,229 @@
-# Chương 387: Tài khoản cạn sạch tiền
+# Chương 387: Tài khoản hết tiền rồi.
 
-> **Tiêu đề gốc**: 第387章 账上没钱了。
+Con người ta càng thiếu thốn thứ gì thì lại càng khát khao có được thứ đó, càng thích khoe khoang về thứ đó.
 
-Con người ta thường càng thiếu thốn thứ gì thì lại càng khát khao có được thứ đó, và cũng càng thích đem thứ đó ra khoe khoang.
+Đan Vĩ không biết rằng, cuộc trò chuyện giữa Tô Miến và Vương Kim Như kia mới thực sự mang dáng dấp của một gia đình.
 
-Đan Vĩ đâu thể hiểu được rằng, những lời trò chuyện rôm rả giữa Tô Miến và thím Vương Kim Như mới chính là phong vị của một gia đình thực thụ.
+Bà nội chẳng bắt Triệu Kim An phải quản, Vương Kim Như cũng chẳng thèm hỏi ý kiến anh. Trong quan niệm của bà và thím út, chuyện đối nhân xử thế, lo toan lễ nghĩa là việc của đàn bà, còn đàn ông chỉ việc ra ngoài kiếm tiền.
 
-Bà nội chẳng buồn gọi Triệu Kim An, thím Vương Kim Như cũng chẳng buồn hỏi ý kiến anh. Trong quan niệm thâm căn cố đế của bà và thím, chuyện đối nhân xử thế, lễ nghĩa họ hàng làng xóm là phận sự của đàn bà con gái; đàn ông con trai chỉ việc lo kiếm tiền ở ngoài xã hội.
+Đàn bà phải biết thu vén êm ấm cho một mái nhà.
 
-Phụ nữ quán xuyến yên ấm một mái nhà.
+Triệu Quốc Khánh mất rồi, Đoạn Thu Bình cũng đã tái giá, vậy thì Vương Kim Như đương nhiên bàn bạc với Tô Miến.
 
-Bố Triệu Quốc Khánh đã khuất núi, mẹ Đoàn Thu Bình đã tái giá, thế nên thím Vương Kim Như tự khắc tìm Tô Miến để bàn bạc chuyện đại sự trong họ.
+Hoàn toàn hợp tình hợp lý.
 
-Thật là thuận tình hợp lý.
+Còn việc Vương Kim Như mắng Tô Miến, kỳ thực chính là đang dạy cho cô tiểu thư thành phố này cách đối nhân xử thế ở chốn thôn quê.
 
-Còn như việc thím Vương Kim Như răn dạy mắng mỏ Tô Miến, ấy là đang chỉ dạy cho cô tiểu thư thành thị này hiểu rõ cái đạo lý đối nhân xử thế ở chốn thôn quê.
+"Thím út, thím đừng nghiêm khắc thế chứ!"
 
-"Thím ơi, thím đừng có nghiêm khắc với cô ấy quá!"
+Triệu Kim An cất giọng nói lớn.
 
-Triệu Kim An rướn cổ nói với vào điện thoại một câu.
+Ở đầu dây bên kia, Vương Kim Như nghe thấy liền cao giọng đáp trả: "Nghiêm khắc chỗ nào chứ? Tô Miến nó bảo rượu bia để nó gọi người chở tới, nghe nói phải bày mâm cỗ nó cũng đòi bao trọn gói luôn!"
 
-Đầu dây bên kia, thím Vương Kim Như nghe thấy liền the thé cất giọng: "Nghiêm khắc cái nỗi gì? Tô Miến nó bảo rượu bia nước ngọt để nó cho người chở về, nghe nói cần mâm bát đĩa thì nó cũng đòi bao trọn gói luôn!"
+"À đúng rồi, còn cả thuốc lá nữa!"
 
-"À, lại còn cả thuốc lá thơm nữa chứ!"
+"Thím mới nói nó có vài câu mà cháu đã xót ruột rồi à?!"
 
-"Tao mới nói nó có đôi ba câu mà mày đã xót ruột rồi đấy à!?"
+Cuối cùng, Vương Kim Như còn chốt thêm một câu: "Cái nhà này thiếu thím liệu có xoay xở nổi không hả!!"
 
-Cuối cùng, thím Vương Kim Như còn bồi thêm một câu đầy uy lực: "Cái nhà này không có tao quán xuyến thì có ra ngô ra khoai gì không hả!?"
+Triệu Kim An câm nín không dám nói thêm lời nào, cãi sao lại được Vương Kim Như.
 
-Triệu Kim An đành nín thinh, bởi anh thừa biết mình chẳng bao giờ cãi thắng nổi bà thím đanh đá này.
+Nghe vậy, Tô Miến lại thấy trong lòng vui sướng khôn tả.
 
-Tô Miến nghe thế thì trong lòng nở hoa, vui sướng khôn xiết.
+Triệu Kim An xốc Tô Miến lên lưng cao hơn chút nữa, thầm nghĩ: *Thím út ơi, sau này có người cho thím mắng rồi đấy. Nói thật chứ trong đám tụi cháu chẳng có đứa nào thoát khỏi miệng thím đâu, họa chăng chỉ có mỗi Đường Hiểu Tình.*
 
-Triệu Kim An xốc Tô Miến lên lưng thêm một nấc, thầm nghĩ sau này thím tha hồ có người để mắng mỏ. Nói cho cùng, trong số mấy cô gái bên cạnh anh, chẳng ai là thoát khỏi tầm ngắm cằn nhằn của thím, họa chăng chỉ có mỗi Đường Hiểu Tình.
+*Chắc thím trong lòng thì cười thầm thích chí, nhưng ngoài miệng lại chê em ấy thiếu chính kiến thôi.*
 
-Gặp người như Hiểu Tình thì thím trong bụng mừng thầm, nhưng ngoài miệng thể nào cũng chê cô bé nhu mì, chẳng có chút chính kiến nào.
+Từ Trường Thành trở về, tâm trạng Tô Miến tốt hơn hẳn. Cả đoàn ra khỏi nhà từ sáng sớm, tối mịt mới về tới nơi. Tô Mặc kể với Triệu Kim An rằng cả nhà vẫn muốn đẩy xe đưa Tô Miến ra ngoài dạo chơi, chỉ là tự cô không muốn bước chân ra khỏi cửa.
 
-Trở về sau chuyến leo Trường Thành, tâm trạng của Tô Miến tốt lên trông thấy. Cả đoàn xuất phát từ sáng sớm tinh mơ, mãi đến tối mịt mới về tới nhà. Tô Mặc thì thầm kể với Triệu Kim An rằng trước đây mọi người cứ hễ rủ đẩy xe đưa Tô Miến ra ngoài dạo chơi là cô dứt khoát không chịu đi, toàn tự nhốt mình trong phòng.
+Lạc Cẩn Chi hỏi Triệu Kim An có tới Trung tâm Media không.
 
-Lạc Cẩn Chi gọi điện hỏi Triệu Kim An có đến Trung tâm Truyền thông Media tham gia đấu thầu hay không.
+Triệu Kim An không đi.
 
-Triệu Kim An lắc đầu từ chối.
+Chẳng phải lần đầu tiên đi đấu thầu ngôi vị Tiêu Vương CCTV nữa rồi.
 
-Dù sao đây cũng đâu phải lần đầu tiên Trăn Hối Tuyển tham chiến giành danh hiệu Vua quảng cáo đài truyền hình Trung ương.
+Giờ đây Trăn Nhiên tiền bạc rủng rỉnh, Lạc Cẩn Chi đặt quyết tâm giành bằng được ngôi vị Tiêu Vương CCTV năm 2010.
 
-Hiện tại Trăn Hối Tuyển tiền của dồi dào, thế lực hùng hậu, Lạc Cẩn Chi nắm chắc phần thắng cho ngôi vị Vua quảng cáo CCTV năm 2010 trong tay.
+Đây vốn dĩ là cuộc chơi đọ xem ai nhiều tiền hơn và dám vung tiền mạnh tay hơn.
 
-Đây thuần túy là một cuộc chơi so bì xem ai lắm tiền hơn và ai dám vung tay bạo chi hơn mà thôi.
+Tô Minh Tùng chỉ hỏi đúng một câu: Trăn Nhiên định giữ ngôi vị Tiêu Vương CCTV hai năm liên tiếp à?
 
-Tô Minh Tùng chỉ hỏi đúng một câu: Trăn Hối Tuyển định thâu tóm danh hiệu Vua quảng cáo CCTV hai năm liên tiếp thật sao?
+Triệu Kim An đáp, vâng.
 
-Triệu Kim An đáp: Vâng ạ.
+Tô Minh Tùng nghe vậy liền không hỏi thêm nữa.
 
-Tô Minh Tùng liền không gặng hỏi thêm điều gì nữa.
+Ông chỉ dặn Triệu Kim An hễ rảnh rỗi thì dành nhiều thời gian ở bên Tô Miến. Vợ chồng Tô Minh Tùng và Quách Uyển Thanh rất cưng chiều cô con gái út, mà Triệu Kim An từ khi có Hoàn Vũ Cảng Vụ thì những chuyến công tác cũng dài ngày hơn trước.
 
-Ông chỉ dặn Triệu Kim An hễ rảnh rỗi thì ráng dành nhiều thời gian ở bên chăm sóc Tô Miến. Vợ chồng Tô Minh Tùng và Quách Uyển Thanh thương xót cô con gái út vô cùng, mà Triệu Kim An từ ngày gánh thêm mảng Hoàn Vũ Cảng Vụ thì mỗi lần đi công tác lại kéo dài đằng đẵng.
+Cả nhà đều thấy rõ chỉ cần Triệu Kim An về nhà họ Tô là Tô Miến vui vẻ hẳn lên từng ngày.
 
-Ai nấy đều nhìn thấy rõ mồn một, hễ Triệu Kim An đến nhà họ Tô là Tô Miến ngày nào cũng rạng rỡ tươi cười như hoa mùa xuân.
+Duy chỉ có một điều, hai đứa này hơi thiếu ý tứ một chút.
 
-Duy chỉ có một điều khiến người lớn có phần ngượng ngùng: hai đứa trẻ này dường như hơi thiếu kiềm chế, chẳng biết e ấp là gì.
+Ngoài sân ngày nào cũng phơi ga trải giường.
 
-Ngoài sân, ngày nào cũng thấy phơi ga trải giường trắng phau phau.
+Quách Uyển Thanh nhìn thấy mà đỏ cả mặt; làm gì thì làm, có nhất thiết phải ngày nào cũng thay ga giường thế không?
 
-Bà Quách Uyển Thanh mỗi lần đi ngang qua nhìn thấy đều đỏ bừng cả mặt. Thanh niên làm chuyện ấy thì cứ làm, nhưng có cần thiết ngày nào cũng phải thay ga giường như thế không chứ?
+Triệu Kim An chỉ muốn thốt lên một câu: Không thay không được đâu mẹ ơi!
 
-Triệu Kim An nếu nghe thấy chắc chỉ biết kêu oan trong bụng: Oan uổng quá, không thay sao mà nằm được cơ chứ!
+Trung tâm Media.
 
-...
+Lần này Thẩm Tử Ngôn không ra Kinh Đô, Lạc Cẩn Chi, Du Phi và Triệu Bác Lan đều thừa hiểu lý do vì sao cô không tới. Các doanh nghiệp đến đấu thầu Tiêu Vương CCTV năm 2010 thấy người của Trăn Nhiên lại xuất hiện.
 
-Tại Trung tâm Truyền thông Media ở Kinh Đô.
+Ai nấy đều lập tức cảm thấy tình hình không ổn.
 
-Lần này Thẩm Tử Ngôn không ra Bắc. Lạc Cẩn Chi, Du Phi và Triệu Bác Lan thừa hiểu lý do vì sao cô không xuất hiện. Các doanh nghiệp tham gia đấu giá danh xưng Vua quảng cáo CCTV 2010 vừa thấy người của Trăn Hối Tuyển bước vào hội trường liền thầm than không ổn trong lòng.
+Rất nhiều đại diện doanh nghiệp tiến lại hỏi Lạc Cẩn Chi: "Lạc tổng, Triệu tổng nhà các vị không tới à?"
 
-Rất nhiều đại diện doanh nghiệp tiến lại gần thăm dò Lạc Cẩn Chi: "Lạc tổng, Triệu tổng của quý công ty hôm nay không đích thân tới dự sao?"
+Đám Lưu Sấm Phong hay Vương Duy Đào có thể không để tâm tới việc Hoàn Vũ Cảng Vụ thâu tóm được núi Kình Bối bên Úc, nhưng những người có mặt tại Trung tâm Media hôm nay đều vô cùng kinh ngạc trước những bước đi của Hoàn Vũ Cảng Vụ suốt một năm qua.
 
-Lưu Sấm Phong hay Vương Duy Đào có thể không bận tâm đến việc Hoàn Vũ Cảng Vụ đã thâu tóm thành công mỏ quặng Whaleback ở tận nước Úc xa xôi, nhưng những nhân vật sừng sỏ tề tựu tại Trung tâm Media này thì đều phải kinh ngạc tột độ trước chuỗi động thái chấn động của Hoàn Vũ Cảng Vụ trong suốt một năm qua.
+Là Trung Nhôm đấy!
 
-Tập đoàn Nhôm Trung Quốc (Chinalco) đấy!
+Hoàn Vũ Cảng Vụ vậy mà lại hợp tác góp vốn cùng Trung Nhôm để khai thác núi Kình Bối!!
 
-Hoàn Vũ Cảng Vụ thế mà lại dám liên doanh góp vốn ngang hàng với Chinalco để cùng nhau khai thác đại mỏ quặng Whaleback!!
+Họ càng biết rõ phong thái của Hoàn Vũ Cảng Vụ tại Úc, vừa mở miệng ra giá đã là 5 tỷ USD.
 
-Họ càng rành rẽ khí phách ngút trời của Hoàn Vũ Cảng Vụ trên đất Úc: là kẻ đầu tiên ra giá, mà mở miệng một cái là hét thẳng năm tỷ đô la Mỹ!
+Triệu Kim An nhớ kiếp trước Tiêu Vương CCTV năm 2010 là Mengniu. Bởi năm 2008 ngành sữa từng xảy ra đại án rúng động, nên sang năm 2009 có rất nhiều hãng sữa đổ xô đi đấu thầu Tiêu Vương CCTV.
 
-Triệu Kim An nhớ rất rõ ở kiếp trước, Vua quảng cáo CCTV năm 2010 thuộc về tập đoàn sữa Mengniu. Bởi lẽ sau sự cố chấn động ngành sữa bột vào năm 2008, đến năm 2009 có rất nhiều hãng sữa đổ xô tham gia đấu thầu quảng cáo truyền hình.
+Động thái này được giới bên ngoài nhìn nhận là nỗ lực của ngành sữa nhằm tái định vị hình ảnh thương hiệu và vực dậy niềm tin thị trường.
 
-Động thái này được giới chuyên môn nhận định là nỗ lực tái thiết hình ảnh thương hiệu và củng cố lại niềm tin của người tiêu dùng trên thị trường.
+Nói một cách trần trụi hơn, tất cả đều muốn xâu xé lại miếng bánh thị phần.
 
-Nói toạc móng heo ra thì ai nấy đều thèm muốn xâu xé miếng bánh thị phần béo bở đang bị bỏ trống.
+Sau khi bàn bạc với Triệu Kim An, Lạc Cẩn Chi nâng mức giá bỏ thầu từ 360 triệu tệ lên 401 triệu tệ.
 
-Sau khi bàn bạc kỹ lưỡng với Triệu Kim An, Lạc Cẩn Chi đã nâng mức giá bỏ thầu từ 360 triệu tệ lên thẳng 401 triệu tệ.
+Các năm trước giá trúng thầu đều quanh quẩn mức trên 300 triệu, nhích thêm 1 triệu là để phòng trường hợp có đối thủ điền chẵn 400 triệu.
 
-Mọi năm mức giá trúng thầu đều dao động trên 300 triệu tệ, mức phụ trội thêm một triệu tệ là để phòng hờ trường hợp có đối thủ nào đó mạo hiểm điền con số tròn trĩnh 400 triệu tệ.
+Cuối cùng Triệu Kim An vẫn chưa yên tâm, bảo Lạc Cẩn Chi nâng thẳng lên 411 triệu tệ. Anh chỉ định giành ngôi vị Tiêu Vương CCTV nốt năm nay thôi, sau đó chiến lược quảng bá sẽ dần chuyển hướng sang mạng internet.
 
-Đến phút chót, Triệu Kim An vẫn cảm thấy chưa an tâm, liền chỉ thị cho Lạc Cẩn Chi nâng tiếp lên con số 411 triệu tệ. Anh dự tính đây sẽ là kỳ Vua quảng cáo truyền hình cuối cùng mà Trăn Hối Tuyển tham gia, bởi sau cột mốc này, chiến lược truyền thông và quảng bá thương hiệu sẽ dần dịch chuyển trọng tâm sang không gian mạng Internet.
+Kết quả mở thầu, Trăn Nhiên chính thức giành được ngôi vị Tiêu Vương CCTV năm 2010.
 
-Giây phút mở hòm phiếu niêm phong, Trăn Hối Tuyển chính thức xưng vương, đoạt lấy danh hiệu Vua quảng cáo CCTV năm 2010.
+Không rõ đối thủ về nhì bỏ giá bao nhiêu, chỉ biết đây là lần đầu tiên trong lịch sử mức giá đấu thầu Tiêu Vương CCTV vượt ngưỡng 400 triệu tệ.
 
-Chẳng ai rõ kẻ về nhì đã ra mức giá bao nhiêu, nhưng đây là lần đầu tiên trong lịch sử, số tiền đấu thầu Vua quảng cáo truyền hình Trung ương vượt qua ngưỡng 400 triệu nhân dân tệ.
+Ở tận nước Úc xa xôi, La Kiến Thành gọi điện về chúc mừng Triệu Kim An, miệng xuýt xoa "cậu đúng là lắm tiền thật đấy", rồi lại hỏi anh rằng hai năm liên tiếp bỏ ra hơn 400 triệu tệ để làm Tiêu Vương CCTV như vậy liệu có đáng không?
 
-Từ nước Úc xa xôi, La Kiến Thành lập tức gọi điện chúc mừng Triệu Kim An. Miệng không ngớt cảm thán bảo cậu đúng là đại gia lắm tiền nhiều của, rồi lại tò mò hỏi liệu việc bỏ ra hơn 400 triệu tệ suốt hai năm liên tiếp để ôm lấy cái danh xưng này có thực sự xứng đáng hay không?
+Hiệu quả so với chi phí bỏ ra có cao không?
 
-Hiệu suất sinh lời trên chi phí liệu có cao không?
+Triệu Kim An thầm nghĩ hẳn là đáng. Điện thoại iPhone 4 tháng 6 mới chính thức ra mắt, ở trong nước phải tới ngày 25 tháng 9 mới mở bán, bản 16GB giá niêm yết là 4.999 tệ.
 
-Triệu Kim An thầm nghĩ trong bụng: Chắc chắn là có.
+Nếu muốn trải nghiệm sớm ngay từ tháng 6, tức là hàng xách tay bản Hồng Kông như mọi người vẫn gọi, giá sẽ dao động từ 8.000 đến 10.000 tệ.
 
-Tháng 6 năm 2010, siêu phẩm iPhone 4 sẽ chính thức được trình làng trong buổi họp báo toàn cầu, và đến ngày 25 tháng 9 mới bắt đầu mở bán chính hãng tại thị trường nội địa với mức giá niêm yết 4.999 tệ cho phiên bản 16GB.
+Năm 2010 người dùng điện thoại Apple vẫn chưa nhiều, giá quá đắt đỏ, đại đa số vẫn dùng điện thoại phổ thông nghe gọi, vậy thì 411 triệu tệ này hoàn toàn xứng đáng đồng tiền bát gạo.
 
-Nếu ai muốn trải nghiệm sớm từ tháng 6 bằng hàng xách tay bản Hồng Kông thì mức giá bị đẩy lên tới tận 8.000 đến 10.000 tệ một chiếc.
+Cái danh "máy bán thận" đâu phải nói đùa cho vui, thực sự từng có người bán thận chỉ để mua một chiếc điện thoại đấy thôi.
 
-Vào năm 2010, số lượng người dùng sở hữu điện thoại Apple chưa nhiều bởi mức giá quá đắt đỏ so với thu nhập bình quân, đại đa số người dân vẫn trung thành với những chiếc điện thoại phím bấm phổ thông. Thế nên con số 411 triệu tệ rót vào sóng truyền hình quốc gia lúc này vẫn là một món đầu tư hái ra tiền, giá trị nhận diện thương hiệu mang lại vô cùng to lớn.
+Triệu Kim An coi như thuộc lứa thứ hai mua iPhone, giá tầm 4.600 tệ nên anh rất rành giá cả dòng máy này; một khi có điện thoại thông minh, thời gian mọi người ngồi xem tivi sẽ giảm hẳn đi.
 
-Cái danh xưng "điện thoại bán thận" chẳng phải tự dưng mà có, thời ấy quả thực đã có những thanh niên dại dột dám bán đi một quả thận chỉ để tậu cho bằng được chiếc iPhone đời mới.
+Lạc Cẩn Chi và Thẩm Tử Ngôn lập tức thông báo tin vui này tới hệ thống đại lý của Trăn Nhiên.
 
-Triệu Kim An ở kiếp trước thuộc nhóm người thứ hai mua iPhone 4 với mức giá khoảng 4.600 tệ, anh quá rành rẽ biến động giá cả của dòng máy này. Một khi smartphone bùng nổ, thời gian người ta ngồi trước màn hình vô tuyến sẽ sụt giảm nghiêm trọng.
+Đây là liều thuốc củng cố niềm tin cho các nhà phân phối.
 
-Lạc Cẩn Chi và Thẩm Tử Ngôn lập tức phát đi thông báo thắng thầu đến toàn bộ hệ thống đại lý phân phối của Trăn Hối Tuyển trên cả nước.
+Trăn Nhiên chi tiền quảng cáo càng mạnh tay, các đại lý càng vững dạ nhập hàng.
 
-Đây là liều thuốc trợ tim củng cố niềm tin vững chắc cho các nhà phân phối.
+Khoảng thời gian hai năm là quá đủ để Trăn Nhiên củng cố vững chắc vị thế thương hiệu của mình.
 
-Trăn Hối Tuyển càng bạo chi cho quảng cáo bao nhiêu, các đại lý lại càng thêm tự tin gom hàng bấy nhiêu.
+Triệu Bác Lan phải xoay xở chắp vá khắp nơi mới gom đủ 411 triệu tệ.
 
-Hai năm liên tiếp ngự trị đỉnh cao truyền hình là quá đủ để Trăn Hối Tuyển xây chắc thành trì thương hiệu của mình.
+Tài khoản của Trăn Nhiên cạn sạch tiền rồi.
 
-Để gom đủ số tiền 411 triệu tệ đóng cho đài truyền hình, Triệu Bác Lan đã phải chạy vạy, chắp vá khắp nơi.
+Thậm chí tiền hàng các đại lý mới chuyển về cũng bị đem ra xoay vòng tạm trước.
 
-Tài khoản của Trăn Hối Tuyển coi như cạn sạch bách.
+Tiền thanh toán cho các hạng mục công trình đều phải khất nợ lại. Ngay cả Lưu Xuyên cũng biết điều chẳng dám chạy tới Quận Sa đòi nợ, ông chủ Lưu giơ cả hai tay tán thành việc Trăn Nhiên giành ngôi Tiêu Vương CCTV.
 
-Thậm chí các khoản tiền hàng mà đại lý chuyển về cũng bị tạm thời trích dụng sang chi trả.
+Ông chỉ "hận" Triệu Kim An chơi không đẹp, không chịu thanh toán công nợ cho mình mà lại ôm tiền đi mua cảng biển, mua mỏ khoáng sản.
 
-Hàng loạt khoản công nợ của các nhà thầu xây dựng đành phải khất lại. Đến cả một chủ thầu lão luyện như Lưu Xuyên cũng rất biết điều, thức thời không thèm mò lên Quận Sa đòi nợ nữa. Việc Trăn Hối Tuyển giành ngôi Vua quảng cáo thì lão Lưu giơ cả hai tay hai chân tán thành nhiệt liệt.
+Lưu Xuyên đã chuẩn bị sẵn tinh thần Tết năm nay lại tiếp tục làm một năm trốn nợ.
 
-Lão chỉ "hận" mỗi nỗi thằng nhãi Triệu Kim An chơi không đẹp, chẳng chịu thanh toán tiền công trình cho lão mà lại đem bạc tỷ đi mua cảng biển với tậu mỏ quặng bên Tây bên Tàu.
+Cũng may là quen rồi.
 
-Lưu Xuyên đã chuẩn bị sẵn tâm lý cái Tết năm nay lại tiếp tục là một năm trốn nợ đầm đìa.
+Trong cái nghề của bọn họ, nhất là dân làm công trình, có mấy ai Tết đến mà không phải trốn nợ đâu?
 
-Dẫu sao thì lão cũng đã quen thói rồi.
+Hễ nhấc máy lên là chỉ nghe thấy tiếng đòi tiền.
 
-Cái nghề thầu xây dựng này, thử hỏi có mấy tay cai thầu cuối năm không phải dạt đi trốn nợ cơ chứ?
+Quận Sa.
 
-Cứ hễ chuông điện thoại reng lên một cái là y như rằng đầu dây bên kia réo đòi tiền.
+Lâm Thanh Tuyết trả trước cho Triệu Kim An 300.000 tệ, cô bảo đó là tiền kiếm được từ đợt sale 11/11.
 
-...
+Triệu Kim An bảo cô cứ chuyển thẳng cho Triệu Bác Lan để nhập sổ sách công ty, coi như trả bớt tiền cho Lạc Cẩn Chi.
 
-Tại Quận Sa.
+Nhìn xưởng của Lâm Thanh Tuyết tấp nập nhân công đóng gói chuyển phát nhanh, cả người Cốc Siêu Thừa hơi tê dại. Thời buổi này tỷ lệ hoàn trả hàng thời trang nữ chưa cao, hễ bán được đơn nào là coi như cầm chắc tiền đơn đó.
 
-Lâm Thanh Tuyết đem 300.000 tệ tiền mặt đến trả cho Triệu Kim An, bảo đây là khoản lợi nhuận kiếm được từ đợt bão đơn ngày hội mua sắm Song Thập Nhất vừa qua.
-
-Triệu Kim An bảo cô cứ nộp thẳng cho Triệu Bác Lan để vào sổ sách công ty, dùng số tiền đó để trả dần khoản nợ của Lạc Cẩn Chi.
-
-Nhìn cảnh tượng hàng chục công nhân trong xưởng may của Lâm Thanh Tuyết tất bật đóng gói từng bọc hàng chuyển phát nhanh, Cốc Siêu Thừa đứng bên cạnh mà toàn thân tê dại vì choáng ngợp. Thời điểm này tỷ lệ hoàn trả hàng thời trang nữ trên mạng cực kỳ thấp, hễ đơn hàng xuất đi là nắm chắc tiền tươi thóc thật trong tay.
-
-"Lâm Thanh Tuyết, cậu cũng tham gia cái chương trình Song Thập Nhất đó thật à?"
+"Lâm Thanh Tuyết, cậu cũng tham gia cái chương trình 11/11 đó à?"
 
 "Ừ, đúng rồi."
 
-"Hiệu quả khủng khiếp đến thế cơ à?"
+"Hiệu quả tốt thế cơ à?"
 
-Cốc Siêu Thừa không có tiền thuê kho bãi riêng, cậu chỉ làm ăn cò con đơn lẻ.
+Cốc Siêu Thừa chẳng thuê kho bãi gì, cậu ta chỉ làm nhỏ lẻ một mình.
 
-Ngày nào bán được hàng thì hôm sau cậu lại lủi thủi đạp xe đến xưởng của Lâm Thanh Tuyết, một mình cặm cụi tự tay dán băng dính đóng gói bưu phẩm gửi đi.
+Hôm trước bán được hàng, hôm sau lại chạy sang xưởng Lâm Thanh Tuyết tự tay đóng gói gửi chuyển phát nhanh.
 
-Thế nên thời gian cậu tiếp xúc với Lâm Thanh Tuyết là nhiều nhất.
+Vì thế thời gian cậu ta tiếp xúc với Lâm Thanh Tuyết rất nhiều.
 
-Cùng là bạn học chung một lớp, Lâm Thanh Tuyết đối xử với Cốc Siêu Thừa rất mực chu đáo, nhường hẳn cho cậu một góc phòng làm việc nhỏ.
+Cùng là bạn học chung lớp, Lâm Thanh Tuyết cũng rất chiếu cố Cốc Siêu Thừa, dành riêng cho cậu ta một văn phòng nhỏ.
 
-Cốc Siêu Thừa ngày ngày cắm chốt trong căn phòng nhỏ ấy để lướt web quản lý gian hàng, nhiều đêm mệt quá ngủ vùi luôn tại đó.
+Cốc Siêu Thừa ngày nào cũng ngồi lỳ trong căn phòng nhỏ đó lướt mạng, thỉnh thoảng còn ngủ lại luôn tại văn phòng.
 
-Hễ bên xưởng của Lâm Thanh Tuyết hay Phương Khiết có mẫu áo quần nào bán chạy thành hàng "hot trend", Cốc Siêu Thừa liền trực tiếp lấy hàng từ chỗ hai người họ. Một gã con trai độc thân chưa từng có mảnh tình vắt vai như cậu thì làm sao nắm bắt nổi xu hướng thẩm mỹ của phái nữ.
+Hễ Lâm Thanh Tuyết và Phương Khiết có mẫu nào bán chạy, Cốc Siêu Thừa liền nhập thẳng hàng từ tay hai người. Một thằng con trai chưa có bạn gái như cậu ta căn bản chẳng nắm bắt nổi gu thẩm mỹ mẫu mã.
 
-Về sau, Cốc Siêu Thừa thậm chí lười chẳng buồn tự sản xuất mẫu mã nữa, quay ngoắt trở lại mô hình kinh doanh trung gian trước kia.
+Về sau Cốc Siêu Thừa dứt khoát chẳng tự làm hàng nữa, quay lại mô hình kinh doanh cũ.
 
-Mỗi sản phẩm lấy từ xưởng của Lâm Thanh Tuyết và Phương Khiết, cậu chỉ việc cộng thêm vài đồng tiền chênh lệch rồi treo liên kết bán hàng lên gian của mình.
+Mỗi món hàng cậu ta cộng thêm cho Lâm Thanh Tuyết và Phương Khiết vài tệ, rồi treo ké link của người khác để bán.
 
-Nhưng trong lòng cậu vẫn canh cánh chút không cam tâm, Cốc Siêu Thừa cũng ôm mộng làm lớn, mở rộng cơ đồ.
+Thế nhưng trong lòng vẫn có chút không cam tâm, Cốc Siêu Thừa cũng muốn làm ăn lớn mạnh như người ta.
 
-Phương Khiết cùng Lưu Sấm Phong đã chính thức đăng ký thành lập công ty riêng với số vốn điều lệ một triệu tệ.
+Phương Khiết và Lưu Sấm Phong đã đăng ký thành lập công ty, vốn điều lệ 1 triệu tệ.
 
-Người đại diện pháp luật trên giấy tờ: Lưu Sấm Phong.
+Đại diện pháp luật: Lưu Sấm Phong.
 
-Lưu Sấm Phong dạo này bước chân ra đường lúc nào cũng kẹp chiếc cặp da bóng lộn dưới nách, tậu hẳn một con xe Volkswagen màu đen sang trọng. Giám đốc Lưu ngày càng khoái cảm giác quay trở lại trường học, mỗi lần bắt gặp Lý Ngải Lan cùng các bạn nữ trong trường là lại cố tình giảm ga hạ kính xe xuống tươi cười chào hỏi rôm rả.
+Lưu Sấm Phong bây giờ ra đường lúc nào cũng kẹp chiếc cặp tài liệu bên nách, tậu hẳn một chiếc Volkswagen màu đen. Ông chủ Lưu càng lúc càng thích quay về trường, hễ gặp đám Lý Ngải Lan là lại thích dừng xe chào hỏi.
 
-Có hôm cô giáo Dư Tĩnh nhìn thấy Lưu Sấm Phong nách kẹp cặp táp nghênh ngang bước vào giảng đường, liền trêu một câu: "Ồ, Lưu đại giám đốc hôm nay cũng bớt chút thời gian vàng ngọc đến lớp nghe giảng cơ đấy à?"
+Có hôm Dư Tĩnh thấy Lưu Sấm Phong kẹp cặp tài liệu bước vào giảng đường, liền gọi một tiếng: "Ông chủ Lưu, hôm nay cũng đi học à?"
 
-Lưu Sấm Phong ngoác miệng cười toe toét suốt cả tiết học.
+Lưu Sấm Phong nhe răng cười suốt cả tiết học.
 
-Trước khi tan lớp, cô Dư Tĩnh còn chân thành dành tặng vài lời khen ngợi biểu dương Lưu Sấm Phong trước toàn thể sinh viên.
+Lúc sắp tan học, Dư Tĩnh còn chân thành khen ngợi Lưu Sấm Phong vài câu.
 
-Tuổi trẻ có chút thói thích làm màu thể hiện bản thân cũng chẳng sao, dẫu sao thì tiền bạc là do chính bàn tay Lưu Sấm Phong đổ mồ hôi sôi nước mắt kiếm được, bảo là tay trắng lập nghiệp cũng chẳng hề ngoa chút nào.
+Người trẻ tuổi hơi phô trương một chút cũng chẳng sao, Lưu Sấm Phong kiếm tiền bằng chính bản lĩnh của mình, nói là tay trắng lập nghiệp cũng chẳng hề sai.
 
-Nối gót Triệu Kim An, giờ đây Lâm Thanh Tuyết và Lưu Sấm Phong đã trở thành tâm điểm bàn tán sôi nổi của sinh viên hai lớp Kế toán 1 và Kế toán 2.
+Sau Triệu Kim An, Lâm Thanh Tuyết và Lưu Sấm Phong lại trở thành tâm điểm bàn tán của cả lớp Kế toán 1 lẫn Kế toán 2.
 
-Lâm Thanh Tuyết chưa vội mua ô tô riêng vì bản thân cô còn đang gánh món nợ 2,8 triệu tệ của Triệu Kim An.
+Lâm Thanh Tuyết chưa có tiền mua xe, cô vẫn còn nợ Triệu Kim An 2,8 triệu tệ.
 
-Thế nhưng trong tay Lâm Thanh Tuyết đã có hẳn một nhà xưởng may mặc quy mô, nghiễm nhiên trở thành một nữ phú bà giàu có trong mắt bạn bè đồng trang lứa.
+Thế nhưng Lâm Thanh Tuyết sở hữu xưởng sản xuất riêng, trong mắt mọi người đã trở thành một nữ đại gia thực thụ.
 
-Từ một cô nàng "trà xanh" chấp nhận hạ mình nương tựa vào thiếu gia Trần Trạch, lột xác ngoạn mục thành một nữ chủ xưởng quyền lực, Lâm Thanh Tuyết chỉ mất vỏn vẹn hai năm ngắn ngủi. Cốc Siêu Thừa là người ở cự ly gần nhất, tận mắt chứng kiến trọn vẹn màn biến thân lộng lẫy phi thường ấy.
+Từ một cô nàng trà xanh phải nương tựa vào Trần Trạch, lột xác trở thành nữ đại gia, Lâm Thanh Tuyết chỉ mất vỏn vẹn hai năm. Cốc Siêu Thừa là người chứng kiến ở cự ly gần nhất màn lột xác ngoạn mục ấy của cô.
 
-Hiện tại Lâm Thanh Tuyết đang sở hữu ba gian hàng đạt cấp độ năm vương miện kim cương trên Taobao, cùng bốn gian hàng bán sỉ trên sàn B2C của Alibaba.
+Lâm Thanh Tuyết hiện có 3 gian hàng 5 kim cương, trên Alibaba B2C cũng sở hữu thêm 4 gian hàng nữa.
 
-Bố cô cũng đã lặn lội từ quê lên xưởng nhận chân bảo vệ gác cổng.
+Bố cô thậm chí đã lên xưởng làm bảo vệ.
 
-Chỉ có những người cùng lăn lộn trong nghề như Cốc Siêu Thừa, Lưu Sấm Phong và Phương Khiết mới hiểu rõ tường tận khối tài sản mà Lâm Thanh Tuyết đang nắm giữ kếch xù đến mức nào.
+Chỉ những người trực tiếp lăn lộn trong ngành như Cốc Siêu Thừa, Lưu Sấm Phong và Phương Khiết mới biết rõ Lâm Thanh Tuyết đang nắm giữ khối tài sản lớn đến nhường nào.
 
-Người ngoài có thể xì xào bàn tán chuyện Lâm Thanh Tuyết từng có một đời bạn trai sống thử, nhưng đứng trước một cô gái vừa xinh đẹp kiều diễm, vừa có học thức, lại lắm tiền nhiều của và đầy bản lĩnh thương trường như thế, liệu những lời gièm pha quá khứ ấy còn có chút trọng lượng nào hay không?
+Có người sẽ bàn tán rằng Lâm Thanh Tuyết từng yêu một người bạn trai, nhưng vừa xinh đẹp, vừa có bằng cấp, lại vừa giàu có và giỏi giang thì chuyện đó còn quan trọng nữa sao?
 
-Chỉ có riêng Lâm Thanh Tuyết là thấu suốt hơn ai hết: Toàn bộ cơ đồ, vị thế và cuộc đời mới mà cô có được ngày hôm nay, thảy đều do một tay Triệu Kim An ban tặng.
+Chỉ có bản thân Lâm Thanh Tuyết hiểu rõ nhất trong lòng: tất cả những gì cô có được ngày hôm nay đều là do Triệu Kim An ban cho.
 
-Phương Khiết trong lòng có chút tiếc nuối vì đợt vừa rồi không kịp chuẩn bị hàng để tham gia ngày hội Song Thập Nhất.
+Phương Khiết có chút hối hận vì đã không tham gia đợt sale 11/11.
 
-Cô bèn lên tiếng nhắc nhở Cốc Siêu Thừa:
+Cô quay sang nhắc nhở Cốc Siêu Thừa.
 
-"Này ông Cốc, tốt nhất đừng có tơ tưởng vớ vẩn đến Lâm Thanh Tuyết làm gì, người ta không đời nào lọt mắt xanh một kẻ như ông đâu."
+"Đừng có tơ tưởng gì tới Lâm Thanh Tuyết, cậu ấy không để mắt tới cậu đâu."
 
-"..."
+"....."
 
-Lưu Sấm Phong trợn tròn hai mắt kinh ngạc: "Lão Cốc, mày... mày thật sự có ý đồ đấy à?"
+Lưu Sấm Phong trợn tròn mắt: "Lão Cốc, cậu..."
 
-"Không có, tuyệt đối không có chuyện đó!"
+"Không có, không có đâu!"
 
-Cốc Siêu Thừa quýnh quáng xua tay phủ nhận lia lịa.
+Cốc Siêu Thừa vội vàng chối bay chối biến.
 
-Liệu có phải là lửa gần rơm lâu ngày cũng bén, nảy sinh tình cảm vì ngày ngày kề cận bên nhau?
+Là lửa gần rơm lâu ngày bén?
 
-Hay là bởi Cốc Siêu Thừa giờ đây đã trở nên thực dụng hơn? Hồi năm nhất, lão Cốc chẳng dám mơ tưởng theo đuổi những đóa hoa khôi rực rỡ như Mộc Dao hay Từ Mạn Mạn. Nay tận mắt chứng kiến màn lột xác ngoạn mục của Lâm Thanh Tuyết, trong đáy lòng chàng trai trẻ bất giác dâng lên một niềm ngưỡng mộ xen lẫn sùng bái dành cho nàng nữ giám đốc xưởng may.
+Hay là Cốc Siêu Thừa đã trở nên thực tế hơn? Năm nhất cậu ta không dám theo đuổi Mộc Dao hay Từ Mạn Mạn, nay tận mắt chứng kiến màn lột xác rực rỡ của Lâm Thanh Tuyết, trong lòng bỗng nảy sinh một tia sùng bái đối với "Giám đốc xưởng Lâm".
 
-Đợi lúc xung quanh vắng người, Lưu Sấm Phong mới bá vai Cốc Siêu Thừa, ghé tai thì thầm: "Lão Cốc à, con bé Lâm Thanh Tuyết trước đây từng dọn về sống chung như vợ chồng với thằng Trần Trạch rồi đấy nhé."
+Lúc không có ai, Lưu Sấm Phong khoác vai Cốc Siêu Thừa thì thầm: "Lão Cốc, Lâm Thanh Tuyết với Trần Trạch từng sống chung với nhau rồi đấy."
 
-"..."
+"....."
 
-Cốc Siêu Thừa cúi gầm mặt xuống, tự đặt tay lên ngực tự vấn lương tâm: Bản thân mình có thực sự bận lòng về chuyện đó hay không?
+Cốc Siêu Thừa cúi đầu, tự vấn lòng mình: có để bụng không?
 
-Dường như chính cậu cũng chẳng hề để tâm nhiều đến thế.
+Hình như bản thân cậu ta cũng chẳng quá bận tâm.
 
-Mấu chốt là Trần Trạch giờ đây đã lưu lạc tận xứ Dương Thành xa xôi, cả đời này chắc gì đã chạm mặt lại gã, thì việc quá khứ kia có can hệ gì đến hiện tại đâu chứ...
+Quan trọng là Trần Trạch đã đi Dương Thành rồi, không nhìn thấy Trần Trạch thì có liên quan gì...

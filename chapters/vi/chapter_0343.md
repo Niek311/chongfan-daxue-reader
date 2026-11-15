@@ -1,7 +1,5 @@
 # Chương 343: Về Sâm Châu thiếu một người.
 
-> **Tiêu đề gốc**: 第343章 回郴少了一个人。
-
 "Chuyến tàu của anh ba giờ rưỡi sáng, vậy em về ký túc xá trước đây."
 
 "Hả?"
@@ -114,13 +112,13 @@ Triệu Kim An đứng ở hành lang tầng hai vươn vai vận động gân c
 
 Dưới khoảng sân rộng đang đỗ sẵn một chiếc xe thương vụ Mercedes bảy chỗ sang trọng.
 
-"Kim An, Dao Dao bảo hôm nay cậu ấy không về cùng." Du Phỉ khẽ nói nhỏ.
+"Kim An, Dao Dao bảo hôm nay cậu ấy không về cùng." Du Phi khẽ nói nhỏ.
 
 "Ừ."
 
 Triệu Kim An hai tay thong thả bước xuống lầu, toàn bộ hành lý đã được Lưu Mỹ Nga thu dọn chu đáo và xếp gọn gàng vào cốp sau.
 
-Du Phỉ lặng lẽ bước theo sau. Đây là lần đầu tiên Mộc Dao cố tình né tránh, không muốn chạm mặt Triệu Kim An.
+Du Phi lặng lẽ bước theo sau. Đây là lần đầu tiên Mộc Dao cố tình né tránh, không muốn chạm mặt Triệu Kim An.
 
 Nếu đổi lại là trước kia, Mộc Dao nhất định đã sớm kéo vali đứng đợi sẵn ngoài sân từ tờ mờ sáng, nơm nớp lo sợ Triệu Kim An không thèm đợi mình mà phóng xe về Sâm Châu trước.
 
@@ -132,7 +130,7 @@ Nếu đổi lại là trước kia, Mộc Dao nhất định đã sớm kéo va
 
 "Ha ha."
 
-Triệu Trí Dũng nhanh nhẹn ngồi vào ghế lái. Chuyến xe về Sâm Châu lần này gồm bốn người: Triệu Kim An, Triệu Bác Lan, Du Phỉ và Triệu Trí Dũng.
+Triệu Trí Dũng nhanh nhẹn ngồi vào ghế lái. Chuyến xe về Sâm Châu lần này gồm bốn người: Triệu Kim An, Triệu Bác Lan, Du Phi và Triệu Trí Dũng.
 
 Tuyệt nhiên không có bóng dáng của Mộc Dao.
 
@@ -144,13 +142,13 @@ Dưới sân, Lưu Mỹ Nga và Đơn Na cùng vẫy tay chào tạm biệt.
 
 "..."
 
-Du Phỉ muốn nói lại thôi. Cô quá hiểu tính nết của Mộc Dao. Nếu như Mộc Dao và Triệu Kim An không chia tay, chắc chắn Mộc Dao đã tíu tít dọn đồ từ hôm trước, chạy lăng xăng khắp các phòng ký túc xá để khoe khoang với tất cả các bạn nữ trong lớp rằng mình được đi nhờ xe riêng của bạn trai về quê ăn tết.
+Du Phi muốn nói lại thôi. Cô quá hiểu tính nết của Mộc Dao. Nếu như Mộc Dao và Triệu Kim An không chia tay, chắc chắn Mộc Dao đã tíu tít dọn đồ từ hôm trước, chạy lăng xăng khắp các phòng ký túc xá để khoe khoang với tất cả các bạn nữ trong lớp rằng mình được đi nhờ xe riêng của bạn trai về quê ăn tết.
 
 Bởi vì hồi Triệu Kim An "mượn" được chiếc Audi A6, Mộc Dao đã từng mơ mộng viễn cảnh được ngồi xe sang về quê như thế.
 
-Hồi đó cô từng kể cho Du Phỉ nghe bên phòng 411, Du Phỉ vẫn còn nhớ như in vẻ mặt rạng rỡ, ánh mắt lấp lánh ngập tràn hạnh phúc của Mộc Dao khi ấy.
+Hồi đó cô từng kể cho Du Phi nghe bên phòng 411, Du Phi vẫn còn nhớ như in vẻ mặt rạng rỡ, ánh mắt lấp lánh ngập tràn hạnh phúc của Mộc Dao khi ấy.
 
-Khi đó Du Phỉ từng nghĩ Mộc Dao viển vông quá đà, nhưng giờ đây khi Mộc Dao chủ động buông tay rời xa Triệu Kim An, Du Phỉ lại cảm thấy trong lòng dấy lên niềm tiếc nuối khôn nguôi. Một mối tình thanh thuần đi từ tà áo trắng học trò cho tới lễ đường đám cưới, đẹp đẽ và đáng trân trọng biết bao nhiêu.
+Khi đó Du Phi từng nghĩ Mộc Dao viển vông quá đà, nhưng giờ đây khi Mộc Dao chủ động buông tay rời xa Triệu Kim An, Du Phi lại cảm thấy trong lòng dấy lên niềm tiếc nuối khôn nguôi. Một mối tình thanh thuần đi từ tà áo trắng học trò cho tới lễ đường đám cưới, đẹp đẽ và đáng trân trọng biết bao nhiêu.
 
 "Kim An, sắp lên cao tốc rồi đấy."
 
@@ -162,7 +160,7 @@ Triệu Kim An tiện tay gửi một tin nhắn ngắn gọn "Đã về đến 
 
 Cuối cùng thì Từ Mạn Mạn vẫn không chọn về Triệu Gia Thôn để "thị sát công tác".
 
-Xe dừng lại thả Du Phỉ xuống trước. Vợ chồng Lưu Văn Tinh và Du Trí Viễn đã đứng chờ sẵn bên vệ đường từ lâu.
+Xe dừng lại thả Du Phi xuống trước. Vợ chồng Lưu Văn Tinh và Du Trí Viễn đã đứng chờ sẵn bên vệ đường từ lâu.
 
 Du Trí Viễn vội vàng bê mấy can rượu thuốc ngâm quý giá nhét vào xe cho Triệu Kim An, hai vợ chồng không ngớt lời cảm ơn Triệu Kim An đã hết lòng nâng đỡ, giúp đỡ cho con gái mình.
 
@@ -170,19 +168,19 @@ Triệu Kim An xua tay bảo mình không biết uống rượu, nhìn mấy can
 
 Chiếc Mercedes lăn bánh rời đi, ba người nhà họ Du cùng nhau thong thả đi bộ về nhà.
 
-Du Phỉ lén rút ba vạn tệ nhét vào tay Du Trí Viễn bảo để sửa sang lại nhà cửa, nhưng Du Trí Viễn nhất quyết không chịu nhận. Ông bảo bây giờ Du Phỉ sắp sửa theo chân đại gia xuất ngoại, ăn mặc phải tươm tất sang trọng, không được làm mất thể diện của tập đoàn, trong người lúc nào cũng phải có sẵn tiền bạc phòng thân.
+Du Phi lén rút ba vạn tệ nhét vào tay Du Trí Viễn bảo để sửa sang lại nhà cửa, nhưng Du Trí Viễn nhất quyết không chịu nhận. Ông bảo bây giờ Du Phi sắp sửa theo chân đại gia xuất ngoại, ăn mặc phải tươm tất sang trọng, không được làm mất thể diện của tập đoàn, trong người lúc nào cũng phải có sẵn tiền bạc phòng thân.
 
-Du Phỉ cười bảo tiền thưởng cuối năm của mình được tận một vạn tệ công ty còn chưa phát, số tiền đó đã là quá đủ rồi.
+Du Phi cười bảo tiền thưởng cuối năm của mình được tận một vạn tệ công ty còn chưa phát, số tiền đó đã là quá đủ rồi.
 
-Lưu Văn Tinh sực nhớ tới cuộc điện thoại Trương Huệ gọi cho mình, bèn lên tiếng hỏi thăm về tình hình của Mộc Dao.
+Lưu Văn Tinh sực nhớ tới cuộc điện thoại Trương Tuệ gọi cho mình, bèn lên tiếng hỏi thăm về tình hình của Mộc Dao.
 
-Du Phỉ thành thật kể lại đầu đuôi câu chuyện.
+Du Phi thành thật kể lại đầu đuôi câu chuyện.
 
 "Haizz..."
 
 Lưu Văn Tinh thở dài một hơi sườn sượt, lòng đầy cảm khái: "Nhanh quá... thật là tiếc cho con bé."
 
-Du Trí Viễn thì suốt dọc đường đi không ngừng căn dặn Du Phỉ phải một lòng trung thành theo sát Triệu Kim An. Lòng ông tràn đầy tự hào và mãn nguyện: "Văn Tinh à, con bé Phỉ theo Triệu Kim An, bà có biết sau này tập đoàn lớn thành lập thì chức vụ của con bé là gì không?"
+Du Trí Viễn thì suốt dọc đường đi không ngừng căn dặn Du Phi phải một lòng trung thành theo sát Triệu Kim An. Lòng ông tràn đầy tự hào và mãn nguyện: "Văn Tinh à, con bé Phỉ theo Triệu Kim An, bà có biết sau này tập đoàn lớn thành lập thì chức vụ của con bé là gì không?"
 
 "Thư ký Hội đồng quản trị đấy, he he."
 

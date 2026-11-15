@@ -1,7 +1,5 @@
 # Chương 1: Lẽ nào chúng ta đã sai?
 
-> **Tiêu đề gốc**: 第1章 难道是我们错了吗？
-
 Làng Triệu Gia, sau núi, đồi tha ma.
 
 Ba năm sau ngày ly hôn.

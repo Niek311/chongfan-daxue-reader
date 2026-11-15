@@ -1,7 +1,5 @@
 # Chương 233: Nằm mơ cũng muốn!
 
-> **Tiêu đề gốc**: 第233章 做梦都想！
-
 Nhà họ Từ.
 
 Từ Tắc Đống vừa cẩn thận châm nước pha trà, vừa hiếm hoi châm một điếu thuốc lá, bộ dạng như thể một người đang ngồi tu tâm dưỡng tính, thong thả thưởng trọn một tuần trà.
@@ -122,7 +120,7 @@ Phương Khiết đoán rằng Triệu Kim An cũng phải mở lời "xin" lạ
 
 Về mặt đối nhân xử thế, Phương Khiết quả thực làm rất tròn trịa, không chê vào đâu được.
 
-Có điều, Phương Khiết đợt này cũng chỉ đăng ký làm một tình nguyện viên bình thường, giống như Diêu Tân hồi năm ngoái, mức thù lao chỉ vỏn vẹn ba mươi lăm tệ một ngày.
+Có điều, Phương Khiết đợt này cũng chỉ đăng ký làm một tình nguyện viên bình thường, giống như Diêu Sân hồi năm ngoái, mức thù lao chỉ vỏn vẹn ba mươi lăm tệ một ngày.
 
 "Lưu Sấm Phong, cậu phụ trách đợt này được bao nhiêu tiền một ngày thế? Năm ngoái cậu phụ trách điểm ga tàu hỏa hình như được tám mươi tệ đúng không?"
 

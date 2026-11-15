@@ -1,7 +1,5 @@
 # Chương 457: Ngày này cuối cùng cũng đã đến
 
-> **Tiêu đề gốc**: 第457章 这一天终于要来了。
-
 Thời gian: 01:26.
 
 Từ Mạn Mạn nhìn đăm đăm ra ngoài ô cửa sổ, trằn trọc mãi chẳng thể nào chợp mắt nổi. Cô chậm rãi tựa trán vào mặt kính lành lạnh.
@@ -12,9 +10,9 @@ Gió về đêm mang theo hơi lạnh buốt giá.
 
 Lòng người bao giờ cũng đổi lấy lòng người.
 
-Nếu đổi lại là loại người như Lý Ngải Lan, vác chiếc bụng bầu vượt mặt chạy tới công ty diễu võ giương oai, cái oai phong nhất thời ấy có thể xả giận đấy, nhưng khéo đứa con trong bụng đã sớm chẳng còn giữ nổi. Đó là tát thẳng vào mặt Tô Miện, khinh khi chị ấy không thể tự mình bước đi.
+Nếu đổi lại là loại người như Lý Ngải Lan, vác chiếc bụng bầu vượt mặt chạy tới công ty diễu võ giương oai, cái oai phong nhất thời ấy có thể xả giận đấy, nhưng khéo đứa con trong bụng đã sớm chẳng còn giữ nổi. Đó là tát thẳng vào mặt Tô Miến, khinh khi chị ấy không thể tự mình bước đi.
 
-Chỉ cần một cuộc điện thoại của Tô Miện.
+Chỉ cần một cuộc điện thoại của Tô Miến.
 
 Chu Hoa Phong không dám từ chối, sẽ có người khác sẵn sàng ra tay. Mà Chu Hoa Phong liệu có gan dám không làm sao?
 
@@ -26,7 +24,7 @@ Cứ thử đặt mình vào vị trí của Tô Cảnh Hành, em gái ruột th
 
 Nhà họ Tô lẽ nào lại chịu để yên?
 
-Từ Mạn Mạn từ Thượng Hải trở về đã cố gắng hết sức thu mình lại, hạn chế lộ diện tối đa. Giờ đây sắp sửa lâm bồn, mấy dòng tin nhắn ngắn ngủi của Tô Miện gửi sang chẳng khác nào một lời ngầm chuẩn thuận: Đủ rồi đấy, được rồi.
+Từ Mạn Mạn từ Thượng Hải trở về đã cố gắng hết sức thu mình lại, hạn chế lộ diện tối đa. Giờ đây sắp sửa lâm bồn, mấy dòng tin nhắn ngắn ngủi của Tô Miến gửi sang chẳng khác nào một lời ngầm chuẩn thuận: Đủ rồi đấy, được rồi.
 
 Hai người phụ nữ mới chỉ gặp mặt nhau đúng một lần duy nhất. Mấy tháng trời đằng đẵng qua tựa như một quá trình thầm lặng để đôi bên thăm dò và thấu hiểu lẫn nhau.
 
@@ -36,11 +34,11 @@ Hành lang ngoài kia tĩnh lặng như tờ.
 
 Chiếc điện thoại im lìm không một tiếng động.
 
-Từ Mạn Mạn chẳng thể ngờ nổi ngay trong đêm nay mình lại nhận được tin nhắn từ Tô Miện. Cô cứ thế đứng tựa trán vào khung cửa sổ suốt một tiếng rưỡi đồng hồ, hơi thở khẽ khàng như làn sương, đứng lặng như một pho tượng điêu khắc bên rèm cửa sổ. Nhóm chat của phòng ký túc xá 406 từ lâu vẫn chìm trong tịch mịch.
+Từ Mạn Mạn chẳng thể ngờ nổi ngay trong đêm nay mình lại nhận được tin nhắn từ Tô Miến. Cô cứ thế đứng tựa trán vào khung cửa sổ suốt một tiếng rưỡi đồng hồ, hơi thở khẽ khàng như làn sương, đứng lặng như một pho tượng điêu khắc bên rèm cửa sổ. Nhóm chat của phòng ký túc xá 406 từ lâu vẫn chìm trong tịch mịch.
 
-Chính vì thế, tin nhắn của Tô Miện lại càng khiến lòng người rung động, bất ngờ khôn xiết.
+Chính vì thế, tin nhắn của Tô Miến lại càng khiến lòng người rung động, bất ngờ khôn xiết.
 
-"Tô Miện, em xin lỗi... và cảm ơn chị..."
+"Tô Miến, em xin lỗi... và cảm ơn chị..."
 
 Sáng hôm sau.
 
@@ -94,7 +92,7 @@ Tô Châu.
 
 Thẩm Tử Ngôn mấy ngày nay tâm thần bất định, không tài nào tập trung nổi vào công việc. Trên màn hình điện thoại hiện lên một dòng tin nhắn.
 
-Trăn Hối Tuyển - Diêu Tân: Tử Ngôn, Mạn Mạn vào viện rồi, sắp sinh rồi đấy.
+Trăn Hối Tuyển - Diêu Sân: Tử Ngôn, Mạn Mạn vào viện rồi, sắp sinh rồi đấy.
 
 Bên phía Hàn Quốc, Mộc Dao cũng chẳng thể nào tĩnh tâm làm việc.
 
@@ -102,9 +100,9 @@ Cái ngày định mệnh này, cuối cùng cũng đã phải đến!
 
 Văn phòng thư ký - Du Phi: Dao Dao, mấy ngày nay là đến kỳ dự sinh của Mạn Mạn rồi, đã vào viện nằm chờ rồi nhé.
 
-Trăn Hối Tuyển - Diêu Tân: Dao Dao, Mạn Mạn vào viện rồi, sắp sinh rồi đấy.
+Trăn Hối Tuyển - Diêu Sân: Dao Dao, Mạn Mạn vào viện rồi, sắp sinh rồi đấy.
 
-Cả Mộc Dao lẫn Thẩm Tử Ngôn xưa nay đều không phải là những kẻ mang dã tâm hãm hại người khác. Năm xưa Thẩm Tử Ngôn trong cơn phẫn uất bốc đồng xô Từ Mạn Mạn một cái, Diêu Tân lập tức lao ra chắn phía trước, Thẩm Tử Ngôn liền bừng tỉnh ngay tắp lự. Giờ đây bọn họ chỉ biết lặng lẽ đếm từng ngày trôi qua, tựa như một chiếc đồng hồ đếm ngược của số phận.
+Cả Mộc Dao lẫn Thẩm Tử Ngôn xưa nay đều không phải là những kẻ mang dã tâm hãm hại người khác. Năm xưa Thẩm Tử Ngôn trong cơn phẫn uất bốc đồng xô Từ Mạn Mạn một cái, Diêu Sân lập tức lao ra chắn phía trước, Thẩm Tử Ngôn liền bừng tỉnh ngay tắp lự. Giờ đây bọn họ chỉ biết lặng lẽ đếm từng ngày trôi qua, tựa như một chiếc đồng hồ đếm ngược của số phận.
 
 Khu làng đại học Quận Sa.
 
@@ -150,7 +148,7 @@ Nhưng lần này bác sĩ phá lệ mỉm cười trấn an, bảo rằng Từ 
 
 Du Phi đứng ngồi không yên, đi đi lại lại trước cửa phòng sinh. Điện thoại cô rung lên một tin nhắn.
 
-Trăn Hối Tuyển - Diêu Tân: Du Phi, khi nào Mạn Mạn sinh xong thì báo cho mình một tiếng với nhé?
+Trăn Hối Tuyển - Diêu Sân: Du Phi, khi nào Mạn Mạn sinh xong thì báo cho mình một tiếng với nhé?
 
 Du Phi ngẫm nghĩ một lát rồi nhắn lại: Vừa mới đẩy vào phòng sinh rồi.
 

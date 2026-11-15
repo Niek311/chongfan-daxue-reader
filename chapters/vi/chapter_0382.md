@@ -1,199 +1,197 @@
-# Chương 382: Gom tiền!
+# Chương 382: Xoay tiền!
 
-> **Tiêu đề gốc**: 第382章 筹钱！
+Hiệu trưởng Cung gọi điện thoại tới, ý tứ ngoài lời là khuyên anh nên ngồi xuống đàm phán với Trung Nhôm.
 
-Hiệu trưởng Cung gọi điện thoại sang, ngụ ý muốn hai bên ngồi lại với nhau để bàn bạc thỏa thuận.
+Giáo sư Lương cũng bắt đầu đứng ra bắc cầu nối. Nếu ở trong nước thì còn đỡ, chứ chẳng ai muốn thấy Hoàn Vũ Cảng Vụ và Trung Nhôm "đấu đá" nhau nơi đất khách quê người, để rồi người Úc hưởng trọn món hời.
 
-Giáo sư Lương cũng bắt đầu đứng ra làm cầu nối. Chuyện trong nước đóng cửa bảo nhau thì thôi, chứ chẳng ai muốn Cảng vụ Hoàn Vũ và Trung Lữ lại tự "đấu đá" lẫn nhau nơi đất khách quê người, để rồi bao nhiêu món hời đều rơi hết vào tay người Úc.
+Sau khi nắm rõ đầu đuôi sự tình, Giáo sư Lương khuyên La Kiến Thành nên nhượng bộ một bước.
 
-Sau khi nắm rõ ngọn ngành, Giáo sư Lương khuyên La Kiến Thành nên nhượng bộ một bước.
+La Kiến Thành cũng đang ức chế lắm, liền trút hết nỗi lòng với Giáo sư Lương: "Giáo sư Lương ơi, chúng tôi nhượng bộ rồi chứ, nhưng Hoàn Vũ Cảng Vụ đòi chiếm tới 40% cổ phần cơ mà."
 
-La Kiến Thành cũng thấy uất ức vô cùng, bèn dốc bầu tâm sự than thở với Giáo sư Lương: "Giáo sư Lương ơi là Giáo sư Lương, bên tôi đã chịu lùi rồi đấy chứ, ngặt nỗi Cảng vụ Hoàn Vũ cứ khăng khăng đòi nắm tới 40% cổ phần cơ!"
+Điều khiến người ta bất ngờ là ở Kinh Đô, cả Tô Minh Tùng lẫn Trần Nhuế chẳng ai gọi điện cho Triệu Kim An, cứ như thể đang đứng ngoài xem kịch hay vậy.
 
-Điều khiến người ta bất ngờ là ở tận thủ đô, cả Tô Minh Tùng lẫn Trần Nhuế đều không một ai gọi điện cho Triệu Kim An, cứ như thể hai người họ đang thong thả ngồi xem trò vui.
-
-Triệu Kim An nào hay biết, sau khi nghe ngóng được chuyện này, Trần Nhuế chỉ cười bảo một câu: "Thằng nhóc Kim An lần này tự ái cao thật đấy, hiếm thấy đấy chứ..."
+Triệu Kim An không hề biết rằng, sau khi nghe chuyện, Trần Nhuế chỉ buông một câu: "Lần này Kim An khí thế lớn phết nhỉ, hiếm thấy đấy..."
 
 Ba ngày sau.
 
-Hồ Kiều Tri — cô nàng thiên kim tiểu thư hiện vẫn đang theo học đại học — đã bay thẳng sang tận nước Úc; đích thân Du Phi ra tận sân bay đón người.
+Hồ Kiều Tri, người vẫn đang học đại học, đáp máy bay sang Úc, Du Phi ra tận sân bay đón.
 
-"Triệu Kim An không ra đón tôi à?"
+"Triệu Kim An không tới à?"
 
-"Triệu tổng hiện đang ở mỏ Kinh Bối Sơn ạ."
+"Triệu tổng đang ở Kình Bối Sơn."
 
-Du Phi từng đến Tô gia vài bận nên nắm rất rõ thân thế và lai lịch của Hồ Kiều Tri.
+Du Phi từng đến nhà họ Tô nên biết rõ lai lịch của Hồ Kiều Tri.
 
-Đến Kinh Bối Sơn, vừa trông thấy Thẩm Tử Ngôn, Hồ Kiều Tri không kìm được mà đánh mắt nhìn cô thêm một cái, đoạn thản nhiên nói với Triệu Kim An: "Triệu Kim An, tôi sang đây là để du lịch đấy nhé."
+Lúc gặp Thẩm Tử Ngôn tại Kình Bối Sơn, Hồ Kiều Tri nhìn cô thêm một cái rồi nói với Triệu Kim An: "Triệu Kim An, tôi sang đây đi du lịch thôi."
 
-Thế nhưng ngay sang ngày hôm sau.
+Kết quả ngay ngày hôm sau.
 
-Đại diện Cảng vụ Hoàn Vũ và Trung Lữ đã cùng tề tựu, ngồi lại bên bàn đàm phán.
+Hoàn Vũ Cảng Vụ và Trung Nhôm đã ngồi vào bàn đàm phán cùng nhau.
 
-La Kiến Thành tiếp đón Hồ Kiều Tri vô cùng niềm nở, nhiệt tình. Hồ Kiều Tri quả thực tỏ ra như một du khách thuần túy chỉ đến Úc ngắm cảnh, chẳng hề can dự nửa lời vào việc đàm phán, nhưng sự hiện diện của cô nàng đã ngầm phát đi một thông điệp rõ ràng: Chừng ấy là đủ rồi đấy, hai bên đừng có làm ầm ĩ lên nữa.
+La Kiến Thành tỏ ra vô cùng niềm nở với Hồ Kiều Tri. Hồ Kiều Tri cứ như thể sang Úc du lịch thật sự, chẳng hé răng nói một lời nào, nhưng thông điệp truyền tải lại rất rõ ràng: vừa phải thôi, các người đừng có làm ầm ĩ nữa.
 
-Hồ Kiều Tri không nghiêng về phe nào, để mặc cho Triệu Kim An và La Kiến Thành tự do thương lượng.
+Hồ Kiều Tri không thiên vị bên nào, mặc cho Triệu Kim An và La Kiến Thành tự thương lượng.
 
-Mục tiêu cốt lõi duy nhất: Phải đoạt bằng được mỏ Kinh Bối Sơn.
+Mục tiêu cốt lõi vẫn là phải thâu tóm bằng được mỏ Kình Bối Sơn.
 
-Tuy nhiên, việc không thiên vị bên nào trong hoàn cảnh này thực chất lại chính là một sự ngầm thiên vị. Cáo già thương trường như La Kiến Thành liền chủ động lùi một bước trước: "Cậu Triệu, đòi 40% cổ phần là quá nhiều, 30% là giới hạn cuối cùng của chúng tôi rồi."
+Tuy nhiên, không thiên vị đôi khi lại chính là sự thiên vị ngầm. Con cáo già La Kiến Thành đành nhượng bộ trước một bước: "Triệu tổng à, chiếm 40% cổ phần thì nhiều quá, 30% là giới hạn cuối cùng của chúng tôi rồi."
 
 "38%."
 
-Triệu Kim An tượng trưng nhượng bộ một chút.
+Triệu Kim An nhượng bộ một chút cho có lệ.
 
 "35%."
 
-La Kiến Thành vừa nói vừa liếc mắt nhìn sang Hồ Kiều Tri. Thấy cô nàng vẫn dửng dưng như không nghe thấy gì, ông ta bèn cầm điện thoại lánh sang một góc gọi về báo cáo. Một lát sau quay lại, La Kiến Thành trầm giọng: "Cậu Triệu, giá đã bị đẩy lên 5,4 tỷ USD rồi."
+La Kiến Thành vừa nói vừa liếc nhìn Hồ Kiều Tri, nhưng Hồ Kiều Tri cứ làm như không nghe thấy gì. La Kiến Thành đành cầm điện thoại ra một góc gọi đi đâu đó, một lát sau quay lại nói: "Triệu tổng, giá bị đẩy lên tới 5,4 tỷ đô la Mỹ rồi."
 
-"Là do bên BHP Billiton vừa nâng giá."
+"Là BHP Billiton ra giá."
 
-"Vậy thì chúng ta ra giá 5,5 tỷ USD."
+"Vậy chúng ta trả 5,5 tỷ đô la Mỹ."
 
-Triệu Kim An thản nhiên đáp lời.
+Triệu Kim An thản nhiên đáp.
 
-La Kiến Thành gật đầu: "Chỉ đành làm như vậy thôi."
+La Kiến Thành gật đầu: "Đành phải vậy thôi."
 
-Chẳng ai ngờ cuộc chiến giá cả lại bị đẩy lên mức chóng mặt dường này. Hồ Kiều Tri vỗ nhẹ hai bàn tay: "Được rồi, việc xong xuôi, tôi đi đây."
+Không ai ngờ giá lại bị đẩy lên tới mức này. Hồ Kiều Tri vỗ vỗ tay: "Xong xuôi rồi, tôi về đây."
 
-Cô yêu cầu Triệu Kim An đích thân lái xe đưa mình ra sân bay. Trước lúc mở cửa bước xuống xe, Hồ Kiều Tri không nén nổi tò mò mà hỏi: "Triệu Kim An, cậu chắc chắn đến mức nào mà dám tin rằng sau khi bị thổi giá lên ngút trời như thế, cái mỏ này vẫn mang lại siêu lợi nhuận?"
+Cô bảo Triệu Kim An tiễn mình ra sân bay. Lúc sắp xuống xe, Hồ Kiều Tri tò mò hỏi: "Triệu Kim An, anh chắc chắn cái mỏ này bị thổi lên tới giá đó rồi mà vẫn còn kiếm được nhiều tiền sao?"
 
-Triệu Kim An nghiêm túc đáp: "Cảng vụ Hoàn Vũ cần phải mở ra một cục diện hoàn toàn mới."
+Triệu Kim An nghiêm túc đáp: "Hoàn Vũ Cảng Vụ cần phải mở ra cục diện mới."
 
-Hồ Kiều Tri khẽ gật đầu, mỉm cười đầy ẩn ý: "Tô Miến bảo con bé nhớ cậu rồi đấy."
+Hồ Kiều Tri khẽ gật đầu, bật cười: "Tô Miến bảo là nhớ anh đấy."
 
-"Cậu ở lì bên Úc lâu quá rồi đấy nhé. Rốt cuộc cậu định kiếm bao nhiêu tiền mới chịu cho là đủ?"
+"Anh sang Úc lâu quá rồi, anh định kiếm bao nhiêu tiền mới chịu dừng lại?"
 
-"Kiếm bao nhiêu tiền ư?"
+"Kiếm bao nhiêu tiền à?"
 
-Triệu Kim An thoáng ngẩn ra: "Bây giờ trong tay tôi làm gì có tiền cơ chứ? Chỉ toàn là nợ ngân hàng thôi, muốn bao nhiêu có bấy nhiêu."
+Triệu Kim An khựng lại một chút: "Bây giờ anh làm gì có tiền? Đi vay thì có, muốn bao nhiêu cũng có hết."
 
 Hồ Kiều Tri bật cười thành tiếng.
 
-Thành thật đấy.
-
-...
+Thật thà đấy.
 
 Quận Sa.
 
-Đầu óc Triệu Bác Lan như muốn nổ tung khi Thẩm Tử Ngôn từ bên kia đại dương gọi điện về với vỏn vẹn hai chữ: Gom tiền!
+Triệu Bác Lan đau hết cả đầu khi nhận được cuộc gọi từ Thẩm Tử Ngôn: Xoay tiền!
 
-Cái ông chú ruột của anh lại vừa thâu tóm thêm một mỏ quặng khổng lồ ở nước Úc.
+Ông chú của cô lại vừa đi mua thêm một cái mỏ bên Úc nữa rồi.
 
-"Triệu Bác Lan! Anh với chú của anh cứ chơi cái trò này mãi thì tôi thật sự phải chia tay với chú anh mất thôi!"
+"Triệu Bác Lan, cô với Kim An mà cứ chơi kiểu này, tôi chia tay chú cô thật đấy!"
 
-Lạc Cẩn Chi đứng chống nạnh ngay trước cửa phòng tài vụ, tức tối gắt gỏng.
+Lạc Cẩn Chi đứng chắn ngay trước cửa phòng tài chính.
 
 "Haizz~"
 
-Triệu Bác Lan thở dài thườn thượt: "Lạc tổng à, cô với chú cháu thì lấy đâu ra cái gọi là chia tay cơ chứ?"
+Triệu Bác Lan thở dài thườn thượt: "Lạc tổng, chị với chú em thì chia tay cái nỗi gì chứ?"
 
-"Đúng rồi đấy! Anh tự mồm nói ra rồi nhé! Vậy thì giữa tôi với Kim An chỉ đơn thuần là quan hệ hợp tác làm ăn! Hai chú cháu các anh cấu kết với nhau, ngang nhiên rút ruột tiền vốn của Trăn Nhiên như thế, tưởng bà đây mù chắc? Tưởng tôi không biết đọc báo cáo tài chính à? Các người có coi tôi là bà chủ của Trăn Nhiên nữa không hả?"
+"Đúng thế, chính cô cũng nói rồi đấy, vậy tôi với Kim An chỉ là quan hệ hợp tác thôi. Hai người cấu kết với nhau rút ruột vốn của Trăn Nhiên như thế, coi mắt tôi mù à? Không biết đọc báo cáo tài chính à? Có còn coi tôi là bà chủ của Trăn Nhiên nữa không hả?"
 
-Triệu Bác Lan ngẩng đầu lên, cười gượng: "Lạc tổng, hay là để cháu bảo chú cháu hy sinh nhan sắc vì cô một lần nhé?"
-
-"..."
-
-Lạc Cẩn Chi suy đi tính lại một hồi, bĩu môi: "Xì, 'một lần' của chú anh mà đắt giá đến thế cơ à?"
-
-"Khoan đã... Lạc tổng, Triệu giám đốc ơi, hai người đừng trêu đùa nhau nữa có được không? Cầu xin các người, thanh toán trước cho tôi một ít tiền công nợ với!"
-
-Lưu Xuyên đứng bên cạnh trông thảm hại vô cùng, hai tay ôm khư khư cả xấp hóa đơn chứng từ dày cộp. Ông ta đã phải lặn lội đòi nợ từ tận tỉnh Thiểm Tây sang tới tận Quận Sa này rồi.
-
-"Ông chủ Lưu à, công ty thực sự cạn sạch tiền mặt rồi mà."
-
-Triệu Bác Lan nhìn bộ dạng tiều tụy của Lưu Xuyên mà trong lòng cũng thấy chẳng đành: "Hay là thế này, toàn bộ chi phí ăn ở, đi lại của anh trong những ngày ở Quận Sa, tôi làm thủ tục thanh toán hết cho anh nhé?"
-
-"Các người tài trợ Olympic thì lắm tiền thế, giật giải Quán quân quảng cáo của đài CCTV cũng thừa tiền, xây trung tâm thương mại với tòa nhà văn phòng hoành tráng thì có tiền, Triệu tổng đi mua cảng biển, mua mỏ quặng nước ngoài vung tiền như rác... Thế mà sao không thể thanh toán trước cho tôi một phần tiền hàng hả trời!?"
-
-Lưu Xuyên tủi thân đến mức suýt khóc ra tiếng. Suốt ba năm trời quần quật làm việc mà chẳng thấy bóng dáng đồng tiền đâu.
-
-Triệu Bác Lan và Lạc Cẩn Chi đưa mắt nhìn nhau ái ngại: "Ông chủ Lưu, hay là để tôi linh động thanh toán trước cho anh 10 triệu tệ nhé? Anh cầm tạm rồi về trước đi? Công việc ở xưởng còn bề bộn, anh cứ đứng chôn chân ở đây mãi cũng đâu giải quyết được vấn đề gì."
-
-"Cảm ơn, cảm ơn hai vị nhiều lắm!"
-
-Lưu Xuyên xúc động đến mức nước miếng như chực trào ra, vội vàng cúi gập người lật giở xấp hóa đơn, lựa ra tờ phù hợp nhất: "Mười triệu này tôi trả hết cho các nhà cung cấp còn chưa đủ đâu đấy, tủ cấp đông chứ có phải tôi tự đẻ ra được đâu..."
-
-"Phi phi phi, đây này, hề hề, lấy tờ hóa đơn này đi!"
-
-Lưu Xuyên sợ lắm rồi, sợ chỉ cần mình chần chừ một giây thôi là ngay cả mười triệu tệ này cũng bay biến mất.
-
-Triệu Kim An chủ trương tận dụng tối đa dòng vốn lưu động của Trăn Nhiên cùng các khoản vay ngân hàng để hợp thức hóa sổ sách. Nếu để lộ ra một khoản thâm hụt tài chính quá lớn mà không có nguồn gốc rõ ràng thì rất khó giải trình. Bí mật trùng sinh là điều cấm kỵ lớn nhất trong lòng Triệu Kim An, tuyệt đối không dám thổ lộ cùng ai.
-
-Có lẽ bất kỳ ai rơi vào hoàn cảnh như cậu cũng sẽ đều nơm nớp lo sợ bị người ta bắt đi nghiên cứu giải phẫu.
-
-La Kiến Thành vô cùng lạc quan về triển vọng tương lai của thị trường quặng sắt, bọn họ đã tính toán mức giá cập cảng lên tới 100 USD/tấn. Triệu Kim An tạm thời không động quá sâu vào khối tài sản trên thị trường chứng khoán Mỹ.
-
-Cậu chỉ rút ra 500 triệu USD, phần còn lại sẽ đem thế chấp toàn bộ cảng Piraeus và cảng Sài Gòn để vay vốn ngân hàng.
-
-Sau khi cuộc khủng hoảng tài chính toàn cầu chạm đáy và bắt đầu hồi phục, chứng khoán Mỹ bật tăng rất nhanh; trên thực tế, để tiền ở thị trường chứng khoán Mỹ lúc này mới là cách "tiền đẻ ra tiền" hiệu quả nhất.
-
-Trăn Nhiên, Trăn Hối Tuyển và Cảng vụ Hoàn Vũ đều chưa niêm yết trên sàn chứng khoán, không chịu sự ràng buộc phải công khai báo cáo tài chính ra bên ngoài. Giới trong ngành đoán già đoán non rằng Triệu tổng của Trăn Nhiên chắc hẳn đã chiếm dụng toàn bộ dòng tiền thanh toán gối đầu của các nhà cung cấp bên Trăn Hối Tuyển.
-
-Còn về các dự án xây dựng trung tâm thương mại và cao ốc văn phòng, chắc chắn phía công ty chỉ mới tạm ứng một lượng vốn nhỏ. Bởi trong ngành xây dựng, chẳng ai dại gì trả tiền trước toàn bộ, chỉ khi nào nghiệm thu hoàn công công trình thì mới tất toán phần còn lại.
-
-"Triệu tổng chơi canh bạc này lớn quá rồi, chỉ cần sơ sẩy một nước cờ thôi... là toàn bộ cơ nghiệp công ty sẽ tan thành mây khói."
-
-Không chỉ các đối thủ cạnh tranh bên ngoài, mà ngay cả Nhan Hi khi nhìn vào tình hình tài chính thực tế của công ty cũng phải toát mồ hôi hột thay cho Triệu Kim An.
-
-Dưới góc độ của một chuyên gia kế toán, tỷ lệ đòn bẩy nợ của công ty hiện tại đã ở mức báo động đỏ.
-
-Cả các khoản nợ ngắn hạn lẫn nợ dài hạn đều chất cao như núi.
-
-Tỷ lệ nợ trên tổng tài sản tuy không có một con số cố định tuyệt đối, nhưng mức 40% - 60% thường được xem là ngưỡng an toàn tương đối lành mạnh; vượt quá 70% đã bị xếp vào diện rủi ro cao. Trong khi đó, Cảng vụ Hoàn Vũ lại chơi bài "cõng nợ thế chấp chồng tầng" để vận hành doanh nghiệp.
-
-Không ngờ tới khi BHP Billiton nâng mức giá lên 5,7 tỷ USD, La Kiến Thành đã phải tìm gặp Triệu Kim An để hỏi xem có muốn rút lui hay không, mớ bòng bong ở Úc này để một mình Trung Lữ gánh vác cũng được.
-
-Triệu Kim An chẳng hề lộ chút hoang mang hay có ý định thoái lui; ngược lại, cậu còn xúi giục La Kiến Thành nên dứt khoát hô luôn một mức giá chốt hạ là 6,5 tỷ USD, chứ đừng có chơi trò cò kè thêm bớt từng chút một làm gì cho mệt.
-
-Dư Tĩnh lúc này cũng hoàn toàn im lặng.
-
-Ban đầu dự tính chỉ cần bỏ ra tầm 700 - 800 triệu USD là có thể thâu tóm được mỏ Kinh Bối Sơn, vậy mà giờ đây con số đã bị đẩy lên tận 6,5 tỷ USD.
-
-Thế nhưng cuộc chơi này cũng tương tự như một phiên đấu giá lớn, càng nhích từng bước nhỏ thì giá càng bị đẩy lên cao hơn vô tận.
-
-Cả đoàn công tác theo chân sang Úc lần này, ai nấy đều lặng thinh nín thở.
-
-Phía Trung Lữ thì chẳng có gì phải quá lo lắng, nói cho khó nghe thì đó đâu phải tiền túi của cá nhân họ bỏ ra. Nhưng đối với Cảng vụ Hoàn Vũ, nắm giữ 35% cổ phần đồng nghĩa với việc họ phải tự mình móc ra tới 2,275 tỷ USD tiền tươi thóc thật!
-
-Hiệu trưởng Cung sau đó cũng không gọi điện sang nữa, ông tôn trọng và không can thiệp vào các quyết định chiến lược của Triệu Kim An.
-
-Nhóm nghiên cứu sinh như Dương Tuệ Quỳnh quả thực đã được mở rộng tầm mắt, chẳng biết phải thốt lên lời nào cho phải.
-
-Vị học đệ này của bọn họ... quả thực quá mức phi thường.
-
-Những vòng đàm phán tiếp theo do phía Trung Lữ chủ trì dẫn dắt, Nhan Hi và Thẩm Tử Ngôn đóng vai trò đại diện Cảng vụ Hoàn Vũ tham dự với tư cách "người dự thính". Trong khi đó, Triệu Kim An và La Kiến Thành thong thả ngồi uống trà đàm đạo, cùng nhau bàn thảo về cơ chế đồng quản lý và giám sát sau này.
-
-"Cậu Triệu này, nghe nói Giáo sư Lương đã nhận lời làm cố vấn cho Cảng vụ Hoàn Vũ rồi à?"
-
-"Đó là nhờ Giáo sư Lương coi trọng, nể mặt tôi thôi."
-
-"Chỉ trong vòng vỏn vẹn một năm trời, Cảng vụ Hoàn Vũ của cậu đã sở hữu cảng Piraeus, cảng Sài Gòn, lại thêm cả mỏ Kinh Bối Sơn này nữa."
-
-La Kiến Thành bật cười tự giễu: "Giáo sư Dư cũng là cố vấn của công ty cậu, các vị ấy không coi trọng cậu thì coi trọng ai chứ? Đến cả Hiệu trưởng Cung quen biết với lãnh đạo bên tập đoàn chúng tôi cũng gọi điện mấy bận để vun vén cho cậu đấy thôi."
-
-"Có điều..."
-
-La Kiến Thành đột ngột chuyển giọng: "Nghe đồn cậu chỉ dùng mấy chiếc thẻ mua hàng của Trăn Hối Tuyển là đã mua chuộc được Giáo sư Lương rồi hả?"
+Triệu Bác Lan ngẩng đầu lên: "Lạc tổng, hay là để em bảo chú em hy sinh vì chị một lần nhé?"
 
 "..."
 
-Triệu Kim An khẽ nhếch môi: "Tôi đều trả thù lao cố vấn đầy đủ và sòng phẳng cả đấy chứ."
+Lạc Cẩn Chi nghĩ đi nghĩ lại: "Xì, một lần của chú cô đáng giá đến thế cơ à?"
 
-"Hahaha..."
+"Khoan đã, Lạc tổng, Giám đốc Triệu, hai vị đừng đùa nữa, có thể thanh toán công nợ cho tôi trước được không?"
 
-La Kiến Thành cười lớn sảng khoái. Ông nhận ra nói chuyện với Triệu Kim An đôi lúc rất khó để bắt kịp mạch suy nghĩ của cậu thanh niên này. Khi bàn về việc kiểm soát và giám sát tài chính ở mỏ Kinh Bối Sơn, Triệu Kim An nói năng vô cùng thẳng thắn, không chút vòng vo.
+Lưu Xuyên trông thảm thương hết chỗ nói, tay ôm cả xấp hóa đơn dày cộp, lặn lội từ tận tỉnh Thiểm vào tận Quận Sa để đòi nợ.
 
-Cứ như thể cậu đang ngầm nhắc nhở rằng các ông bên doanh nghiệp nhà nước đã quen thói ăn tiêu phung phí rồi vậy.
+"Ông chủ Lưu à, công ty thật sự hết sạch tiền rồi."
 
-"Cậu Triệu, tôi thực sự muốn biết Cảng vụ Hoàn Vũ hiện đang gánh trên lưng bao nhiêu tiền nợ vay đấy?"
+Triệu Bác Lan nhìn bộ dạng của Lưu Xuyên mà cũng thấy động lòng trắc ẩn: "Hay là toàn bộ chi phí đi lại ăn ở của anh đợt vào Quận Sa này, để tôi thanh toán cho nhé?"
 
-"Các vị chẳng phải đều tính toán ra được cả rồi sao?"
+"Trăn Nhiên nhà các cô tài trợ Thế vận hội thì có tiền, đấu thầu vị trí vàng trên đài CCTV cũng có tiền, xây trung tâm thương mại với tòa nhà văn phòng có tiền, Triệu tổng đi mua cảng mua mỏ cũng có tiền, thế mà không thanh toán nổi công nợ cho tôi trước một ít à?"
 
-La Kiến Thành khẽ gật đầu: "Nghe nói thôn Triệu Gia các cậu bây giờ đất đai đều phủ kín rau sạch và cây ăn quả rồi à?"
+Lưu Xuyên sắp khóc đến nơi rồi, bôn ba vất vả suốt ba năm trời mà chẳng thấy tiền đâu.
 
-Triệu Kim An thật thà bộc bạch: "Hệ thống Trăn Hối Tuyển có thể tiêu thụ được, vả lại bếp ăn tập thể của các công ty cũng cần nguồn rau củ. Làm ăn mà chịu lỗ dài hạn thì khó lòng duy trì lâu dài, chỉ cần giữ mức lãi nhẹ hoặc hòa vốn là tốt lắm rồi."
+Triệu Bác Lan và Lạc Cẩn Chi liếc nhìn nhau: "Ông chủ Lưu, hay là trước mắt tôi thanh toán cho anh 10 triệu tệ nhé? Anh cầm tạm về trước đi? Công việc quan trọng, anh cứ chầu chực mãi ở đây cũng không phải cách."
 
-"Cậu Triệu à, riêng về điểm này, tôi xin phép lấy trà thay rượu kính cậu một ly!"
+"Cảm ơn, cảm ơn nhiều lắm!"
 
-La Kiến Thành cũng là người xuất thân từ chốn làng quê nghèo khó, câu nói này của ông hoàn toàn xuất phát từ tận đáy lòng.
+Lưu Xuyên cảm động đến mức suýt chảy cả nước miếng, vội vàng lật tung xấp hóa đơn ra chọn lấy chọn để: "10 triệu này tôi trả cho các nhà cung cấp bên dưới còn chưa đủ nữa, tủ lạnh bảo quản có phải tự tôi đẻ ra được đâu..."
+
+"Khà, đây rồi, ha ha, lấy tờ này!"
+
+Lưu Xuyên sợ xanh mặt, chỉ sợ mình chần chừ một giây thôi là món tiền 10 triệu này cũng bay biến mất.
+
+Triệu Kim An cố gắng tận dụng tối đa nguồn tiền của Trăn Nhiên cộng với vốn vay ngân hàng, nếu không khoản hụt quá lớn sẽ rất khó khớp sổ sách. Trọng sinh là bí mật lớn nhất trong lòng Triệu Kim An, anh không dám hé lộ với bất kỳ ai.
+
+Chắc hẳn ai rơi vào hoàn cảnh của Triệu Kim An cũng vậy thôi, đều sợ bị người ta bắt đem đi nghiên cứu.
+
+La Kiến Thành tỏ ra rất lạc quan về thị trường quặng sắt tương lai, bọn họ tính toán mức giá cập cảng có thể lên tới 100 đô la Mỹ một tấn. Triệu Kim An tạm thời chưa động mạnh vào nguồn vốn bên chứng khoán Mỹ.
+
+Anh chỉ rút ra 500 triệu đô la Mỹ, phần còn lại đem cảng Piraeus (Tỷ Cảng) và cảng Tây Cống đi thế chấp vay vốn.
+
+Khủng hoảng tài chính đã đi qua, thị trường chứng khoán Mỹ đang phục hồi thần tốc; thực tế để tiền ở lại chứng khoán Mỹ sẽ đẻ ra tiền nhanh hơn nhiều.
+
+Trăn Nhiên, Trăn Hối Tuyển và Hoàn Vũ Cảng Vụ đều chưa niêm yết nên không cần công khai báo cáo tài chính. Giới ngoài đều đoán già đoán non rằng Triệu tổng của Trăn Nhiên chắc hẳn đã điều chuyển cả nguồn tiền gối đầu công nợ nhà cung cấp bên Trăn Hối Tuyển đi dùng rồi.
+
+Còn việc xây dựng trung tâm thương mại và cao ốc văn phòng thì hẳn chỉ mới ứng trước một phần vốn nhỏ.
+
+Chẳng ai dại gì trả hết tiền trước cả, chỉ khi nào nghiệm thu hoàn công mới tất toán toàn bộ.
+
+"Triệu tổng chơi lớn quá rồi, sơ sẩy một chút thôi là... mất trắng cả cơ nghiệp."
+
+Không chỉ giới đồng nghiệp bên ngoài, ngay cả Nhan Hi khi nhìn vào tình hình tài chính của công ty cũng phải thót tim thay cho Triệu Kim An.
+
+Xét trên góc độ kế toán, tỷ lệ nợ của công ty đang ở mức quá cao.
+
+Dù là nợ ngắn hạn hay nợ dài hạn đều thế.
+
+Tỷ lệ nợ không có một con số cố định tuyệt đối, nhưng giới chuyên môn thường coi mức 40% - 60% là khoảng an toàn, vượt quá 70% đã bị xếp vào nhóm rủi ro cao; đằng này Hoàn Vũ Cảng Vụ lại chơi thẳng bài "gánh nợ thế chấp" để vận hành.
+
+Chẳng ngờ khi BHP Billiton đẩy giá lên tới 5,7 tỷ đô la Mỹ, La Kiến Thành dò hỏi xem Triệu Kim An có muốn rút lui để vũng nước đục ở Úc này một mình Trung Nhôm tự lội hay không.
+
+Triệu Kim An chẳng mảy may hoảng loạn hay có ý định chùn bước, trái lại còn xúi La Kiến Thành hét thẳng một phát lên 6,5 tỷ đô la Mỹ luôn, đừng có nhích từng chút một làm gì cho mất thời gian.
+
+Dư Tĩnh cũng cạn lời luôn.
+
+Đang yên đang lành dự tính chỉ tốn khoảng 700 - 800 triệu đô là hốt gọn được Kình Bối Sơn, giờ lại bị đẩy lên tận 6,5 tỷ đô la Mỹ.
+
+Nhưng chuyện này cũng giống như đấu giá vậy, cứ nhích từng bước một chỉ tổ khiến mức giá bị đội lên cao hơn mà thôi.
+
+Cả đội ngũ đi theo sang Úc lần này, tất cả mọi người đều rơi vào im lặng.
+
+Trung Nhôm thì chẳng có gì phải lo lắng, nói khó nghe một chút là có phải tự bỏ tiền túi của mình ra đâu; nhưng Hoàn Vũ Cảng Vụ nắm 35% cổ phần đồng nghĩa với việc phải móc ra tận 2,275 tỷ đô la Mỹ.
+
+Hiệu trưởng Cung cũng không gọi điện sang nữa, tránh làm nhiễu quyết sách của Triệu Kim An.
+
+Đám người Dương Tuệ Quỳnh coi như được mở mang tầm mắt, chẳng biết nên bình luận thế nào cho phải.
+
+Cậu đàn em này...
+
+Quá trình đàm phán tiếp theo do Trung Nhôm đứng ra chủ trì. Nhan Hi và Thẩm Tử Ngôn với tư cách đại diện Hoàn Vũ Cảng Vụ ngồi "dự thính", còn Triệu Kim An và La Kiến Thành chỉ việc ngồi uống trà, hai người mặc cả với nhau về quyền đồng quản lý.
+
+"Triệu tổng, nghe nói Giáo sư Lương đã trở thành cố vấn cho Hoàn Vũ Cảng Vụ rồi à?"
+
+"Được Giáo sư Lương ưu ái cả thôi ạ."
+
+"Chỉ trong vòng một năm ngắn ngủi, Hoàn Vũ Cảng Vụ của cậu đã nắm trong tay cảng Piraeus (Tỷ Cảng), cảng Tây Cống, và giờ là mỏ Kình Bối Sơn."
+
+La Kiến Thành bật cười khe khẽ: "Giáo sư Dư cũng là cố vấn cho công ty cậu, các bà ấy không coi trọng cậu thì còn coi trọng ai? Hiệu trưởng Cung cũng có người quen bên công ty chúng tôi, chẳng ít lần gọi điện tác hợp giúp hai bên đấy."
+
+"Cơ mà..."
+
+La Kiến Thành đột ngột chuyển giọng: "Nghe đồn cậu dùng mấy tấm thẻ mua sắm ở Trăn Hối Tuyển để mua chuộc Giáo sư Lương hả?"
+
+"..."
+
+Triệu Kim An mấp máy môi: "Tôi đều trả phí cố vấn đàng hoàng cả đấy."
+
+"Ha ha ha..."
+
+La Kiến Thành cười vang. Ông phát hiện nói chuyện với Triệu Kim An đôi khi rất khó bắt nhịp; việc Triệu Kim An đòi trực tiếp tham gia quản lý và giám sát tài chính của mỏ Kình Bối Sơn cũng được nói thẳng tuột chẳng chút vòng vo.
+
+Chỉ thiếu nước nói thẳng vào mặt rằng các ông quen thói ăn nhậu hoang phí rồi.
+
+"Triệu tổng, tôi tò mò muốn biết Hoàn Vũ Cảng Vụ hiện đang gánh bao nhiêu tiền vay rồi?"
+
+"Các ông chẳng tính ra hết rồi còn gì."
+
+La Kiến Thành gật đầu: "Nghe nói ở Triệu Gia Thôn giờ trồng kín cả rau xanh lẫn cây ăn quả hả?"
+
+Triệu Kim An đáp thật thà: "Siêu thị Trăn Hối Tuyển bán được, với lại nhà ăn công ty kiểu gì chẳng cần rau. Làm ăn mà lỗ triền miên thì khó bền lâu, chỉ cần giữ được lãi nhẹ hoặc thu chi cân bằng là ổn rồi."
+
+"Triệu tổng, riêng điểm này tôi xin lấy trà thay rượu kính cậu một ly."
+
+La Kiến Thành cũng xuất thân từ nông thôn, chân thành nói.

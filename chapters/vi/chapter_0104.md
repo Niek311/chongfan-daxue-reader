@@ -1,7 +1,5 @@
 # Chương 104: Triệu Kim An trong chiếc áo sơ mi trắng
 
-> **Tiêu đề gốc**: 第104章 穿白衬衫的赵今安。
-
 Ba ngày sau, nhằm vào dịp cuối tuần, giải đấu bóng rổ Cúp Trăn Nhiên chính thức bước vào ngày hội khai mạc.
 
 Khuôn viên sân vận động chật kín người xem, phần lớn là những chàng trai khoác trên mình những bộ đồng phục bóng rổ rực rỡ sắc màu, hôm nay chính là sân nhà để họ tỏa sáng.
@@ -54,7 +52,7 @@ Lâm Thanh Tuyết không phải là mẫu con gái sống bằng mộng tưởn
 
 Hồi đầu năm học, vừa hay tin Trần Trạch lái xe BMW đi học, Lâm Thanh Tuyết đã từng ra sức săn đón, đon đả lấy lòng. Ngày đầu tiên huấn luyện quân sự, cốc nước mát đầu tiên cô cũng cố tình đem dâng tận tay cho Trần Trạch, đêm hôm khuya khoắt lại còn gửi những bức ảnh quyến rũ qua mạng để thả thính, mê hoặc Triệu Kim An.
 
-Rốt cuộc sau đó cô mới ngã ngửa khi biết Trần Trạch đã có một cô bạn gái xinh như mộng là Hứa Mạn Mạn, còn Triệu Kim An thực chất chỉ là một gã sinh viên thuộc diện nghèo kiết xác!
+Rốt cuộc sau đó cô mới ngã ngửa khi biết Trần Trạch đã có một cô bạn gái xinh như mộng là Từ Mạn Mạn, còn Triệu Kim An thực chất chỉ là một gã sinh viên thuộc diện nghèo kiết xác!
 
 Mẹ kiếp chứ...
 
@@ -86,13 +84,13 @@ Dạo gần đây Lưu Sấm Phong không ít lần ba hoa khoác lác trước 
 
 ...
 
-Trần Trạch cùng đi tới với Hứa Mạn Mạn, theo sau còn có Mộc Dao và Diêu Tân.
+Trần Trạch cùng đi tới với Từ Mạn Mạn, theo sau còn có Mộc Dao và Diêu Sân.
 
 "Tử Ngôn!!"
 
-Diêu Tân giơ cao tay vẫy gọi Thẩm Tử Ngôn rồi thoăn thoắt chạy lại gần.
+Diêu Sân giơ cao tay vẫy gọi Thẩm Tử Ngôn rồi thoăn thoắt chạy lại gần.
 
-Hứa Mạn Mạn và Mộc Dao lẳng lặng bước theo sau.
+Từ Mạn Mạn và Mộc Dao lẳng lặng bước theo sau.
 
 Hôm nay Thẩm Tử Ngôn diện một bộ âu phục công sở chỉn chu, quần tây đen kết hợp cùng áo sơ mi trắng tinh khôi, trông chẳng khác nào một nữ quản lý chuyên nghiệp đã đi làm. Cô đang tiến hành những bước kiểm tra rà soát cuối cùng, bao gồm cả hệ thống âm thanh, ánh sáng đặt bên cạnh sân khấu.
 
@@ -108,7 +106,7 @@ Bởi khi sự kiện chưa chính thức khai mạc, người ngoài không đ�
 
 Trần Trạch gãi đầu càu nhàu, làm cái trò gì không biết, làm như mình là người quan trọng lắm không bằng.
 
-Diêu Tân mỉm cười thì thầm: "Dao Dao này, nghe bảo giải đấu này là do Triệu Kim An đứng ra tổ chức đấy nhé."
+Diêu Sân mỉm cười thì thầm: "Dao Dao này, nghe bảo giải đấu này là do Triệu Kim An đứng ra tổ chức đấy nhé."
 
 Mộc Dao đăm đăm nhìn chai bom nước Khinh Dưỡng trong tay, trong lòng ngổn ngang bao suy nghĩ chẳng rõ là vui hay buồn.
 
@@ -116,15 +114,15 @@ Mộc Dao đăm đăm nhìn chai bom nước Khinh Dưỡng trong tay, trong lò
 
 Trần Trạch cũng đưa mắt dáo dác nhìn quanh: "Nó là người phụ trách mà sao giờ này vẫn chưa thấy mặt mũi đâu?"
 
-Hứa Mạn Mạn đưa mắt nhìn Đường Hiểu Tình, nhìn những người bạn từng cùng mình kề vai sát cánh mấy hôm trước, rồi lại nhìn bóng dáng Thẩm Tử Ngôn đang tất bật chạy ngược chạy xuôi, cô liền xắn cao tay áo bảo: "Để tớ qua phụ giúp các cậu ấy một tay."
+Từ Mạn Mạn đưa mắt nhìn Đường Hiểu Tình, nhìn những người bạn từng cùng mình kề vai sát cánh mấy hôm trước, rồi lại nhìn bóng dáng Thẩm Tử Ngôn đang tất bật chạy ngược chạy xuôi, cô liền xắn cao tay áo bảo: "Để tớ qua phụ giúp các cậu ấy một tay."
 
-"Ủa, Hứa Mạn Mạn, cậu lại sang đây làm nữa à?"
+"Ủa, Từ Mạn Mạn, cậu lại sang đây làm nữa à?"
 
 Triệu Trí Dũng mồ hôi nhễ nhại khắp trán, nhe răng cười toe toét hỏi.
 
 "Ừm, đưa cho tớ nào."
 
-Hứa Mạn Mạn mỉm cười dịu dàng, chìa hai tay ra đón lấy hai thùng nước khoáng mà Triệu Trí Dũng đang ôm trước ngực.
+Từ Mạn Mạn mỉm cười dịu dàng, chìa hai tay ra đón lấy hai thùng nước khoáng mà Triệu Trí Dũng đang ôm trước ngực.
 
 Triệu Trí Dũng vội can: "Cậu ôm một thùng thôi là được rồi, nặng lắm đấy."
 
@@ -132,7 +130,7 @@ Trần Trạch đứng đực mặt ra: "..."
 
 Ơ kìa, chẳng phải hôm nọ chính miệng em bảo mấy việc này chẳng còn gì thú vị nữa hay sao!?
 
-Diêu Tân thấy vậy cũng xắn tay áo: "Để tớ sang phụ một tay với!"
+Diêu Sân thấy vậy cũng xắn tay áo: "Để tớ sang phụ một tay với!"
 
 Không chỉ riêng Triệu Trí Dũng, ánh mắt Mộc Dao lúc này còn vô tình nhìn thấy bóng dáng Du Phi ở phía xa xa.
 

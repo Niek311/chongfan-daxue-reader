@@ -1,7 +1,5 @@
 # Chương 292: Tranh đoạt tài nguyên
 
-> **Tiêu đề gốc**: 第292章 掠夺。
-
 Trong thư phòng.
 
 Tô Cảnh Ngôn quan sát Triệu Kim An từ trên xuống dưới một lượt, trong lòng thầm gật đầu tán thưởng, tướng mạo quả thực khôi ngô tuấn tú phi phàm.

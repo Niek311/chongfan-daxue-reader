@@ -1,7 +1,5 @@
 # Chương 244: Đêm không ngủ.
 
-> **Tiêu đề gốc**: 第244章 难眠之夜。
-
 Thời gian: 20:22.
 
 Lái xe từ thành phố Sâm Châu trở về tới nhà thì trời đã tối mịt, quá cả giờ cơm nước thường lệ.

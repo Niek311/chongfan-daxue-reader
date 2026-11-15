@@ -1,243 +1,239 @@
-# ﻿Chương 365: Những ông chủ nhỏ
+# Chương 365: Những ông bà chủ nhỏ.
 
-> **Tiêu đề gốc**: 第365章 小老板们。
+Đoàn tàu lắc lư theo nhịp "xình xịch xình xịch".
 
-Đoàn tàu "cục ta cục ta" lắc lư chầm chậm.
+Lưu Sấm Phong và Phương Khiết ngồi cạnh nhau.
 
-Lưu Sáng Phong và Phương Khiết ngồi cạnh nhau.
+Khoang bốn ghế, Lâm Thanh Tuyết và Cốc Siêu Thừa ngồi đối diện.
 
-Ghế bốn chỗ — Lâm Thanh Tuyết và Cốc Siêu Thừa ngồi đối diện.
+Thực ra bọn họ cũng chẳng đến nỗi vất vả quá, trong túi đã có chút tiền rồi. Ở tỉnh Tương Nam có nhiều người đi Dương Thành nhập hàng còn trốn vé tàu, tiết kiệm được đồng nào hay đồng nấy.
 
-Thật ra bốn người chưa đến mức cực khổ lắm — giờ trong người đã có ít tiền. Dân Tương Nam đi Dương Thành lấy hàng nhiều người còn trốn vé, tiết kiệm được đồng nào hay đồng đó.
+Chỉ riêng tiền vé thôi cũng đủ quy ra mấy bộ quần áo rồi.
 
-Mấy bộ đồ mà có thêm tiền.
+Làm ăn nhỏ thì chỉ có thể tính toán chi li từng đồng như thế.
 
-Làm ăn nhỏ thì chỉ có cách chi li từng xu.
+Lưu Sấm Phong quay đầu nhìn ra ngoài cửa sổ, không nhìn Lâm Thanh Tuyết ngồi đối diện, nhưng khóe mắt vẫn chẳng nhịn được mà liếc sang một cái.
 
-Lưu Sáng Phong quay mặt nhìn ra cửa sổ, tránh không nhìn Lâm Thanh Tuyết đối diện, nhịn không được lại liếc nhìn bằng khóe mắt.
+Ba năm trôi qua, lão Lưu đã không còn là gã trai gửi tin nhắn vượt quá gói cước cũng phải ngồi tính toán, xót từng đồng lưu lượng điện thoại như xưa nữa.
 
-Ba năm rồi, Lưu Sáng Phong không còn là cái Lưu hay nhắn tin vượt gói cước rồi xót từng đồng nữa, không còn là người keo kiệt đến mức tiếc cả tiền data điện thoại.
+Nếu có ai gọi một tiếng "ông chủ Lưu", Lưu Sấm Phong đáp lại cũng chẳng có gì là sai.
 
-Gọi một tiếng Lưu chủ — Lưu Sáng Phong gật đầu ừ cũng chẳng sai.
+Còn "bà chủ" Phương Khiết thì cúi đầu ôm điện thoại bấm tin nhắn "lách tách".
 
-Phương Khiết — bà chủ nhỏ — cúi đầu cầm điện thoại gõ "tanh tanh tanh" nhắn tin.
+Đừng coi thường Lưu Sấm Phong và Phương Khiết, họ thực sự đã kiếm được tiền rồi đấy, thu nhập mỗi tháng từ hai mươi đến năm mươi nghìn tệ.
 
-Đừng coi thường Lưu Sáng Phong và Phương Khiết — hai người kiếm tiền thật sự, một tháng có hai đến năm vạn thu nhập.
+Tháng cao điểm nhất kiếm được tận tám mươi nghìn tệ.
 
-Tháng cao nhất lên đến tám vạn.
+Cốc Siêu Thừa bước chân vào ngành này muộn hơn, kém hẳn hai người họ, mỗi tháng chỉ kiếm được vài nghìn tệ.
 
-Cốc Siêu Thừa vào ngành muộn hơn, kém xa hai người, một tháng chỉ được vài nghìn.
+Nhưng trong lớp Kế toán 1 vẫn còn đang là sinh viên năm ba, đặt vào bối cảnh năm 2009 thì Cốc Siêu Thừa đã thuộc nhóm người có thu nhập cao rồi.
 
-Nhưng đang là sinh viên năm ba kế toán lớp một, năm 2009 mà thu nhập của Cốc Siêu Thừa vậy là thuộc hàng cao rồi.
+Nếu chỉ xét riêng về thu nhập, số tiền Cốc Siêu Thừa kiếm được chẳng hề thua kém Đường Hiểu Tình.
 
-Chỉ so thu nhập mà nói, Cốc Siêu Thừa kiếm không ít hơn Đường Hiểu Thanh.
+Lâm Thanh Tuyết thì càng khỏi phải nói.
 
-Lâm Thanh Tuyết thì khỏi nói.
+Cô cùng với Phương Khiết và Lưu Sấm Phong đều đã ra dáng những ông bà chủ nhỏ rồi.
 
-Cô ấy, Phương Khiết, Lưu Sáng Phong — đều tạm gọi là những ông chủ nhỏ.
+Lưu Sấm Phong và Cốc Siêu Thừa đang hừng hực khí thế, chỉ riêng Lâm Thanh Tuyết là vô cùng điềm tĩnh. Cô đã tận mắt chứng kiến một doanh nhân tầm cỡ như Triệu Kim An, chứng kiến cảnh Dương Thù Mỹ phá sản; những chuyện ấy Lâm Thanh Tuyết đều trực tiếp tham gia sâu sát.
 
-Lưu Sáng Phong và Cốc Siêu Thừa hào hứng ra mặt, chỉ có Lâm Thanh Tuyết rất bình thản — cô đã từng gần với doanh nhân Triệu Kim An, từng chứng kiến Dương Thục Mỹ phá sản, và sâu sát cả hai chuyện đó. Lâm Thanh Tuyết biết là đã lột xác rồi.
+Tâm lý của Lưu Sấm Phong có lẽ cũng giống như Trần Trạch: Lâm Thanh Tuyết thực sự đã lột xác rồi.
 
-Lưu Sáng Phong có lẽ cũng na ná tâm trạng của Trần Trạch — Lâm Thanh Tuyết đã trưởng thành lên rất nhiều.
+Nếu như trước kia Phương Khiết là người trưởng thành nhất lớp Kế toán 1, thì bây giờ Lâm Thanh Tuyết đã có một bước lột xác về chất.
 
-Nếu trước đây Phương Khiết là người chín chắn nhất hội kế toán một, thì Lâm Thanh Tuyết bây giờ là người có bước lột xác về chất.
+Hay tin bọn họ tới Dương Thành, các bạn học lớp Kế toán 1 mới chợt nhận ra hóa ra mình vẫn chỉ là sinh viên đại học, còn nhóm Lưu Sấm Phong đã bước đi trước một quãng rất xa rồi.
 
-Biết chuyện bốn người đến Dương Thành, đám bạn cùng lớp kế toán một mới nhận ra: thì ra mình vẫn là sinh viên, còn Lưu Sáng Phong và mấy bạn đã đi trước rồi.
-
----
-
-Xuống tàu.
+Xuống tàu hỏa.
 
 Lâm Thanh Tuyết rút điện thoại ra gọi.
 
-Chu Hoa Phong lái chiếc Mercedes thương mại ra đón.
+Chu Phong Hoa lái chiếc xe thương mại Mercedes tới đón người.
 
-Không phải Triệu Kim An ưu ái gì họ đặc biệt — người ngoài cùng là sinh viên chung lớp đại học, đi xa đón về nhau, chút tiền xăng nhỏ thôi.
+Chẳng phải Triệu Kim An đối xử tốt với họ đến mức nào, chẳng qua ra ngoài xã hội đều là bạn học cùng lớp đại học, chỉ tốn chút tiền xăng xe mà thôi.
 
-Như Lưu Sáng Phong hay nói: Triệu Kim An không tính toán với họ, thì Cốc Siêu Thừa mà tính toán với Triệu Kim An, chỉ có tự bực mình thôi.
+Nói theo cách của Lưu Sấm Phong thì ngay cả Triệu Kim An còn chẳng thèm chấp nhặt với họ; nếu Cốc Siêu Thừa mà đi so đo với Triệu Kim An thì chỉ có nước tự ôm cục tức một mình.
 
-"Anh Hoa Phong, Kim An đến hồi nào vậy?"
+"Bác tài ơi, Kim An tới đây hôm nào thế?"
 
-Lên xe, Lưu Sáng Phong thân thiện hỏi.
+Lên xe rồi, Lưu Sấm Phong bắt chuyện tự nhiên như người quen lâu năm.
 
 "Ba ngày trước."
 
-Chu Hoa Phong tập trung lái không nói ngày giờ chính xác.
+Chu Phong Hoa tập trung lái xe, không nói chính xác ngày giờ.
 
-"Hehe, biết vậy tao đi chung với Kim An cho rồi."
+"Hề hề, biết thế tụi này đi cùng Kim An từ sớm rồi."
 
-Lưu Sáng Phong sờ vào nội thất chiếc Mercedes thương mại, mắt đầy ngưỡng mộ: "Kim An bây giờ chịu chơi không có giới hạn — có Rolls-Royce Phantom không nhỉ?"
+Lưu Sấm Phong sờ soạng nội thất chiếc xe thương mại Mercedes, vẻ mặt đầy ngưỡng mộ: "Kim An bây giờ giàu đến mức vô nhân tính thật đấy, cậu ấy có lái chiếc Rolls-Royce Phantom tới đây không?"
 
-"Không phải xe."
+"Không phải chuyện xe đâu."
 
-Cốc Siêu Thừa thúc vào Lưu Sáng Phong nói khẽ: "Kim An bây giờ ra ngoài có năm vệ sĩ đi theo."
+Cốc Siêu Thừa huých nhẹ Lưu Sấm Phong, nói nhỏ: "Kim An bây giờ ra ngoài mang theo tận năm vệ sĩ đấy."
 
-Phương Khiết và Lâm Thanh Tuyết cười nhẹ.
+Phương Khiết và Lâm Thanh Tuyết nghe vậy chỉ khẽ mỉm cười.
 
-"Anh Hoa Phong, Kim An đến Dương Thành làm gì vậy?"
+"Bác tài, Kim An tới Dương Thành làm gì thế ạ?"
 
 Phương Khiết hỏi.
 
-Chu Hoa Phong mắt nhìn thẳng không nghiêng: "Tôi chỉ là tài xế, không rõ nội dung công việc."
+Chu Phong Hoa mắt nhìn thẳng phía trước: "Tôi chỉ là tài xế, không rõ nội dung công việc."
 
-"Tiểu Tuyết, mày biết không?"
+"Tiểu Tuyết, cậu có biết không?"
 
-Lâm Thanh Tuyết lắc đầu: "Triệu tổng làm gì, chỉ có cấp cao trong công ty mới biết."
+Lâm Thanh Tuyết lắc đầu: "Triệu tổng làm gì thì chỉ có lãnh đạo cấp cao của công ty mới biết thôi."
 
----
+Ở một phía khác.
 
-Bên kia.
+Triệu Kim An tìm một quán ăn đêm mang đậm hơi thở đời thường. Anh thích đi ăn đêm cùng Lưu Sấm Phong; cậu bạn này sức ăn khỏe, món gì cũng khen ngon, chứ anh ghét nhất kiểu người ăn có tí đã kêu gào giảm cân.
 
-Triệu Kim An tìm một xe đẩy bán đêm có đủ hơi lửa, khói bay nghi ngút — anh thích ăn khuya với Lưu Sáng Phong, bởi vì Lưu Sáng Phong ăn uống thoải mái, gì cũng khen ngon, không bao giờ than béo, không thèm nhịn miệng. Ăn cùng người như vậy mới thấy ngon.
+Ăn chung với kiểu người như thế chỉ tổ mất hết cả ngon miệng.
 
-Thẩm Tử Ngôn đến đâu cũng thích thử đặc sản địa phương, cô không nói với Triệu Kim An — kéo Liễu Ôn Ninh bàn chuyện anh đào, bàn chuyện Giang Gia Áo và Thiểm tỉnh.
+Thẩm Tử Ngôn hễ đi đến đâu cũng thích thưởng thức đặc sản địa phương. Cô chẳng thèm nói với Triệu Kim An mà quay sang bàn bạc thẳng với Liễu Ôn Ninh về chuyện anh đào, bàn về Tưởng Gia Ao và tỉnh Thiểm.
 
-Liễu Ôn Ninh liếc mắt nhìn Triệu Kim An, rồi ngồi thẳng bàn nghiêm túc với Thẩm Tử Ngôn.
+Liễu Ôn Ninh liếc nhìn Triệu Kim An một cái, thấy vậy liền nghiêm túc thảo luận cùng Thẩm Tử Ngôn.
 
-Triệu Kim An không cau mày — tức là ngầm đồng ý để Thẩm Tử Ngôn tham gia Chân Hội Tuyển.
+Triệu Kim An không hề nhíu mày, điều đó chứng tỏ anh ngầm đồng ý cho Thẩm Tử Ngôn nhúng tay vào Trăn Hối Tuyển.
 
-Cũng không thể gọi là "tham gia."
+Mà cũng không hẳn gọi là "nhúng tay".
 
-Trong lòng Liễu Ôn Ninh, hay nói đúng hơn là trong lòng tất cả mọi người trong công ty — đôi đầu lĩnh Thẩm Tử Ngôn và Từ Mạn Mạn mỗi người cai một mảng, không ai được vượt ranh giới.
+Trong lòng Liễu Ôn Ninh, hay nói đúng hơn là trong suy nghĩ của tất cả mọi người ở công ty, hai nữ tướng Thẩm Tử Ngôn và Từ Mạn Mạn mỗi người phụ trách một mảng riêng, nước sông không phạm nước giếng, tuyệt đối không ai được vượt ranh giới.
 
-Hồi Từ Mạn Mạn còn đây, hai người làm rất tốt — giếng nước không phạm sông ngòi.
+Hồi Từ Mạn Mạn còn ở đó, hai người giữ đúng ranh giới nên làm việc cũng rất ổn thỏa.
 
-"Haizzz, bây giờ Thẩm tổng một mình lớn rồi!"
+"Haizz, giờ thì Thẩm tổng một mình độc bá rồi!"
 
-Liễu Ôn Ninh trong bụng than, Từ tổng thật sự ngu hay sao?
+Liễu Ôn Ninh thầm than trong bụng, Từ tổng bị ngốc à?
 
-Còn Tô Miên — Tô chủ nhiệm, thím nhỏ.
+Còn về Tô Miến — Chủ nhiệm Tô, cô thím nhỏ kia.
 
-Ai cũng biết cô ấy không mấy quan tâm chuyện công ty cụ thể, một là không cần, hai là sức khỏe không cho phép.
+Ai nấy đều biết cô ấy không màng tới chuyện điều hành cụ thể của công ty; một là không cần thiết, hai là tình trạng sức khỏe không cho phép.
 
-"Bây giờ chỉ cần xem ai sinh đứa con đầu tiên."
+"Bây giờ chỉ còn xem ai là người sinh được đứa con đầu lòng thôi."
 
-Liễu Ôn Ninh thầm nghĩ, Triệu tổng nhiều cơ ngơi thế, chỉ hai tòa văn phòng thôi sau này cho thuê đã không tệ — đứa con mới là chốt chặn cuối cùng. Đàn ông thì giống nhau hết, dù tốt với phụ nữ đến đâu, sản nghiệp cuối cùng vẫn sẽ để lại cho con của mình.
+Liễu Ôn Ninh thầm nghĩ trong lòng: Triệu tổng có nhiều sản nghiệp như vậy, chỉ riêng hai tòa nhà văn phòng sau này thu tiền thuê thôi cũng đã kinh khủng lắm rồi. Con cái mới là yếu tố then chốt nhất; đàn ông trên đời này đều giống hệt nhau một cách kỳ lạ.
 
-Tất nhiên cũng có ngoại lệ — sản nghiệp bị phụ nữ bên ngoài dắt đi, trong một vạn người có được một người không?
+Có đối xử tốt với phụ nữ đến mấy thì sản nghiệp cuối cùng vẫn sẽ để lại cho con ruột của mình.
+
+Dĩ nhiên cũng có ngoại lệ, kiểu bị dỗ ngọt rồi đem sản nghiệp cho người phụ nữ bên ngoài, nhưng trong một vạn người chắc được mấy người chứ?
 
 "Thẩm Tử Ngôn!"
 
 Triệu Kim An gọi một tiếng.
 
-"Gì?"
+"Dạ."
 
-"Mang về một ít cho Thiên Thiên, bà nội và thím chưa ăn bao giờ."
+"Lấy một ít gửi về cho Thiên Thiên, bà nội và thím út anh đều chưa từng ăn qua."
 
-"OK, để tôi lo!"
+"OK, để em sắp xếp!"
 
-Thẩm Tử Ngôn nhận ngay, lòng thấy vui không nói được.
+Thẩm Tử Ngôn nhận lời ngay tắp lự, trong lòng vui sướng khôn tả.
 
-Cô sẽ không hỏi Đoạn Thu Bình và Tống Gia Nguyệt — Triệu Kim An nói đến ai thì cô làm cho người đó, không nói thì cô không tự tiện thêm.
+Cô tuyệt nhiên không hỏi tới Đoạn Thu Bình và Tống Gia Nguyệt. Triệu Kim An nhắc tới ai thì Thẩm Tử Ngôn làm cho người đó, anh không nhắc thì cô cũng chẳng thừa hơi hỏi thêm làm gì.
 
-"Vùng Triệu Gia không trồng được sao?"
+"Triệu Gia Thôn không trồng được à?"
 
-"Khí hậu, thổ nhưỡng — mày tưởng trồng gì cũng được à?"
+"Khí hậu, thổ nhưỡng khác nhau, em tưởng thứ gì cũng trồng được chắc?"
 
-Triệu Kim An liếc nhìn Dư Phi đang cúi đầu nhắn tin, Dư Phi vội che điện thoại lại, Triệu Kim An cười: "Bạn trai à?"
+Triệu Kim An nghiêng người liếc nhìn Du Phi đang cúi đầu nhắn tin. Du Phi vội vàng úp điện thoại xuống, Triệu Kim An bật cười: "Bạn trai à?"
 
 "Không phải."
 
-Dư Phi đang nhắn với Mộc Dao — Trương Vân Tây đang ở Dương Thành, công ty bây giờ Mộc Dao đang lo tất cả.
+Du Phi đang nhắn tin với Mộc Dao. Trương Vân Thiến hiện đang ở Dương Thành nên mọi việc ở công ty đều do một tay Mộc Dao quản lý.
 
-"Cô ấy làm việc ở chỗ dì như thế nào?"
+"Cậu ấy làm việc ở công ty dì út thế nào rồi?"
 
-Triệu Kim An hiếm khi hỏi chuyện này.
+Hiếm khi Triệu Kim An mới mở lời hỏi thăm một câu.
 
-"Dao Dao lái BMW rồi, mặc vest đi làm."
+"Dao Dao lái xe BMW rồi, mặc đồ công sở hẳn hoi nhé."
 
-Dư Phi nói gọn, bọn họ thân nhau quá, ai cũng hình dung được Mộc Dao lái BMW mặc vest trông như thế nào.
+Du Phi trả lời ngắn gọn súc tích. Mọi người đều quá quen thuộc nhau rồi, chỉ cần nghe vậy là đủ hình dung ra dáng vẻ Mộc Dao lái BMW mặc đồ công sở trông thế nào.
 
-"Tốt."
+"Tốt lắm."
 
-Khóe miệng Triệu Kim An khẽ nhếch lên.
+Khóe môi Triệu Kim An khẽ nhếch lên thành một nụ cười.
 
-"......"
+"..."
 
-Dư Phi không hiểu lắm — Dao Dao trưởng thành rồi, không còn là cái Dao mếu khóc nấc cụt nữa, nhưng cậu không biết là người ta chỉ trẻ con trước mặt người mà mình thích thôi sao?
+Du Phi nhìn mà chẳng hiểu nổi. Đúng là Dao Dao đã trưởng thành hơn rồi, không còn là cô nàng Dao hễ khóc là nấc cụt như xưa nữa, nhưng chẳng lẽ cậu không biết con người ta chỉ tỏ ra trẻ con trước mặt người mình thích thôi sao?
 
----
+Thẩm Tử Ngôn ngồi xích lại gần, hạ giọng hỏi: "Kim An, Cốc Siêu Thừa có thực sự hợp để tự kinh doanh không? Còn Lưu Sấm Phong với Phương Khiết là có chút vấn đề, hay là em hiểu nhầm?"
 
-Thẩm Tử Ngôn ngồi lại gần, nói khẽ: "Kim An, Cốc Siêu Thừa có thực sự phù hợp tự làm ăn không? Lưu Sáng Phong và Phương Khiết thì không có vấn đề gì — hay là tao hiểu lầm?"
+Du Phi cũng gật đầu phụ họa: "Tớ cũng thấy Cốc Siêu Thừa lớp cậu..."
 
-Dư Phi cũng gật đầu lia: "Em cũng cảm giác Cốc Siêu Thừa trong lớp mày..."
+"Tự làm hàng thì sẽ có rủi ro rồi, phải kiểm soát được chi phí với mẫu mã, chọn sai mẫu là tồn kho đọng vốn ngay... Chẳng đơn giản như bọn họ nghĩ đâu."
 
-"Tự làm hàng thì có rủi ro rồi, phải kiểm soát chi phí còn phải lo mẫu mã, mẫu không phù hợp thì tồn kho... không đơn giản như họ nghĩ đâu."
+"Nhưng em có dám nói thẳng với cậu ta là cậu không hợp đâu, đừng làm nữa, cứ ngoan ngoãn đi làm thuê cho lành không?"
 
-"Nhưng mày có thể nói với hắn là mày không phù hợp, đừng làm không? Thôi yên phận đi làm thuê đi?"
+Triệu Kim An chỉ hỏi ngược lại đúng một câu, cả Du Phi lẫn Thẩm Tử Ngôn liền im bặt.
 
-Triệu Kim An chỉ hỏi ngược lại một câu, Dư Phi và Thẩm Tử Ngôn ngậm miệng.
+Không phải Triệu Kim An máu lạnh, đến bạn cùng phòng đại học cũng chẳng thèm khuyên một câu.
 
-Không phải Triệu Kim An lạnh lùng không biết quan tâm bạn cùng phòng.
+Mà bởi hễ ai mở miệng khuyên kiểu đó, người ta chắc chắn sẽ ghi hận trong lòng, cho rằng anh đang coi thường họ.
 
-Ai mà nói kiểu đó, người ta chắc chắn ghi trong lòng, cho rằng mày coi thường hắn.
+Nhỡ đâu Lưu Sấm Phong và Phương Khiết phát tài thật, lúc ấy Cốc Siêu Thừa lại quay ra trách móc chính anh năm xưa ngăn cản khiến cậu ta bỏ lỡ cơ hội làm giàu.
 
-Nếu Lưu Sáng Phong và Phương Khiết thật sự phát tài, Cốc Siêu Thừa lại trách mày ngày đó cản hắn, để hắn bỏ lỡ cơ hội đổi đời.
+"Lưu Sấm Phong có Phương Khiết... Phương Khiết đã bù đắp rất lớn cho những thiếu sót của Lưu Sấm Phong."
 
-"Lưu Sáng Phong có Phương Khiết... Phương Khiết bổ khuyết được rất nhiều chỗ hổng của Lưu Sáng Phong."
+Thẩm Tử Ngôn đưa ra lời nhận xét xác đáng, rồi tiện tay nhặt một chiếc tai nghe nhét vào tai Triệu Kim An.
 
-Thẩm Tử Ngôn nhận xét khách quan, rồi rút một cái tai nghe nhét vào tai Triệu Kim An.
+"Kim An, lâu lắm rồi anh chưa viết nhạc đấy."
 
-"Kim An, lâu rồi mày không viết nhạc."
+"Anh có đi làm ngôi sao đâu."
 
-"Tao đâu có làm nghệ sĩ."
+"Nói vậy là anh biết viết nhạc thật à?"
 
-"Vậy tức là mày biết viết nhạc?"
+Thẩm Tử Ngôn bắt bẻ câu chữ ngay. Triệu Kim An mới viết đúng một ca khúc quảng cáo cho nước có ga Khinh Dưỡng, thế mà cũng từng gây sốt một dạo.
 
-Thẩm Tử Ngôn bắt bẻ ngay, Triệu Kim An chỉ từng viết một bài nhạc quảng cáo cho Khinh Oxy Khí Bọt — rồi cũng nổi tiếng một thời gian. Mấy ca sĩ muốn xin nhạc, nhưng đối tác là Triệu tổng Chân Nhiên, ai dám trả giá?
+Có ca sĩ từng muốn đặt hàng anh viết nhạc, nhưng đối phương là Triệu tổng của Trăn Nhiên, ai mà trả nổi thù lao cơ chứ?
 
----
+Đang nói chuyện thì nhóm Lưu Sấm Phong và Lâm Thanh Tuyết đã tới nơi.
 
-Đang nói chuyện thì Lưu Sáng Phong và Lâm Thanh Tuyết bọn họ đến.
+"Trời ơi, Kim An, lâu lắm rồi không gặp!"
 
-"Mẹ ơi, Kim An, lâu quá không gặp."
+Lưu Sấm Phong nhảy xuống xe đầy phấn khích. Triệu Kim An mỉm cười: "Chào mừng tới Dương Thành."
 
-Lưu Sáng Phong nhảy xuống xe hào hứng, Triệu Kim An cười: "Chào."
+"Đây là Dương Thành đấy! Cứ làm như Dương Thành là địa bàn của cậu không bằng, hahaha!"
 
-"Đây là Dương Thành! Sao nói như Dương Thành là của mày vậy, hahaha!"
+"Thế thì cậu mời đi."
 
-"Vậy mày mời."
+"Được, tớ mời thì tớ mời!"
 
-"Được, mời là mời!"
+Đi quán bar thì tốn kém quá, chứ một bữa ăn đêm thì Lưu Sấm Phong hào phóng vỗ ngực bảo chẳng thành vấn đề.
 
-Quán bar thì chi tiêu cao quá — một bữa ăn khuya Lưu Sáng Phong thoải mái tuyên bố không vấn đề gì.
+Có tiền rồi, chút khí khái này lão Lưu vẫn thừa sức có.
 
-Có tiền rồi, cái phong cách đó Lưu Sáng Phong vẫn còn.
+"Chào Thẩm tổng, Liễu tổng, thư ký Du."
 
-"Thẩm tổng, Liễu tổng, Dư bí thư."
+Lâm Thanh Tuyết chào hỏi mấy người phụ nữ trước, Phương Khiết cũng nối gót Lâm Thanh Tuyết gọi lần lượt theo đúng thứ tự.
 
-Lâm Thanh Tuyết chào phụ nữ trước theo thứ tự, Phương Khiết cũng theo Lâm Thanh Tuyết gọi theo thứ bậc lần lượt.
+Rồi cả hai mới nhìn sang Triệu Kim An.
 
-Rồi nhìn sang Triệu Kim An.
+Triệu Kim An bật cười: "Còn định ôm nhau một cái nữa à? Mau ngồi xuống đi."
 
-Triệu Kim An cười: "Còn phải ôm không? Nhanh ngồi đi."
+Lâm Thanh Tuyết và Phương Khiết cũng bật cười theo, kéo ghế ngồi xuống.
 
-Lâm Thanh Tuyết và Phương Khiết cũng cười, tìm ghế ngồi xuống.
+Đây đều là bạn học của Triệu Kim An nên Thẩm Tử Ngôn và Du Phi đi qua quầy nướng xem gọi thêm món gì. Thẩm Tử Ngôn cầm một xiên thịt cừu lớn giơ lên gọi to: "Kim An, mấy xiên?"
 
-Mấy người này đều là bạn đồng học của Triệu Kim An, Thẩm Tử Ngôn và Dư Phi đi về phía quầy nướng xem còn gọi gì thêm, Thẩm Tử Ngôn cầm một xiên thịt cừu lớn hỏi to: "Kim An, mấy xiên?"
+"Lấy trước năm mươi xiên đi!"
 
-"Cho năm mươi xiên trước!"
+Triệu Kim An chẳng thèm nhìn giá, Thẩm Tử Ngôn liền cầm một xiên đi tới: "Anh nhìn cho kỹ đi, ba mươi tám tệ một xiên đấy, xiên to thế này anh chắc chắn lấy năm mươi xiên chứ?"
 
-Triệu Kim An không thèm nhìn, Thẩm Tử Ngôn cầm một xiên đi lại: "Mày nhìn rõ đi, ba mươi tám tệ một xiên, to vậy mày chắc chắn lấy năm mươi xiên không?"
+"Hahaha, bóng mỡ thơm nức mũi luôn kìa, Tử Ngôn, đưa xiên này cho tớ đi, đồ ăn trên tàu hỏa dở tệ muốn chết."
 
-"Hahaha, dầu mỡ chảy đầy, Tử Ngôn, xiên đó cho tôi với, trên tàu đồ ăn dở không tả được."
-
-Lưu Sáng Phong thật sự sôi nổi khí thế — Thẩm Tử Ngôn liếc hắn một cái, đi găng tay lấy một miếng đút vào miệng Triệu Kim An trước, rồi mình ăn một miếng, sau mới đưa cả xiên cho Lưu Sáng Phong.
+Lưu Sấm Phong đúng là rất biết cách khuấy động không khí. Thẩm Tử Ngôn liếc hắn một cái, đeo găng tay ni-lông vào, gỡ trước một miếng đút cho Triệu Kim An, tự mình ăn một miếng rồi mới đưa cả xiên còn lại cho Lưu Sấm Phong.
 
 "Ngon không?"
 
-"Ừ, lấy thêm nhiều đi, còn Đơn Vỹ và mấy anh nữa."
+"Ừ, gọi thêm mấy xiên nữa đi, phần cho cả Đan Vĩ và mọi người nữa."
 
-"......"
+"..."
 
-Lâm Thanh Tuyết và Phương Khiết nhìn nhau, Thẩm Tử Ngôn đút thức ăn cho Triệu Kim An? Từ Mạn Mạn đã đi rồi, Tô Miên mới đến Quận Sa chứ?
+Lâm Thanh Tuyết và Phương Khiết liếc nhìn nhau đầy ẩn ý. Thẩm Tử Ngôn đút đồ ăn cho Triệu Kim An? Từ Mạn Mạn vừa mới đi, chẳng phải Tô Miến mới tới Quận Sa thôi sao?
 
-"Kim An, tụi mày ở đâu?"
+"Kim An, các cậu ở đâu thế?"
 
-Triệu Kim An chỉ về phía khách sạn năm sao chếch đối diện.
+Triệu Kim An chỉ tay sang khách sạn năm sao ở phía chéo đối diện.
 
-"......"
+"..."
 
-Lưu Sáng Phong quay lại nhìn, không nói thêm gì.
+Lưu Sấm Phong quay đầu nhìn theo rồi im bặt không nói nên lời.
 
-Phương Khiết dưới gầm bàn đá một cái: "Mày là cái loại gì, hay tự chuốc bẽ mặt vào thân."
+Phương Khiết đá hắn một cái dưới gầm bàn: "Chỉ có mỗi cái miệng anh là lắm chuyện, thích tự chuốc lấy mất hứng...

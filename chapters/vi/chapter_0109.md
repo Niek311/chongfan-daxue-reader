@@ -1,7 +1,5 @@
 # Chương 109: Tao có BMW, mày có Vương Duy Đào không?
 
-> **Tiêu đề gốc**: 第109章 我有宝马，你有王维涛吗？
-
 Đội ngũ trọng tài của giải đấu Cúp Trăn Nhiên thực chất chính là các thầy giáo dạy thể dục trong trường.
 
 Dẫu không quá chuyên nghiệp theo chuẩn quốc gia, nhưng lại tiết kiệm được một khoản chi phí đáng kể.

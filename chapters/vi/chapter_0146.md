@@ -1,7 +1,5 @@
 # Chương 146: Thế này là tốt lắm rồi.
 
-> **Tiêu đề gốc**: 第146章 这样就很好。
-
 Bỗng một ngày nọ, Trần Trạch bỗng dưng hét toáng lên: "Tụ tập ăn uống thôi chúng mày ơi!"
 
 Ký túc xá 303 và 406 vốn là phòng kết nghĩa. Nhìn điệu bộ của Trần Trạch như thể vừa trút được gánh nặng nghìn cân, cả người sống lại, hào sảng tuyên bố tối nay sẽ bao trọn bữa ăn đêm.

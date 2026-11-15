@@ -1,7 +1,5 @@
 # Chương 255: Cạnh tranh thương trường kiểu gì thế này?
 
-> **Tiêu đề gốc**: 第255章 什么商业竞争？
-
 Nhận được điện thoại của Vương Kim Như, Trương Ngọc Ny mừng rỡ nhảy cẫng lên:
 
 "Bằng Vũ ơi! Em có việc làm rồi này!!!"
@@ -44,13 +42,13 @@ Triệu Kim An cũng vừa nhận được điện thoại thông báo từ thí
 
 Thực sự không phải Triệu Kim An ki bo bủn xỉn, mà một đại nhân vật tầm cỡ như Tô Minh Tùng thì trên đời này còn thiếu thốn thứ của ngon vật lạ gì nữa đâu, Triệu Kim An thực sự nghĩ nát óc cũng không ra.
 
-Tâm trạng của Tô Miện dạo này vô cùng rạng rỡ và phấn chấn.
+Tâm trạng của Tô Miến dạo này vô cùng rạng rỡ và phấn chấn.
 
-Triệu Kim An thủ thỉ dặn dò Tô Miện rằng chuyện mang thai con cái tâm lý phải thật sự thả lỏng, càng nóng vội, càng sốt ruột mong mỏi thì lại càng khó thụ thai.
+Triệu Kim An thủ thỉ dặn dò Tô Miến rằng chuyện mang thai con cái tâm lý phải thật sự thả lỏng, càng nóng vội, càng sốt ruột mong mỏi thì lại càng khó thụ thai.
 
-Tô Miện ngoan ngoãn gật đầu nghe theo.
+Tô Miến ngoan ngoãn gật đầu nghe theo.
 
-Dù sao thì đêm qua hai người cũng đã triền miên "vận động" tới tận năm lần. Xong xuôi đâu đấy, Tô Miện liền nũng nịu đòi Triệu Kim An lấy gối kê cao hông cho mình.
+Dù sao thì đêm qua hai người cũng đã triền miên "vận động" tới tận năm lần. Xong xuôi đâu đấy, Tô Miến liền nũng nịu đòi Triệu Kim An lấy gối kê cao hông cho mình.
 
 Ở kiếp trước Triệu Kim An chưa từng được làm cha, nhưng ngày ấy anh luôn khao khát có một đứa con với Trần Thanh Trĩ, chính vì thế anh mới tìm hiểu rất sâu về mảng kiến thức này, hiểu rõ tâm lý thoải mái mới là chìa khóa vàng giúp việc thụ thai diễn ra thuận lợi.
 
@@ -62,7 +60,7 @@ Thôi thì chẳng dám mơ ước hai hay ba đứa, chỉ cần một mụn co
 
 Huống hồ, trừ phi theo chủ nghĩa không sinh con (DINK), chứ đàn ông lấy vợ ai chẳng muốn có tiếng cười trẻ thơ trong nhà? Dù gia đình không có "ngai vàng" để thừa kế, lúc trẻ tuổi có thể vô tư không màng tới, nhưng khi tuổi tác đã xế chiều... ai chẳng khao khát có một giọt máu của riêng mình, xem như một sự tiếp nối thiêng liêng của sinh mệnh.
 
-Triệu Kim An lúc này cũng không rõ nội tâm mình đang thực sự mong chờ Tô Miện mang thai, hay là muốn mọi chuyện cứ từ từ chậm lại...?
+Triệu Kim An lúc này cũng không rõ nội tâm mình đang thực sự mong chờ Tô Miến mang thai, hay là muốn mọi chuyện cứ từ từ chậm lại...?
 
 Nhưng dù sao thì đêm qua anh cũng không hề dùng bất kỳ biện pháp phòng tránh nào.
 
@@ -78,7 +76,7 @@ Nếu tính toán ngọn ngành, dù tiếc nuối là ngọt ngào hay đắng 
 
 Không phân định tốt xấu, có lẽ sự dang dở với Mộc Dao còn để lại niềm day dứt lớn hơn cả Trần Thanh Trĩ.
 
-Giờ đây ngắm nhìn Tô Miện, Triệu Kim An không mảy may lo lắng cho an nguy của bản thân, mà chỉ băn khoăn không biết liệu tính cách như Tô Miện có thể bao dung cho sự tồn tại của những cô gái khác bên cạnh anh hay không?
+Giờ đây ngắm nhìn Tô Miến, Triệu Kim An không mảy may lo lắng cho an nguy của bản thân, mà chỉ băn khoăn không biết liệu tính cách như Tô Miến có thể bao dung cho sự tồn tại của những cô gái khác bên cạnh anh hay không?
 
 "Triệu Kim An, cậu lại đây!"
 
@@ -120,11 +118,11 @@ Bản thân Tô Minh Tùng cũng ở vị thế nhạy cảm, không tiện xu�
 
 Nếu như Triệu Kim An không ra đây, thì nhà họ Tô đợt này chắc cũng chẳng có ai đi xem trực tiếp tại sân vận động.
 
-Triệu Kim An chủ yếu muốn đưa Tô Miện đi chơi cho khuây khỏa. Anh là người sống lại một đời, thậm chí còn nhớ vanh vách kỳ Olympic này đoàn thể thao nước nhà sẽ xuất sắc giành được kỷ lục năm mươi mốt tấm huy chương vàng, chỉ có số lượng huy chương bạc và đồng là hơi mờ nhạt trong ký ức.
+Triệu Kim An chủ yếu muốn đưa Tô Miến đi chơi cho khuây khỏa. Anh là người sống lại một đời, thậm chí còn nhớ vanh vách kỳ Olympic này đoàn thể thao nước nhà sẽ xuất sắc giành được kỷ lục năm mươi mốt tấm huy chương vàng, chỉ có số lượng huy chương bạc và đồng là hơi mờ nhạt trong ký ức.
 
 Tô Minh Tùng đã gọi điện sắp xếp mấy suất "vé thân nhân", đi theo lối cổng ưu tiên đặc biệt.
 
-Nhìn đồng hồ thấy đã đến giờ, Triệu Kim An nhẹ nhàng bế bổng Tô Miện lên xe chuẩn bị xuất phát. Hôm nay Tô Miện diện một chiếc váy mã diện truyền thống thướt tha, một tay vòng qua ôm chặt lấy cổ Triệu Kim An, ghé sát tai anh thì thầm: "Kim An, thím ở quê vừa gọi điện cho em đấy."
+Nhìn đồng hồ thấy đã đến giờ, Triệu Kim An nhẹ nhàng bế bổng Tô Miến lên xe chuẩn bị xuất phát. Hôm nay Tô Miến diện một chiếc váy mã diện truyền thống thướt tha, một tay vòng qua ôm chặt lấy cổ Triệu Kim An, ghé sát tai anh thì thầm: "Kim An, thím ở quê vừa gọi điện cho em đấy."
 
 "Thế à em."
 
@@ -134,7 +132,7 @@ Tim Triệu Kim An bỗng thắt lại một nhịp, thầm nghĩ bụng không 
 
 "Thím còn kể là bà nội muốn sửa sang lại nhà cửa cho anh Hữu Tài rồi cưới thêm vợ mới cho anh ấy. Nếu anh Hữu Tài lấy vợ, chúng mình nhớ chuẩn bị một phong bao lì xì thật dày nhé."
 
-Nhìn một tiểu thư cành vàng lá ngọc như Tô Miện mà trong lòng vẫn luôn đau đáu, quan tâm đến từng chuyện vụn vặt ở Triệu Gia Thôn, bảo Triệu Kim An không xúc động thì đúng là dối lòng. Ở kiếp trước, Trần Thanh Trĩ chưa từng một lần mảy may bận tâm đến những điều ấy; kết hôn với Triệu Kim An suốt bốn năm trời, e rằng đến mặt mũi họ hàng nội ngoại bên chồng cô ta còn chẳng buồn nhớ.
+Nhìn một tiểu thư cành vàng lá ngọc như Tô Miến mà trong lòng vẫn luôn đau đáu, quan tâm đến từng chuyện vụn vặt ở Triệu Gia Thôn, bảo Triệu Kim An không xúc động thì đúng là dối lòng. Ở kiếp trước, Trần Thanh Trĩ chưa từng một lần mảy may bận tâm đến những điều ấy; kết hôn với Triệu Kim An suốt bốn năm trời, e rằng đến mặt mũi họ hàng nội ngoại bên chồng cô ta còn chẳng buồn nhớ.
 
 Dĩ nhiên, xã hội hiện đại người ta thường đóng cửa nhà nào biết nhà nấy.
 
@@ -144,7 +142,7 @@ Nhưng ở các vùng quê nông thôn thì hoàn toàn khác biệt.
 
 Nói một ví dụ đơn giản và trần trụi nhất: nếu ngày thường anh sống lạnh lùng xa cách không nhận họ hàng làng xóm, đến khi trong nhà có người già qua đời, làm đám tang muốn tìm người đến khiêng linh cữu cũng chẳng có ai thèm bước chân sang giúp.
 
-Triệu Kim An khẽ siết nhẹ bàn tay Tô Miện: "Nếu anh Hữu Tài lấy vợ, anh đưa em về quê ăn cưới một chuyến nhé."
+Triệu Kim An khẽ siết nhẹ bàn tay Tô Miến: "Nếu anh Hữu Tài lấy vợ, anh đưa em về quê ăn cưới một chuyến nhé."
 
 "Lấy vợ hai người ta có làm cỗ linh đình không anh?"
 
@@ -158,15 +156,15 @@ Triệu Kim An khẽ siết nhẹ bàn tay Tô Miện: "Nếu anh Hữu Tài l�
 
 "Cái gọi là 'không nhiều' của em cụ thể là bao nhiêu?"
 
-Triệu Kim An và Tô Miện cứ thế ghé đầu vào nhau thì thầm to nhỏ. Khương Phức Hàm quay sang nhìn mẹ: "Mẹ ơi, bình thường Tô Miện với Kim An nói chuyện với nhau kiểu tình cảm như thế này đấy ạ?"
+Triệu Kim An và Tô Miến cứ thế ghé đầu vào nhau thì thầm to nhỏ. Khương Phức Hàm quay sang nhìn mẹ: "Mẹ ơi, bình thường Tô Miến với Kim An nói chuyện với nhau kiểu tình cảm như thế này đấy ạ?"
 
 Tô Mặc ngồi bên cạnh im lặng, không nói nửa lời.
 
-Triệu Kim An lại ghé sát tai Tô Miện hỏi nhỏ: "Dạo này anh kiếm được nhiều tiền rồi, em có cần tiêu tiền không?"
+Triệu Kim An lại ghé sát tai Tô Miến hỏi nhỏ: "Dạo này anh kiếm được nhiều tiền rồi, em có cần tiêu tiền không?"
 
 "Bây giờ em chưa cần, em có tiền mà."
 
-Tô Miện nắm lấy cánh tay Triệu Kim An, ghé sát vành tai anh thì thầm: "Kim An, chuyện của Trăn Nhiên anh không cần phải nhún nhường mở lời nhờ vả bố em đâu, em sẽ tự mình để mắt tới. Nếu lão già họ Tông kia mà dám giở trò ngáng đường phát triển của anh..."
+Tô Miến nắm lấy cánh tay Triệu Kim An, ghé sát vành tai anh thì thầm: "Kim An, chuyện của Trăn Nhiên anh không cần phải nhún nhường mở lời nhờ vả bố em đâu, em sẽ tự mình để mắt tới. Nếu lão già họ Tông kia mà dám giở trò ngáng đường phát triển của anh..."
 
 "..."
 
@@ -174,7 +172,7 @@ Triệu Kim An giật nảy mình, hoảng hốt: "Thôi thôi, em đừng có l
 
 "Vậy nếu anh thích, chúng ta hoàn toàn có thể thâu tóm cổ phần của họ mà."
 
-Giọng điệu Tô Miện bình thản như không, cứ như thể đang bàn luận về một chuyện cỏn con không đáng bận tâm.
+Giọng điệu Tô Miến bình thản như không, cứ như thể đang bàn luận về một chuyện cỏn con không đáng bận tâm.
 
 "Cạnh tranh thương trường kiểu gì thế này?"
 
@@ -186,10 +184,10 @@ Bên ngoài, dòng người xếp hàng chờ vào sân đã bắt đầu vãn b
 
 "Không cần xe lăn đâu, lát nữa phải leo nhiều bậc thang lắm, để cháu bế cô ấy là được rồi."
 
-Triệu Kim An bước xuống, cúi người bế bổng Tô Miện vào lòng, đầu gối bỗng khẽ run lên một cái.
+Triệu Kim An bước xuống, cúi người bế bổng Tô Miến vào lòng, đầu gối bỗng khẽ run lên một cái.
 
-Tô Miện tròn xoe mắt nhìn anh đầy vẻ thắc mắc. Triệu Kim An ghé sát tai cô nhắc khéo: "Năm lần đấy cô nương."
+Tô Miến tròn xoe mắt nhìn anh đầy vẻ thắc mắc. Triệu Kim An ghé sát tai cô nhắc khéo: "Năm lần đấy cô nương."
 
 "..."
 
-Đôi gò má Tô Miện bỗng chốc đỏ ửng lên như ráng chiều, cô e thẹn vùi đầu vào ngực anh, lí nhí: "Tối nay... em vẫn muốn nữa..."
+Đôi gò má Tô Miến bỗng chốc đỏ ửng lên như ráng chiều, cô e thẹn vùi đầu vào ngực anh, lí nhí: "Tối nay... em vẫn muốn nữa..."

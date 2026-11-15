@@ -1,233 +1,237 @@
 # Chương 393: Trở về
 
-> **Tiêu đề gốc**: 第393章 回来了。
-
 Ba ngày sau.
 
-Dư Phi gọi điện tới báo rằng căn nhà đã được thu dọn sạch sẽ tinh tươm.
+Du Phi gọi điện tới báo nhà cửa đã thu dọn xong xuôi.
 
-Chẳng một ai hay biết Từ Mạn Mạn đã bắt đầu lên đường trở về Quận Sa.
+Không một ai hay biết Từ Mạn Mạn đã lên đường trở về Quận Sa.
 
-Hai chiếc xe thương vụ Mercedes bon bon lướt đi trên đường cao tốc. Từ Mạn Mạn nắm chặt tay Triệu Kim An, rồi lại thiếp đi lúc nào không hay.
+Hai chiếc xe thương mại Mercedes-Benz lướt êm trên đường cao tốc, Từ Mạn Mạn nắm chặt tay Triệu Kim An rồi lại thiếp đi từ lúc nào.
 
-Triệu Kim An thầm tính toán thời gian, một ngày Từ Mạn Mạn ngủ ít nhất cũng phải trên mười tiếng đồng hồ. Người mang thai thật sự thèm ngủ đến mức này sao? Nhưng dù ngủ nhiều như thế, trên gương mặt thanh tú của cô vẫn phảng phất nét mệt mỏi khó giấu.
+Triệu Kim An nhẩm tính thời gian, mỗi ngày Từ Mạn Mạn ngủ ít nhất phải hơn mười tiếng đồng hồ. Người mang thai thực sự ham ngủ đến vậy sao? Ngủ nhiều là thế mà trên gương mặt cô vẫn phảng phất nét mệt mỏi.
 
-Có lẽ bởi trong lòng cô có quá nhiều người và quá nhiều chuyện phải âu lo.
+Có lẽ vì trong lòng cô có quá nhiều người và quá nhiều chuyện phải bận tâm.
 
-Khi biết bên cạnh Triệu Kim An đã có Tô Miện.
+Khi biết Triệu Kim An đã có Tô Miến.
 
-Bài toán này thực sự vô nghiệm.
+Bài toán này vốn dĩ không có lời giải.
 
-Trên đời này, có người phụ nữ nào lại không khao khát được cùng người đàn ông mình yêu nắm tay nhau đi đăng ký kết hôn cơ chứ?
+Chẳng cô gái nào lại không muốn cùng người mình yêu đi đăng ký kết hôn.
 
-Triệu Kim An cầm lấy chiếc máy nghe nhạc MP3 trong tay Từ Mạn Mạn. Máy đang phát bài hát "Cỏ Anh Thảo", anh đưa tay tắt bài hát đi giúp cô.
+Triệu Kim An cầm lấy chiếc máy nghe nhạc MP3 trong tay Từ Mạn Mạn, máy đang phát bài *Anh Hoa Thảo*, anh khẽ bấm tắt nhạc đi.
 
-Rồi anh lại cầm điện thoại lên xem.
+Rồi lại cầm chiếc điện thoại lên xem.
 
-Trong máy vẫn không có bất kỳ tin nhắn nào của Diêu Sân gửi tới.
+Trong máy không có tin nhắn nào của Diêu Sân.
 
-Trong cốp xe phía sau chỉ vẻn vẹn đúng một chiếc vali hành lý.
+Cốp sau xe chỉ có vỏn vẹn một chiếc vali.
 
-Lúc rời khỏi Quận Sa, Từ Mạn Mạn chỉ mang theo một chiếc vali, ngày trở về vẫn cô độc vỏn vẹn một chiếc vali ấy.
+Lúc rời Quận Sa, Từ Mạn Mạn mang theo đúng một chiếc vali; giờ quay trở về, hành lý vẫn chỉ có chừng ấy.
 
-Khi rời Quận Sa, Từ Mạn Mạn để lại cho Diêu Sân một mẩu giấy nhắn; nhưng ngày trở về lần này, cô lại chẳng hé nửa lời với Diêu Sân. Có lẽ trong lòng cô cũng đang phải bận tâm nghĩ cho Thẩm Tử Ngôn.
+Ngày bỏ đi, Từ Mạn Mạn còn để lại cho Diêu Sân một mẩu giấy nhắn; nhưng lần này trở về cô không hề báo cho Diêu Sân biết, hẳn là vì e ngại Thẩm Tử Ngôn.
 
 Quận Sa.
 
-Dư Phi đứng giữa phòng khách phủi phủi hai bàn tay. Căn hộ cũ rộng hai trăm bốn mươi sáu mét vuông này được mua lại từ tay người khác với mức giá khá cao.
+Du Phi đứng giữa phòng khách vỗ tay hài lòng, đây là căn hộ cũ rộng hai trăm bốn mươi sáu mét vuông, cô phải trả giá cao mới mua lại được từ tay chủ trước.
 
-Giờ chỉ còn thiếu một người bảo mẫu nữa là trọn vẹn.
+Bây giờ chỉ còn thiếu mỗi một người giúp việc nữa thôi.
 
-Chuyện này ngay cả Lưu Mỹ Nga và Đường Hiểu Tình cũng hoàn toàn không hay biết.
+Lưu Mỹ Nga và Đường Hiểu Tình cũng hoàn toàn không hay biết.
 
-"Kính coong ——"
+"Kính coong."
 
-Chuông cửa bất ngờ vang lên, Dư Phi bước ra mở cửa.
+Chuông cửa reo vang, Du Phi bước ra mở cửa.
 
-"Lưu Hiểu Tĩnh!?"
+"Lưu Hiểu Tĩnh?!"
 
-"Thư ký Dư."
+"Thư ký Du."
 
-"Sao cô lại tới đây?"
+"Sao chị lại tới đây?"
 
-Dư Phi vốn không hề tiết lộ với ai, nên việc Lưu Hiểu Tĩnh đột ngột xuất hiện trước cửa khiến cô không khỏi ngạc nhiên.
+Du Phi đâu có báo cho ai, thấy Lưu Hiểu Tĩnh đột ngột xuất hiện ngoài cửa nên không khỏi bất ngờ.
 
-"Là Triệu tổng bảo tôi qua đây."
+"Triệu tổng bảo tôi tới đây."
 
-Lưu Hiểu Tĩnh nhìn thấy Dư Phi ra mở cửa cũng ngỡ ngàng không kém: "Thư ký Dư, cô có biết rốt cuộc là có chuyện gì không?"
+Lưu Hiểu Tĩnh thấy Du Phi ra mở cửa cũng ngạc nhiên chẳng kém: "Thư ký Du, cô có biết có chuyện gì không?"
 
-"Lát nữa cô khắc biết ngay thôi."
+"Lát nữa chị sẽ biết ngay thôi."
 
-Dư Phi ngẫm nghĩ một thoáng rồi thấy cũng phải. Lưu Hiểu Tĩnh vốn là trợ lý đắc lực của Từ Mạn Mạn ở Trăn Hối Tuyển.
+Du Phi nghĩ lại cũng thấy hợp lý, Lưu Hiểu Tĩnh vốn là trợ lý của Từ Mạn Mạn ở Trăn Hối Tuyển.
 
-Dùng người quen bao giờ cũng an tâm hơn người lạ.
+Dùng người quen vẫn hơn người lạ.
 
-"Chỉ là... bố mẹ của Mạn Mạn đâu nhỉ?"
+"Chỉ là bố mẹ của Mạn Mạn đâu rồi nhỉ?"
 
-Dư Phi trong lòng cũng đầy mối băn khoăn. Theo lẽ thường tình, Từ Mạn Mạn mang thai thì vợ chồng Từ Tắc Đống và Lương Tuệ Trân lẽ ra phải có mặt mới phải chứ. Thời buổi này nhà nào cũng chỉ có độc một mụn con, đáng lý ra phải đứng ngồi không yên đợi sẵn ở nhà nghênh đón từ lâu rồi.
+Du Phi chẳng biết đầu đuôi ra sao, theo lẽ thường Từ Mạn Mạn mang thai thì Từ Tắc Đống và Lương Tuệ Trân phải có mặt chứ, thời buổi này toàn con một cả, lẽ ra bố mẹ phải chờ sẵn ở nhà đón rồi mới đúng.
 
-"Reng reng reng ——"
+"Reng reng reng."
 
-Chuông điện thoại reo vang, Dư Phi nhấc máy nghe rồi quay sang bảo Lưu Hiểu Tĩnh: "Đi thôi thư ký Lưu, xuống dưới lầu đón người, họ tới nơi rồi đấy."
+Điện thoại đổ chuông, Du Phi bắt máy rồi quay sang bảo Lưu Hiểu Tĩnh: "Đi thôi chị Lưu, xuống lầu đón người, họ tới nơi rồi."
 
 "Đón ai cơ?"
 
-Lưu Hiểu Tĩnh mặt mũi ngơ ngác, lẽo đẽo bước theo chân Dư Phi xuống tầng hầm.
+Lưu Hiểu Tĩnh ngơ ngác chẳng hiểu mô tê gì, đành đi theo Du Phi xuống tầng dưới.
 
-Hai người họ, một người là thư ký riêng của Triệu Kim An, một người là trợ lý của Từ Mạn Mạn.
+Hai người họ, một người là thư ký của Triệu Kim An, một người là trợ lý của Từ Mạn Mạn.
 
-Cùng mang danh là thư ký, nhưng cấp bậc và vị thế thì hoàn toàn khác biệt một trời một vực.
+Cùng mang danh thư ký nhưng cấp bậc khác nhau một trời một vực.
 
-Bãi đỗ xe dưới tầng hầm.
+Dưới hầm để xe.
 
-Triệu Kim An bước xuống xe trước, ân cần đưa tay về phía Từ Mạn Mạn: "Cẩn thận một chút."
+Triệu Kim An bước xuống xe trước, đưa tay về phía Từ Mạn Mạn: "Cẩn thận nhé."
 
-Từ Mạn Mạn nhìn bộ dạng ấy vừa buồn cười vừa ấm lòng: "Kim An, em không sao mà, không cần phải đỡ đâu."
+Từ Mạn Mạn nhìn mà bật cười: "Kim An, em có sao đâu, không cần đỡ thế."
 
-"Từ... Từ tổng!?"
+"Từ, Từ tổng?!"
 
-Lưu Hiểu Tĩnh đứng chết trân tại chỗ, mắt chữ O mồm chữ A. Từ tổng quay về rồi ư? Lại còn do đích thân Triệu tổng lặn lội đi đón về nữa!?
+Lưu Hiểu Tĩnh há hốc mồm kinh ngạc, Từ tổng quay về rồi sao? Lại còn do đích thân Triệu tổng đón về nữa?!
 
-Dư Phi khẽ liếc nhìn bụng Từ Mạn Mạn một cái, rồi chủ động rảo bước về phía cốp xe. Quan Văn Bách đã nhanh tay nhấc chiếc vali ra, khách khí nói: "Thư ký Dư, chỉ có mỗi một chiếc vali thôi, cô không cần phải động tay vào đâu."
+Du Phi liếc nhìn bụng Từ Mạn Mạn một cái rồi đi thẳng ra phía cốp sau, Quan Văn Bách đã nhanh tay xách hành lý xuống, khách sáo nói: "Thư ký Du, chỉ có một cái vali thôi, không phiền đến cô đâu."
 
-Chưa dừng lại ở đó.
+Chuyện đó còn chưa là gì.
 
-Lưu Hiểu Tĩnh cũng lập tức chú ý tới một chi tiết: bàn tay Từ Mạn Mạn đang vô thức đặt lên xoa nhẹ phần bụng dưới vẫn chưa lộ rõ của mình.
+Lưu Hiểu Tĩnh cũng kịp để ý thấy Từ Mạn Mạn khẽ đưa tay đỡ nhẹ lấy phần bụng chưa lộ rõ của mình.
 
-Đó là một cử chỉ bản năng vô thức của những người sắp làm mẹ.
+Đó là động tác vô thức rất quen thuộc của những người sắp làm mẹ.
 
 Lưu Hiểu Tĩnh: ⊙▂⊙
 
-Từ tổng... mang, mang thai rồi sao!?
+Từ tổng có... có bầu rồi sao?!
 
-Từ Mạn Mạn khoác một chiếc áo lông vũ dày cộp, nếu không để ý thật kỹ thì căn bản chẳng thể nào nhận ra được. Trong đầu Lưu Hiểu Tĩnh lúc này ngỡ như vừa có một tia sét giáng ngang tai. Đây tính là chuyện gì thế này? Vương giả ngút trời trở về sao!!?
+Từ Mạn Mạn mặc chiếc áo phao dày sụ, nếu không tinh ý nhìn kỹ thì chẳng thể nào nhận ra được. Trong đầu Lưu Hiểu Tĩnh như vừa có một tia sét đánh ngang, thế này gọi là gì đây? Trở về đầy uy phong sao?!
 
-"Chị Tĩnh." Từ Mạn Mạn khẽ mỉm cười chào.
+"Chị Tĩnh."
 
-"Từ... Từ tổng..."
+Từ Mạn Mạn khẽ mỉm cười chào.
 
-Lưu Hiểu Tĩnh nhìn Từ Mạn Mạn, rõ ràng vẫn là một cô gái trẻ trung, gương mặt vẫn còn phảng phất nét ngây thơ non nớt của thời sinh viên, thế nhưng lần "trở về" này, dường như trên người cô lại toát lên một luồng "hào quang" dịu dàng ấm áp của tình mẫu tử?
+"Từ tổng..."
 
-"Kim An, em muốn ăn món Hồ Nam chính tông, đồ ăn ở Thượng Hải chẳng chuẩn vị chút nào..."
+Lưu Hiểu Tĩnh nhận ra Từ Mạn Mạn vẫn là một cô gái trẻ, trên gương mặt vẫn còn vương nét non nớt của sinh viên đại học, nhưng lần "trở về" này dường như lại toát lên thêm một thứ "hào quang" của tình mẫu tử?
 
-"Cô ăn vào rồi lại nôn ra hết, khác gì chưa ăn đâu."
+"Kim An, em thèm ăn món Tương Nam chính gốc quá, đồ ở Thượng Hải nấu chẳng chuẩn vị chút nào..."
 
-"Nhưng em vẫn muốn ăn."
+"Thế thì ăn cũng như không."
 
-"....."
+"Nhưng mà em thèm."
 
-Lưu Hiểu Tĩnh ngơ ngác đứng chôn chân tại chỗ, trong lòng thầm lo lắng không biết Từ tổng có thù hằn trả đũa mình không, lúc trước mình cũng chỉ răm rắp nghe theo sự sắp đặt của Triệu tổng mà thôi.
+"..."
 
-"Liễu tổng ơi là Liễu tổng, may mà ông chưa vội đổi văn phòng làm việc đấy, Từ tổng người ta lại trở về rồi kìa."
+Lưu Hiểu Tĩnh đứng chôn chân tại chỗ, Từ tổng sẽ không trả thù mình đấy chứ, hồi đó mình cũng chỉ làm theo sắp xếp của Triệu tổng thôi mà.
 
-Lên đến căn hộ, Dư Phi nhiệt tình dẫn Từ Mạn Mạn đi xem từng góc phòng. Từ Mạn Mạn bảo căn nhà này thế này là quá tốt rồi, bản thân cô đâu có nhiều yêu cầu đòi hỏi đến thế. Cô với Dư Phi vốn là bạn học cùng lớp, lại biết rõ mối quan hệ thân thiết giữa Dư Phi và Mộc Dao, làm sao nỡ lên mặt sai bảo Dư Phi cho được.
+"Liễu tổng à, may mà cô chưa đổi phòng làm việc nhé, Từ tổng quay về rồi đây này."
 
-Từ Mạn Mạn một mình bước vào gian bếp, đứng trước bệ bếp cặm cụi loay hoay mất cả buổi trời.
+Lên tới trên lầu, Du Phi dẫn Từ Mạn Mạn đi xem qua căn hộ. Từ Mạn Mạn bảo căn nhà này quá tốt rồi, mình làm gì có nhiều đòi hỏi thế. Cô và Du Phi vốn là bạn học cùng lớp, lại biết rõ Du Phi chơi rất thân với Mộc Dao.
 
-"Cô đang làm gì thế?"
+Làm sao cô nỡ sai bảo Du Phi cho đành.
 
-"Em muốn đun chút nước sôi để uống."
+Từ Mạn Mạn một mình đi vào bếp, cúi đầu loay hoay bên bệ bếp một hồi lâu.
 
-Triệu Kim An bước theo vào, Từ Mạn Mạn liền giơ chiếc ấm đun nước siêu tốc ra trước mặt anh phụng phịu:
+"Em đang làm gì thế?"
 
-"Anh xem này, sợi dây ngắn tẹo thế này thì đun nước kiểu gì được chứ? Nhà cung cấp nào của Trăn Hối Tuyển giao lô hàng này đấy?"
+"Em định đun chút nước sôi uống."
 
-Triệu Kim An cầm lấy chiếc ấm đun nước, lật ngược phần đế lên rồi rút ra một đoạn dây dài được cuộn giấu gọn gàng bên dưới, còn kéo ra kéo vào mấy lần cho Từ Mạn Mạn xem tận mắt, sau đó cắm phập vào ổ điện một cách nhẹ nhàng. Suốt cả quá trình, anh không hề thốt ra lấy một lời.
+Triệu Kim An bước theo vào, Từ Mạn Mạn giơ chiếc ấm đun nước siêu tốc lên cho anh xem.
 
-Cái ánh mắt anh nhìn Từ Mạn Mạn lúc đó phải diễn tả thế nào nhỉ?
+"Anh xem này, dây điện ngắn tẹo thế này thì cắm kiểu gì mà đun nước? Không biết Trăn Hối Tuyển nhập hàng của nhà cung cấp nào đấy?"
 
-Nhìn một kẻ ngốc sao?
+Triệu Kim An cầm lấy chiếc ấm, lật đáy lên kéo ra một đoạn dây điện cuộn gọn bên dưới, còn cố tình kéo ra kéo vào mấy lần cho Từ Mạn Mạn nhìn cho rõ, rồi nhẹ nhàng cắm phích vào ổ điện, suốt cả quá trình không nói lấy một lời.
 
-"Nhà cung cấp nào giao hàng ấy nhỉ?"
+Còn cái ánh mắt anh nhìn Từ Mạn Mạn lúc ấy phải tả thế nào đây nhỉ?
 
-Triệu Kim An còn không quên trêu chọc Từ Mạn Mạn: "Từ tổng định gạch tên nhà cung cấp đó ra khỏi danh sách à?"
+Như đang nhìn một đứa ngốc?
 
-"Anh đừng nói nữa!"
+"Nhà cung cấp nào thế?"
 
-Từ Mạn Mạn cảm thấy chỉ số thông minh của mình vừa bị sỉ nhục một cách tàn nhẫn.
+Triệu Kim An vẫn chưa tha, cố tình trêu chọc cô: "Từ tổng định đá bay nhà cung cấp đó luôn à?"
 
-"....."
+"Anh đừng nói nữa."
 
-Triệu Kim An há hốc mồm mất nửa ngày: "Rốt cuộc một thân một mình cô làm thế nào mà sống sót nổi ở đất Thượng Hải ngần ấy thời gian hả?"
+Từ Mạn Mạn cảm thấy chỉ số thông minh của mình vừa bị sỉ nhục nặng nề.
 
-"Anh đừng nói nữa mà, ở đó em mua loại ấm đun nước đơn giản nhất."
+"..."
 
-"Hậu đậu thế này mà còn đòi một mình nuôi con khôn lớn à?"
+Triệu Kim An há miệng hồi lâu mới thốt lên được một câu: "Một mình ở Thượng Hải mà em cũng sống sót được đến giờ kể cũng tài thật đấy?"
 
-Từ Mạn Mạn đẩy nhẹ Triệu Kim An một cái, cô nhận ra người đàn ông này đôi khi đáng ghét không chịu nổi. Triệu Kim An vẫn chưa chịu buông tha: "Đi theo cô thì đến ngụm nước ấm cũng chẳng có mà uống, có biết nấu cháo hoa không đấy?"
+"Anh đừng nói nữa mà, em toàn mua loại ấm đơn giản nhất thôi."
+
+"Đoảng thế này mà còn đòi một mình nuôi con khôn lớn?"
+
+Từ Mạn Mạn đẩy nhẹ Triệu Kim An một cái, cô phát hiện đôi lúc Triệu Kim An thật đáng ghét. Thế mà Triệu Kim An vẫn chưa buông tha: "Đi theo em chắc đến nước nóng cũng chẳng có mà uống, em có biết nấu cháo loãng không đấy?"
 
 Từ Mạn Mạn bật cười.
 
-Kinh nghiệm sống của Triệu Kim An quả thực quá phong phú. Từ Mạn Mạn cúi đầu nhìn chiếc ấm đun nước, bất giác nở nụ cười rạng rỡ.
+Kinh nghiệm sống của Triệu Kim An phong phú quá mức, Từ Mạn Mạn cúi đầu nhìn chiếc ấm đun nước, bất giác mỉm cười dịu dàng.
 
-"....."
+"..."
 
-Dư Phi và Lưu Hiểu Tĩnh đứng bên ngoài ngơ ngác nhìn nhau, chẳng dám bước vào làm phiền bầu không khí ấy.
+Du Phi và Lưu Hiểu Tĩnh đứng ngoài ngẩn người nhìn vào, không dám bước vào làm phiền.
 
-Từ Mạn Mạn tạm thời chưa quay lại công ty, nhưng cô liền gọi Lưu Hiểu Tĩnh vào để hỏi han cặn kẽ mọi chuyện liên quan đến Trăn Hối Tuyển.
+Từ Mạn Mạn tạm thời chưa tới công ty, nhưng vẫn hỏi thăm Lưu Hiểu Tĩnh cặn kẽ mọi tình hình của Trăn Hối Tuyển.
 
-Chủ yếu là sau khi cô rời đi, tình hình tiêu thụ các mặt hàng hóa mỹ phẩm tự doanh của Trăn Hối Tuyển ra sao, rồi cả tiến độ thi công của các đại công trường nữa.
+Chủ yếu là tình hình kinh doanh dòng sản phẩm hóa mỹ phẩm tự sản xuất sau khi cô rời đi, cùng với tiến độ thi công của hai công trình.
 
-Vừa nhắc đến công việc, chỉ số thông minh và bản lĩnh sắc sảo của Từ Mạn Mạn lập tức quay trở lại, hoàn toàn không còn bóng dáng của cô gái ngốc nghếch đến cái ấm đun nước cũng không biết dùng lúc nãy.
+Hễ bàn tới công việc là trí thông minh của Từ Mạn Mạn lập tức quay trở lại ngay, chẳng còn dáng vẻ ngơ ngác đến cái ấm siêu tốc cũng không biết dùng lúc nãy nữa.
 
-Lưu Hiểu Tĩnh cung kính báo cáo đâu ra đấy: các dòng sản phẩm hóa mỹ phẩm tự doanh của Trăn Hối Tuyển bán ra không được mấy khả quan, nguyên nhân chính là do giá thành định vị hơi cao, lại chưa từng mời ngôi sao nổi tiếng làm đại sứ thương hiệu hay đẩy mạnh quảng cáo truyền thông.
+Lưu Hiểu Tĩnh báo cáo rành mạch từng chút một: doanh số dòng hóa mỹ phẩm tự doanh của Trăn Hối Tuyển không khả quan lắm, chủ yếu do giá bán hơi cao, lại chưa thuê ngôi sao nổi tiếng nào làm đại diện quảng cáo.
 
-Còn về tiến độ của hai đại công trường cao ốc và trung tâm thương mại.
+Còn về tiến độ hai công trường kia.
 
-Lưu Hiểu Tĩnh chỉ nắm được hiện tại đã thi công xây đến tầng thứ mấy, còn những chuyện sâu xa hơn thì hoàn toàn mù tịt.
+Lưu Hiểu Tĩnh chỉ biết đã xây lên đến tầng thứ bao nhiêu, những chuyện khác cô hoàn toàn mù tịt.
 
-Đó không phải là tầng nấc công việc mà một người ở cấp bậc như cô có thể tiếp cận được.
+Đó không phải phạm vi thông tin mà cô có thể tiếp cận được.
 
-"Thế còn Cảng vụ Hoàn Vũ thì sao? Cảng Piraeus và cảng Tây Cống mỗi ngày có bao nhiêu chuyến tàu hàng cập bến, luân chuyển bao nhiêu container? Mỏ quặng sắt Kình Bối Sơn bên Úc đã tiến hành khai thác chưa? Phía công ty đã phái những ai sang Úc rồi?"
+"Thế còn Hoàn Vũ Cảng Vụ thì sao? Cảng Piraeus và cảng Sài Gòn mỗi ngày có bao nhiêu tàu hàng cập bến, bao nhiêu container, mỏ núi Kình Bối ở Úc đã khởi công khai thác chưa? Công ty cử những ai sang Úc thế?"
 
-Lưu Hiểu Tĩnh: "....."
+Lưu Hiểu Tĩnh: "..."
 
-"Từ tổng ơi, làm sao em biết được mấy chuyện đại sự của Cảng vụ Hoàn Vũ chứ ạ?"
+"Từ tổng, công việc bên Hoàn Vũ Cảng Vụ làm sao tôi biết được ạ?"
 
-Từ Mạn Mạn khẽ gật đầu: "Mỗi ngày cô cứ gửi báo cáo công việc của Trăn Hối Tuyển qua cho tôi."
+Từ Mạn Mạn gật đầu: "Hằng ngày chị gửi báo cáo công việc của Trăn Hối Tuyển cho tôi nhé."
 
-"Vâng, thưa Từ tổng."
+"Vâng, Từ tổng."
 
-"Tạm thời đừng nói với Liễu tổng là tôi đã quay về."
+"Khoan hãy báo cho Liễu tổng biết chuyện tôi đã về."
 
-"Vâng ạ."
+"Vâng."
 
-Lưu Hiểu Tĩnh len lén liếc nhìn bụng cô một cái, dè dặt hỏi: "Từ tổng, hay là cô cứ tạm thời ở nhà dưỡng thai cho khỏe đã ạ? Trăn Hối Tuyển hiện tại mọi việc vẫn đang tiến triển rất tốt, không có vấn đề gì lớn đâu ạ."
+Lưu Hiểu Tĩnh liếc nhìn bụng cô rồi dè dặt hỏi: "Từ tổng, hay là cô cứ ở nhà dưỡng thai trước đi? Bên Trăn Hối Tuyển mọi thứ vẫn đang tiến triển tốt, không có vấn đề gì đâu ạ."
 
-Trong lòng Lưu Hiểu Tĩnh thầm nghĩ, trong công ty này giờ còn ai dám dại dột mà tranh quyền đoạt vị với cô nữa chứ? Giờ đây chỉ cần cô an tâm bình an sinh hạ đứa bé này ra, thì còn có thứ gì bì nổi nữa!
+Lưu Hiểu Tĩnh thầm nghĩ trong công ty này ai mà dám cướp quyền chứ? Bây giờ cô chỉ cần yên tâm sinh đứa bé ra khỏe mạnh là hơn vạn thứ rồi.
 
-"Mới có bốn tháng thôi mà, tôi muốn tìm chút việc để làm cho đỡ rảnh rỗi."
+"Mới có bốn tháng thôi, tôi muốn tìm chút việc để làm."
 
-Lưu Hiểu Tĩnh gật đầu: "Dạ cũng phải, ít nhất cũng phải năm tháng nữa mới đến ngày sinh."
+Lưu Hiểu Tĩnh gật gù: "Cũng phải, ít nhất phải năm tháng nữa mới sinh cơ mà."
 
-"Từ tổng, là con trai hay con gái thế ạ, cô đã đi bệnh viện siêu âm xem thử chưa?" Lưu Hiểu Tĩnh tò mò ghé sát thì thầm hỏi.
+"Từ tổng, là con trai hay con gái thế ạ? Cô đã đi bệnh viện siêu âm chưa?"
 
-"Chưa, con trai hay con gái đối với tôi đều tốt cả."
+Lưu Hiểu Tĩnh lại hạ giọng hỏi nhỏ.
 
-Từ Mạn Mạn khẽ xoa nhẹ bụng mình. Lưu Hiểu Tĩnh nghe vậy thì thoáng có chút tiếc nuối.
+"Chưa, trai hay gái đều tốt cả."
 
-Thân là thư ký thân cận của Từ Mạn Mạn, dĩ nhiên Lưu Hiểu Tĩnh mong mỏi Từ Mạn Mạn mang thai một cậu quý tử hơn bất cứ ai. Cô nhận ra một điều, Từ Mạn Mạn chuyện gì cũng hỏi han tường tận, duy chỉ có công việc bên Trăn Nhiên là tuyệt nhiên không hé miệng hỏi lấy nửa lời.
+Từ Mạn Mạn đưa tay xoa nhẹ bụng mình, Lưu Hiểu Tĩnh nghe vậy lại thấy hơi tiếc.
 
-Bởi Trăn Nhiên xưa nay vốn là "lãnh địa bất khả xâm phạm" của Thẩm Tử Ngôn.
+Là trợ lý của Từ Mạn Mạn, Lưu Hiểu Tĩnh đương nhiên mong Từ Mạn Mạn mang thai con trai hơn. Cô để ý thấy Từ Mạn Mạn chuyện gì cũng hỏi, duy chỉ có công việc của Trăn Nhiên là tuyệt nhiên không đả động tới nửa lời.
 
-Diêu Sân ở Trăn Hối Tuyển bấy lâu nay vẫn chưa được thăng chức, cô hoàn toàn chẳng hay biết gì về việc Từ Mạn Mạn đã trở về Quận Sa.
+Trăn Nhiên vốn là "địa bàn" của Thẩm Tử Ngôn.
 
-Nói là không thăng chức thì cũng không hẳn đúng.
+Diêu Sân ở Trăn Hối Tuyển mãi vẫn chưa được thăng chức, cô chẳng hề hay biết Từ Mạn Mạn đã trở về Quận Sa.
 
-Diêu Sân vốn dĩ được biên chế ở phòng mua hàng, nay công ty lại giao thêm cho cô trọng trách phụ trách mảng tiêu thụ các sản phẩm hóa mỹ phẩm tự doanh của Trăn Hối Tuyển.
+Thực ra cũng không hẳn là không được cất nhắc.
 
-Đây thực chất là một cơ hội rèn giũa năng lực.
+Diêu Sân vốn được điều sang thực tập ở bộ phận thu mua, giờ lại được giao phụ trách mảng tiêu thụ hóa mỹ phẩm tự doanh của Trăn Hối Tuyển.
 
-Ngày nào Diêu Sân cũng phải họp hành quán triệt với mấy nhân viên bán hàng, bản thân cô cũng phải tự mình xuống đứng quầy ở tầng một làm nhân viên tiếp thị để chào mời khách. Thế nhưng doanh số vẫn chẳng thấy có dấu hiệu khởi sắc rõ rệt. Thời đại video ngắn vẫn chưa bùng nổ, danh tiếng sản phẩm chỉ có thể tích lũy dần dần từng chút một qua sự truyền miệng của khách hàng.
+Đây vốn dĩ là một cơ hội để rèn giũa năng lực.
 
-"Haizz, Mạn Mạn đi Thượng Hải cũng hơn nửa năm rồi, chẳng biết bây giờ cậu ấy sống ra sao."
+Ngày nào Diêu Sân cũng họp hành với mấy nhân viên bán hàng, bản thân cũng xuống tận tầng một đứng làm nhân viên tiếp thị giới thiệu sản phẩm, nhưng doanh số vẫn chẳng nhích lên được bao nhiêu. Thời đại video ngắn chưa tới, danh tiếng sản phẩm chỉ có thể tích lũy từ từ từng chút một.
 
-Diêu Sân thở dài một hơi, trong lòng nhớ Từ Mạn Mạn da diết.
+"Chẹp, Mạn Mạn lên Thượng Hải hơn nửa năm rồi, chẳng biết dạo này cậu ấy sống thế nào nữa."
 
-"Mạn Mạn tài giỏi như thế, một tay cậu ấy sáng lập rồi quản lý cả một hệ thống Trăn Hối Tuyển khổng lồ, đâu có vô dụng như mình, trông nom mấy dòng sản phẩm cỏn con cũng chẳng xong. Cậu ấy ở Thượng Hải chắc chắn là lăn lộn rất cừ."
+Diêu Sân thở dài một hơi, cô nhớ Từ Mạn Mạn rồi.
 
-"Tiền lương ít nhất bây giờ cũng phải năm nghìn tệ một tháng rồi ấy chứ."
+"Mạn Mạn giỏi giang thế cơ mà, tự tay gây dựng rồi quản lý cả cái Trăn Hối Tuyển to đùng, chẳng bù cho mình, mấy món sản phẩm cỏn con cũng quản lý không xong. Cậu ấy ở Thượng Hải chắc chắn phát triển tốt lắm."
 
-Diêu Sân từ trước đến nay luôn hết mực ngưỡng mộ và nể phục Thẩm Tử Ngôn cùng Từ Mạn Mạn, duy chỉ có Mộc Dao là khiến cô cảm thấy bất ngờ khôn xiết.
+"Lương tháng bét nhất cũng phải năm nghìn tệ rồi ấy nhỉ."
 
-Tranh thủ lúc vắng khách được nghỉ tay, cô rút điện thoại ra gửi tin nhắn...
+Diêu Sân xưa nay vẫn luôn nể phục Thẩm Tử Ngôn và Từ Mạn Mạn, duy chỉ có biểu hiện của Mộc Dao là khiến cô bất ngờ.
+
+Tranh thủ giờ nghỉ giải lao, cô rút điện thoại ra gửi tin nhắn

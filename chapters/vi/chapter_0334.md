@@ -1,7 +1,5 @@
 # Chương 334: Thành quả của một năm qua
 
-> **Tiêu đề gốc**: 第334章 这一年的收获。
-
 Đan Vĩ và Quan Văn Bách luôn trong tư thế "sẵn sàng ứng phó". Triệu Kim An giờ đây đã trở nên quá đỗi nổi tiếng tại vùng Attica — một thành phố nhỏ với vỏn vẹn hơn mười vạn dân, bọn họ nơm nớp lo sợ sẽ có những kẻ liều lĩnh manh động làm liều.
 
 Vận hành cảng biển vốn chẳng đòi hỏi công nghệ cao siêu gì, nhưng điều khiến Triệu Kim An đau đầu nhất là dưới trướng chưa có nhân sự chuyên trách, chẳng biết nên cắt cử ai sang tiếp quản quản lý.
@@ -10,13 +8,13 @@ Vận hành cảng biển vốn chẳng đòi hỏi công nghệ cao siêu gì, 
 
 Nếu như tin tức này truyền về lớp Kế toán 1, tin chắc rằng tất cả mọi người sẽ đồng loạt giơ tay xin đi.
 
-Thậm chí cả lớp của Thẩm Tử Ngôn và Hứa Mạn Mạn — vốn học đúng chuyên ngành Quản trị Kinh doanh — có lẽ cũng sẽ tranh nhau sứt đầu mẻ trán để giành lấy cơ hội này.
+Thậm chí cả lớp của Thẩm Tử Ngôn và Từ Mạn Mạn — vốn học đúng chuyên ngành Quản trị Kinh doanh — có lẽ cũng sẽ tranh nhau sứt đầu mẻ trán để giành lấy cơ hội này.
 
 Thế nhưng, ngặt một nỗi: Thứ nhất là năng lực chưa đủ tầm, thứ hai là hoàn toàn thiếu thốn kinh nghiệm thực tế.
 
 Hộp thư điện tử của Cảng vụ Hoàn Vũ ngập tràn hồ sơ ứng tuyển gửi về. Triệu Kim An vẫn có thiên hướng ưu tiên trọng dụng đồng bào trong nước hơn. Cậu ném toàn bộ hồ sơ viết bằng tiếng Anh sang cho Du Phi xử lý, bản thân chỉ chọn lọc đọc những bản lý lịch gửi từ trong nước sang.
 
-Không ngờ Hứa Mạn Mạn đã cẩn thận thẩm định, sàng lọc qua toàn bộ một lượt, sau đó nén thành tập tin gửi thẳng sang cho Triệu Kim An.
+Không ngờ Từ Mạn Mạn đã cẩn thận thẩm định, sàng lọc qua toàn bộ một lượt, sau đó nén thành tập tin gửi thẳng sang cho Triệu Kim An.
 
 Triệu Kim An: [Chê tôi dốt tiếng Anh đấy à?]
 
@@ -24,7 +22,7 @@ Mạn Đau Đau: [(Mặt cười)].
 
 Mạn Đau Đau: [Toàn bộ đều là những người có trên 7 năm kinh nghiệm làm việc thực tế, những ai từng có kinh nghiệm công tác tại các cảng biển nước ngoài tôi đã lọc riêng ra một thư mục rồi nhé.]
 
-Du Phi hễ đụng phải các thuật ngữ chuyên ngành là lại phải lên mạng tra cứu từ điển mướt mồ hôi, trong khi Hứa Mạn Mạn thì thực sự có thể đọc hiểu văn bản trôi chảy không một chút rào cản. Còn Triệu Kim An thì chỉ bập bẹ được vài câu giao tiếp cơ bản nhất.
+Du Phi hễ đụng phải các thuật ngữ chuyên ngành là lại phải lên mạng tra cứu từ điển mướt mồ hôi, trong khi Từ Mạn Mạn thì thực sự có thể đọc hiểu văn bản trôi chảy không một chút rào cản. Còn Triệu Kim An thì chỉ bập bẹ được vài câu giao tiếp cơ bản nhất.
 
 Nói theo cách chế giễu của Nhan Hi thì đó là thứ tiếng Anh bồi thuần chất Trung Quốc.
 
@@ -54,7 +52,7 @@ Thậm chí còn có đứa ngây ngô hỏi một câu: [Triệu Kim An, cậu 
 
 Tại Quận Sa.
 
-Mãi một thời gian sau, Hứa Tắc Đống mới tình cờ trông thấy đoạn quảng cáo "Trăn Nhiên báo giờ cho khán giả cả nước". Ông kẹp điếu thuốc lá trên tay, mải mê nhìn màn hình đến mức tàn thuốc cháy rụi bén vào tận ngón tay mới giật mình vội vã ném đi.
+Mãi một thời gian sau, Từ Tắc Đống mới tình cờ trông thấy đoạn quảng cáo "Trăn Nhiên báo giờ cho khán giả cả nước". Ông kẹp điếu thuốc lá trên tay, mải mê nhìn màn hình đến mức tàn thuốc cháy rụi bén vào tận ngón tay mới giật mình vội vã ném đi.
 
 "Con bé Mạn Mạn dạo này đang ở đâu?"
 
@@ -64,7 +62,7 @@ Mãi một thời gian sau, Hứa Tắc Đống mới tình cờ trông thấy �
 
 "Ai cơ?"
 
-Lương Huệ Trân tối hôm sau cũng ngồi canh trước tivi và tận mắt chứng kiến. Đoạn clip báo giờ kéo dài suốt cả một năm trời, trừ phi là những người tuyệt đối không bao giờ xem tivi thì mới không hay biết.
+Lương Tuệ Trân tối hôm sau cũng ngồi canh trước tivi và tận mắt chứng kiến. Đoạn clip báo giờ kéo dài suốt cả một năm trời, trừ phi là những người tuyệt đối không bao giờ xem tivi thì mới không hay biết.
 
 ...
 
@@ -92,11 +90,11 @@ Sự tàn nhẫn ấy không phải do Triệu Kim An hay Lưu Sấm Phong tạo
 
 "Cậu ta có thể móc ra hơn ba trăm triệu tệ để giật lấy ngôi Vua quảng cáo của CCTV cơ đấy!"
 
-Đó chính là nỗi hụt hẫng và cảm giác bất lực tột cùng đang bóp nghẹt tâm can Trần Trạch. Dẫu cho không có khủng hoảng tài chính đi chăng nữa, thì những đơn hàng mà Dương Thục Mỹ đàm phán được cao lắm cũng chỉ vài trăm nghìn, cùng lắm là vài triệu tệ mà thôi.
+Đó chính là nỗi hụt hẫng và cảm giác bất lực tột cùng đang bóp nghẹt tâm can Trần Trạch. Dẫu cho không có khủng hoảng tài chính đi chăng nữa, thì những đơn hàng mà Dương Thù Mỹ đàm phán được cao lắm cũng chỉ vài trăm nghìn, cùng lắm là vài triệu tệ mà thôi.
 
 Trần Trạch leo lên sân thượng của nhà xưởng, đứng chôn chân hút thuốc trắng đêm.
 
-Cậu ta ngập ngừng bấm gọi vào số máy của Hứa Mạn Mạn thêm một lần nữa, nhưng đáp lại vẫn là những tiếng tút dài vô vọng báo hiệu không thể kết nối.
+Cậu ta ngập ngừng bấm gọi vào số máy của Từ Mạn Mạn thêm một lần nữa, nhưng đáp lại vẫn là những tiếng tút dài vô vọng báo hiệu không thể kết nối.
 
 ...
 

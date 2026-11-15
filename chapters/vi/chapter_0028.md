@@ -1,7 +1,5 @@
 # Chương 28: Bà nội: "Kim An, dẫn chị dâu cháu về nhà mình ngủ."
 
-> **Tiêu đề gốc**: 第28章 奶奶：今安，带你嫂子去我们家睡。
-
 Cuối tháng Tám.
 
 Ngày nhập học đại học càng lúc càng cận kề, nhóm chat QQ của lớp 209 cũng theo đó mà ngày một rộn ràng, náo nhiệt.

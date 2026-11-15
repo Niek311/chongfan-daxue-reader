@@ -1,7 +1,5 @@
 # Chương 301: Nếu như được lựa chọn
 
-> **Tiêu đề gốc**: 第301章 如果有的选。
-
 Đoạn Thu Bình đang cặm cụi treo từng chiếc quần áo vào tủ, mấy ngăn tủ trong phòng ngủ phụ vốn dĩ vẫn còn trống trơn.
 
 Góc phòng đặt một chiếc túi du lịch cỡ lớn, kiểu dáng cũ kỹ mang đậm phong vị của những năm tháng xưa cũ.

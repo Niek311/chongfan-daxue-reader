@@ -1,7 +1,5 @@
 # Chương 251: Chẳng cần thứ cảm giác an toàn ấy
 
-> **Tiêu đề gốc**: 第251章 不需要这种安全感。
-
 Triệu Kim An bất giác đưa mắt nhìn lướt qua khóe môi Từ Mạn Mạn.
 
 Từ Mạn Mạn cũng hơi ngẩng đầu lên, lặng lẽ nhìn anh.
@@ -12,35 +10,35 @@ Chẳng hiểu sao đêm ấy mình lại có được dũng khí ấy, mọi th
 
 Tầng một của Trăn Hối Tuyển lúc này khá ồn ào, mọi người đều đang tất bật chuyển hàng và bày biện lên kệ.
 
-Bước đến trước một quầy hàng, Triệu Kim An nhìn thấy mấy khay bánh quy bán theo cân của công ty nhà Trầm Tử Ngôn, liền bóc thử một gói nhỏ. Anh cắn một miếng, rồi tiện tay đưa phần còn lại cho Từ Mạn Mạn đứng bên cạnh:
+Bước đến trước một quầy hàng, Triệu Kim An nhìn thấy mấy khay bánh quy bán theo cân của công ty nhà Thẩm Tử Ngôn, liền bóc thử một gói nhỏ. Anh cắn một miếng, rồi tiện tay đưa phần còn lại cho Từ Mạn Mạn đứng bên cạnh:
 
-"Ừm, bánh quy nhà Trầm Tử Ngôn ăn ngon đấy."
+"Ừm, bánh quy nhà Thẩm Tử Ngôn ăn ngon đấy."
 
 Triệu Kim An gật gù, cất tiếng gọi mọi người: "Mọi người nếm thử xem."
 
 "Triệu tổng, bọn em đều ăn thử cả rồi ạ." Liễu Ôn Ninh cười đáp.
 
-Từ Mạn Mạn ăn nốt miếng bánh còn lại, còn Đơn Na Tề chưa từng ăn bao giờ nên cũng tò mò lấy một gói nhỏ nếm thử.
+Từ Mạn Mạn ăn nốt miếng bánh còn lại, còn Đan Na Tề chưa từng ăn bao giờ nên cũng tò mò lấy một gói nhỏ nếm thử.
 
 "Đã kiểm nghiệm xem có đạt tiêu chuẩn của Trăn Hối Tuyển chúng ta chưa?" Triệu Kim An vẫn cẩn thận hỏi thêm một câu, sợ Từ Mạn Mạn và Liễu Ôn Ninh vì nể nang quan hệ mà khó xử.
 
 Từ Mạn Mạn gật đầu: "Không có vấn đề gì, hàng của Tử Ngôn được kiểm định ngay trong đợt đầu tiên."
 
-Triệu Kim An lại chọn thêm một loại khác. Bánh quy nhà Trầm Tử Ngôn có kết cấu hơi giống thạch dẻo, cùng một thương hiệu nhưng có rất nhiều chủng loại phong phú, hàng xá được bán theo cân.
+Triệu Kim An lại chọn thêm một loại khác. Bánh quy nhà Thẩm Tử Ngôn có kết cấu hơi giống thạch dẻo, cùng một thương hiệu nhưng có rất nhiều chủng loại phong phú, hàng xá được bán theo cân.
 
 "Vị trí này đã là chỗ đẹp nhất trong siêu thị chưa?" Triệu Kim An quay sang hỏi Liễu Ôn Ninh.
 
-Liễu Ôn Ninh đáp: "Triệu tổng, khu hàng xá này thì vị trí không chênh lệch nhau là mấy, nhưng bình giữ nhiệt và bánh quy đóng hộp của Trầm tổng bọn em đều đã ưu tiên xếp ở những vị trí trưng bày đắc địa nhất rồi ạ."
+Liễu Ôn Ninh đáp: "Triệu tổng, khu hàng xá này thì vị trí không chênh lệch nhau là mấy, nhưng bình giữ nhiệt và bánh quy đóng hộp của Thẩm tổng bọn em đều đã ưu tiên xếp ở những vị trí trưng bày đắc địa nhất rồi ạ."
 
 "Triệu tổng, mời anh đi lối này."
 
 Nói đoạn, Liễu Ôn Ninh dẫn Triệu Kim An sang khu vực kệ hàng đóng hộp.
 
-Đây chính là sự khác biệt rõ rệt giữa Trầm Vĩnh Đàm và Trương Vân Thiến.
+Đây chính là sự khác biệt rõ rệt giữa Thẩm Vĩnh Đàm và Trương Vân Thiến.
 
-Vợ chồng Trầm Vĩnh Đàm và Lục Mai Tiêu thậm chí còn chẳng buồn đích thân đến đây, việc ký hợp đồng đều do Trầm Tử Ngôn tự tay làm. Có lẽ trong mắt họ, việc đưa hàng vào đây thực chất chỉ là một chút ủng hộ nho nhỏ dành cho sự nghiệp của Triệu Kim An, chứ chưa từng kỳ vọng một siêu thị Trăn Hối Tuyển có thể mang lại doanh số lớn hay nguồn lợi nhuận đột biến nào cho công ty.
+Vợ chồng Thẩm Vĩnh Đàm và Lục Mai Tiêu thậm chí còn chẳng buồn đích thân đến đây, việc ký hợp đồng đều do Thẩm Tử Ngôn tự tay làm. Có lẽ trong mắt họ, việc đưa hàng vào đây thực chất chỉ là một chút ủng hộ nho nhỏ dành cho sự nghiệp của Triệu Kim An, chứ chưa từng kỳ vọng một siêu thị Trăn Hối Tuyển có thể mang lại doanh số lớn hay nguồn lợi nhuận đột biến nào cho công ty.
 
-"Triệu tổng, sáu mẫu bánh quy hộp này đều là của Trầm tổng, đằng kia còn có bốn loại que cay nữa ạ."
+"Triệu tổng, sáu mẫu bánh quy hộp này đều là của Thẩm tổng, đằng kia còn có bốn loại que cay nữa ạ."
 
 "Nhà cô ấy làm ăn đa dạng thật đấy!"
 
@@ -52,7 +50,7 @@ Nói thế nào nhỉ?
 
 Không hẳn là có chỗ nào dở tệ, chỉ là thiếu đi sức hút để giữ chân ánh nhìn của khách hàng.
 
-Chiêu thức tiếp thị thời nay chính là như thế. Có thể Trầm Vĩnh Đàm đang đi theo định hướng thị trường nông thôn, nơi mà mỗi dịp Tết đến xuân về nhà nào cũng mua bánh kẹo, nhưng Triệu Kim An là người từng trải, đã chứng kiến quá nhiều chiến lược marketing đỉnh cao. Huống chi, dòng bánh quy của Trầm Vĩnh Đàm rõ ràng nhắm vào đối tượng trẻ em.
+Chiêu thức tiếp thị thời nay chính là như thế. Có thể Thẩm Vĩnh Đàm đang đi theo định hướng thị trường nông thôn, nơi mà mỗi dịp Tết đến xuân về nhà nào cũng mua bánh kẹo, nhưng Triệu Kim An là người từng trải, đã chứng kiến quá nhiều chiến lược marketing đỉnh cao. Huống chi, dòng bánh quy của Thẩm Vĩnh Đàm rõ ràng nhắm vào đối tượng trẻ em.
 
 Thấy Từ Mạn Mạn hai tay ôm mấy chiếc vỏ hộp rỗng, mấy túi nilon vừa bóc xong cũng gom gọn trong tay, Triệu Kim An tò mò hỏi: "Ăn xong rồi sao em cứ cầm khư khư thế? Đằng kia có thùng rác mà..."
 
@@ -64,13 +62,13 @@ Triệu Kim An nghẹn lời, há hốc miệng. Mình đường đường là �
 
 Từ Mạn Mạn nhìn bộ dạng sững sờ của anh mà tủm tỉm cười.
 
-Chính cô cũng chẳng hiểu tại sao, Triệu Kim An bình thường lúc nào cũng trầm tĩnh, nụ cười nhàn nhạt trên môi, thế nên Từ Mạn Mạn cũng giống như Trầm Tử Ngôn, cực kỳ thích nhìn cái điệu bộ tẽn tò, chịu lép vế của anh. Đôi khi, cô cứ muốn tìm cách bắt nạt anh một chút cho bõ ghét.
+Chính cô cũng chẳng hiểu tại sao, Triệu Kim An bình thường lúc nào cũng trầm tĩnh, nụ cười nhàn nhạt trên môi, thế nên Từ Mạn Mạn cũng giống như Thẩm Tử Ngôn, cực kỳ thích nhìn cái điệu bộ tẽn tò, chịu lép vế của anh. Đôi khi, cô cứ muốn tìm cách bắt nạt anh một chút cho bõ ghét.
 
 "Tất cả đều đã nhập vào hệ thống của siêu thị rồi." Cuối cùng Từ Mạn Mạn đành mở miệng giải thích: "Lát nữa phải mang ra quầy thu ngân quét mã thanh toán đấy."
 
-Triệu Kim An suy nghĩ một lát rồi rút điện thoại ra bấm số gọi cho Trầm Tử Ngôn.
+Triệu Kim An suy nghĩ một lát rồi rút điện thoại ra bấm số gọi cho Thẩm Tử Ngôn.
 
-Trầm Tử Ngôn sau khi rời Điền Tây đã qua Tô Thành, hiện tại đang cùng Diêu Sân đặt chân đến Thiểm Tây.
+Thẩm Tử Ngôn sau khi rời Điền Tây đã qua Tô Thành, hiện tại đang cùng Diêu Sân đặt chân đến Thiểm Tây.
 
 Đầu dây bên kia nhanh chóng nhấc máy:
 
@@ -80,7 +78,7 @@ Trầm Tử Ngôn sau khi rời Điền Tây đã qua Tô Thành, hiện tại �
 
 Triệu Kim An liền nói một lượt những suy nghĩ của mình: thứ nhất là bao bì quá mức nghiêm túc, thứ hai là 'Giai Hữu' vốn là tên công ty, dòng bánh quy này nên đặt một cái tên mang hơi hướng trẻ thơ, ngộ nghĩnh hơn một chút.
 
-"Triệu Kim An, mảng này anh giỏi nhất, anh nghĩ giúp tôi một cái tên đi?" Trầm Tử Ngôn vừa bất ngờ vừa mừng rỡ khi nhận được cuộc gọi góp ý này của anh. Triệu Kim An vốn chẳng bao giờ thích can thiệp hay chỉ tay năm ngón vào chuyện của người khác.
+"Triệu Kim An, mảng này anh giỏi nhất, anh nghĩ giúp tôi một cái tên đi?" Thẩm Tử Ngôn vừa bất ngờ vừa mừng rỡ khi nhận được cuộc gọi góp ý này của anh. Triệu Kim An vốn chẳng bao giờ thích can thiệp hay chỉ tay năm ngón vào chuyện của người khác.
 
 "Vậy... gọi là Bánh Quy Gấu Con nhé? Chữ Giai Hữu thì thu nhỏ lại..."
 
@@ -92,29 +90,29 @@ Triệu Kim An liền nói một lượt những suy nghĩ của mình: thứ nh
 
 "Nhưng trong đầu tôi chưa hình dung ra được ý tưởng thế nào, anh giúp tôi đi mà."
 
-Về mặt này, Trầm Tử Ngôn tự biết mình còn kém xa Triệu Kim An, hơn nữa cô đặt trọn niềm tin vào anh. Có được sự chỉ điểm của Triệu Kim An, chắc chắn doanh số của Giai Hữu sẽ có bước nhảy vọt đáng kể.
+Về mặt này, Thẩm Tử Ngôn tự biết mình còn kém xa Triệu Kim An, hơn nữa cô đặt trọn niềm tin vào anh. Có được sự chỉ điểm của Triệu Kim An, chắc chắn doanh số của Giai Hữu sẽ có bước nhảy vọt đáng kể.
 
 "Phí thiết kế trừ thẳng vào tiền lương của cô đấy nhé." Triệu Kim An cười nói: "Thêm nữa, để tôi hỏi thăm Vu tổng bên Bàn Đông Lai xem sao, đến lúc đó bảo bố mẹ cô qua Hứa Đô một chuyến."
 
 "Kim An, cảm ơn anh."
 
-Nhờ có Trăn Hối Tuyển, Trầm Tử Ngôn đã tìm hiểu kỹ về Bàn Đông Lai, biết chuỗi này sở hữu sáu siêu thị lớn, hơn nữa việc làm ăn ở Hứa Đô vô cùng phát đạt.
+Nhờ có Trăn Hối Tuyển, Thẩm Tử Ngôn đã tìm hiểu kỹ về Bàn Đông Lai, biết chuỗi này sở hữu sáu siêu thị lớn, hơn nữa việc làm ăn ở Hứa Đô vô cùng phát đạt.
 
-Nói cho cùng, đó hoàn toàn là nhờ mạng lưới quan hệ của Triệu Kim An. Chỉ cần sản phẩm của Trầm Vĩnh Đàm đạt chuẩn chất lượng, chút thể diện này chắc chắn Vu tổng sẽ dành trọn cho Triệu tổng của Trăn Nhiên.
+Nói cho cùng, đó hoàn toàn là nhờ mạng lưới quan hệ của Triệu Kim An. Chỉ cần sản phẩm của Thẩm Vĩnh Đàm đạt chuẩn chất lượng, chút thể diện này chắc chắn Vu tổng sẽ dành trọn cho Triệu tổng của Trăn Nhiên.
 
-Dù rằng Giai Hữu chỉ là một xưởng sản xuất nhỏ trực thuộc công ty của Trầm Vĩnh Đàm, doanh thu chiếm tỉ trọng không cao, nhưng điều khiến Trầm Tử Ngôn vui sướng ngập tràn chính là thái độ của Triệu Kim An đối với cô. Trong lòng anh vẫn luôn nhớ đến chuyện làm ăn của gia đình cô, quan trọng nhất là còn chủ động bắc cầu nối với Bàn Đông Lai.
+Dù rằng Giai Hữu chỉ là một xưởng sản xuất nhỏ trực thuộc công ty của Thẩm Vĩnh Đàm, doanh thu chiếm tỉ trọng không cao, nhưng điều khiến Thẩm Tử Ngôn vui sướng ngập tràn chính là thái độ của Triệu Kim An đối với cô. Trong lòng anh vẫn luôn nhớ đến chuyện làm ăn của gia đình cô, quan trọng nhất là còn chủ động bắc cầu nối với Bàn Đông Lai.
 
-Mặt khác, ở thời điểm này mua sắm trực tuyến vẫn chưa phát triển rầm rộ, những kênh phân phối bán lẻ truyền thống như thế này càng mang ý nghĩa sống còn. Lại đúng vào lúc khủng hoảng tài chính nổ ra, vợ chồng Trầm Vĩnh Đàm và Lục Mai Tiêu vừa cắt giảm mảng thương mại xuất khẩu, đang rất cần các đơn hàng nội địa để bù đắp vào khoảng trống.
+Mặt khác, ở thời điểm này mua sắm trực tuyến vẫn chưa phát triển rầm rộ, những kênh phân phối bán lẻ truyền thống như thế này càng mang ý nghĩa sống còn. Lại đúng vào lúc khủng hoảng tài chính nổ ra, vợ chồng Thẩm Vĩnh Đàm và Lục Mai Tiêu vừa cắt giảm mảng thương mại xuất khẩu, đang rất cần các đơn hàng nội địa để bù đắp vào khoảng trống.
 
 Mọi người đứng xung quanh nhìn Triệu Kim An, ai nấy đều im lặng lắng nghe.
 
 Là phụ nữ, trong đầu Liễu Ôn Ninh bỗng nảy ra một cụm từ: cảm giác an toàn.
 
-"Đi theo Triệu tổng, chắc hẳn Trầm tổng của Trăn Nhiên thấy an tâm lắm nhỉ?"
+"Đi theo Triệu tổng, chắc hẳn Thẩm tổng của Trăn Nhiên thấy an tâm lắm nhỉ?"
 
 Từ Mạn Mạn cũng dõi mắt nhìn Triệu Kim An, không nói một lời.
 
-Triệu Kim An không giống những chàng trai khác. Anh quan tâm đến tình hình tiêu thụ của Giai Hữu tại Trăn Hối Tuyển, nhưng chẳng hề mang tâm lý kể công hay phô trương, thậm chí trong điện thoại cũng không đả động gì với Trầm Tử Ngôn về việc mình đã cẩn thận kiểm tra quầy kệ ra sao. Những cô gái đơn thuần, ít suy nghĩ chắc chắn sẽ chẳng thể nào nhận ra sự tinh tế thầm lặng ấy.
+Triệu Kim An không giống những chàng trai khác. Anh quan tâm đến tình hình tiêu thụ của Giai Hữu tại Trăn Hối Tuyển, nhưng chẳng hề mang tâm lý kể công hay phô trương, thậm chí trong điện thoại cũng không đả động gì với Thẩm Tử Ngôn về việc mình đã cẩn thận kiểm tra quầy kệ ra sao. Những cô gái đơn thuần, ít suy nghĩ chắc chắn sẽ chẳng thể nào nhận ra sự tinh tế thầm lặng ấy.
 
 Bản thân Từ Mạn Mạn không có quá nhiều rung cảm với thứ gọi là "cảm giác an toàn". Cô vốn rất độc lập, đã quen sống tự lập một mình từ lâu, chưa từng có ý nghĩ cần ai đó đem lại cho mình cảm giác an toàn che chở.
 
@@ -130,7 +128,7 @@ Lâm Thanh Tuyết không thể nào hiểu nổi vì sao Từ Mạn Mạn lại
 
 Kỳ nghỉ hè này Lâm Thanh Tuyết không về quê mà ở lại trông coi phòng bida cùng Trần Trạch. Đừng coi thường một quán bida nhỏ, dù chỉ có vỏn vẹn bảy bàn, với giá năm tệ một giờ, mỗi giờ trôi qua cũng thu về ba mươi lăm tệ. Một ngày tính bình quân mười tiếng đông khách, doanh thu cũng ngót nghét ba trăm năm mươi tệ.
 
-Dương Thục Mỹ từng dọa Trần Trạch rằng nếu không dỗ dành được Từ Mạn Mạn quay lại thì sẽ cắt toàn bộ tiền sinh hoạt. Có lẽ điều đó ít nhiều ảnh hưởng đến cuộc sống vương giả của một thiếu gia con nhà giàu, nhưng ảnh hưởng cũng chẳng đáng là bao, bởi nguồn thu từ quán bida đã quá đủ để chi trả cho mọi chi tiêu xa xỉ của Trần Trạch và Lâm Thanh Tuyết.
+Dương Thù Mỹ từng dọa Trần Trạch rằng nếu không dỗ dành được Từ Mạn Mạn quay lại thì sẽ cắt toàn bộ tiền sinh hoạt. Có lẽ điều đó ít nhiều ảnh hưởng đến cuộc sống vương giả của một thiếu gia con nhà giàu, nhưng ảnh hưởng cũng chẳng đáng là bao, bởi nguồn thu từ quán bida đã quá đủ để chi trả cho mọi chi tiêu xa xỉ của Trần Trạch và Lâm Thanh Tuyết.
 
 Triệu Kim An tiếp tục rảo bước quan sát dọc theo các dãy kệ, chợt nhìn thấy bên dưới có những hàng đồ hộp xếp ngay ngắn.
 

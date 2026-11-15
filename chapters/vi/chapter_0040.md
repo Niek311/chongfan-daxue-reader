@@ -1,7 +1,5 @@
 # Chương 40: Người phụ nữ trên xe lăn
 
-> **Tiêu đề gốc**: 第40章 轮椅上的女人。
-
 Ở nhà ăn sinh viên, Chu Sở Hân giành lấy phần quẹt thẻ cơm cho bằng được. Chỉ có mỗi một tật xấu là cô nàng cứ hở ra là tìm cách chiếm tiện nghi của Triệu Kim An.
 
 Lúc thì nắm chặt lấy bắp tay, khi thì khoác hờ lấy cánh tay cậu không chịu buông.

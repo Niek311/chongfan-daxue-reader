@@ -1,28 +1,26 @@
 # Chương 526: Đắc chí ngông cuồng
 
-> **Tiêu đề gốc**: 第526章 飘了。
-
 Lưu Sấm Phong uống say mấy chén, gọi vào số di động của Triệu Kim An không được bèn bốc máy gọi thẳng tới số bàn của Tập đoàn Hoàn Vũ.
 
-Đầu dây bên kia là thư ký Du Phỉ tiếp máy.
+Đầu dây bên kia là thư ký Du Phi tiếp máy.
 
-"Alo, haha, Du Phỉ đấy à? Thư ký Du?"
+"Alo, haha, Du Phi đấy à? Thư ký Du?"
 
 "Vâng, xin hỏi ai ở đầu dây thế ạ?"
 
-Du Phỉ áp ống nghe vào tai, ngữ điệu giữ trọn vẻ nhã nhặn, chuyên nghiệp của một thư ký cấp cao.
+Du Phi áp ống nghe vào tai, ngữ điệu giữ trọn vẻ nhã nhặn, chuyên nghiệp của một thư ký cấp cao.
 
-"Haha, Du Phỉ, đến giọng tôi mà cô cũng không nhận ra à? Lưu Sấm Phong đây! Kim An có ở đấy không? Nghe bảo nó về công ty rồi, đã bình phục hẳn chưa? Cô bảo nó rảnh rỗi thì qua chỗ tôi mà chơi!"
+"Haha, Du Phi, đến giọng tôi mà cô cũng không nhận ra à? Lưu Sấm Phong đây! Kim An có ở đấy không? Nghe bảo nó về công ty rồi, đã bình phục hẳn chưa? Cô bảo nó rảnh rỗi thì qua chỗ tôi mà chơi!"
 
 "Đảm bảo đến đây là khỏi hết mọi bệnh tật, sướng như tiên luôn!"
 
-Du Phỉ: "..."
+Du Phi: "..."
 
 Bảo sếp Triệu qua chỗ anh chơi?
 
 "Lưu Sấm Phong, anh lại uống rượu vào rồi đấy à?"
 
-Cô thầm nghĩ trong bụng, gã họ Lưu này dạo gần đây đúng là đắc chí đến mức quên cả trời đất. Gã mở miệng gọi thẳng tên "Du Phỉ" thì cô cũng chẳng thèm chấp nhặt, nhưng ngẫm lại mà xem, ngay cả cỡ La Kiến Thành hay Bao Uyển Yên khi nói chuyện với cô vẫn luôn giữ kẽ, khách khí gọi một tiếng "thư ký Du".
+Cô thầm nghĩ trong bụng, gã họ Lưu này dạo gần đây đúng là đắc chí đến mức quên cả trời đất. Gã mở miệng gọi thẳng tên "Du Phi" thì cô cũng chẳng thèm chấp nhặt, nhưng ngẫm lại mà xem, ngay cả cỡ La Kiến Thành hay Bao Uyển Yên khi nói chuyện với cô vẫn luôn giữ kẽ, khách khí gọi một tiếng "thư ký Du".
 
 Ở cái tập đoàn này, người dám gọi thẳng tên cô chẳng qua chỉ có Từ Mạn Mạn và Đường Hiểu Tình mà thôi.
 
@@ -176,15 +174,15 @@ Nhận được cái gật đầu chấp thuận của Triệu Kim An, Ngải Ma
 
 Vừa bước ra khỏi thang máy chuyên dụng, thấy Triệu Tri Nặc vẫn đang tò mò ngồi trên chiếc xe máy điện, Ngải Manh Manh liền ngồi xổm xuống khẽ xoa đầu con bé, đoạn cất lời báo cáo: "Triệu tổng, đợt trước có bên Địa ốc Trạch Vũ gửi tới một lẵng hoa chúc mừng ạ."
 
-Du Phỉ nhẹ nhàng đẩy cánh cửa lớn của Văn phòng Chủ tịch ở tầng 49.
+Du Phi nhẹ nhàng đẩy cánh cửa lớn của Văn phòng Chủ tịch ở tầng 49.
 
 Đây là lần đầu tiên Triệu Kim An đặt chân tới phòng làm việc mới của mình. Anh bế bổng Triệu Tri Nặc lên rồi thong thả ngồi xuống chiếc ghế sô pha da êm ái.
 
 "Sao Kim An chẳng thèm hỏi lại mình câu nào thế nhỉ?"
 
-Ngải Manh Manh lúng túng đưa mắt cầu cứu Du Phỉ. Cô mới chuyển về Văn phòng Chủ tịch chưa được bao lâu, dẫu thời cấp ba từng ngồi cùng bàn với Triệu Kim An suốt một thời gian dài, nhưng từ trước tới nay cô chưa từng báo cáo công việc trực tiếp với anh, thành thử trong thoáng chốc có phần bỡ ngỡ, lúng túng.
+Ngải Manh Manh lúng túng đưa mắt cầu cứu Du Phi. Cô mới chuyển về Văn phòng Chủ tịch chưa được bao lâu, dẫu thời cấp ba từng ngồi cùng bàn với Triệu Kim An suốt một thời gian dài, nhưng từ trước tới nay cô chưa từng báo cáo công việc trực tiếp với anh, thành thử trong thoáng chốc có phần bỡ ngỡ, lúng túng.
 
-Du Phỉ khẽ lắc đầu ra hiệu, ý bảo nếu sếp Triệu không hỏi thì cứ tự giác báo cáo tiếp cho hết sự việc.
+Du Phi khẽ lắc đầu ra hiệu, ý bảo nếu sếp Triệu không hỏi thì cứ tự giác báo cáo tiếp cho hết sự việc.
 
 "Là do một cô trợ lý mang hoa tới ạ."
 
@@ -202,22 +200,22 @@ Ngải Manh Manh thở phào nhẹ nhõm một hơi dài, cuối cùng thì sế
 
 Lúc này cô mới thấm thía rằng công việc ở Văn phòng Chủ tịch chẳng hề dễ xơi chút nào. Giờ đây giữa cô và Triệu Kim An đã không còn đơn thuần là mối quan hệ bạn học cấp ba vô tư lự như ngày xưa nữa; cấp trên cứ im lặng không nói nửa lời khiến người ta cảm thấy áp lực như đè nặng ngàn cân, chẳng biết đường nào mà lần mò suy đoán tâm ý.
 
-Bước ra khỏi phòng, Ngải Manh Manh liền hạ thấp giọng thì thào hỏi: "Du Phỉ này, Kim An... à không, Triệu tổng ấy... trước giờ cậu báo cáo công việc với anh ấy cũng toàn như thế này à?"
+Bước ra khỏi phòng, Ngải Manh Manh liền hạ thấp giọng thì thào hỏi: "Du Phi này, Kim An... à không, Triệu tổng ấy... trước giờ cậu báo cáo công việc với anh ấy cũng toàn như thế này à?"
 
 "Như thế này là như thế nào?"
 
-Du Phỉ liếc xéo Ngải Manh Manh một cái: "Cậu từng thấy có vị lãnh đạo cấp cao nào lại rảnh rỗi ngồi bóc tách, giảng giải từng li từng tí cho cấp dưới nghe chưa? Phim truyền hình chưa xem bao giờ à? Phải tự mình mà ngộ ra! Đi làm thì phải tự rèn lấy cái mắt nhìn, biết quan sát và nhạy bén hơn đi."
+Du Phi liếc xéo Ngải Manh Manh một cái: "Cậu từng thấy có vị lãnh đạo cấp cao nào lại rảnh rỗi ngồi bóc tách, giảng giải từng li từng tí cho cấp dưới nghe chưa? Phim truyền hình chưa xem bao giờ à? Phải tự mình mà ngộ ra! Đi làm thì phải tự rèn lấy cái mắt nhìn, biết quan sát và nhạy bén hơn đi."
 
 Ngải Manh Manh gật đầu lia lịa, tỏ vẻ lĩnh hội sâu sắc.
 
-Du Phỉ ngẫm nghĩ một chốc rồi lại hỏi ngược lại: "Cậu có hiểu vì sao lại thế không?"
+Du Phi ngẫm nghĩ một chốc rồi lại hỏi ngược lại: "Cậu có hiểu vì sao lại thế không?"
 
 "Vì sao là vì sao cơ?"
 
-Du Phỉ khẽ lắc đầu cười nhạt: "Trợ lý! Trần Trạch cớ sao lại phải gửi một lẵng hoa đến? Mà đã gửi hoa thì cớ sao lại không tự thân mình mang tới? Mối quan hệ giữa cậu ta và Kim An vốn dĩ đâu cần phải màu mè hoa lá cành làm gì, thế nhưng cậu ta lại..."
+Du Phi khẽ lắc đầu cười nhạt: "Trợ lý! Trần Trạch cớ sao lại phải gửi một lẵng hoa đến? Mà đã gửi hoa thì cớ sao lại không tự thân mình mang tới? Mối quan hệ giữa cậu ta và Kim An vốn dĩ đâu cần phải màu mè hoa lá cành làm gì, thế nhưng cậu ta lại..."
 
 "Cậu ta lại lấy danh nghĩa Địa ốc Trạch Vũ để sai bảo một cô trợ lý mang hoa tới tặng..."
 
-Du Phỉ khẽ lắc đầu, thực sự chẳng tài nào hiểu nổi chuỗi hành động kỳ quặc, đầy ẩn ý này của Trần Trạch. Rốt cuộc đây là mối quan hệ bạn bè cùng phòng ký túc xá thời đại học, hay là quan hệ công việc sòng phẳng giữa Địa ốc Trạch Vũ và Tập đoàn Hoàn Vũ? Tóm lại, cách hành xử ấy cứ nửa nạc nửa mỡ, chẳng ra thể thống cống rãnh gì.
+Du Phi khẽ lắc đầu, thực sự chẳng tài nào hiểu nổi chuỗi hành động kỳ quặc, đầy ẩn ý này của Trần Trạch. Rốt cuộc đây là mối quan hệ bạn bè cùng phòng ký túc xá thời đại học, hay là quan hệ công việc sòng phẳng giữa Địa ốc Trạch Vũ và Tập đoàn Hoàn Vũ? Tóm lại, cách hành xử ấy cứ nửa nạc nửa mỡ, chẳng ra thể thống cống rãnh gì.
 
 "Cái phòng 303 ấy, Trần Trạch với Lưu Sấm Phong rốt cuộc là bị làm sao không biết..."

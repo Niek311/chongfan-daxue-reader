@@ -1,7 +1,5 @@
 # Chương 528: Ai thèm cho anh ăn!
 
-> **Tiêu đề gốc**: 第528章 不要你吃！
-
 Lý Hạo Triết là người hiểu rõ hơn bất kỳ ai về vai trò sống còn của Triệu Kim An đối với tập đoàn này.
 
 Từ tổng có thể quán xuyến đâu ra đấy toàn bộ nội vụ của công ty, nhưng vĩnh viễn không một ai có thể thay thế được vị trí của Triệu tổng.
@@ -32,11 +30,11 @@ Từ Mạn Mạn nghe vậy khẽ mỉm cười, nơi đáy mắt đong đầy v
 
 Lưu Hiểu Tĩnh liếc nhìn màn hình điện thoại rồi nhanh nhảu báo cáo: "Từ tổng, Triệu tổng lại bế bé Nặc Nặc xuống trung tâm thương mại dạo chơi rồi ạ."
 
-Triệu Bác Lan tranh thủ tiếp lời: "Kim An bảo tiền thưởng cuối năm của Đường Hiểu Tình nâng lên mức kịch trần là mười bảy tháng lương. Mạn Mạn, cô xem qua xem trường hợp của Du Phỉ, Ngải Manh Manh với cả Triệu Trí Dũng thì tính thế nào? Phòng tài chính bọn tôi dự kiến để Du Phỉ và Triệu Trí Dũng ở mức mười lăm tháng lương."
+Triệu Bác Lan tranh thủ tiếp lời: "Kim An bảo tiền thưởng cuối năm của Đường Hiểu Tình nâng lên mức kịch trần là mười bảy tháng lương. Mạn Mạn, cô xem qua xem trường hợp của Du Phi, Ngải Manh Manh với cả Triệu Trí Dũng thì tính thế nào? Phòng tài chính bọn tôi dự kiến để Du Phi và Triệu Trí Dũng ở mức mười lăm tháng lương."
 
 "Ngải Manh Manh mới vào công ty chưa được bao lâu, phòng tài chính đề xuất mười ba tháng."
 
-"Còn có cả Diêu Tân nữa, cũng mười ba tháng lương, cậu ấy vốn là bạn học cùng lớp với cô. Triệu tổng bảo bọn tôi cứ xuống đây bàn bạc lại với cô."
+"Còn có cả Diêu Sân nữa, cũng mười ba tháng lương, cậu ấy vốn là bạn học cùng lớp với cô. Triệu tổng bảo bọn tôi cứ xuống đây bàn bạc lại với cô."
 
 "Thế còn cô với Chu Sở Hân thì sao?"
 
@@ -46,13 +44,13 @@ Triệu Bác Lan nãy giờ vẫn không nhắc tới phần của bản thân m
 
 "Triệu Bác Lan này, suốt nửa năm qua hai người các cô cũng phải chịu áp lực nặng nề nhất..."
 
-Từ Mạn Mạn trầm ngâm giây lát rồi dứt khoát quyết định: "Cô với Chu Sở Hân nâng lên mười bảy tháng lương đi. Những người khác giữ nguyên như phương án cũ. Riêng Ngải Manh Manh để mười bốn tháng lương, Diêu Tân... Diêu Tân cũng mười bốn tháng luôn."
+Từ Mạn Mạn trầm ngâm giây lát rồi dứt khoát quyết định: "Cô với Chu Sở Hân nâng lên mười bảy tháng lương đi. Những người khác giữ nguyên như phương án cũ. Riêng Ngải Manh Manh để mười bốn tháng lương, Diêu Sân... Diêu Sân cũng mười bốn tháng luôn."
 
 "Được, thống nhất như thế."
 
 Thời điểm cuối năm ngập đầu ngập cổ trong công việc, Từ Mạn Mạn chẳng có thời gian đâu mà nán lại cò kè bớt một thêm hai về những chuyện vặt vãnh này, cô còn cả đống hồ sơ trọng yếu đang chờ giải quyết. Triệu Bác Lan nhận được câu trả lời dứt khoát liền đứng dậy bước ra khỏi phòng, thế nhưng chỉ chừng nửa tiếng sau, điện thoại của cô bỗng rung lên một tiếng thông báo tin nhắn.
 
-Từ Mạn Mạn: "Giám đốc Triệu, trường hợp của Diêu Tân cứ nâng hẳn lên mười lăm tháng lương đi nhé."
+Từ Mạn Mạn: "Giám đốc Triệu, trường hợp của Diêu Sân cứ nâng hẳn lên mười lăm tháng lương đi nhé."
 
 Triệu Bác Lan: "Vâng, tôi rõ rồi, Từ tổng."
 
@@ -60,15 +58,15 @@ Nói cho cùng, Từ Mạn Mạn dẫu sao cũng là bậc "thím nhỏ" danh ch
 
 Gần như chưa từng để xảy ra bất kỳ sai sót nào. Còn Thẩm Tử Ngôn thì rõ ràng lại thích hợp hơn cho việc xông pha trận mạc, "khai cương thác thổ" cho tập đoàn.
 
-Ý nghĩ này của cô cũng hoàn toàn trùng khớp với nhận định của Diêu Tân: Thẩm Tử Ngôn hành sự quyết liệt, khoáng đạt, đại khai đại hợp; còn Từ Mạn Mạn lại biết cách lắng lòng, tỉ mỉ và chu toàn hơn nhiều.
+Ý nghĩ này của cô cũng hoàn toàn trùng khớp với nhận định của Diêu Sân: Thẩm Tử Ngôn hành sự quyết liệt, khoáng đạt, đại khai đại hợp; còn Từ Mạn Mạn lại biết cách lắng lòng, tỉ mỉ và chu toàn hơn nhiều.
 
 ...
 
 Tại Văn phòng Thư ký, Ngải Manh Manh khi hay tin tiền thưởng cuối năm của mình được nâng lên mười bốn tháng lương thì sướng phát điên lên được.
 
-"Du Phỉ ơi, mình lại được cộng thêm hẳn một tháng lương nữa này, tận tám nghìn tệ lận, hi hi! Lát nữa tan làm phải xuống ngay siêu thị Trăn Hối Tuyển ở tầng dưới mua thật nhiều đồ Tết mới được. Bố mẹ mình sắp từ quê lên đây rồi, mình còn muốn mua tặng hai cụ mỗi người một chiếc áo lông vũ thật xịn nữa cơ."
+"Du Phi ơi, mình lại được cộng thêm hẳn một tháng lương nữa này, tận tám nghìn tệ lận, hi hi! Lát nữa tan làm phải xuống ngay siêu thị Trăn Hối Tuyển ở tầng dưới mua thật nhiều đồ Tết mới được. Bố mẹ mình sắp từ quê lên đây rồi, mình còn muốn mua tặng hai cụ mỗi người một chiếc áo lông vũ thật xịn nữa cơ."
 
-Du Phỉ đảo mắt liếc cô nàng một cái: "Cậu làm như mình nghèo rớt mồng tơi lắm không bằng ấy?"
+Du Phi đảo mắt liếc cô nàng một cái: "Cậu làm như mình nghèo rớt mồng tơi lắm không bằng ấy?"
 
 "Úi dào, người ta vừa mới dốc hết vốn liếng mua nhà rồi lại hoàn thiện nội thất xong, làm sao mà rủng rỉnh như cậu được chứ."
 
@@ -76,11 +74,11 @@ Du Phỉ đảo mắt liếc cô nàng một cái: "Cậu làm như mình nghèo
 
 Tại cảng Chu Sơn.
 
-Diêu Tân vừa nhìn thấy con số thưởng tết liền lập tức đoán ra ngay đây là do bàn tay của Từ Mạn Mạn nâng đỡ, bởi Triệu Kim An bình thường sẽ chẳng bao giờ rảnh rỗi để bận tâm tới những chi tiết nhỏ nhặt như vậy đối với mình.
+Diêu Sân vừa nhìn thấy con số thưởng tết liền lập tức đoán ra ngay đây là do bàn tay của Từ Mạn Mạn nâng đỡ, bởi Triệu Kim An bình thường sẽ chẳng bao giờ rảnh rỗi để bận tâm tới những chi tiết nhỏ nhặt như vậy đối với mình.
 
-Cảng Chu Sơn - Diêu Tân: "Cảm ơn cậu nhiều nhé, Mạn Mạn."
+Cảng Chu Sơn - Diêu Sân: "Cảm ơn cậu nhiều nhé, Mạn Mạn."
 
-Dịp Tết Nguyên đán này Diêu Tân không được nghỉ phép. Bên nước Úc người ta đâu có ăn Tết âm lịch, các chuyến tàu chở quặng sắt khổng lồ cứ cách hai ba ngày lại lừng lững cập cảng một chuyến, công việc bận rộn tối mắt tối mũi.
+Dịp Tết Nguyên đán này Diêu Sân không được nghỉ phép. Bên nước Úc người ta đâu có ăn Tết âm lịch, các chuyến tàu chở quặng sắt khổng lồ cứ cách hai ba ngày lại lừng lững cập cảng một chuyến, công việc bận rộn tối mắt tối mũi.
 
 ...
 
@@ -204,7 +202,7 @@ Chỉ riêng một dòng tin nhắn ngắn ngủi này thôi, Thẩm Tử Ngôn 
 
 ...
 
-Một ngày sau, Du Phỉ nhận được cuộc gọi từ Thẩm Tử Ngôn.
+Một ngày sau, Du Phi nhận được cuộc gọi từ Thẩm Tử Ngôn.
 
 Thẩm Tử Ngôn chu đáo chuẩn bị sẵn năm phong bao lì xì tết: Triệu Tri Nặc, Triệu Tri Hành, Triệu Tri Vi, Triệu Duyệt Thiên, và Tống Gia Nguyệt.
 
@@ -218,8 +216,8 @@ Mộc Dao ở bên kia cũng chuẩn bị sẵn ba phong bao lì xì, và số t
 
 "..."
 
-Đầu óc Du Phỉ bỗng chốc tê dại cả đi. Dao Dao với Tử Ngôn rốt cuộc là đang muốn so kè, toan tính điều gì ở đây vậy?
+Đầu óc Du Phi bỗng chốc tê dại cả đi. Dao Dao với Tử Ngôn rốt cuộc là đang muốn so kè, toan tính điều gì ở đây vậy?
 
-Bằng mặt không bằng lòng với Từ Mạn Mạn thì cứ việc không phục, thế nhưng cả Thẩm Tử Ngôn lẫn Mộc Dao đều nhất loạt chuẩn bị phong bao lì xì mừng tuổi cho bé Triệu Tri Nặc. Du Phỉ không nhịn được mà nảy sinh ý nghĩ trêu ngươi: Phải chăng hai cô nàng này đang muốn đường đường chính chính lấy danh nghĩa "dì nhỏ" để phát tiền mừng tuổi cho con gái của người ta hay sao?
+Bằng mặt không bằng lòng với Từ Mạn Mạn thì cứ việc không phục, thế nhưng cả Thẩm Tử Ngôn lẫn Mộc Dao đều nhất loạt chuẩn bị phong bao lì xì mừng tuổi cho bé Triệu Tri Nặc. Du Phi không nhịn được mà nảy sinh ý nghĩ trêu ngươi: Phải chăng hai cô nàng này đang muốn đường đường chính chính lấy danh nghĩa "dì nhỏ" để phát tiền mừng tuổi cho con gái của người ta hay sao?
 
 Thế nhưng cuối cùng cô vẫn quyết định bấm máy mách nước cho Mộc Dao một tiếng: "Dao Dao này, con bé Tử Ngôn nó chu đáo đến mức chuẩn bị sẵn cả phong bao lì xì cho cả Triệu Duyệt Thiên lẫn Tống Gia Nguyệt nữa đấy..."

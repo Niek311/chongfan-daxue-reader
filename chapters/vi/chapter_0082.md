@@ -1,7 +1,5 @@
 # Chương 82: Tiền đổi cách xưng hô?
 
-> **Tiêu đề gốc**: 第82章 改口费？
-
 Một buổi chập tối mùa đông giá rét, sương giá buốt lạnh phủ xuống không gian mịt mù.
 
 Ánh đèn neon trên các biển hiệu quảng cáo chớp nháy giữa bầu trời màu xám tro ảm đạm, tựa như hơi thở dồn dập, đứt quãng của một bệnh nhân hen suyễn.

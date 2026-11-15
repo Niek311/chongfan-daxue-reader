@@ -1,7 +1,5 @@
 # Chương 420: Chuyện thường ngày
 
-> **Tiêu đề gốc**: 第420章 日常。
-
 Từ Mạn Mạn khẽ bật cười, giơ chiếc chìa khóa nhỏ nhắn trên tay lên: "Khóa mật mã, nhưng em vẫn mang theo cả chìa khóa cơ dự phòng ra ngoài này."
 
 "..."

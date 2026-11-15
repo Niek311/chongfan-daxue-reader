@@ -1,7 +1,5 @@
 # Chương 517: Tâm cơ
 
-> **Tiêu đề gốc**: 第517章 城府。
-
 Chuyến tàu cao tốc lao nhanh về phương Nam.
 
 Đêm hôm trước Mộc Dao và Thẩm Tử Ngôn còn ngủ chung một giường thủ thỉ, vậy mà đến sáng hôm sau mỗi người đã lại rẽ một ngả riêng.

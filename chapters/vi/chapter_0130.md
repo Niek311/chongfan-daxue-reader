@@ -1,7 +1,5 @@
 # Chương 130: Ám ảnh cái nghèo
 
-> **Tiêu đề gốc**: 第130章 穷怕了。
-
 Trong căn nhà trọ nhỏ đơn sơ của Đường Hiểu Tình.
 
 Dì Lưu Mỹ Nga đã nấu xong một mâm cơm nóng hổi, nhiệt tình giữ Triệu Kim An ở lại ăn bữa tối.

@@ -1,7 +1,5 @@
 # Chương 205: Mua đứt luôn!
 
-> **Tiêu đề gốc**: 第205章 买下来。
-
 Trong phòng làm việc, Tô Minh Tùng bảo Triệu Kim An ngồi đối diện với mình. Hai người đàn ông ngồi trò chuyện rất lâu, chủ đề câu chuyện chủ yếu xoay quanh công việc và định hướng phát triển. Trước một người dạn dày sương gió chốn quan trường như Tô Minh Tùng, mọi suy tính của Triệu Kim An cơ bản chẳng thể nào giấu giếm được.
 
 Triệu Kim An trình bày cặn kẽ về Trăn Nhiên, rồi lại chủ động nhắc tới dự án chuỗi siêu thị mới.
@@ -202,7 +200,7 @@ Trong góc phòng có một chiếc giá sách lớn chất đầy những cuố
 
 ***
 
-Triệu Bác Lan và Đơn Vĩ vẫn kiên nhẫn chờ sẵn ở khách sạn.
+Triệu Bác Lan và Đan Vĩ vẫn kiên nhẫn chờ sẵn ở khách sạn.
 
 Triệu Kim An vốn có ý định sẽ tranh thủ ký hợp đồng đại sứ thương hiệu với một vài vận động viên đoạt huy chương vàng Olympic ngay từ bây giờ, khi mà giá trị thương mại của họ chưa bị đẩy lên quá cao. Thế nhưng sau khi ngẫm nghĩ kỹ lại những cái tên lẫy lừng như Lưu Tường, Lâm Đan, Quách Tinh Tinh... thì nhận ra bọn họ từ lâu đã nổi đình nổi đám khắp thế giới rồi.
 
@@ -216,7 +214,7 @@ Trước khi xe lăn bánh, Quách Uyển Thanh dặn dò Triệu Kim An một c
 
 "Kim An, xong việc ở đây rồi thì chúng ta bay thẳng lên Đông Bắc hay quay về Quận Sa luôn?"
 
-Triệu Bác Lan khi quay về khách sạn vẫn giữ kín như bưng, không hề hé răng nửa lời với Đơn Vĩ về những nơi mình vừa đặt chân đến.
+Triệu Bác Lan khi quay về khách sạn vẫn giữ kín như bưng, không hề hé răng nửa lời với Đan Vĩ về những nơi mình vừa đặt chân đến.
 
 "Nhà máy nước ở khu vực Tây Nam chuẩn bị khởi công xây dựng rồi đấy."
 

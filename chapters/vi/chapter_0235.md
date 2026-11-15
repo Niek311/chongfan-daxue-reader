@@ -1,7 +1,5 @@
 # Chương 235: Đuổi khéo Lý Ngải Lan
 
-> **Tiêu đề gốc**: 第235章 赶走李艾兰。
-
 Một lát sau, ánh đèn trong căn phòng trọ phía trên tầng lầu bật sáng.
 
 Triệu Kim An thong thả thu hồi tầm mắt. Cậu thầm nghĩ không biết người phụ nữ bản lĩnh như Dương Thù Mỹ liệu có thể xoay chuyển càn khôn, lội ngược dòng trước cơn bão khủng hoảng tài chính hay không?

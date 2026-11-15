@@ -1,7 +1,5 @@
 # Chương 544: Lai lịch thế nào?
 
-> **Tiêu đề gốc**: 第544章 什么来头？
-
 "Hoàn Vũ Cảng Vụ này rốt cuộc là cái thứ gì? Có lai lịch thế nào vậy?"
 
 Người của Tập đoàn Vận tải biển Winning (Vi Lực Quốc Tế) thuộc Liên minh Thắng Lợi (Winning Consortium) cất tiếng hỏi dò đại diện của Ngụy Kiều và Hoành Kiều: "Những đại sự tầm cỡ quốc tế thế này, xưa nay chẳng phải đều do mấy doanh nghiệp nhà nước các ông dẫn đoàn 'xuất hải' hay sao? Sao tự dưng lại nhảy xổ ra một gã Hoàn Vũ Cảng Vụ thế này?"

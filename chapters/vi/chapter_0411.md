@@ -1,7 +1,5 @@
 # Chương 411: Tề tựu Quận Sa
 
-> **Tiêu đề gốc**: 第411章 齐聚郡沙。
-
 Tiếng cười rộn rã thuở nào, cánh cửa giữa hai nhà trước đây chẳng bao giờ khép lại.
 
 Vào những năm tháng ấy, hai người phụ nữ cũng mới chỉ ở độ tuổi ngoài hai mươi, vừa chớm bước sang tuổi ba mươi tròn trĩnh.

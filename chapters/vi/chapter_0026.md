@@ -1,7 +1,5 @@
 # Chương 26: Cô Trình vừa mới tắm xong à?
 
-> **Tiêu đề gốc**: 第26章 程老师洗过澡啦？
-
 Được một lát, Trình Tử Liên lại trông thấy Mộc Dao cùng bố mẹ Âu Cường đang trò chuyện rôm rả. Phụ huynh hai bên mặt mày hớn hở, tươi cười rạng rỡ, còn Âu Cường và Mộc Dao thì đứng nép sang một bên.
 
 Mẹ Âu Cường nhìn Mộc Dao, ánh mắt đong đầy vẻ yêu thương, trìu mến.

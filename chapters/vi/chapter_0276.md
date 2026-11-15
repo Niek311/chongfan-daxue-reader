@@ -1,7 +1,5 @@
 # Chương 276: Mở màn trận chiến Tu La?
 
-> **Tiêu đề gốc**: 第276章 开修罗场？
-
 "Nếu hai bác vẫn còn nghi ngờ con gái mình... cho rằng cô ấy dùng những thủ đoạn không trong sạch..."
 
 Triệu Kim An liếc nhìn Từ Mạn Mạn đang đứng phía sau: "Con gái bác chưa từng lên giường với cháu. Bọn cháu đến môi còn chưa từng chạm, à không, nói đúng ra thì ngay cả tay cũng chưa từng nắm."
@@ -22,7 +20,7 @@ Từ Mạn Mạn chết sững tại chỗ, trố mắt nhìn Triệu Kim An: Sa
 
 Từ Tắc Đống lại tỏ ra tương đối bình tĩnh. Con gái do chính tay mình nuôi dạy, ông tin là chưa vượt quá giới hạn thể xác, chỉ có điều hơi kinh ngạc khi biết hai đứa ngay cả hôn môi cũng chưa từng.
 
-Lương Huệ Trân nhìn Triệu Kim An rồi lại nhìn sang Từ Mạn Mạn, đầu óc rối như một đống bùi nhùi.
+Lương Tuệ Trân nhìn Triệu Kim An rồi lại nhìn sang Từ Mạn Mạn, đầu óc rối như một đống bùi nhùi.
 
 Bà vốn tưởng mình đã hiểu ra mọi chuyện, giờ thì lại mù tịt. Vậy rốt cuộc con gái bà và chàng trai trước mặt có quan hệ gì với nhau?
 
@@ -40,21 +38,21 @@ Triệu Kim An thản nhiên bộc bạch: "Chắc hai bác rất quen thuộc v
 
 "Cùng phòng đại học với Trần Trạch?" Từ Tắc Đống vô cùng ngạc nhiên.
 
-Lương Huệ Trân ngơ ngác, đầu óc nhất thời không kịp bắt nhịp.
+Lương Tuệ Trân ngơ ngác, đầu óc nhất thời không kịp bắt nhịp.
 
-"Triệu... Triệu Kim An, có phải vì quen Trần Trạch nên cháu mới quen Mạn Mạn không?" Lương Huệ Trân tò mò hỏi.
+"Triệu... Triệu Kim An, có phải vì quen Trần Trạch nên cháu mới quen Mạn Mạn không?" Lương Tuệ Trân tò mò hỏi.
 
 "Đúng mà cũng không đúng. Bạn gái cũ của cháu là bạn cùng phòng với Mạn Mạn, cho nên trước sau gì bọn cháu cũng sẽ quen nhau thôi." Triệu Kim An đáp.
 
 Lại lòi đâu ra một cô bạn gái cũ nữa?
 
-Tâm trí Lương Huệ Trân càng lúc càng hỗn loạn, gỡ mãi không ra.
+Tâm trí Lương Tuệ Trân càng lúc càng hỗn loạn, gỡ mãi không ra.
 
 "Trần Trạch bảo Mạn Mạn đến Trăn Nhiên làm thêm." Từ Tắc Đống hơi ngờ vực.
 
 "Cậu ta không lừa hai bác đâu, Trăn Nhiên cũng là của cháu." Triệu Kim An nhàn nhạt buông một câu.
 
-Trong đầu Lương Huệ Trân dường như nổ "oàng" một tiếng!
+Trong đầu Lương Tuệ Trân dường như nổ "oàng" một tiếng!
 
 Bà đứng sững người, ngây dại nhìn Triệu Kim An. Dù sao thì Triệu Kim An trông cũng tuấn tú, sáng sủa hơn Trần Trạch rất nhiều.
 
@@ -82,35 +80,35 @@ Triệu Kim An gật đầu: "Cháu nắm 67% cổ phần của Trăn Nhiên, c�
 
 Ngón tay Từ Tắc Đống giật giật, ông vẫn đang cố tiêu hóa khối thông tin khổng lồ này.
 
-Ông quay sang nhìn Lương Huệ Trân đang đứng ngây như phỗng: Rốt cuộc con gái chúng ta đã dính líu đến loại người nào thế này?
+Ông quay sang nhìn Lương Tuệ Trân đang đứng ngây như phỗng: Rốt cuộc con gái chúng ta đã dính líu đến loại người nào thế này?
 
 Khoan hãy nói đến chuỗi siêu thị Trăn Hối Tuyển, khoan nói đến việc cả ba tầng mặt bằng này đều là mua đứt, chỉ riêng 67% cổ phần của Trăn Nhiên thôi đã là một con số không tưởng!
 
-Bốn cái xưởng gia công kia của Dương Thục Mỹ...
+Bốn cái xưởng gia công kia của Dương Thù Mỹ...
 
 Triệu Kim An chủ động tiếp lời: "Bác muốn con gái bác từ chức?"
 
 Từ Tắc Đống ngẩng đầu, lấy lại tinh thần.
 
-"Về giúp Dương Thục Mỹ sao?" Triệu Kim An lại hỏi.
+"Về giúp Dương Thù Mỹ sao?" Triệu Kim An lại hỏi.
 
 "..."
 
 Bây giờ Từ Tắc Đống buộc phải nhìn nhận chàng trai này với sự coi trọng cao nhất. Đối phương là Triệu tổng của Trăn Nhiên, không còn đơn thuần là một ông chủ siêu thị nhỏ, mà là một nhà tư bản, một doanh nhân lớn.
 
-Nói thẳng ra, Dương Thục Mỹ cùng lắm cũng chỉ là một con buôn.
+Nói thẳng ra, Dương Thù Mỹ cùng lắm cũng chỉ là một con buôn.
 
-"Dương Thục Mỹ rất đẹp, bác đã cho bà ấy mượn 40 vạn tệ đúng không?" Triệu Kim An nói đúng sự thật.
+"Dương Thù Mỹ rất đẹp, bác đã cho bà ấy mượn 40 vạn tệ đúng không?" Triệu Kim An nói đúng sự thật.
 
 "Không phải thế!!!"
 
 Mọi người có mặt đều sững sờ. Triệu tổng, rốt cuộc anh đang nói cái gì vậy? Muốn ám chỉ điều gì chứ?
 
-Triệu Bác Lan vội vàng kéo áo Triệu Kim An: Chú à, chuyện này không thể ăn nói bậy bạ được đâu, một câu nói đủ sức phá nát hai gia đình đấy! Chú không thấy sắc mặt Lương Huệ Trân đã bắt đầu biến dạng rồi sao!!
+Triệu Bác Lan vội vàng kéo áo Triệu Kim An: Chú à, chuyện này không thể ăn nói bậy bạ được đâu, một câu nói đủ sức phá nát hai gia đình đấy! Chú không thấy sắc mặt Lương Tuệ Trân đã bắt đầu biến dạng rồi sao!!
 
 Từ Tắc Đống suýt nữa thì nổi cơn thịnh nộ, bàn tay run lên bần bật: "Triệu tổng!!"
 
-Oái oăm thay, Triệu Kim An lại trưng ra bộ mặt vô cùng nghiêm túc: "Dương Thục Mỹ quả thực rất đẹp mà, cháu từng gặp rồi."
+Oái oăm thay, Triệu Kim An lại trưng ra bộ mặt vô cùng nghiêm túc: "Dương Thù Mỹ quả thực rất đẹp mà, cháu từng gặp rồi."
 
 Từ Mạn Mạn ngẫm nghĩ một chút, dường như trong miệng Triệu Kim An chẳng có người phụ nữ nào là không đẹp cả.
 
@@ -124,11 +122,11 @@ Triệu Kim An nhìn Từ Tắc Đống, cất lời nhắc nhở: "Với tình 
 
 "Mỗi xưởng chia ra được 10 vạn, khoan nói đến những chi phí khác, bác có biết một ngày nhà máy ngừng hoạt động sẽ thiệt hại bao nhiêu tiền không?"
 
-"Cháu không rõ bên đó có bao nhiêu công nhân, nhưng xưởng của Dương Thục Mỹ không phải là xưởng thủ công nhỏ lẻ kiểu một thợ dắt theo vài người học việc. 40 vạn tệ của bác cầm cự nổi mấy ngày?"
+"Cháu không rõ bên đó có bao nhiêu công nhân, nhưng xưởng của Dương Thù Mỹ không phải là xưởng thủ công nhỏ lẻ kiểu một thợ dắt theo vài người học việc. 40 vạn tệ của bác cầm cự nổi mấy ngày?"
 
 Từ Tắc Đống im lặng không đáp, nhưng lồng ngực đập thình thịch liên hồi.
 
-Lương Huệ Trân bắt đầu hoảng loạn thực sự. 40 vạn tệ kia gần như đã vét sạch toàn bộ của nả tích cóp bao năm qua của gia đình bà.
+Lương Tuệ Trân bắt đầu hoảng loạn thực sự. 40 vạn tệ kia gần như đã vét sạch toàn bộ của nả tích cóp bao năm qua của gia đình bà.
 
 "Hai bác cạn sạch tiền rồi đúng không?"
 
@@ -140,7 +138,7 @@ Từ Mạn Mạn ngẩng phắt đầu lên nhìn. Kim An... đây là một cá
 
 "..."
 
-Lương Huệ Trân mấp máy môi, muốn nói gì đó nhưng không thể diễn tả nổi tâm trạng ngổn ngang lúc này.
+Lương Tuệ Trân mấp máy môi, muốn nói gì đó nhưng không thể diễn tả nổi tâm trạng ngổn ngang lúc này.
 
 Trong lòng bà, bà đã mặc định coi Trần Trạch là con rể suốt hơn chục năm trời. Đột nhiên nhảy ra một người nói "muốn mua con gái bà", nghe vô lễ và xúc phạm biết bao, khiến trong lòng bà dâng lên đủ mọi tư vị chua cay mặn đắng.
 
@@ -174,7 +172,7 @@ Triệu Bác Lan giật thót mình nhìn sang Triệu Kim An: Thôi xong rồi,
 
 Từ Tắc Đống cười lạnh: "Đêm dạ hội kỷ niệm ngày thành lập trường, cậu đẩy một người phụ nữ ngồi xe lăn. Tại lễ khai mạc Thế vận hội Olympic, người phụ nữ đó cũng ngồi ngay bên cạnh cậu. Trần Trạch nói cô ta chính là bạn gái của cậu, chẳng lẽ không phải sao?"
 
-Trái tim Lương Huệ Trân như đang chơi trò tàu lượn siêu tốc. Bà vừa mới phải vật lộn dữ dội với quan niệm ăn sâu bám rễ suốt hơn mười năm qua của mình.
+Trái tim Lương Tuệ Trân như đang chơi trò tàu lượn siêu tốc. Bà vừa mới phải vật lộn dữ dội với quan niệm ăn sâu bám rễ suốt hơn mười năm qua của mình.
 
 Cả văn phòng chìm vào một khoảng lặng nghẹt thở.
 

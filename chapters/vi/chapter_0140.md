@@ -1,7 +1,5 @@
 # Chương 140: Không cần nữa
 
-> **Tiêu đề gốc**: 第140章 不需要。
-
 Triệu Duyệt Thiên cũng không chịu ăn cơm, bụng cô bé đã no căng bởi đống gà rán khoai tây KFC.
 
 Triệu Kim An từ đầu đến cuối trước sau như một, chẳng mấy khi liếc nhìn bé Tống Gia Nguyệt, lại càng không buồn ngó ngàng tới Tống Uyển Hòa. Anh khẽ mỉm cười đưa tay véo nhẹ má Triệu Duyệt Thiên một cái. Cử chỉ này khiến Vương Kim Như trong lòng cảm thấy vô cùng hả hê, xem chừng Tô Miến cũng chẳng mặn mà, đon đả gì với đứa con gái riêng của Đoạn Thu Bình.

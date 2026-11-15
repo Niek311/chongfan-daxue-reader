@@ -1,7 +1,5 @@
 # Chương 8: Mái ấm...
 
-> **Tiêu đề gốc**: 第8章 家....
-
 Doãn Hiểu Lan ngẩn người ra một lúc lâu, không thốt nên lời.
 
 Mãi một hồi sau, mới có một tiếng thở dài khe khẽ vang lên giữa màn đêm: "Đâu có đơn giản như em nghĩ."
@@ -44,7 +42,7 @@ Thực ra Doãn Hiểu Lan muốn dò hỏi xem chuyện tiền nong học phí 
 
 Bố của Triệu Kim An mất từ hồi anh còn học tiểu học — trong một lần ma men dẫn lối, ông say khướt phóng xe máy rồi lao thẳng xuống vực sâu bên sườn núi, mất mạng tại chỗ.
 
-Bốn năm sau, người mẹ là Đoàn Thu Bình đi bước nữa. Khi đã có một mái ấm gia đình mới cùng những đứa con riêng, bà cũng khó lòng công khai "tiếp tế tiền bạc" cho đứa con trai lớn này.
+Bốn năm sau, người mẹ là Đoạn Thu Bình đi bước nữa. Khi đã có một mái ấm gia đình mới cùng những đứa con riêng, bà cũng khó lòng công khai "tiếp tế tiền bạc" cho đứa con trai lớn này.
 
 Dẫu sao thì mấy ngàn tệ tiền học phí đại học thời bấy giờ đối với những gia đình bình dân vẫn là một gánh nặng tài chính không hề nhỏ.
 
@@ -54,7 +52,7 @@ Sau khi Doãn Hiểu Lan quay về phòng, Triệu Kim An đứng dậy bước 
 
 Anh thò tay sâu vào bên trong ruột gối, lôi ra một xấp tiền gấp ngay ngắn, đếm đi đếm lại được tám trăm tám mươi tệ.
 
-Đây là số tiền mẹ Đoàn Thu Bình sau khi hay tin anh thi đỗ vào Đại học Sư phạm đã tranh thủ ghé qua thăm rồi "lén lút" nhét cho anh đúng một ngàn tệ tròn, chiếc gối ngủ xưa nay vẫn luôn là nơi cất giấu tài sản an toàn nhất của anh.
+Đây là số tiền mẹ Đoạn Thu Bình sau khi hay tin anh thi đỗ vào Đại học Sư phạm đã tranh thủ ghé qua thăm rồi "lén lút" nhét cho anh đúng một ngàn tệ tròn, chiếc gối ngủ xưa nay vẫn luôn là nơi cất giấu tài sản an toàn nhất của anh.
 
 "Vốn liếng thế này vẫn còn mỏng quá."
 

@@ -1,7 +1,5 @@
 # Chương 507: Thế chấp
 
-> **Tiêu đề gốc**: 第507章 抵押。
-
 Điều mà Trần Trạch không tài nào tính tới được chính là Từ Mạn Mạn, Dư Tĩnh và Cung hiệu trưởng.
 
 Triệu Kim An dậm chân không tiến, nhưng đã có Dư Tĩnh cùng Cung hiệu trưởng dốc sức đẩy cỗ xe Hoàn Vũ Cảng Vụ lao về phía trước.
@@ -124,7 +122,7 @@ Nếu ông đứng ra giúp đỡ Hoàn Vũ Cảng Vụ chút việc mà lại �
 
 "Nặc Nặc ngoan? Cười với bà một cái nào."
 
-Dư Tĩnh khom người nựng nịu bé Triệu Tri Nặc. Con bé bi bô ê a phát ra những âm thanh non nớt đáng yêu. Lễ khai trương trung tâm thương mại hôm nay Từ Mạn Mạn đã giao phó toàn quyền cho Liễu Ôn Ninh phụ trách. Cô có quá nhiều sự vụ bộn bề phải xử lý, với tư cách là người nắm quyền lèo lái công ty, việc tìm kiếm nguồn tiền sống còn là nhiệm vụ tối quan trọng. Vợ chồng Từ Tắc Đống và Lương Huệ Trân cứ đinh ninh thể nào cũng sẽ được nhìn thấy bé Triệu Tri Nặc ở buổi lễ khai trương hôm nay.
+Dư Tĩnh khom người nựng nịu bé Triệu Tri Nặc. Con bé bi bô ê a phát ra những âm thanh non nớt đáng yêu. Lễ khai trương trung tâm thương mại hôm nay Từ Mạn Mạn đã giao phó toàn quyền cho Liễu Ôn Ninh phụ trách. Cô có quá nhiều sự vụ bộn bề phải xử lý, với tư cách là người nắm quyền lèo lái công ty, việc tìm kiếm nguồn tiền sống còn là nhiệm vụ tối quan trọng. Vợ chồng Từ Tắc Đống và Lương Tuệ Trân cứ đinh ninh thể nào cũng sẽ được nhìn thấy bé Triệu Tri Nặc ở buổi lễ khai trương hôm nay.
 
 Dư Tĩnh và Cung hiệu trưởng chào tạm biệt rồi tự lái xe quay về trường.
 

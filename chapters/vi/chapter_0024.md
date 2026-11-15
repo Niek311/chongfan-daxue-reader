@@ -1,7 +1,5 @@
 # Chương 24: Phù sa không chảy ruộng ngoài
 
-> **Tiêu đề gốc**: 第24章 肥水不流外人田。
-
 Sau khi Vương Kim Như dắt tay bé Triệu Duyệt Thiên rời đi, Triệu Kim An liền quay sang mỉm cười với Doãn Hiểu Lan.
 
 "Chị dâu, tối nay chị cũng ở lại đây ăn cơm nhé."

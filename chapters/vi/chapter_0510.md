@@ -1,7 +1,5 @@
 # Chương 510: Tầng tám
 
-> **Tiêu đề gốc**: 第510章 8楼。
-
 Mộc Dao bồi thêm một câu: "Đều là nhờ vào các mối quan hệ bên nhà Vương Phương Dụ cả đấy."
 
 "..."
@@ -68,15 +66,15 @@ Những người tò mò bước lên đây chỉ dám đứng từ xa ngó nghi
 
 Một bé gái chừng gần bảy tháng tuổi đang bò lổm ngổm trên mặt sàn đá hoa cương sáng bóng loáng như gương. Bên cạnh có chiếc xe tập đi đắt tiền nhưng con bé dứt khoát không chịu ngồi vào. Cách đó không xa, Quan Văn Bách đứng trang nghiêm túc trực từng giây từng phút, Lưu Hiểu Tĩnh luôn tay canh chừng bên cạnh, còn Lý Đình Đình thì đang ngồi xổm dưới đất chơi đùa cùng cháu gái.
 
-Người vừa cất tiếng gọi đầy tha thiết chính là Lương Huệ Trân. Bà đang vẫy tay rối rít với bé Triệu Tri Nặc.
+Người vừa cất tiếng gọi đầy tha thiết chính là Lương Tuệ Trân. Bà đang vẫy tay rối rít với bé Triệu Tri Nặc.
 
 Đứng ngay sát bên cạnh là Từ Tắc Đống.
 
-Bé Triệu Tri Nặc được người ta buộc ba chỏm tóc ngộ nghĩnh trên đầu: một chỏm ở đỉnh đầu, hai chỏm vểnh sang hai bên tai. Con bé đang bò dưới sàn bỗng ngẩng khuôn mặt bầu bĩnh lên ngơ ngác nhìn Lương Huệ Trân, rõ ràng là chẳng nhận ra bà là ai, nhưng khóe miệng vẫn toe toét cười rồi bi bô ê a phát ra những tiếng non nớt.
+Bé Triệu Tri Nặc được người ta buộc ba chỏm tóc ngộ nghĩnh trên đầu: một chỏm ở đỉnh đầu, hai chỏm vểnh sang hai bên tai. Con bé đang bò dưới sàn bỗng ngẩng khuôn mặt bầu bĩnh lên ngơ ngác nhìn Lương Tuệ Trân, rõ ràng là chẳng nhận ra bà là ai, nhưng khóe miệng vẫn toe toét cười rồi bi bô ê a phát ra những tiếng non nớt.
 
 "Nặc Nặc ngoan..."
 
-Trái tim người làm bà ngoại như Lương Huệ Trân như muốn tan chảy ra thành nước: "Ông Từ ơi, con bé Nặc Nặc càng lớn càng xinh xắn quá... Ôi trời ơi, đáng yêu chết đi được mất thôi."
+Trái tim người làm bà ngoại như Lương Tuệ Trân như muốn tan chảy ra thành nước: "Ông Từ ơi, con bé Nặc Nặc càng lớn càng xinh xắn quá... Ôi trời ơi, đáng yêu chết đi được mất thôi."
 
 "Ừ, đúng thế..."
 
@@ -120,13 +118,13 @@ Triệu Tri Nặc bò mệt rồi, con bé liền ngồi phịch mông xuống s
 
 "Bóc cái gì con? Nặc Nặc muốn ăn gì nào? Ngoan để bà ngoại bóc cho nhé, bà mua cho con hết!"
 
-Lương Huệ Trân ngồi xổm xuống đất, càng lúc càng dịch lại gần cháu bé. Từ Tắc Đống cũng không kìm lòng được mà bước vội lại. Giờ đã chính thức lên chức ông ngoại rồi, chỉ cần bé Triệu Tri Nặc muốn bất cứ thứ gì, miễn là ông có tiền mua nổi, ông đều sẵn sàng dốc sạch túi không tiếc một đồng.
+Lương Tuệ Trân ngồi xổm xuống đất, càng lúc càng dịch lại gần cháu bé. Từ Tắc Đống cũng không kìm lòng được mà bước vội lại. Giờ đã chính thức lên chức ông ngoại rồi, chỉ cần bé Triệu Tri Nặc muốn bất cứ thứ gì, miễn là ông có tiền mua nổi, ông đều sẵn sàng dốc sạch túi không tiếc một đồng.
 
 Lý Đình Đình lúc này đang cầm chiếc điện thoại áp vào tai: "Chị ơi, Nặc Nặc không thích chơi ở tầng trên này đâu, con bé thích xuống siêu thị Trăn Hối Tuyển cơ, nó thích ngửi mùi bánh mì thơm phức ở dưới đấy..."
 
 "Bánh mì thì mua chứ, để mẹ mua cho con bé!"
 
-Lương Huệ Trân vội vàng chen vào nói lớn, Từ Tắc Đống đứng bên cạnh cũng gật đầu lia lịa.
+Lương Tuệ Trân vội vàng chen vào nói lớn, Từ Tắc Đống đứng bên cạnh cũng gật đầu lia lịa.
 
 "Mua, con bé thích ăn cái gì cứ mua hết, mẹ có mang theo tiền đây rồi!"
 
@@ -158,7 +156,7 @@ Phía sau, Vương Phương Dụ cũng thong thả bước lên theo.
 
 "..."
 
-Trần Trạch vừa nhìn thấy vợ chồng Từ Tắc Đống và Lương Huệ Trân thì ánh mắt liền né tránh ngượng ngùng, trong lòng dâng lên cảm giác cắn rứt, tội lỗi khó tả. Thế nhưng hắn cũng rất muốn được nhìn thấy tận mắt đứa con gái của Từ Mạn Mạn và Triệu Kim An.
+Trần Trạch vừa nhìn thấy vợ chồng Từ Tắc Đống và Lương Tuệ Trân thì ánh mắt liền né tránh ngượng ngùng, trong lòng dâng lên cảm giác cắn rứt, tội lỗi khó tả. Thế nhưng hắn cũng rất muốn được nhìn thấy tận mắt đứa con gái của Từ Mạn Mạn và Triệu Kim An.
 
 Lý Đình Đình không biết Thẩm Tử Ngôn là ai, nhưng lại nhận ra mặt Trần Trạch.
 
@@ -178,8 +176,8 @@ Thứ nhất, Trăn Nhiên là cỗ máy in tiền mặt khủng khiếp nhất,
 
 Thứ hai, tính cách và khí chất của Thẩm Tử Ngôn quyết đoán, mạnh mẽ và sắc sảo hơn Từ Mạn Mạn rất nhiều.
 
-Lương Huệ Trân đứng bên cạnh thấy thế liền ngơ ngác buột miệng hỏi: "Cháu... cháu là ai thế?"
+Lương Tuệ Trân đứng bên cạnh thấy thế liền ngơ ngác buột miệng hỏi: "Cháu... cháu là ai thế?"
 
-Thẩm Tử Ngôn từ từ nghiêng đầu nhìn sang Lương Huệ Trân, khóe môi khẽ nhếch lên, lạnh lùng buông một câu rợn người:
+Thẩm Tử Ngôn từ từ nghiêng đầu nhìn sang Lương Tuệ Trân, khóe môi khẽ nhếch lên, lạnh lùng buông một câu rợn người:
 
 "Nếu như ngày trước cháu không chủ động rời khỏi công ty, thì cái vị trí mà con gái bác đang ngồi hiện giờ... vốn dĩ là của cháu."

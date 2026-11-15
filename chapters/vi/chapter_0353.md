@@ -1,217 +1,217 @@
-# ﻿Chương 353: Vẽ To Quá Rồi
+# Chương 353: Cậu khoanh vùng rộng quá rồi.
 
-> **Tiêu đề gốc**: 第353章 你画太大了。
+Trần Trạch nghe không lọt tai nữa: "Tiểu Tuyết, đủ rồi đấy!"
 
-Trần Trạch nghe không vào nữa, gắt lên: "Tiểu Tuyết, thôi đủ rồi!"
+"Đủ rồi? Giờ mới biết có sĩ diện à?"
 
-"Đủ rồi? Cứng cổ rồi hả?"
+Lâm Thanh Tuyết cười lạnh: "Trước kia trước mặt anh, trước mặt các người, tôi hèn mọn đến mức nào?"
 
-Lâm Thanh Tuyết cười lạnh: "Trước đây ở cạnh anh, ở cạnh mấy người, em đã khom lưng đến mức nào?"
+Trần Trạch lại chỉ bận tâm tới một chuyện: "Cô... cô lên giường với Triệu Kim An rồi đúng không?"
 
-Trần Trạch vẫn cố bám vào một điều: "Em... em có ngủ với Triệu Kim An không?"
+"Ha ha ha, Trần Trạch, anh đúng là ấu trĩ thật đấy."
 
-"Ha ha ha, Trần Trạch, anh thật sự rất ấu trĩ."
+"Tôi ngủ với anh suốt một năm trời, ở ngoài cũng dọn về sống chung với nhau rồi, anh tưởng trên đời này chỉ có mỗi tôi và Từ Mạn Mạn là phụ nữ thôi à?"
 
-"Em ngủ với anh một năm, còn dọn ra ngoài ở cùng nhau nữa — anh tưởng trên đời này chỉ có mình em và Từ Mạn Mạn là phụ nữ thôi à?"
+Lâm Thanh Tuyết chuyển sang cười thê lương, tự cười chính mình, rồi lại nhìn sang Lương Tuệ Trân như thể muốn chứng minh cho câu nói "Bác cũng đâu có thông minh lắm nhỉ" lúc trước.
 
-Lâm Thanh Tuyết đột nhiên cười nhạt, cười vào chính mình, rồi lại nhìn sang Lương Huệ Trân — như thể đang chứng minh cái câu "bà không thông minh lắm" ngày trước.
+"Nếu Triệu Kim An bằng lòng, tôi chẳng lấy một xu cũng tình nguyện cho anh ấy ngủ."
 
-"Nếu Triệu Kim An muốn, em không cần tiền cũng ngủ với anh ấy."
+"Nếu Triệu Kim An mở miệng bảo công ty có khách hàng cần tiếp đãi xã giao, tôi sẵn sàng đi tiếp khách, đi ngủ với họ!"
 
-"Nếu Triệu Kim An nói một câu, công ty có khách cần tiếp khách PR, em đi PR tiếp họ!"
+"Tại sao?!"
 
-"Tại sao!?"
+Trần Trạch lại sụp đổ thêm lần nữa, cú đả kích này quả thực quá lớn.
 
-Trần Trạch sụp đổ lần nữa — đây là cú đánh thật sự nặng nề.
+"..."
 
-"....."
+Ngay cả Trần Cẩm Thu và Từ Tắc Đống cũng nghe đến mức trợn tròn mắt há hốc mồm.
 
-Ngay cả Trần Cẩm Thu và Từ Tắc Đống cũng há hốc miệng không thốt nên lời.
+"Tại sao à?"
 
-"Tại sao?"
+"Anh cũng mặt dày hỏi tại sao được sao? Anh quên những lời mình từng nói rồi à?"
 
-"Anh còn có mặt hỏi tại sao? Anh quên những gì anh từng nói rồi sao?"
+Lâm Thanh Tuyết liếc nhìn Trần Trạch: "Hồi trước anh bắt tôi đi vay tiền Triệu Kim An, anh quên rồi sao? Bắt chính bạn gái mình đi vay tiền người đàn ông khác, vay kiểu gì? Anh có từng nghĩ qua chưa?"
 
-Lâm Thanh Tuyết nhìn Trần Trạch: "Hồi đó anh bảo em đến mượn tiền Triệu Kim An — anh quên rồi à? Bảo bạn gái của mình đến mượn tiền người ta, mượn kiểu gì? Anh có nghĩ đến không?"
+"Hay là các người muốn nói đã cho tôi năm vạn tệ?"
 
-"Hay mấy người muốn nói mình đã cho em năm mươi nghìn?"
+"À đúng rồi, còn thêm cái phòng bida nữa chứ nhỉ?"
 
-"Ừ nhỉ, còn cái phòng bi-a nữa?"
+Lâm Thanh Tuyết lại nhìn chằm chằm vào Dương Thù Mỹ: "Bà thấy mình bị lỗ à? Bà nghĩ tôi ngủ với một người suốt một năm trời mà chỉ đáng giá năm vạn tệ sao? Không nói đến Triệu Kim An, kể cả có phải hy sinh vì công ty đi chăng nữa, chẳng lẽ cũng chỉ đáng năm vạn tệ thôi sao?"
 
-Lâm Thanh Tuyết lại nhìn thẳng vào Dương Thục Mỹ: "Bà thấy bà thiệt thòi à? Bà thấy em ngủ với người ta một năm mà chỉ được năm mươi nghìn à? Chưa nói đến Triệu Kim An — dù chỉ là hy sinh vì công ty thì cũng chỉ đáng năm mươi nghìn sao?"
+"Suốt một năm qua, các người đủ kiểu khinh thường tôi, ép phải chia tay; Tổng giám đốc Dương à, ngay cả mặt bà còn chẳng thèm lộ lấy một lần!"
 
-"Một năm trời, mấy người đủ kiểu coi thường em, ép em chia tay — Dương tổng, bà còn không thèm lộ mặt ra một lần!"
+"Còn các người nữa, quăng ra năm vạn tệ, đừng nói là coi như người nhà, các người có coi tôi là con người không?"
 
-"Còn mấy người, quăng năm mươi nghìn là xong, chưa nói đến chuyện coi em là người nhà — có coi em là con người không?"
+"Cùng là tiền cả thôi, các người không nói tình cảm với tôi, ngủ với con trai bà một năm mới được năm vạn, vậy tại sao tôi không đi kiếm nhiều hơn thế?"
 
-"Cùng là tiền, mấy người không nói chuyện tình cảm với em, thì tại sao em ở với con trai của bà một năm chỉ được năm mươi nghìn, mà không đi kiếm nhiều hơn?"
+Lâm Thanh Tuyết nhớ tới bố mẹ mình ở quê đã lo lắng cho Trần Trạch biết bao nhiêu: "Khinh thường tôi, chê tôi bất tài vô dụng, thế nào? Các người không vay được tiền, nhưng tôi thì vay được."
 
-Lâm Thanh Tuyết nhớ lại cha mẹ ở nhà lo lắng cho Trần Trạch đến nhường nào: "Mấy người coi thường em, thấy em không có bản lĩnh — thì sao? Mấy người vay không được tiền, em vay được."
+"Trần Trạch, để tôi dạy anh!"
 
-"Trần Trạch, em dạy anh!"
+"Vay tiền là phải vay như thế này này."
 
-"Đây mới là cách mượn tiền."
+"Đi tiếp khách ngủ với khách hàng, làm ăn thua lỗ thì tôi đi làm thuê trả nợ, không ký hợp đồng giấy trắng mực đen gì hết. Đó là lời hứa của tôi với Triệu Kim An trên xe hôm đó đấy. Trần Trạch, anh học được chưa?"
 
-"Đi PR tiếp khách, lỗ thì đi làm trả, không ký hợp đồng — đây là lời hứa em nói trên xe với Triệu Kim An hôm đó. Trần Trạch, anh học được chưa?"
+"Triệu Kim An chẳng sợ tôi không trả, cũng chẳng sợ tôi không trả nổi; cái xưởng nhỏ này của anh đáng giá bao nhiêu tiền chứ? Có lỗ vốn thì tôi vào tụ điểm giải trí làm việc cũng dư sức trả hết nợ."
 
-"Triệu Kim An không sợ em không trả, cũng không sợ em trả không nổi — cái xưởng này của anh đáng bao nhiêu? Lỗ rồi thì em dù đi làm ở vũ trường cũng trả hết."
+"Anh gọi điện cho đám bạn phú nhị đại của anh, có vay được đồng xu nào chưa?"
 
-"Anh có gọi cho đám bạn nhà giàu của anh vay được một xu không?"
+Từ đầu đến cuối, Lâm Thanh Tuyết chẳng phải đến để thăm Trần Trạch, cô đến là để nói cho Dương Thù Mỹ biết.
 
-Lâm Thanh Tuyết chưa bao giờ đến đây để gặp Trần Trạch — cô đến để nói thẳng với Dương Thục Mỹ.
+"Thế nào? Bác gái, một khi đã liều mạng làm tới cùng, cháu dư sức giúp được công ty của bác đấy."
 
-"Sao rồi? Dì ơi — liều mình mà đánh liều thì em giúp được công ty của bà. Không phải vô dụng như mấy người nghĩ đâu."
+"Chẳng vô dụng như các người vẫn tưởng đâu."
 
-Lâm Thanh Tuyết lại nhìn lần lượt qua Trần Cẩm Thu, Lương Huệ Trân, Từ Tắc Đống.
+Lâm Thanh Tuyết lại đưa mắt nhìn lần lượt qua Trần Cẩm Thu, Lương Tuệ Trân và Từ Tắc Đống.
 
-"Cô biết cái xưởng này trị giá bao nhiêu không?"
+"Cô biết cái xưởng này đáng giá bao nhiêu tiền không?"
 
-Trần Cẩm Thu tức tối hỏi — cả đám bị một con bé nhà quê trấn áp mà không nhúc nhích được.
+Trần Cẩm Thu hậm hực hỏi lại, cả một đám người lớn lại bị một con nhóc từ quê lên trấn áp đến cứng họng.
 
-"Ông biết không?"
+"Thế chú biết không?"
 
-Lâm Thanh Tuyết hỏi ngược lại.
+Lâm Thanh Tuyết hỏi ngược lại một câu.
 
-Trần Cẩm Thu: ......
+Trần Cẩm Thu: "..."
 
-"Không cần em biết — chẳng ai biết hết mọi thứ. Em chỉ học kế toán, nhưng Trần Trạch ơi — Dư Tĩnh, giáo sư Dư, có hợp tác với Triệu Kim An, bà ấy có học sinh sẽ đến định giá."
+"Không cần tôi phải biết, chẳng có ai cái gì cũng biết hết cả. Tôi chỉ học chuyên ngành kế toán thôi, Trần Trạch à, Giáo sư Dư Tĩnh có hợp tác với Triệu Kim An đấy, sinh viên của cô ấy sẽ tới định giá."
 
-"Dương tổng, nghĩ rõ đi, muốn bán thì gọi điện cho em."
+"Tổng giám đốc Dương, suy nghĩ cho kỹ đi, nếu bán thì gọi điện cho cháu."
 
-Nói xong, Lâm Thanh Tuyết đi ra, cao gót gõ từng bước, đến cửa lại quay người nhìn lại.
+Nói xong, Lâm Thanh Tuyết sải bước trên đôi giày cao gót rời đi, tới cửa còn quay đầu lại.
 
-"Trần Trạch, đừng trách em tàn nhẫn — anh chưa bao giờ có ý định cưới em. Từ hôm anh ôm hoa hồng xuống dưới cửa ký túc xá nữ van xin Từ Mạn Mạn quay lại, anh chưa cho em một chút thể diện nào!"
+"Trần Trạch, đừng trách tôi tàn nhẫn. Anh chưa từng có ý định cưới tôi; ngay từ cái hôm anh ôm hoa hồng đứng dưới ký túc xá nữ cầu xin Từ Mạn Mạn quay lại, anh chưa từng chừa cho tôi lấy một tia thể diện nào!"
 
-"Em một mình ngồi giữ phòng bi-a — anh biết mấy đứa bạn nhà giàu của anh chọc ghẹo em thế nào không?"
+"Một mình tôi trông coi phòng bida, anh có biết mấy thằng bạn phú nhị đại của anh đã trêu ghẹo sàm sỡ tôi thế nào không?"
 
-"Với lại, anh còn không bằng Lưu闯Phong có trách nhiệm."
+"Còn nữa, anh thậm chí còn chẳng có bản lĩnh bằng Lưu Sấm Phong."
 
-"....."
+"..."
 
-Quan Văn Bách nuốt trọn từng lời vào tai, anh phát hiện quanh ông chủ toàn là những phụ nữ có tài.
+Quan Văn Bách nghe lọt tai không sót một chữ; anh nhận ra những người phụ nữ quanh ông chủ mình ai nấy đều là nhân tài cả.
 
-Con bé này thì hoàn toàn hắc hóa rồi!
+Cô gái này hắc hóa triệt để rồi!
 
-Quan Văn Bách và Đơn Vĩ đã ngồi trên xe nghe Lâm Thanh Tuyết kể lại chuyện cô "xin" được điều này từ Triệu Kim An như thế nào.
+Hôm đó trên xe, Quan Văn Bách và Đan Vĩ đã tận tai nghe thấy Lâm Thanh Tuyết "xin xỏ" Triệu Kim An giao cho việc này như thế nào.
 
-Chỉ cần ông chủ ừ một tiếng, con bé này dám ngay tại cổng trường trước mặt anh và Đơn Vĩ mà cởi quần áo "leo lên" — vì muốn trả thù, cô ấy đã thật sự liều tất cả.
+Chỉ cần ông chủ gật đầu một tiếng, cô gái này dám cởi phăng quần áo ngay trước mặt anh và Đan Vĩ ở cổng trường để "nhảy lên người" luôn ấy chứ; vì để xả một cơn giận, cô ta thật sự bất chấp tất cả rồi.
 
----
+Biệt thự số 32, khu Quân khu Tỉnh.
 
-Tỉnh J khu, biệt thự số 32.
+Triệu Kim An ngồi ngay ngắn trên ghế sofa, trên bàn trà trải rộng một tấm bản đồ thành phố Quận Sa.
 
-Triệu Kim An ngồi thẳng trên ghế sofa, mặt bàn trải rộng một tấm bản đồ Quận Sa.
+Ngồi bên cạnh anh là Thị trưởng thành phố Quận Sa, Tô Cảnh Hành.
 
-Bên cạnh là thị trưởng Quận Sa — Tô Cảnh Hành.
+Phùng Nhược Đan bưng đĩa trái cây ra, khẽ đẩy Triệu Kim An mấy cái: "Khách quý nhé, ở ngay Quận Sa mà đây mới là lần đầu tiên tới nhà chơi đấy hả, Tổng giám đốc Triệu của Trăn Nhiên?"
 
-Phùng Nhược Đan bưng hoa quả ra, đẩy đẩy vào Triệu Kim An: "Khách quý ghé thăm nhỉ, ở ngay Quận Sa mà giờ mới lần đầu đến nhà — Trăn Nhiên Triệu tổng?"
+"Chị dâu, chị đừng trêu em thế."
 
-"Chị dâu, chị đừng gọi thế."
+"Gọi sai rồi à? Người bận rộn nhất quả đất."
 
-"Gọi sai rồi à? Bận bịu lắm."
+Phùng Nhược Đan bật cười: "Bây giờ bên ngoài ai cũng gọi cậu như thế cả đấy."
 
-Phùng Nhược Đan cười: "Giờ mọi người đều gọi anh thế đấy."
+"Chị dâu, em nhận sai rồi, lát em biếu chị thêm mấy thẻ mua sắm ở Trăn Hối Tuyển nhé."
 
-"Chị dâu, em biết lỗi rồi, em lại biếu chị thêm mấy tờ thẻ mua hàng Trăn Hội Tuyển."
+Triệu Kim An vội xin tha, rồi lại thò tay vào cặp lấy ra mấy tấm thẻ mua sắm.
 
-Triệu Kim An van xin, rút thêm mấy tờ thẻ mua hàng từ trong túi ra.
+"Ai thèm mấy cái thẻ mua sắm của cậu, thẻ ở nhà dùng còn chẳng hết đây này."
 
-"Ai thèm thẻ mua hàng của anh, thẻ trong nhà còn dùng chưa hết."
+"Thôi được rồi, để đàn ông bọn anh bàn chuyện chính sự."
 
-"Thôi được, bọn đàn ông chúng tôi nói chuyện chính sự."
+"Chuyện chính sự cũng là chuyện nhà!"
 
-"Chính sự cũng là chuyện nhà!"
+Phùng Nhược Đan nói đầy lý lẽ, nhưng cũng không làm phiền nữa mà ngồi xuống bên cạnh.
 
-Phùng Nhược Đan nói có lý lẽ, nhưng cũng không quấy, im lặng kéo ghế ngồi một bên.
+Hai cô giúp việc trong nhà vừa dọn dẹp bàn ăn vừa lén nhìn Triệu Kim An; họ từng nghe nói cô Tô Miến ở Kinh Đô đã tìm được bạn trai, nhưng đây là lần đầu tiên được thấy mặt.
 
-Hai người giúp việc trong nhà vừa dọn bàn ăn vừa liếc mắt nhìn Triệu Kim An — họ từng nghe nói tiểu thư Tô Miên ở Kinh Đô kiếm bạn trai rồi, nhưng chưa gặp mặt bao giờ.
+"Anh hai, anh xem... thế này được không?"
 
-"Anh Hai, anh xem... được không?"
+Triệu Kim An cầm bút khoanh một vòng tròn trên tấm bản đồ Quận Sa tại khu vực Vạn Gia Lệ.
 
-Triệu Kim An cầm bút khoanh một vòng tròn vào khu vực Vạn Gia Lệ trên bản đồ Quận Sa.
+"..."
 
-"....."
+Khóe miệng Tô Cảnh Hành giật giật liên hồi: "Cậu không khoanh rộng thêm chút nữa đi? Khoanh luôn cả cái khu Vạn Gia Lệ vào trong ấy?"
 
-Khóe miệng Tô Cảnh Hành giật liên hồi: "Em vẽ to thêm chút nữa không? Vẽ hẳn cả khu Vạn Gia Lệ vào luôn đi?"
+"Không được ạ?"
 
-"Không được à?"
+"Hay là cái ghế thị trưởng này tôi nhường lại cho cậu ngồi luôn nhé?"
 
-"Hay anh nhường cái chức thị trưởng cho em?"
+"Anh hai, anh đừng đùa thế chứ."
 
-"Anh Hai, anh đừng đùa."
+"Là cậu đùa với tôi trước đấy chứ!"
 
-"Em mới đùa anh trước!"
+"Em bỏ tiền ra mua đàng hoàng, chứ có xin không đâu."
 
-"Em bỏ tiền ra mua, đâu phải xin không."
+Triệu Kim An nói rất nghiêm túc.
 
-Triệu Kim An rất nghiêm túc.
+"..."
 
-"....."
+Tô Cảnh Hành khựng lại một chút: "Bỏ tiền ra mua cũng không ai khoanh kiểu của cậu cả. Với lại công ty Trăn Nhiên của cậu cũng phải dời về Quận Sa đi chứ, hiện tại công ty vẫn đang đăng ký ở Tư Hưng, Sâm Thành phải không?"
 
-Tô Cảnh Hành ngập ngừng: "Bỏ tiền mua cũng không phải cứ tự nhiên mà vẽ thế, còn nữa — Trăn Nhiên của em đang tính chuyển về Quận Sa, công ty hiện vẫn đăng ký bên Tư Tinh của Trâu Thành phải không?"
+"Thế còn mảnh này thì sao ạ?"
 
-"Vậy cái này thì sao?"
+Triệu Kim An biết Tô Cảnh Hành cần thành tích chính trị, bản thân anh vốn cũng có dự định này; hồi trước Lạc Cẩn Chi đăng ký công ty ở Tư Hưng, nhưng nghĩ tới đó anh lại bất giác nhớ đến giai thoại "13 cục sạc dự phòng".
 
-Triệu Kim An biết Tô Cảnh Hành cần thành tích, bản thân anh vốn cũng có dự định này, chỉ là lại nhớ đến cái meme "13 viên pin dự phòng."
+"Chuyện này cũng không phải một mình tôi quyết là được, cậu khoanh rộng quá rồi."
 
-"Cái này thì không phải một mình anh quyết được, em vẽ to quá rồi."
+Tô Cảnh Hành tỏ vẻ vô cùng thành khẩn: "Cậu mà khoanh to thêm tí nữa thì Quận Sa có năm quận, cả quận Phù Dung thành của nhà cậu hết đấy."
 
-Tô Cảnh Hành thành thật nói: "Em vẽ to thêm nữa đi — Quận Sa có năm quận, cả quận Phù Dung là của em hết."
+Phùng Nhược Đan suýt nữa thì bật cười thành tiếng.
 
-Phùng Nhược Đan suýt bật cười thành tiếng.
+Tô Cảnh Hành cầm cây bút chì lên, rất nghiêm túc "chấm" nhẹ một cái lên bản đồ.
 
-Tô Cảnh Hành cầm bút chì lên, rất nghiêm túc "chấm" một điểm trên bản đồ.
+"Thế thì em chuyển đi chỗ khác?"
 
-"Vậy em chuyển đi?"
+Triệu Kim An liếc nhìn một cái: "Trăn Nhiên, Trăn Hối Tuyển, Hoàn Vũ Cảng Vụ, chuyển hết lên Kinh Đô? Thượng Hải? Thâm Thành? Hay là sang địa bàn Xuyên Du của anh cả? Mấy hôm trước anh cả cũng có nói chuyện với em..."
 
-Triệu Kim An liếc mắt nhìn: "Trăn Nhiên, Trăn Hội Tuyển, Hoàn Vũ Cảng vụ — chuyển lên Kinh Đô? Sang Hộ Thị? Xuống Thâm Thành? Hay về địa bàn anh Cả ở Xuyên Dũ? Anh Cả mấy hôm trước còn nhắn em rồi..."
+"Khúc khích..."
 
-"Cục cục cục..."
+Phùng Nhược Đan không nhịn được cười thành tiếng, cô thừa biết Tô Cảnh Hành và Tô Cảnh Ngôn xưa nay vẫn hay ngấm ngầm so kè với nhau nhất.
 
-Phùng Nhược Đan bật cười thành tiếng, bà biết Tô Cảnh Hành và Tô Cảnh Ngôn không hợp nhau nhất.
+Tô Cảnh Hành: "..."
 
-Tô Cảnh Hành: ......
+"Cậu đang uy hiếp tôi đấy à?"
 
-"Em đang dọa anh à?"
+"Không phải uy hiếp, mà là anh không cho em không gian phát triển."
 
-"Không phải dọa — là anh không cho em không gian phát triển."
+"..."
 
-"....."
+Đây là lần đầu tiên Tô Cảnh Hành làm việc trực tiếp với Triệu Kim An, anh há miệng ngẩn người: "Cậu ở Kinh Đô với Xuyên Du cũng nói chuyện với bố tôi và anh cả kiểu này đấy à?"
 
-Tô Cảnh Hành là lần đầu tiên đối mặt trực tiếp với Triệu Kim An, ông ta há miệng: "Em cũng nói chuyện với ba anh và anh Cả ở Kinh Đô và Xuyên Dũ theo kiểu này à?"
+Phùng Nhược Đan ghé sát lại cười nói: "Có thấy giống hệt Tô Miến không? Hai người họ nói chuyện y chang một khuôn đúc ra."
 
-Phùng Nhược Đan ghé vào cười: "Có giống Tô Miên không? Hai người nói chuyện giống nhau y chang."
+"Anh hai, nhưng cũng đâu thể nào anh cầm bút chì chấm một nốt lên đấy được, em đâu phải chỉ xây mỗi một tòa văn phòng, còn có cả trung tâm thương mại nữa mà."
 
-"Anh Hai, đó cũng không phải anh chấm một điểm bút chì trên đó là xong — em đâu chỉ xây một tòa văn phòng, còn có cả thương mại nữa."
+Có lẽ đây chính là lợi thế của việc trọng sinh. Hiện tại thị trường bất động sản đang rất ảm đạm, nhưng chẳng bao lâu nữa sẽ ấm lại ngay; Triệu Kim An muốn nhân lúc giá đất còn rẻ mà gom trước hai lô đất.
 
-Đây đại khái là ưu thế của người tái sinh — hiện tại thị trường bất động sản đang rất ảm đạm, nhưng sắp phục hồi ngay. Triệu Kim An muốn tranh thủ lúc giá đất còn rẻ mà gom trước hai mảnh.
+Ngay cả Bàn Tây Lai ở một thành phố cấp địa khu như Hứa Đô mà còn có tới năm cửa hàng.
 
-Fát Xỉ Lai ở một thành phố cấp địa khu Hứa Đô mà đã có năm cửa hàng.
+Siêu thị Trăn Hối Tuyển ở thành phố thủ phủ tỉnh Tương Nam mở ba chi nhánh thì đâu có gì là quá đáng?
 
-Trăn Hội Tuyển mở ba cửa hàng tại tỉnh lỵ Tương Nam chẳng phải là quá đáng chút nào?
+Quảng trường phía trước nhất định phải chừa diện tích thật rộng, cứ nghĩ đến cảnh xếp hàng ở Bàn Tây Lai là biết; lùi một bước mà nói, bây giờ mua đất xây trung tâm thương mại và cao ốc văn phòng thì kiểu gì cũng chẳng lỗ được.
 
-Quảng trường phía trước nhất định phải để diện tích thật rộng — nghĩ đến cảnh xếp hàng tại Fát Xỉ Lai, lùi một bước mà nói: mua đất xây thương mại xây văn phòng bây giờ thì đằng nào cũng không lỗ.
+Chỉ vài tháng nữa thôi, giá nhà đất toàn quốc sẽ đón làn sóng tăng gấp đôi đầu tiên.
 
-Chỉ vài tháng nữa thôi, giá bất động sản toàn quốc sẽ đón đợt tăng gấp đôi đầu tiên.
+Đây xem như một trong số ít những món hời dành cho thế hệ 8x. Hiện tại giá nhà đất bình quân ở thủ phủ Quận Sa vẫn đang dậm chân ở mức hai đến ba nghìn tệ một mét vuông, khu vực trung tâm thành phố giá có nhỉnh hơn chút ít.
 
-Đây là một trong số ít phúc lợi của thế hệ 8X — hiện tại giá nhà ở tỉnh lỵ Quận Sa vẫn còn dừng ở mức bình quân hai đến ba nghìn tệ, khu vực trung tâm thành phố nhỉnh hơn đôi chút.
+Khu phố đi bộ Quảng trường Ngũ Nhất thì chẳng còn lô đất đẹp nào nữa, chính quyền thành phố cũng không có quy hoạch mới.
 
-Quanh quảng trường Ngũ Nhất và phố đi bộ không còn mảnh đất tốt nào, phía thị chính cũng chưa có quy hoạch gì.
-
-Triệu Kim An chọn hai mảnh đất: một ở khu Vạn Gia Lệ, một ở gần quảng trường Phù Dung.
+Hai lô đất Triệu Kim An nhắm tới: một lô ở khu vực Vạn Gia Lệ, lô còn lại ở gần Quảng trường Phù Dung.
 
 Quảng trường Phù Dung thuộc khu phố cũ, cũng tính là trung tâm thành phố.
 
-Triệu Kim An tính đặt toàn bộ trụ sở chính ở đây — Trăn Nhiên thì không sao, nhưng Hoàn Vũ Cảng vụ cần một văn phòng hoành tráng để giữ thể diện.
+Triệu Kim An dự định đặt toàn bộ tổng bộ tại đây. Trăn Nhiên thì còn đỡ, chứ Hoàn Vũ Cảng Vụ rất cần một văn phòng bề thế, sang trọng để giữ thể diện.
 
-"Triệu tổng, cần ba tầng hầm để xe không?"
+"Triệu tổng, có cần xây tới ba tầng hầm đỗ xe không?"
 
-Triệu Bác Lan cho rằng hai tầng hầm là đủ — không phải cô lo tiền, tiền Trăn Nhiên đủ để xây thương mại và văn phòng.
+Triệu Bác Lan cảm thấy xây hai tầng hầm đỗ xe là quá đủ rồi. Cô không lo thiếu tiền, nguồn vốn của Trăn Nhiên thừa sức xây trung tâm thương mại và tòa nhà văn phòng.
 
-Điều kiện là Triệu Kim An không rút tiền Trăn Nhiên ra mua cảng.
+Với điều kiện là Triệu Kim An không rút tiền của Trăn Nhiên đem đi mua cảng biển.
 
-Mua cảng là cái hố không đáy — động một cái là vài trăm triệu đô.
+Mua cảng biển đúng là cái hố không đáy, hễ đụng vào là tốn hàng trăm triệu USD.
 
-Chỉ có thể nói Triệu Bác Lan còn trải đời ít quá — cô chưa thấy cái "bao cấp trăm tỷ" hay "bao cấp năm trăm tỷ." Mấy trăm triệu đô vẫn còn có một bến cảng để cầm, chứ bao cấp chỉ đổi lại toàn là dữ liệu người dùng.
+Chỉ có thể nói Triệu Bác Lan vẫn còn ít va chạm thương trường; cô chưa từng chứng kiến những cuộc chiến đốt tiền hàng chục tỷ hay năm mươi tỷ tệ trợ giá. Bỏ ra vài trăm triệu USD ít ra còn nắm trong tay một cái cảng biển, chứ tiền trợ giá ném ra ngoài chỉ đổi lại được mỗi dữ liệu người dùng.
 
-Nếu Triệu Kim An làm mảng video ngắn livestream thì sớm muộn cũng có một cuộc đua "đốt tiền" — YY, Đấu Ngư, Hổ Nha, Khoái Thủ, Đẩu Âm đều là so nhau ai có nhiều tiền hơn, ai huy động vốn trên thị trường tài chính được nhiều hơn.
+Nếu sau này Triệu Kim An lấn sân sang mảng video ngắn và livestream thì sớm muộn gì cũng có một cuộc chiến "đốt tiền" khốc liệt: những nền tảng như YY, DouYu, Huya, Kuaishou, Douyin... đều là cuộc đua xem ai nhiều tiền hơn.
+
+Đua xem ai gọi được nhiều vốn hơn trên thị trường tài chính.

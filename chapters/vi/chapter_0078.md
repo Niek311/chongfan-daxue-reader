@@ -1,7 +1,5 @@
 # Chương 78: Đùi gà là lấy cho cậu đấy
 
-> **Tiêu đề gốc**: 第78章 鸡腿是给你拿的。
-
 Hầu như tất cả các trường đại học đều có những vị trí việc làm bán thời gian dành cho sinh viên diện vừa học vừa làm.
 
 Tính theo giờ thì mức thù lao cũng khá ổn thỏa, chỉ có điều sinh viên bắt buộc phải làm đơn xin phép và được nhà trường xét duyệt.

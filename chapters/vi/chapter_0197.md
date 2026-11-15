@@ -1,7 +1,5 @@
 # Chương 197: Vẫn còn thiếu chín mươi lăm vạn
 
-> **Tiêu đề gốc**: 第197章 还差95万。
-
 Thị trường chứng khoán Mỹ tiếp tục chuỗi ngày lao dốc không phanh.
 
 Thực tế, những người có độ nhạy bén cao về kinh tế đều đã ngửi thấy mùi giông bão từ sớm. Đến tháng mười, ngân hàng khổng lồ Lehman Brothers chính thức tuyên bố phá sản. Nếu ai chưa hình dung được mức độ tàn khốc của cuộc khủng hoảng nợ dưới chuẩn, hãy thử tưởng tượng cảnh tượng một ngân hàng quốc nội hàng đầu sụp đổ sẽ kinh hoàng đến nhường nào.

@@ -1,7 +1,5 @@
 # Chương 25: Tiệc mừng đỗ đại học
 
-> **Tiêu đề gốc**: 第25章 升学宴。
-
 Cứ như thế, dăm bữa nửa tháng Triệu Kim An lại thay bà nội ra ngồi trông sạp hàng hoa quả bên lề đường quốc lộ.
 
 Những ngày cậu ngồi bán hàng, Triệu Trí Dũng lại một mình lặn lội ra sông kích cá, còn bé Triệu Duyệt Thiên thì chỉ ước sao ngày nào cũng được theo chân anh trai ra đường ngồi bán dưa.

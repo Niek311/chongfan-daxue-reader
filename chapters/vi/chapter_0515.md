@@ -1,7 +1,5 @@
 # Chương 515: Đời người: Phải liều thì xe đạp mới biến thành mô tô
 
-> **Tiêu đề gốc**: 第515章 人生：搏一搏才能单车变摩托。
-
 Đông Hoản.
 
 Lưu Sấm Phong và Cốc Siêu Thừa đã đặt chân tới mảnh đất này được một quãng thời gian khá dài.
@@ -118,7 +116,7 @@ Trần Trạch ngồi chễm chệ sau vô lăng chiếc BMW X5 sang trọng, h�
 
 Nói dứt lời, Trần Trạch lạnh lùng bấm nút kéo kính xe lên, nhấn ga phóng thẳng xe vào sâu trong đại công trường đang thi công ngổn ngang gạch đá.
 
-Đây là lần đầu tiên và cũng là lần duy nhất kể từ ngày trở về Quận Sa mà Trần Trạch cảm thấy lồng ngực mình hả hê, sảng khoái đến tột cùng như vậy. Trước mặt Lâm Thanh Tuyết và Từ Mạn Mạn, hắn đều hoàn toàn bất lực không tìm ra được cơ hội để thể hiện bản lĩnh hay khoe mẽ sự giàu sang, nay mới coi như trút được một cục tức nghẹn ứ bấy lâu nay. Hắn lập tức bấm số gọi cho Dương Thục Mỹ, nghẹn ngào cất lời: "... Mẹ à, trên cõi đời này con chỉ có duy nhất một mình mẹ là người thân ruột thịt thôi."
+Đây là lần đầu tiên và cũng là lần duy nhất kể từ ngày trở về Quận Sa mà Trần Trạch cảm thấy lồng ngực mình hả hê, sảng khoái đến tột cùng như vậy. Trước mặt Lâm Thanh Tuyết và Từ Mạn Mạn, hắn đều hoàn toàn bất lực không tìm ra được cơ hội để thể hiện bản lĩnh hay khoe mẽ sự giàu sang, nay mới coi như trút được một cục tức nghẹn ứ bấy lâu nay. Hắn lập tức bấm số gọi cho Dương Thù Mỹ, nghẹn ngào cất lời: "... Mẹ à, trên cõi đời này con chỉ có duy nhất một mình mẹ là người thân ruột thịt thôi."
 
 Đêm muộn buông xuống.
 

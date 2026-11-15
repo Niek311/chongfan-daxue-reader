@@ -1,7 +1,5 @@
 # Chương 173: Sau này thôn Triệu gia do tôi quyết định?
 
-> **Tiêu đề gốc**: 第173章 赵家村以后我说了算？
-
 Vương Kim Như chẳng biết từ lúc nào đã lao bổ tới, túm chặt lấy cánh tay Triệu Kim An: "Kim An, thế còn nhà mình thì sao cháu..."
 
 Triệu Kim An phì cười trêu lại: "Thím ơi, chẳng phải thím bảo thím là tiểu phú bà rồi sao?"

@@ -1,7 +1,5 @@
 # Chương 74: Hai bức thư tình
 
-> **Tiêu đề gốc**: 第74章 两封情书。
-
 "Kim An tối qua ngủ lại khách sạn..."
 
 Trần Trạch buột miệng nói, trong lòng còn có chút ghen tị thầm kín, bởi anh ta đã nhìn rõ diện mạo tuyệt mỹ của Tô Miến.

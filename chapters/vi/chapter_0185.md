@@ -1,7 +1,5 @@
 # Chương 185: Trần Trạch, trông tôi có giống một vai hề không?
 
-> **Tiêu đề gốc**: 第185章 陈泽，我像不像小丑？
-
 Ánh mắt Trần Trạch né tránh hoảng loạn, không dám nhìn thẳng vào Từ Mạn Mạn.
 
 Mọi người xung quanh: "..."

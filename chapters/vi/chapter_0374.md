@@ -1,221 +1,223 @@
-# ﻿Chương 374: Hoa Anh Đào
+# Chương 374: Cỏ Anh Đào
 
-> **Tiêu đề gốc**: 第374章 樱花草。
+Lý Ngải Lan rốt cuộc cũng có được một cơ hội, nhưng không phải làm thư ký cho Triệu Kim An, cũng chẳng phải làm kế toán, mà là tạm thời đi theo phụ việc cho Đường Hiểu Tình.
 
-Lý Ái Lan được nhận vào — không phải làm thư ký cho Triệu Kim An, cũng không phải làm kế toán, mà là theo phụ việc cho Đường Hiểu Tình trước.
+"Tình Tình, thế chẳng hóa ra tớ thành thư ký của cậu à?"
 
-"Tình tình ơi, vậy thì em thành thư ký của chị rồi à?"
+Lý Ngải Lan hơi bĩu môi không hài lòng; chẳng lẽ cô lại phải làm cấp dưới của Đường Hiểu Tình sao? Cô muốn sưởi ấm chăn gối cho Triệu Kim An chứ có phải muốn sưởi ấm chăn gối cho Đường Hiểu Tình đâu.
 
-Lý Ái Lan có chút không hài lòng — mình muốn vào làm để gần Triệu Kim An, chứ không phải để gần Đường Hiểu Tình.
+"Lý Ngải Lan, cậu biết làm cái gì chứ? Ngoài tấm bằng kế toán ra."
 
-"Lý Ái Lan, ngoài tấm bằng kế toán ra, cô biết làm gì?"
+"Giám đốc Đường, cậu đừng nóng giận thế chứ."
 
-"Đường kinh lý, chị đừng giận em mà."
+"Cậu đi thi lấy bằng lái xe trước đi đã."
 
-"Cô đi thi bằng lái xe đi."
+"Tớ làm gì có tiền mà đăng ký học lái xe."
 
-"Em không có tiền đóng học phí lái xe."
+Đường Hiểu Tình: "..."
 
-Đường Hiểu Tình: ……
+Lý Ngải Lan đáp lại đầy hùng hồn: "Nếu có tiền thì tớ đã chẳng cần phải đi làm rồi."
 
-Lý Ái Lan tỉnh bơ: "Em có tiền thì em đã không đi làm rồi."
+"Tớ cho cậu vay."
 
-"Chị cho em mượn."
+"Có phải trả lại không?"
 
-"Phải trả không?"
-
-Lý Ái Lan buột miệng hỏi luôn.
+Lý Ngải Lan buột miệng hỏi ngay tắp lự.
 
 "Phù——"
 
-Đường Hiểu Tình hít thở sâu, tự nhủ không được giận: "Chị cũng là người đi làm ăn lương nhé, chị không phải Kim An!"
+Đường Hiểu Tình hít sâu một hơi, tự nhủ không được nổi cáu: "Tớ cũng chỉ là người đi làm ăn lương thôi, tớ đâu phải Kim An!"
 
-"Hì hì, bữa ăn ở Chân Hội Tuyển phong phú quá, còn có hoa quả nữa."
+"Hihi, cơm ở Trăn Hối Tuyển thịnh soạn quá đi mất, lại còn có cả hoa quả nữa."
 
-Lý Ái Lan bưng khay cơm, mắt sáng lên chọn từng món, Đường Hiểu Tình nửa tin nửa ngờ cô không phải đến đây làm việc — suất ăn ở Chân Hội Tuyển quả thật rất tốt, duy chỉ có Thẩm Tử Ngôn còn kén cá chọn canh.
+Lý Ngải Lan bưng khay cơm lựa chọn hết món này tới món khác; Đường Hiểu Tình bắt đầu nghi ngờ cô bạn này chẳng phải tới để đi làm mà là tới để ăn trực thì đúng hơn. Công nhận suất ăn ở Trăn Hối Tuyển ngon thật sự, chỉ có mỗi Thẩm Tử Ngôn là vẫn còn kén cá chọn canh.
 
-Cùng lớp với nhau, Đường Hiểu Tình chỉ không thích có mỗi Quan Linh.
+Trong cả lớp, Đường Hiểu Tình chỉ ghét duy nhất một mình Quan Linh.
 
-Cô biết Lý Ái Lan cũng là sinh viên nghèo — bữa nào đến giờ ăn, Đường Hiểu Tình đều dẫn Lý Ái Lan sang Chân Hội Tuyển.
+Biết Lý Ngải Lan cũng xuất thân là sinh viên nghèo, cứ đến bữa trưa là Đường Hiểu Tình lại dẫn Lý Ngải Lan sang Trăn Hối Tuyển ăn cơm.
 
-Đợt tuyển dụng đại học lần này, chẳng mấy ai nộp hồ sơ vào Chân Hội Tuyển — một siêu thị thôi mà, sinh viên 211 quả thật hơi ngại ngùng, năm 1999 đại học mới bắt đầu mở rộng chỉ tiêu. Từ 108 vạn sinh viên năm 98, mở rộng lên 160 vạn, tăng 47,4%, đến năm 2002 quy mô tuyển sinh tiếp tục tăng nhanh — sinh viên 211 tốt nghiệp năm 2009 vẫn còn hàm lượng vàng.
+Đợt hội chợ tuyển dụng tại trường lần này chẳng có mấy sinh viên nộp hồ sơ vào Trăn Hối Tuyển; dù sao cũng chỉ là một cái siêu thị thôi mà, sinh viên trường trọng điểm 211 quả thực hơi kén chọn không thèm để mắt tới. Nên nhớ mãi đến năm 1999 các trường đại học mới bắt đầu mở rộng chỉ tiêu tuyển sinh.
 
-Bây giờ chỉ cần chuyên ngành ổn, tìm việc không khó.
+Từ 1,08 triệu chỉ tiêu năm 1998 tăng vọt lên 1,6 triệu, mức tăng tới 47,4%, rồi từ năm 2002 quy mô tuyển sinh tiếp tục tăng trưởng nhanh chóng; dẫu vậy vào năm 2009, tấm bằng cử nhân đại học 211 vẫn còn rất có giá trị.
 
-Mười năm nữa, sinh viên 211 tốt nghiệp đi giao đồ ăn, chạy xe ôm công nghệ còn lên báo.
+Thời điểm này chỉ cần chuyên ngành khá một chút thì tìm việc làm chẳng hề khó khăn.
 
-Mộc Dao ghé vào Chân Hội Tuyển, đứng tại kệ hàng mỹ phẩm và dưỡng da tầng một.
+Phải đợi thêm mười năm nữa, cảnh cử nhân trường 211 tốt nghiệp đi chạy giao đồ ăn, giao hàng chuyển phát nhanh, thậm chí cả thạc sĩ lên sóng truyền hình mới trở nên phổ biến.
 
-Bộ đồ công sở OL chỉnh tề, cầm sản phẩm "Thiên Ngữ Thực Thải" trao đổi với nhân viên tư vấn.
+Mộc Dao ghé qua Trăn Hối Tuyển, dừng chân tại quầy kệ mỹ phẩm chăm sóc da ở tầng một.
 
-Loại nhân viên tư vấn này không tính là nhân viên Chân Hội Tuyển — họ do thương hiệu phát lương và đào tạo riêng.
+Cô diện bộ đồ công sở thanh lịch, tay cầm sản phẩm "Thiên Ngữ Thực Tụy" trao đổi công việc cùng nhân viên tư vấn bán hàng.
+
+Những nhân viên tư vấn kiểu này không thuộc biên chế của Trăn Hối Tuyển mà do phía nhãn hàng trả lương và tự đào tạo.
 
 "Triệu tổng!"
 
-Triệu Kim An đứng ở đầu kia kệ hàng, nhìn thấy Mộc Dao và mỉm cười.
+Triệu Kim An đứng ở đầu bên kia dãy kệ, mỉm cười nhìn Mộc Dao.
 
-Mộc Dao cũng quay lại nhìn anh, mỉm cười.
+Mộc Dao cũng xoay người lại, mỉm cười nhìn anh.
 
-"Về rồi à?"
+"Em mới về à?"
 
-Triệu Kim An hỏi.
+Triệu Kim An cất tiếng hỏi.
+
+"Vâng."
+
+Mộc Dao khẽ gật đầu mỉm cười đáp lời.
+
+Hai người nhìn nhau chẳng nói thêm câu nào, Triệu Kim An khẽ gật đầu, còn Mộc Dao đặt chai sữa rửa mặt xuống rồi bước lại gần: "Về thì ghé qua kiểm tra quầy hàng ở Quận Sa một chút, mấy hôm nữa em lại đi."
+
+"Em đi giày cao gót rồi đấy à."
+
+Cả hai kiếp, đây là lần đầu tiên Triệu Kim An nhìn thấy Mộc Dao đi giày cao gót.
+
+Mộc Dao khẽ mỉm cười, trên môi phớt nhẹ chút son bóng.
+
+Bất chợt cô khẽ sụt sịt mũi, ngước mắt nhìn Triệu Kim An, đôi mắt hoa đào thoáng chốc đã đong đầy lệ.
+
+Nhưng rồi cô cúi đầu nhắm nghiền mắt lại, giọt nước mắt liền biến mất tăm.
+
+"Thế mà cũng làm được à?!"
+
+Diêu Sân đứng gần đó nhìn mà trố mắt kinh ngạc: Dao Dao cao thủ thật sự, nước mắt mà cũng thu lại được ngon ơ thế sao?
+
+"Công việc làm ăn dạo này vẫn tốt chứ?"
+
+"Vẫn tốt ạ."
+
+Mộc Dao sờ tay vào túi rút ra chiếc chìa khóa xe: "Em mua xe BMW rồi đấy."
+
+"Du Phi lại đi công tác rồi à?"
+
+"Vâng, cậu ấy đi trước rồi."
+
+"Về mà chẳng thấy cậu ấy đâu; hôm qua anh có gặp Triệu Chí Dũng, cả Trịnh Như nữa."
+
+"Em về trước nhé."
 
 "Ừ."
 
-Mộc Dao khẽ gật đầu, nụ cười nhẹ trên môi.
+Mộc Dao đã nán lại Trăn Hối Tuyển suốt hai tiếng đồng hồ, chỉ để chờ Triệu Kim An đi xuống; vừa thấy mặt anh, cô liền nói một câu "Em về trước nhé", rồi dứt khoát sải bước trên đôi giày cao gót rời đi mà chẳng ngoái đầu nhìn lại.
 
-Hai người đứng nhìn nhau không nói thêm câu nào. Triệu Kim An gật đầu, Mộc Dao đặt lọ sữa rửa mặt xuống rồi bước lại gần: "Về ghé thăm quầy hàng ở Quận Sa, mấy hôm nữa lại đi."
+Vào trong thang máy đóng kín cửa, hai hàng nước mắt trong veo lúc này mới lặng lẽ lăn dài từ khóe mắt xuống gò má cô.
 
-"Đi giày cao gót rồi kìa."
+Du Phi đã lên đường sang Úc trước một bước.
 
-Hai kiếp người, đây là lần đầu tiên Triệu Kim An thấy Mộc Dao đi giày cao gót.
+Trong cuộc khủng hoảng tài chính năm 2008, Trung Nhôm từng mạnh tay chi ra khoản tiền khổng lồ 19,5 tỷ USD với ý định tiếp tục rót vốn vào tập đoàn Rio Tinto; nếu thương vụ này thành công, tổng tỷ lệ cổ phần của Trung Nhôm tại Rio Tinto sẽ tăng từ 9,3% lên tới 18%.
 
-Mộc Dao cười khẽ, môi đã tô thêm chút son.
+Vốn dĩ thỏa thuận này đôi bên cùng có lợi.
 
-Bỗng dưng cô hít vào một hơi, ngẩng đầu nhìn Triệu Kim An — đôi mắt đào hoa đã ngân đầy nước.
+Với Rio Tinto: họ có được dòng tiền cứu mạng để vượt qua cuộc khủng hoảng nợ nần.
 
-Rồi cô lại cúi đầu nhắm mắt, hai dòng lệ biến mất.
+Với Trung Nhôm: không chỉ thu về lợi nhuận tài chính, mà quan trọng hơn là có thể thâm nhập sâu vào khâu vận hành tài sản cốt lõi của Rio Tinto, mở ra cánh cửa đảm bảo nguồn cung khoáng sản ổn định cho trong nước.
 
-"Trời ơi, sao được vậy!?"
+Nào ngờ sang nửa đầu năm 2009, khi các quốc gia trên toàn cầu đồng loạt tung ra các gói kích thích kinh tế, thị trường hàng hóa nguyên liệu nhanh chóng phục hồi, giá cổ phiếu Rio Tinto bật tăng trở lại mạnh mẽ, năng lực huy động vốn cũng hồi sinh.
 
-Diêu Sâm đứng nhìn mà tròn mắt há hốc — Dao Dao giỏi ghê, nước mắt còn rút lại được?
+Rio Tinto cảm thấy mình đã "bán hớ", không còn cần tới khoản tiền cứu mạng của Trung Nhôm nữa.
 
-"Buôn bán thế nào?"
+Thế là Rio Tinto đơn phương hủy bỏ thỏa thuận hợp tác và chi trả cho Trung Nhôm 195 triệu USD tiền bồi thường vi phạm hợp đồng, tương đương 1% tổng giá trị giao dịch.
 
-"Tốt."
+Rio Tinto và BHP Billiton là hai trong số những tập đoàn khai khoáng lớn nhất hành tinh.
 
-Mộc Dao sờ vào túi rồi rút chìa khóa xe ra: "Em mua BMW rồi."
+Hoạt động kinh doanh cốt lõi của cả hai gã khổng lồ này đều đặt tại Úc.
 
-"Dư Phỉ đi công tác lại rồi."
+Trước đó BHP Billiton từng phát động chiến dịch thâu tóm thù địch kéo dài suốt nhiều tháng nhằm vào Rio Tinto, khiến Rio Tinto đường cùng mới phải tìm đến Trung Nhôm cầu cứu.
 
-"Ừ, chị ấy đi trước."
+Phía Trung Nhôm hiện giờ cũng đã cử người sang Úc.
 
-"Về rồi không thấy chị ấy, hôm qua thấy Triệu Trí Dũng rồi, có cả Trịnh Nhụ nữa."
+Nhan Hi và cô Dư Tĩnh cũng đã dẫn đội ngũ bay sang đó; bên Úc đang có một mỏ quặng sắt cần sang nhượng, vì vậy Du Phi mới sang trước để hội quân cùng Nhan Hi và mọi người.
 
-"Em về đây."
+Trước tiên phải tiến hành khảo sát địa chất xem trữ lượng thực tế là bao nhiêu.
 
-"Ừ."
+Tiếp đó tính toán chi phí khai thác, bởi khai thác lộ thiên có giá thành thấp hơn rất nhiều so với khai thác hầm lò.
 
-Mộc Dao ở lại Chân Hội Tuyển hai tiếng, cô đứng đợi để nhìn thấy Triệu Kim An xuống — thấy được rồi mới nói câu "em về đây", rồi đi thẳng trên đôi giày cao gót, không ngoái đầu nhìn lại.
+Còn về chất lượng quặng sắt thì khỏi phải bàn.
 
-Vào đến thang máy, hai hàng nước mắt mới lặng lẽ trượt dài xuống khóe mắt.
-
-Dư Phỉ đã đi Úc trước một bước.
-
-Năm 2008, Trung Quốc nhôm rót 19,5 tỷ đô la Mỹ để tiếp tục đầu tư vào công ty Rio Tinto — nếu giao dịch này thành công, tổng tỷ lệ cổ phần của Trung Quốc nhôm tại Rio Tinto sẽ tăng từ 9,3% lên 18%.
-
-Ban đầu, thỏa thuận này là đôi bên cùng có lợi.
-
-Với Rio Tinto: họ nhận được "tiền cứu mạng," giải quyết được khủng hoảng nợ.
-
-Với Trung Quốc nhôm: không chỉ thu được lợi nhuận tài chính, quan trọng hơn là có thể tham gia sâu vào vận hành tài sản cốt lõi của Rio Tinto, mở ra cánh cửa để bảo đảm nguồn cung khoáng sản ổn định cho trong nước.
-
-Nhưng kết quả là nửa đầu năm 2009, theo làn sóng các gói kích thích kinh tế của các quốc gia, thị trường hàng hóa phục hồi nhanh chóng, giá cổ phiếu Rio Tinto tăng vọt, khả năng huy động vốn phục hồi.
-
-Rio Tinto cảm thấy mình đã "bán rẻ," không cần đến tiền cứu trợ của Trung Quốc nhôm nữa.
-
-Rio Tinto đơn phương hủy bỏ thỏa thuận hợp tác, chỉ bồi thường cho Trung Quốc nhôm 195 triệu đô — đúng một phần trăm giá trị giao dịch.
-
-Rio Tinto và BHP Billiton là hai trong số những công ty khai khoáng lớn nhất thế giới.
-
-Hoạt động kinh doanh cốt lõi của cả hai đều đặt tại Úc.
-
-BHP Billiton thậm chí từng phát động vụ thâu tóm thù địch kéo dài nhiều tháng nhắm vào Rio Tinto, đó là lý do Rio Tinto mới tìm đến Trung Quốc nhôm.
-
-Người của Trung Quốc nhôm cũng đã sang Úc.
-
-Nhan Hy và Dư Tĩnh dẫn đội đi theo. Ở Úc có một mỏ sắt đang được rao bán, nên Dư Phỉ mới đến trước để hội quân với Nhan Hy và nhóm của họ.
-
-Đầu tiên phải khảo sát, xem trữ lượng bao nhiêu.
-
-Rồi tính chi phí khai thác, khai thác lộ thiên chi phí thấp hơn khai thác giếng ngầm rất nhiều.
-
-Còn về chất lượng quặng sắt Úc.
-
-Quặng sắt Úc ngoài trữ lượng khổng lồ và tập trung cao, chất lượng còn vượt xa mức trung bình toàn cầu 50%, thậm chí cao hơn nhiều so với trong nước — hàm lượng sắt trong nước chỉ khoảng 30% mà thôi.
+Quặng sắt của Úc ngoài trữ lượng khổng lồ và độ tập trung cao, hàm lượng sắt còn vượt xa mức trung bình 50% của thế giới, lại càng bỏ xa hàm lượng trung bình trong nước vốn chỉ loanh quanh ngưỡng 30%.
 
 Đặc biệt là quặng hematit.
 
-Quặng sắt Úc có hai đặc điểm nổi bật: hàm lượng sắt cao, tạp chất thấp.
+Quặng sắt Úc sở hữu hai ưu điểm nổi bật: hàm lượng sắt cao và ít tạp chất.
 
-Triệu Kim An nhận được cuộc gọi từ Trung Quốc nhôm — họ đang hừng hực khí thế, quyết tâm phải giành được mỏ sắt này.
+Triệu Kim An nhận được cuộc gọi từ phía Trung Nhôm; xem ra Trung Nhôm đang ngậm một cục tức trong lòng, đối với mỏ quặng sắt lần này là quyết tâm giành bằng được.
 
-Gần như muốn nói thẳng với Triệu Kim An: "Triệu tổng, anh đừng có xen vào."
+Họ chỉ thiếu nước nói thẳng vào mặt Triệu Kim An: "Triệu tổng, cậu đừng có chạy sang đây góp vui nữa."
 
-Triệu Kim An thủng thỉnh nói: "Tôi đi xem cho biết."
+Triệu Kim An giả bộ khiêm tốn đáp một câu: "Tôi chỉ sang mở mang tầm mắt chút thôi mà."
 
-Rồi lại hỏi thêm: "Hợp cổ không?"
+Ngay sau đó anh lại hỏi thêm: "Có muốn hùn vốn chung không?"
 
-Đầu dây bên kia im lặng một lúc: "Triệu tổng, mỏ 4-5 tỷ đô mà hợp cổ?"
+Đầu dây bên kia sững người mất một lúc lâu: "Triệu tổng, cái mỏ có 400-500 triệu USD mà cũng đòi hùn vốn chung à?"
 
-"Anh cũng biết là 4-5 tỷ đô đấy, khinh ai vậy?"
+"Các ông cũng biết là 400-500 triệu USD cơ đấy, khinh thường ai vậy?"
 
-Triệu Kim An không nói ra, giọng điềm tĩnh: "Có Rio Tinto, BHP Billiton, còn có các công ty khác cạnh tranh, cuối cùng rơi vào tay ai biết đâu? Yên tâm, tôi sẽ không tự ý đẩy giá."
+Triệu Kim An không nói thẳng câu ấy ra, chỉ ôn tồn đáp: "Có cả Rio Tinto, BHP Billiton rồi biết bao nhiêu công ty khác cùng nhòm ngó cạnh tranh, hươu chết vào tay ai còn chưa biết được đâu. Yên tâm đi, tôi không đẩy giá bừa bãi làm gì cả."
 
-Ra ngoài mà làm chuyện "trai cò tranh nhau, ngư ông đắc lợi" — Triệu Kim An chắc chắn không để người khác nhặt được lợi.
+Đã ra nước ngoài làm ăn, Triệu Kim An tuyệt đối sẽ không dại gì để kẻ khác ngồi hưởng lợi.
 
-Bên Úc rất sôi động, Dư Tĩnh gọi điện về giọng phấn khích, nói hàm lượng quặng rất cao.
+Không đời nào anh lại đi diễn trò "trai cò đánh nhau" với Trung Nhôm ngay trên đất Úc.
 
-Từ Úc vận chuyển về trong nước rất thuận tiện, không cần vòng nửa vòng trái đất.
+Tình hình bên Úc vô cùng náo nhiệt; cô Dư Tĩnh gọi điện về báo tin với giọng đầy phấn khích rằng hàm lượng sắt của mỏ quặng này rất cao.
 
-Hiệu trưởng Cung gọi điện cho Triệu Kim An, Sư Đại có người đứng đầu một nhóm nhỏ kết hợp với Trung Nam, trọng điểm của Trung Nam là ngành luyện kim — họ muốn đi khảo sát mỏ sắt.
+Từ Úc vận chuyển đường biển về trong nước cũng vô cùng thuận tiện, chẳng cần phải đi vòng nửa vòng trái đất.
 
-Khảo sát xong mới định giá chính xác được.
+Hiệu trưởng Cung cũng gọi điện cho Triệu Kim An, cho biết Đại học Sư phạm đã cử người dẫn đoàn phối hợp cùng Đại học Trung Nam lập thành một tổ chuyên gia nhỏ; thế mạnh mũi nhọn của Đại học Trung Nam chính là ngành luyện kim, họ sẽ tiến hành khảo sát giám định trực tiếp mẫu quặng sắt.
 
-Là Dư Tĩnh xin ý kiến rồi nhờ Triệu Kim An kết nối.
+Phải khảo sát kỹ lưỡng xong mới có cơ sở định giá chính xác cho mỏ quặng.
 
-Đây là lợi thế của Dư Tĩnh — là giáo sư Sư Đại, lĩnh vực nào cũng tìm được người.
+Chuyện này là do cô Dư Tĩnh xin ý kiến Triệu Kim An rồi đứng ra làm cầu nối.
 
-Thượng Hải.
+Đó chính là lợi thế của cô Dư Tĩnh; với tư cách giáo sư Đại học Sư phạm, dù thuộc lĩnh vực nào cô cũng đều có thể tìm ra đúng người có chuyên môn.
 
-Từ Mạn Mạn vào làm ở một công ty đầu tư, lương tháng bốn nghìn.
+Tại Thượng Hải.
 
-Chưa đầy ba tháng, qua thời gian thử việc được chính thức nhận vào, từ một "nhân vật vô hình" trong công ty dần leo lên mức lương sáu nghìn, cuộc họp công ty còn được vào ngồi ghế sau dự thính.
+Từ Mạn Mạn xin vào làm ở một công ty đầu tư với mức lương khởi điểm 4.000 tệ một tháng.
 
-Trong công ty rất được yêu quý, có mấy người theo đuổi.
+Chưa đầy ba tháng, cô xuất sắc vượt qua kỳ thử việc để trở thành nhân viên chính thức, từ một "người vô hình" trong công ty vươn lên mức lương 6.000 tệ/tháng, mỗi khi công ty họp hành còn được phép vào ngồi hàng ghế sau dự thính.
 
-Trong đó có tổ trưởng nhóm cô — Trần Tư Lương.
+Ở công ty cô rất được lòng mọi người, thậm chí có tới vài người theo đuổi.
 
-Hôm đó ra khỏi công ty, một chiếc Audi A6 đậu bên cạnh, Trần Tư Lương hạ cửa kính xuống.
+Một trong số đó là trưởng nhóm của cô, Trần Tư Lương.
 
-"Mạn Mạn, ra sân bay không? Tôi đưa đi."
+Hôm ấy vừa bước ra khỏi tòa nhà công ty, một chiếc Audi A6 liền tấp vào lề bên cạnh, Trần Tư Lương hạ kính xe xuống:
 
-"Cảm ơn Trần kinh lý, không cần ạ, em đi tàu điện ngầm."
+"Mạn Mạn, em ra sân bay à? Để anh lái xe đưa em đi."
 
-"Tàu điện ngầm không có ga đến thẳng, chỉ đến ga Trương Giang Cao Khoa thôi."
+"Cảm ơn anh Trần, không cần đâu ạ, em đi tàu điện ngầm."
 
-"Cảm ơn anh, anh bận đi."
+"Tàu điện ngầm làm gì có tuyến chạy thẳng tới sân bay, chỉ đến được ga Công nghệ cao Trương Giang thôi."
 
-Từ Mạn Mạn mỉm cười lắc đầu, từ chối khéo.
+"Cảm ơn anh, anh cứ bận việc của mình đi ạ."
 
-Thượng Hải không phải Quận Sa, cứ đến giờ tan làm là có những người phụ nữ đứng ở sân dưới chờ được đón, lúc này thường ngầm so sánh nhau, xem "người của mình" lái xe gì đẹp hơn.
+Từ Mạn Mạn mỉm cười lắc đầu, khéo léo từ chối.
 
-Từ Mạn Mạn phải về trường làm thủ tục và đóng học phí, đơn xin nghỉ do Trần Tư Lương ký duyệt.
+Thượng Hải không giống Quận Sa; cứ đến giờ tan tầm là lại có một số cô gái đứng chờ dưới sảnh đợi người tới đón, lúc ấy họ sẽ ngấm ngầm so kè với nhau xem "người yêu" của ai đi xe sang hơn.
 
-Cô không tự bỏ bê bản thân mình — bằng tốt nghiệp vẫn cần.
+Từ Mạn Mạn phải quay về trường làm thủ tục báo danh đầu năm và đóng học phí, đơn xin nghỉ phép chính là do Trần Tư Lương phê duyệt.
 
-Nhìn Từ Mạn Mạn theo dòng người bước xuống ga tàu điện ngầm, Trần Tư Lương châm một điếu thuốc — anh không tin với điều kiện của mình mà không tán được Từ Mạn Mạn, chỉ là sớm muộn thôi.
+Cô tuyệt đối không buông xuôi bỏ mặc bản thân; tấm bằng đại học là thứ cô bắt buộc phải có.
 
-Từ khi Từ Mạn Mạn vào công ty, Trần Tư Lương đã để ý cô gái từ tỉnh Tương Nam này.
+Nhìn bóng dáng Từ Mạn Mạn hòa vào dòng người bước xuống ga tàu điện ngầm, Trần Tư Lương châm một điếu thuốc; anh ta không tin với điều kiện của bản thân lại không cưa đổ được Từ Mạn Mạn, chỉ là chuyện sớm hay muộn mà thôi.
 
-Thật ra với ngoại hình và bằng cấp của Từ Mạn Mạn, dù làm ở công ty nào cũng không thiếu người theo đuổi.
+Ngay từ ngày đầu Từ Mạn Mạn bước chân vào công ty, Trần Tư Lương đã chấm ngay cô gái đến từ tỉnh Tương Nam này rồi.
 
-Từ Mạn Mạn cắm tai nghe vào, cúi đầu gảy gảy chiếc máy nghe nhạc MP3 — bài "Hoa Anh Đào."
+Thực ra với nhan sắc và học vấn của Từ Mạn Mạn, dù có đi làm ở bất kỳ công ty nào thì cũng chẳng bao giờ thiếu người theo đuổi.
 
-Cô thích bài hát này từ lâu.
+Từ Mạn Mạn đeo tai nghe lên, cúi đầu bấm máy MP3 bật bài *Cỏ Anh Đào*.
 
-Thích giai điệu, thích lời.
+Cô vẫn luôn yêu thích ca khúc này.
 
-Cô không hát theo, chỉ nghe.
+Yêu từ giai điệu cho tới từng câu chữ trong lời bài hát.
 
-Từ khi lên Thượng Hải, mỗi tháng cô đều chuyển ba nghìn vào tài khoản ngân hàng của Lương Huệ Trân.
+Cô không khe khẽ hát theo, chỉ lặng lẽ lắng nghe.
 
-Hai mươi năm — đó là thỏa thuận đã nói rõ.
+Từ ngày tới Thượng Hải, tháng nào cô cũng đều đặn chuyển khoản 3.000 tệ vào thẻ ngân hàng của bà Lương Tuệ Trân.
 
-Lương Huệ Trân cũng vậy — mỗi tháng nhận được tiền là biết con gái vẫn bình an vô sự.
+Cam kết hai mươi năm là lời đã hứa từ trước.
 
-Từ Mạn Mạn không báo cho ai biết. Ở phòng chờ ra sân bay, cô ngồi thẳng lưng, hai tay cầm điện thoại — như một pho tượng bất động.
+Bà Lương Tuệ Trân cũng chính nhờ tháng nào cũng nhận được tiền chuyển khoản nên mới yên tâm phần nào rằng con gái mình vẫn bình an vô sự.
 
-Về lại Quận Sa, cô không có chút kỳ vọng nào.
+Từ Mạn Mạn không hề báo trước cho bất kỳ ai; tại sảnh chờ sân bay, cô ngồi ngay ngắn nắm chặt chiếc điện thoại trong tay, bất động như một bức tượng tạc.
 
-Không có điều gì hay ai khiến cô mong ngóng.
+Trong lòng chẳng mảy may có chút mong ngóng nào về chuyến trở về Quận Sa lần này.
+
+Chẳng hề mong đợi được gặp lại...

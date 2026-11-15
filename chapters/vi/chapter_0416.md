@@ -1,7 +1,5 @@
 # Chương 416: Em thích anh, tựa như một giấc mộng khước từ tỉnh giấc
 
-> **Tiêu đề gốc**: 第416章 我喜欢你，就像一场拒绝醒来的梦。
-
 Quan Văn Bách lách xe sang làn bên cạnh, chạy song song với chiếc Mercedes của Thẩm Tử Ngôn.
 
 Tiếng còi xe vang lên giục giã, cửa kính hạ xuống.
@@ -38,9 +36,9 @@ Dù đã hãm phanh nhưng hai xe vẫn va quệt vào nhau, để lại một v
 
 Triệu Kim An khẽ buông tiếng chửi thề. Du Phi mới cầm lái vỏn vẹn một năm ngồi bên cạnh nhìn đến mức trợn tròn mắt, tim đập thình thịch. Chiếc Audi vừa lách chéo qua chặn đầu mà Thẩm Tử Ngôn dám nhấn ga húc thẳng vào, mượn thêm một trăm hai mươi lá gan cô cũng chẳng dám làm thế.
 
-Đơn Vĩ ngồi ghế lái thì mặt không đổi sắc. Tốc độ va chạm kiểu này chẳng bõ dính răng, lính tăng thiết giáp như bọn anh đến xe tăng còn điều khiển được nữa là. Chỉ có điều trên xe đang chở ông chủ, anh không thể mạo hiểm manh động.
+Đan Vĩ ngồi ghế lái thì mặt không đổi sắc. Tốc độ va chạm kiểu này chẳng bõ dính răng, lính tăng thiết giáp như bọn anh đến xe tăng còn điều khiển được nữa là. Chỉ có điều trên xe đang chở ông chủ, anh không thể mạo hiểm manh động.
 
-Thấy chiếc Mercedes đã bị chặn đứng, Đơn Vĩ mới nhấn ga áp sát, bịt kín lối đi của Thẩm Tử Ngôn.
+Thấy chiếc Mercedes đã bị chặn đứng, Đan Vĩ mới nhấn ga áp sát, bịt kín lối đi của Thẩm Tử Ngôn.
 
 "Cốc, cốc."
 
@@ -60,11 +58,11 @@ Du Phi: "..."
 
 Ngay cả Chu Hoa Phong đứng gần đó cũng nghe đến cạn lời, chẳng hiểu hai người này đang diễn cái vở gì nữa.
 
-Thấy Thẩm Tử Ngôn tháo dây an toàn mở cửa bước xuống, Đơn Vĩ và Quan Văn Bách mới thở phào nhẹ nhõm, tắt máy xe rồi đứng nhìn Triệu Kim An và Thẩm Tử Ngôn sóng bước đi về phía một góc vắng không bóng người.
+Thấy Thẩm Tử Ngôn tháo dây an toàn mở cửa bước xuống, Đan Vĩ và Quan Văn Bách mới thở phào nhẹ nhõm, tắt máy xe rồi đứng nhìn Triệu Kim An và Thẩm Tử Ngôn sóng bước đi về phía một góc vắng không bóng người.
 
 Bầu trời Tô Thành lúc này đã quang đãng trở lại, cái lạnh buốt giá của mùa đông dường như phảng phất chút hơi ấm hiếm hoi.
 
-Đơn Vĩ rút bao thuốc chia cho mọi người, mắt dõi theo bóng hai người đang đứng đối diện nhau đằng xa.
+Đan Vĩ rút bao thuốc chia cho mọi người, mắt dõi theo bóng hai người đang đứng đối diện nhau đằng xa.
 
 "Cá cược không?"
 
@@ -162,7 +160,7 @@ Bởi bản thân cô sinh ra đã là một thiên kim "bạch phú mỹ" rồi
 
 Thẩm Tử Ngôn cứ thế lái xe rời đi.
 
-Cô mở cửa xe, hào sảng vẫy tay chào Triệu Kim An, nở nụ cười tươi vẫy chào Du Phi, Đơn Vĩ và mọi người. Chiếc điện thoại di động cô đã vứt lại ở Quận Sa, như muốn chặt đứt mọi sợi dây liên lạc với nơi ấy.
+Cô mở cửa xe, hào sảng vẫy tay chào Triệu Kim An, nở nụ cười tươi vẫy chào Du Phi, Đan Vĩ và mọi người. Chiếc điện thoại di động cô đã vứt lại ở Quận Sa, như muốn chặt đứt mọi sợi dây liên lạc với nơi ấy.
 
 Ở Tô Thành, vẫn còn cả một Tập đoàn Thẩm thị đồ sộ đang đợi cô quay về tiếp quản.
 
@@ -174,7 +172,7 @@ Thực ra ngay từ khoảnh khắc Thẩm Tử Ngôn mở lời bằng giọng 
 
 Nếu như cô nổi giận lôi đình, ghen tuông hờn trách, thì điều đó mới chứng tỏ anh còn cơ hội giữ cô lại.
 
-Du Phi và Đơn Vĩ đứng đằng xa không dám tiến lại quấy rầy.
+Du Phi và Đan Vĩ đứng đằng xa không dám tiến lại quấy rầy.
 
 Cùng với thời gian trôi qua, mấy chiếc điện thoại trong túi bắt đầu đổ chuông dồn dập, vang lên không ngớt.
 

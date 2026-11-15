@@ -1,7 +1,5 @@
 # Chương 148: Trào lưu của một thời đại.
 
-> **Tiêu đề gốc**: 第148章 那个时代的潮流。
-
 "Kim An, mấy cái giấy phép với thủ tục kia chị đã đi lo liệu hòm hòm rồi."
 
 Lạc Cẩn Chi đón Triệu Kim An tại một ngã ba đường, đi cùng với cô còn có cả Triệu Quốc Hoa.

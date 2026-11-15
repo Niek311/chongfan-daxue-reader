@@ -1,229 +1,239 @@
-# Chương 391: Triệu tổng của Quận Sa
+# Chương 391: Triệu tổng ở Quận Sa
 
-> **Tiêu đề gốc**: 第391章 郡沙赵总。
+Từ Mạn Mạn chuyện gì cũng biết, từ việc Hoàn Vũ Cảng Vụ thâu tóm núi Kình Bối, cho đến việc Trăn Nhiên giành được gói quảng cáo đắt giá nhất của Đài Truyền hình Trung ương năm 2010.
 
-Từ Mạn Mạn chuyện gì cũng biết rõ. Cảng vụ Hoàn Vũ đã giành được mỏ Kình Bối Sơn, Trăn Nhiên thì giật danh hiệu Quán quân quảng cáo năm 2010 của đài truyền hình Trung ương.
-
-Bản thân cô vốn làm việc trong một công ty đầu tư, chỉ cần hơi để mắt một chút là nắm được tường tận.
+Bản thân cô vốn làm việc trong công ty đầu tư, chỉ cần để ý một chút là nắm rõ ngay.
 
 "Ọe..."
 
-Đang ăn dở, Từ Mạn Mạn lại vội bịt miệng lao thốc vào phòng vệ sinh.
+Đang ăn dở, Từ Mạn Mạn lại đưa tay bịt miệng chạy vội vào nhà vệ sinh.
 
-"Ốm nghén dữ dội thế này sao?"
+"Phản ứng mạnh đến thế cơ à?"
 
-Triệu Kim An bước theo sau, nhẹ nhàng vuốt lưng cho cô. Từ Mạn Mạn nôn đến mức cả người khó chịu rã rời.
+Triệu Kim An bước theo sau, nhẹ nhàng vuốt lưng cho cô. Từ Mạn Mạn nôn đến mức khó chịu vô cùng.
 
-"Kim An, em vừa mới nói dứt lời đã thấy hối hận rồi... Đứa nhỏ này sinh ra là để hành hạ người ta mà."
+"Kim An, em vừa nói xong đã thấy hối hận rồi, đứa bé này đúng là đến để hành hạ người ta mà."
 
-Triệu Kim An không kìm được mỉm cười.
+Triệu Kim An nghe vậy liền bật cười.
 
-Hai người cứ thế dằn vặt đến tận lúc trời hửng sáng. Bị đánh thức từ ba giờ đêm, Từ Mạn Mạn lúc này mới nằm xuống giường thiếp đi.
+Quần quật mãi tới gần sáng, đến ba giờ rưỡi mới tạm yên, Từ Mạn Mạn nằm vật xuống giường rồi thiếp đi.
 
-Quan Văn Bách bảo người mang thai rất thèm ngủ, vợ anh ta hồi có bầu cũng hệt như vậy.
+Quan Văn Bách bảo phụ nữ mang thai thường hay buồn ngủ, ngày trước vợ anh ta lúc có bầu cũng y hệt như vậy.
 
-Triệu Kim An kéo chăn đắp cẩn thận cho Từ Mạn Mạn, rồi ngồi bên mép giường ngắm nhìn cô say giấc. Gương mặt cô dạo này có phần gầy gò, thanh mảnh hơn trước. Anh thật sự không biết kiếp trước sau này Từ Mạn Mạn có từng sinh con hay không.
+Triệu Kim An kéo chăn đắp kín cho Từ Mạn Mạn, ngồi bên mép giường ngắm nhìn gương mặt đang ngủ say của cô. Gò má cô có phần gầy đi đôi chút. Anh không biết kiếp trước về sau Từ Mạn Mạn có sinh con hay không.
 
-Nhưng kiếp này, cô đã có giọt máu của anh.
+Nhưng kiếp này thì có rồi.
 
-"Ông chủ, tôi xin phép chạy qua thăm Na Tề một chút."
+"Ông chủ, tôi qua thăm Na Tề một lát."
 
-Đơn Vỹ đứng ngoài cửa phòng ngủ, khẽ khàng hỏi vọng vào.
+Đan Vĩ đứng ngoài cửa phòng ngủ, hạ giọng hỏi khẽ.
 
-"Được." Triệu Kim An gật đầu.
+"Được."
 
-Đơn Na Tề đang theo học đại học ở đất Thượng Hải, Đơn Vỹ muốn nhân dịp này ghé qua trường thăm con gái.
+Triệu Kim An gật đầu.
 
-"Khoan đã."
+Đan Na Tề đang học đại học ở Thượng Hải, nhân chuyến này Đan Vĩ tranh thủ ghé trường thăm con gái.
 
-Triệu Kim An đứng dậy, rút ví lấy ra một xấp tiền dày đưa cho Đơn Vỹ: "Đừng đi tay không. Cầm thêm ít tiền sinh hoạt cho Na Tề, mức chi tiêu ở Thượng Hải đắt đỏ hơn Quận Sa nhiều lắm."
+"Chờ đã."
+
+Triệu Kim An đứng dậy, rút ví lấy ra một xấp tiền đưa cho Đan Vĩ: "Đừng đi tay không, cầm thêm ít tiền sinh hoạt cho Na Tề, mức tiêu dùng ở Thượng Hải cao hơn Quận Sa nhiều."
 
 "Cảm ơn ông chủ."
 
-Đơn Vỹ ngẫm nghĩ một thoáng rồi không khách sáo từ chối.
+Đan Vĩ nghĩ ngợi một giây rồi nhận lấy, không giả vờ khách sáo từ chối.
 
-Quan Văn Bách cùng Chu Hoa Phong nhìn thấy cảnh đó cũng chẳng mảy may ngạc nhiên. Chuyện "tiền sữa bột" ngoài miệng thì nói vậy thôi, chứ ai nấy đều thừa hiểu đó là câu nói đùa.
+Quan Văn Bách và Chu Phong Hoa đứng bên trông thấy cũng chẳng lấy làm lạ. Chuyện tiền sữa bỉm nói thì nói thế thôi, nhưng ai nấy đều hiểu đó chỉ là câu đùa.
 
-Thực tế, tiền lương của bọn họ trước khi sang cảng Piraeus đã được tăng lên hơn mười bốn nghìn tệ mỗi tháng. Đi theo Triệu Kim An lại chẳng bao giờ phải tự bỏ tiền túi ra chi trả bất cứ khoản gì. Chu Hoa Phong lục lọi ở góc phòng, tìm thấy một thùng mì tôm.
+Thực tế trước khi sang cảng Piraeus, lương của họ đều đã được nâng lên hơn mười bốn nghìn tệ một tháng, lại theo sát Triệu Kim An nên chẳng phải tự bỏ tiền túi chi tiêu gì. Chu Phong Hoa còn vừa lục thấy hẳn một thùng mì ăn liền ở góc phòng.
 
 "Ông chủ..."
 
 "Ừ."
 
-Triệu Kim An liếc nhìn một cái rồi rút điện thoại ra bấm một dãy số.
+Triệu Kim An liếc nhìn đồng hồ, cầm điện thoại ra ngoài gọi một cuộc.
 
-...
+Đầu dây bên kia, Du Phi lập tức tỉnh cả ngủ.
 
-Ở đầu dây bên kia, Du Phi lập tức tỉnh ngủ hẳn.
+Cô ngồi ngẩn người trên giường mất hai mươi phút, đến lúc vào nhà vệ sinh đánh răng mà tay vẫn còn hơi run.
 
-Cô ngồi đờ đẫn trên giường mất hai mươi phút, lúc vào nhà vệ sinh đánh răng, hai bàn tay vẫn còn khẽ run rẩy.
+"Cái này... Mạn Mạn vừa ra tay đã tung ngay quân át chủ bài rồi sao?"
 
-"Chuyện này... Mạn Mạn vừa ra tay một cái là tung ngay át chủ bài luôn sao?"
+Du Phi nghĩ mãi mới tìm được câu này để hình dung.
 
-Du Phi ngẫm nghĩ hồi lâu mới tìm ra được một câu hình dung chuẩn xác đến vậy.
+Tại Đại học Đồng Tế.
 
-...
+Đan Vĩ và Đan Na Tề sánh bước trên con đường rợp bóng cây trong khuôn viên trường. Đan Na Tề ôm quyển giáo trình trước ngực, khẽ nói: "Anh Kim An sắp làm bố rồi."
 
-Đại học Đồng Tế.
+Đan Vĩ bảo mình chẳng hiểu nổi chuyện giới trẻ, ông chủ với Từ tổng vừa cãi nhau một trận nảy lửa, hai người lời qua tiếng lại gay gắt lắm, Từ tổng còn buột miệng nói cả câu "Em hận anh" nữa kia.
 
-Đơn Vỹ và Đơn Na Tề đang rảo bước bên trong khuôn viên trường. Đơn Na Tề ôm tập giáo trình trong lòng, cất giọng: "Anh Kim An sắp làm bố rồi ạ."
+"Bố chẳng hiểu gì cả, anh Kim An cố tình đấy."
 
-Đơn Vỹ lắc đầu bảo mình thật sự không hiểu nổi lớp trẻ. Ông chủ và Từ tổng vừa cãi nhau một trận long trời lở đất, gay gắt đến mức Từ tổng còn thốt cả câu "Tôi hận anh" ra miệng.
+"Cố tình?"
 
-"Bố ơi, bố không hiểu đâu, anh Kim An là cố tình đấy."
+"Từ Mạn Mạn là người thông minh, trút hết ra được rồi cô ấy cũng tự hiểu thôi... Chuyện kia vốn là cái gai trong lòng cả hai người họ, nói toạc ra được sẽ tốt cho cả Từ Mạn Mạn lẫn đứa bé trong bụng."
 
-"Cố tình sao?"
+"Anh Kim An là đang ép Từ Mạn Mạn phải nói ra lòng mình đấy."
 
-"Từ Mạn Mạn là người cực kỳ thông minh, sau khi trút hết cơn giận ra thì chị ấy cũng sẽ tự hiểu... Chuyện kia từ lâu đã là một cái gai găm sâu trong lòng cả hai người. Nói toạc ra, trút hết uất ức được thì mới tốt cho chị Mạn Mạn, và cũng tốt cho đứa bé trong bụng."
+Đan Vĩ: "..."
 
-"Anh Kim An là đang ép chị ấy phải nói ra đấy thôi."
+"Bố tưởng Từ Mạn Mạn hận anh Kim An thật à? Cô ấy đâu phải loại phụ nữ ngu ngốc như thế."
 
-Đơn Vỹ: "..."
+Đan Na Tề bật cười: "Bố tưởng thấy anh Kim An nổi giận thì Từ Mạn Mạn đau khổ lắm sao? Bố thử nghĩ kỹ lại xem, anh Kim An đã bao giờ nổi giận với ai đến mức ấy chưa?"
 
-"Bố tưởng Từ Mạn Mạn hận anh Kim An thật chắc? Chị ấy đâu phải loại phụ nữ ngu ngốc."
+"Nếu anh Kim An mà giận con được như thế, con mừng còn không hết ấy chứ."
 
-Đơn Na Tề mỉm cười nói tiếp: "Bố nghĩ nhìn thấy anh Kim An tức giận thì lòng Từ Mạn Mạn sẽ đau đớn khó chịu sao? Bố ngẫm lại mà xem, anh Kim An đã từng nổi trận lôi đình với ai như thế bao giờ chưa?"
+Đan Vĩ: "..."
 
-"Nếu anh Kim An mà giận dữ với con như vậy, khéo con còn vui mừng phát khóc lên ấy chứ."
+"Na Tề, tư tưởng của con lệch lạc rồi đấy nhé."
 
-Đơn Vỹ nghẹn lời: "Na Tề, con đang đi chệch hướng rồi đấy."
+"Lệch gì mà lệch."
 
-"Con không chệch."
+Đan Na Tề hít sâu một hơi: "Anh Kim An làm bố là chuyện tốt. Tô Miến có con thì càng thích hợp đi theo con đường chính trị, bao nhiêu sản nghiệp của anh Kim An sau này cũng cần có người kế thừa chứ..."
 
-Đơn Na Tề hít sâu một hơi: "Anh Kim An làm bố là chuyện tốt. Chị Tô Miến có con rồi sẽ càng thích hợp đi theo con đường chính trị, còn bao nhiêu sản nghiệp đồ sộ của anh Kim An sau này cũng cần có người danh chính ngôn thuận kế thừa chứ..."
+"Na Tề, con đừng nói nữa!"
 
-"Na Tề, con đừng nói bậy nữa!"
-
-Đơn Vỹ dáo dác nhìn quanh quất bốn phía. Ông nhận ra mình hoàn toàn không thể hiểu nổi suy nghĩ của đám thanh niên bây giờ.
-
-...
+Đan Vĩ vội ngó nghiêng xung quanh, ông phát hiện mình thực sự không thể hiểu nổi đám thanh niên thời nay nữa rồi.
 
 Ở một diễn biến khác.
 
-Triệu Kim An ngồi bên mép giường khẽ vuốt ve gò má Từ Mạn Mạn. Cô ngủ say sưa đến mức chẳng hề đổi tư thế. Triệu Kim An đứng dậy ra ngoài, đi thẳng tới công ty đầu tư nơi Từ Mạn Mạn đang làm việc.
+Triệu Kim An ngồi bên mép giường khẽ vuốt ve gò má Từ Mạn Mạn. Cô ngủ say đến mức chẳng hề trở mình. Anh rời khỏi phòng, tìm đến công ty đầu tư nơi Từ Mạn Mạn từng làm việc.
 
-"Triệu tổng của Quận Sa sao!?"
+"Triệu tổng ở Quận Sa á?!"
 
-"Ý cô là Triệu tổng của Trăn Nhiên và Cảng vụ Hoàn Vũ ấy hả!?"
+"Cô nói là Triệu tổng của Trăn Nhiên và Hoàn Vũ Cảng Vụ sao?!"
 
-Thư ký vừa đẩy cửa bước vào báo cáo, Quặng tổng liền hỏi đi hỏi lại tới hai lần, vẻ mặt lộ rõ sự kinh ngạc tột độ.
+Thư ký vừa đẩy cửa bước vào, Quảng tổng liền gặng hỏi lại hai lần liền, vẻ mặt đầy vẻ khó tin.
 
-"Dạ đúng vậy."
+"Vâng ạ."
 
-Cô thư ký gật đầu lia lịa: "Tôi đã xác nhận lại mấy lần rồi, chính là Triệu tổng của Quận Sa muốn tới công ty chúng ta."
+Thư ký gật đầu chắc nịch: "Tôi đã xác nhận đi xác nhận lại mấy lần rồi, đúng là Triệu tổng ở Quận Sa sắp ghé qua công ty mình."
 
-"Cậu ấy có nói là vì chuyện gì không?" Quặng tổng vội hỏi.
+"Anh ta có nói đến có việc gì không?"
 
-"Tôi không rõ." Thư ký lắc đầu: "Chỉ bảo là đang trên đường tới rồi."
+Quảng tổng hỏi dò.
 
-"Kỳ lạ thật... Chúng ta đâu có quen biết gì nhau."
+"Không rõ ạ."
 
-Quặng tổng suy nghĩ nát óc cũng không nhớ ra: "Trăn Nhiên với Cảng vụ Hoàn Vũ của cậu ta thì công ty chúng ta làm sao chen chân vào nổi. Động một tí là dự án đầu tư vài tỷ đô la Mỹ, có gọi vốn thì cũng chẳng đến lượt công ty chúng ta."
+Thư ký lắc đầu: "Chỉ bảo là đang trên đường tới rồi."
 
-"Chẳng lẽ là... Trăn Hối Tuyển?"
+"Không lẽ... chúng ta đâu có quen biết nhau nhỉ."
 
-"Trăn Hối Tuyển thì chúng ta còn có cửa tham gia một chân!"
+Quảng tổng vắt óc nghĩ mãi vẫn không ra: "Bên Trăn Nhiên và Hoàn Vũ Cảng Vụ của anh ta, chúng ta cũng chẳng chen chân vào nổi, động một chút là đầu tư hàng tỷ đô la Mỹ, có gọi vốn cũng chẳng đến lượt công ty mình."
 
-Quặng tổng bỗng đứng bật dậy: "Dọn dẹp ngay bàn họp, thông báo cho tất cả nhân viên bên ngoài phải chuẩn bị tinh thần và tác phong tốt nhất!"
+"Chẳng lẽ là Trăn Hối Tuyển?"
 
-"Vâng, thưa Quặng tổng." Cô thư ký cũng hưng phấn không kém.
+"Nếu là Trăn Hối Tuyển thì chúng ta còn tham gia được."
 
-Tin tức Triệu tổng của Quận Sa sắp tới lập tức lan truyền khắp toàn bộ công ty trong chớp mắt.
+Quảng tổng bật dậy khỏi ghế: "Mau dọn dẹp phòng họp cho tươm tất vào, thông báo cho mọi người bên ngoài xốc lại tinh thần, thể hiện phong thái tốt nhất ngay!"
+
+"Vâng, Quảng tổng."
+
+Cô thư ký cũng phấn khích không kém.
+
+Tin tức Triệu tổng ở Quận Sa sắp đến thăm lập tức lan truyền khắp công ty như một cơn gió.
 
 "Trăn Hối Tuyển!"
 
-Trần Tư Lương vội vã mở máy tính, lập tức tra cứu thông tin về Trăn Hối Tuyển ở Quận Sa. Phải biết người biết ta thì lát nữa mới dễ bề trao đổi, chứ không thể mù tịt một chút thông tin nào về đối phương được.
+Trần Tư Lương vội mở máy tính, lập tức tra cứu thông tin về Trăn Hối Tuyển ở Quận Sa. Có biết mình biết ta thì lát nữa mới dễ bề trao đổi, chẳng thể nào mù tịt thông tin về đối phương được.
 
-Triệu tổng khét tiếng của Quận Sa nắm trong tay ba doanh nghiệp lớn: Trăn Nhiên, Trăn Hối Tuyển và Cảng vụ Hoàn Vũ.
+Triệu tổng ở Quận Sa nắm trong tay ba công ty: Trăn Nhiên, Trăn Hối Tuyển và Hoàn Vũ Cảng Vụ.
 
-Trăn Nhiên cũng giống hệt như tập đoàn Wahaha năm xưa, giới thương trường rỉ tai nhau một câu: "Mỗi ngày thu về cả chục triệu tệ!"
+Trăn Nhiên cũng giống như Wahaha, bên ngoài đang truyền tai nhau một câu: mỗi ngày thu về hàng chục triệu tệ!
 
-Câu nói ấy vốn là lời đánh giá của tạp chí Forbes dành cho Wahaha.
+Câu này vốn là lời Forbes dùng để đánh giá Wahaha.
 
-Cảng vụ Hoàn Vũ là nơi cần nguồn vốn khủng nhất, nhưng cùng với sự phục hồi của nền kinh tế toàn cầu, lượng container cập cảng Piraeus và cảng Sài Gòn ngày một gia tăng. Một khi mỏ Kình Bối Sơn bắt đầu khai thác rầm rộ, tất cả sẽ liên tục bơm dòng tiền khổng lồ cho Hoàn Vũ.
+Hoàn Vũ Cảng Vụ là bên cần vốn nhất, nhưng theo đà phục hồi của kinh tế toàn cầu, lượng container qua lại cảng Piraeus và cảng Sài Gòn ngày một tăng, một khi mỏ núi Kình Bối chính thức khai thác nữa.
 
-Điểm mấu chốt nằm ở hai chữ "liên tục"!
+Tất cả đều sẽ mang lại dòng tiền liên tục cho Hoàn Vũ Cảng Vụ.
 
-Kình Bối Sơn có thể khai thác trong bao lâu thì chưa rõ, nhưng cảng Piraeus và cảng Sài Gòn có thể đem lại dòng tiền bền vững suốt mấy chục năm trời.
+Trọng tâm nằm ở hai chữ "liên tục"!
 
-Còn Trăn Hối Tuyển là thương hiệu ít tiếng tăm nhất, chỉ là một chuỗi siêu thị ở Quận Sa, xét về giá trị hay không gian tưởng tượng thì đều là công ty khiêm tốn nhất.
+Núi Kình Bối khai thác được bao lâu thì chưa rõ, chứ cảng Piraeus và cảng Sài Gòn có thể vận hành bền vững suốt mấy chục năm.
 
-Thế nhưng đối với một công ty đầu tư tầm trung, Trăn Hối Tuyển lại có lợi nhuận thực tế rất tốt, cực kỳ đáng để rót vốn. Còn tầm cỡ như Walmart thì họ cũng chẳng có gan ôm đồm, đó là sân chơi của các ngân hàng đầu tư quốc tế.
+Trăn Hối Tuyển là cái tên ít tiếng tăm nhất, chỉ là một chuỗi siêu thị ở Quận Sa, cũng là công ty ít giá trị và ít dư địa tưởng tượng nhất.
 
-Quặng tổng dẫn theo dàn lãnh đạo đứng ở sảnh thang máy hồi hộp chờ đợi.
+Nhưng với một công ty đầu tư thông thường mà nói, Trăn Hối Tuyển đang làm ăn có lãi, hoàn toàn xứng đáng để rót vốn.
 
-Trong lòng ông ta vẫn cảm thấy có chút khó hiểu, mọi chuyện đến quá đỗi đột ngột.
+Chứ tầm cỡ như Walmart thì bọn họ cũng chẳng với tới nổi, loại đó chỉ có các ngân hàng đầu tư quốc tế mới đủ sức tham gia.
 
-"Ở đây có ai quen biết Triệu tổng không?"
+Quảng tổng dẫn theo nhân sự đứng chờ sẵn trước sảnh thang máy để nghênh đón Triệu tổng ở Quận Sa.
 
-Mọi người vừa chỉnh lại cà vạt vừa nhìn nhau, đồng loạt lắc đầu.
+Trong lòng ông ta vẫn thấy hơi khó hiểu, chuyến ghé thăm này đột ngột quá mức.
 
-"Quặng tổng, cả ba công ty của Triệu tổng xưa nay chưa từng để lộ bất kỳ phong thanh nào về việc gọi vốn, chúng tôi làm sao có cơ hội liên hệ với cậu ấy chứ?"
+"Trong số các anh có ai quen Triệu tổng không?"
 
-Quặng tổng gật gù, lại hỏi thêm: "Vậy trước đây Triệu tổng có từng gửi bản kế hoạch kinh doanh nào tới công ty chúng ta mà bị chúng ta bỏ sót không?"
+Mọi người chỉnh lại cà vạt, nhìn nhau ngơ ngác rồi đồng loạt lắc đầu.
 
-"Dạ không có." Thư ký khẳng định chắc nịch: "Hồ sơ của khu vực Quận Sa tôi đã lật tung lên tìm hết một lượt rồi."
+"Quảng tổng, cả ba công ty của Triệu tổng đều chưa từng rò rỉ tin tức muốn gọi vốn, bên mình làm sao có cớ để liên hệ với anh ta được."
+
+Quảng tổng gật đầu, lại hỏi tiếp: "Thế trước đây Triệu tổng có từng gửi bản kế hoạch kinh doanh nào cho công ty mình mà chúng ta vô tình bỏ sót không?"
+
+"Không có ạ."
+
+Thư ký trả lời đầy chắc chắn: "Tất cả hồ sơ gửi từ Quận Sa tôi đã kiểm tra lại hết một lượt rồi."
 
 "Thế thì tốt."
 
-Quặng tổng chỉ sợ hồi Triệu Kim An mới khởi nghiệp từng vác hồ sơ đến công ty xin gọi vốn rồi bị từ chối, bây giờ quay lại vỗ mặt: "Thấy chưa, mắt nhìn người của các người kém cỏi quá!"
+Quảng tổng chỉ sợ hồi Triệu Kim An mới khởi nghiệp từng đến đây tìm vốn bị từ chối, giờ thành đạt rồi quay lại vả mặt: Thấy chưa, hồi đó các người đúng là có mắt như mù!
 
-Thang máy từ từ đi lên, một tiếng "đinh" vang lên giòn giã.
+Thang máy từ từ đi lên, vang lên một tiếng "ting" thanh thúy.
 
-"Triệu tổng đấy ư?"
+"Triệu tổng?"
 
 "Chào anh."
 
-Quặng tổng nở nụ cười niềm nở, nhiệt tình chìa tay ra: "Chào mừng Triệu tổng quang lâm."
+Quảng tổng nở nụ cười niềm nở, nhiệt tình đưa tay ra: "Triệu tổng, hoan nghênh anh ghé thăm."
 
-Triệu Kim An lúc đi không đánh thức Từ Mạn Mạn, đưa tay bắt tay với Quặng tổng.
-
-"..."
-
-Mấy cô nhân viên nữ trong công ty lập tức nhìn anh với ánh mắt đầy ngưỡng mộ mê đắm. Triệu tổng trẻ tuổi quá mức tưởng tượng, trông người thật bên ngoài còn phong độ, điển trai hơn cả trên các đoạn video phỏng vấn.
-
-"Triệu tổng, không biết hôm nay ngài đích thân ghé thăm..."
-
-Quặng tổng vừa niềm nở tiếp đón vừa dẫn Triệu Kim An bước vào văn phòng. Triệu Kim An đứng giữa khu văn phòng rộng lớn đảo mắt nhìn quanh một lượt. Quặng tổng hơi do dự rồi đưa tay làm động tác mời, ướm lời: "Triệu tổng, mời ngài qua phòng họp bên này. Có phải ngài muốn bàn về dự án Trăn Hối Tuyển không ạ...?"
-
-"Trăn Hối Tuyển sao?"
-
-Triệu Kim An liếc nhìn Quặng tổng: "Cũng được thôi."
-
-"Vậy mời ngài đi lối này!"
-
-Nghe thấy câu nói ấy, cả đám nhân viên bỗng chốc lên tinh thần. Các nhóm dự án ai nấy đều thèm muốn giành lấy cơ hội này, bởi đây là thương vụ chắc thắng không lỗ, chỉ là kiếm được nhiều hay ít mà thôi.
-
-"Có điều, các anh không phải đàm phán với tôi."
-
-Triệu Kim An đưa mắt nhìn quanh: "Bàn làm việc của Từ Mạn Mạn là cái nào?"
-
-"Từ Mạn Mạn sao!?"
-
-Tất cả mọi người đều đồng loạt sững sờ.
-
-"Đúng vậy, các anh cứ tìm Từ Mạn Mạn mà bàn bạc."
-
-Triệu Kim An sải bước đi thẳng tới bàn làm việc của Từ Mạn Mạn: "Cô ấy muốn gọi vốn kiểu gì cũng được. Trăn Hối Tuyển định giá bao nhiêu, gọi bao nhiêu vốn, chỉ cần cô ấy gật đầu là xong."
-
-Quan Văn Bách và Chu Hoa Phong đứng phía sau giữ nét mặt lạnh tanh, nhưng trong lòng thì đang cố nhịn cười đến nội thương.
-
-"Từ tổng mà thèm bàn bạc với các người sao?"
-
-"Ông chủ đã bảo là kiếm tiền mua sữa bột rồi, Từ tổng lại chẳng phải dốc sức vơ vét tiền sữa bột hay sao?"
+Triệu Kim An không đánh thức Từ Mạn Mạn, một mình đến đây, anh đưa tay bắt lấy tay Quảng tổng.
 
 "..."
 
-Lúc này, người của phòng nhân sự mới chợt giật mình nhớ ra, trong sơ yếu lý lịch của Từ Mạn Mạn dường như từng có thời gian làm việc tại Trăn Hối Tuyển...
+Mấy nữ nhân viên trong công ty nhìn đến ngẩn ngơ. Vị Triệu tổng này trẻ quá sức tưởng tượng, ngoài đời còn tuấn tú hơn trong các đoạn phim phỏng vấn nhiều.
 
-"Trời đất ơi, cô bé đó... đang mang trong mình giọt máu của Triệu tổng Quận Sa sao?"
+"Triệu tổng, không biết hôm nay anh ghé qua đây là có..."
 
-"Rước về một vị đại Bồ Tát ngút trời như thế, vậy mà chúng ta lại dám đuổi việc cô ấy ư!?"
+Quảng tổng tháp tùng Triệu Kim An bước vào văn phòng. Triệu Kim An đứng giữa khu làm việc lớn đảo mắt nhìn quanh một lượt. Quảng tổng thoáng do dự rồi đưa tay làm động tác mời, dè dặt hỏi: "Triệu tổng, mời anh sang phòng họp bên này."
 
-Đây rốt cuộc là cái trò hề gì thế này?
+"Không biết có phải chuyện bên Trăn Hối Tuyển không ạ...?"
 
-Ở rất nhiều doanh nghiệp, đặc biệt là trong ngành tài chính, các mối quan hệ nhân mạch chính là thực lực cốt lõi.
+"Trăn Hối Tuyển à?"
 
-Chẳng hạn như trong ngân hàng, nếu bạn có thể kéo về nguồn tiền gửi khổng lồ và các khoản vay chất lượng cao, thì việc phong cho bạn một chức Phó giám đốc chi nhánh cũng chẳng thành vấn đề.
+Triệu Kim An liếc nhìn Quảng tổng: "Cũng được đấy."
 
-Hay như trong ngành y tế và điện lực, có thể năng lực chuyên môn của cá nhân đó chỉ ở mức bình thường, nhưng chỉ cần người ta nhấc một cuộc điện thoại là có thể điều động được bao nhiêu đàn anh đàn chị, viện sĩ đầu ngành hay bậc thầy lão làng đến trợ giúp!
+"Vậy mời anh đi lối này!"
+
+Nghe thấy câu đó, tinh thần mọi người lập tức phấn chấn hẳn lên, nhóm nào cũng khấp khởi muốn giành lấy dự án này. Đây là thương vụ đầu tư chắc chắn có lãi, chỉ là vấn đề lãi ít hay lãi nhiều mà thôi.
+
+"Nhưng mà không phải bàn với tôi."
+
+Triệu Kim An nhìn trái ngó phải: "Bàn làm việc của Từ Mạn Mạn là chỗ nào?"
+
+"Từ Mạn Mạn?!"
+
+Tất cả mọi người đều sững sờ.
+
+"Đúng vậy, các anh cứ đi tìm Từ Mạn Mạn mà bàn."
+
+Triệu Kim An sải bước về phía bàn làm việc của Từ Mạn Mạn: "Cô ấy muốn gọi vốn thế nào cũng được, Trăn Hối Tuyển định giá bao nhiêu, rót vốn bao nhiêu, chỉ cần cô ấy gật đầu là xong."
+
+Quan Văn Bách và Chu Phong Hoa giữ nguyên vẻ mặt nghiêm nghị, nhưng trong bụng đang cố nhịn cười.
+
+"Từ tổng có rảnh để bàn bạc với các người không đấy?"
+
+"Ông chủ đã nhắc đến chuyện tiền sữa bỉm rồi, Từ tổng chẳng lẽ lại không ra sức kiếm tiền mua sữa cho con hay sao?"
+
+"..."
+
+Lúc này bộ phận nhân sự của công ty mới sực nhớ ra, trong sơ yếu lý lịch của Từ Mạn Mạn hình như đúng là từng làm việc tại Trăn Hối Tuyển...
+
+"Trời đất ơi, cô bé kia đang mang thai con của Triệu tổng ở Quận Sa sao?!"
+
+"Một vị bồ tát sống sờ sờ thế mà công ty mình lại nỡ đuổi việc cô ấy à?!"
+
+Đây là tình huống quái quỷ gì thế này?
+
+Ở rất nhiều doanh nghiệp, đặc biệt là trong ngành tài chính, quan hệ chính là thực lực.
+
+Ví dụ như ở ngân hàng, chỉ cần bạn kéo được nguồn tiền gửi và các khoản vay chất lượng về, có treo cho bạn cái chức phó giám đốc chi nhánh cũng chẳng thành vấn đề.
+
+Hoặc như trong ngành y dược hay điện lực chẳng hạn, có thể năng lực cá nhân người ta chỉ ở mức bình thường, nhưng chỉ cần một cuộc điện thoại là gọi được bao nhiêu đàn anh đàn chị hay các bậc thầy đầu ngành đến hỗ trợ

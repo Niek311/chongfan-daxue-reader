@@ -1,7 +1,5 @@
 # Chương 448: Chú kỳ lân
 
-> **Tiêu đề gốc**: 第448章 独角兽。
-
 Hai chị em Trương Tuệ và Trương Vân Thiến nằm sấp trên giường, chăm chú xem đoạn video do Mộc Dao chuyển tiếp sang.
 
 Mặc quần âu, chân đi giày da chơi bóng rổ trên sân... Không chỉ riêng một mình Triệu Kim An, mà cả đám người trong khung hình đều diện độc một kiểu trang phục: quần âu, áo sơ mi trắng và giày da bóng lộn. Nhóm người Uông tổng lúc bấy giờ vẫn chỉ là những gương mặt vô danh tiểu tốt trong giới công nghệ, chưa một ai từng nghe danh biết tiếng.
@@ -48,11 +46,11 @@ Uông tổng chỉ sợ Triệu Kim An đổi ý nuốt lời, liền kéo xộc
 
 "Uông tổng cứ yên tâm, lời Triệu mỗ nói ra như đinh đóng cột, cược thua nhận thua."
 
-Triệu Kim An chỉ sợ phía Viễn Chiêm tranh giành bớt phần cổ phần béo bở này, nhưng ngoài mặt lại không hề tỏ vẻ vội vã, hấp tấp muốn ký kết ngay. Anh còn vờ vịt liếc xéo Đơn Vĩ và Đặng Thần Bình một cái đầy hậm hực.
+Triệu Kim An chỉ sợ phía Viễn Chiêm tranh giành bớt phần cổ phần béo bở này, nhưng ngoài mặt lại không hề tỏ vẻ vội vã, hấp tấp muốn ký kết ngay. Anh còn vờ vịt liếc xéo Đan Vĩ và Đặng Thần Bình một cái đầy hậm hực.
 
 "..."
 
-Đơn Vĩ và Đặng Thần Bình rụt cổ lại như rùa rụt đầu. Sếp chơi ván cược lớn quá, bọn em có biết ném bóng rổ bao giờ đâu!
+Đan Vĩ và Đặng Thần Bình rụt cổ lại như rùa rụt đầu. Sếp chơi ván cược lớn quá, bọn em có biết ném bóng rổ bao giờ đâu!
 
 Uông tổng suýt nữa bật cười thành tiếng, thầm cảm ơn vị Triệu tổng đất Quận Sa có hai gã đồng đội phá đám cực kỳ đắc lực.
 

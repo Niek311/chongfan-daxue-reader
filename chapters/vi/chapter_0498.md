@@ -1,7 +1,5 @@
 # Chương 498: Tình tỷ muội thắm thiết?
 
-> **Tiêu đề gốc**: 第498章 姐妹情深？
-
 "Ừm."
 
 Cốc Siêu Thừa khẽ gật đầu: "Kim An từ đầu tới giờ chưa từng quay về Quận Sa, không một bạn học nào nhìn thấy cậu ấy cả. Lúc Lý Văn Húc khai trương quán, cả Đường Hiểu Tình lẫn Lý Ngải Lan đều không tới, dù vị trí quán nằm ngay sát bên trung tâm thương mại của bọn họ..."

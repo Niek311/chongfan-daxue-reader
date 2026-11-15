@@ -1,7 +1,5 @@
 # Chương 282: Trả tiền
 
-> **Tiêu đề gốc**: 第282章 还钱。
-
 Triệu Kim An khi vừa mới trọng sinh trở về, tâm tính còn hắc hóa, từng thầm nói với bà nội một câu lạnh lùng như thế.
 
 Lúc ấy anh chưa hề quen biết Tô Miến, Thẩm Tử Ngôn hay Từ Mạn Mạn, câu nói đó phần lớn là nhắm vào Trần Thanh Trĩ.

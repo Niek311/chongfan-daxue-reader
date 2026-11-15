@@ -1,7 +1,5 @@
 # Chương 344: Chẳng có ai hợp chất thôn quê.
 
-> **Tiêu đề gốc**: 第344章 没一个接地气的。
-
 "Kim An, mau về nhà đi thôi, bà nội đang đứng ngoài cổng ngóng anh kìa."
 
 Trương Ngọc Ny nuốt nước bọt ừng ực, sốt ruột giục giã.
@@ -38,7 +36,7 @@ Nói đoạn, Vương Kim Như vung tay đấm nhẹ vào bắp tay Triệu Kim 
 
 "Thím này..."
 
-Triệu Kim An cười tươi rói chịu đòn. Mẹ ruột Đoàn Thu Bình sẽ không bao giờ có những cử chỉ thân mật bộc trực như thế này. Vương Kim Như đảo mắt lườm nguýt: "Chẳng biết cái mặt này giống ai nữa."
+Triệu Kim An cười tươi rói chịu đòn. Mẹ ruột Đoạn Thu Bình sẽ không bao giờ có những cử chỉ thân mật bộc trực như thế này. Vương Kim Như đảo mắt lườm nguýt: "Chẳng biết cái mặt này giống ai nữa."
 
 "Chị lại nói nhăng nói cuội gì thế hả?" Bà nội đứng cạnh tỏ vẻ không vui.
 

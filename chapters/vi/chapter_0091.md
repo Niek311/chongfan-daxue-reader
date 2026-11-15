@@ -1,7 +1,5 @@
 # Chương 91: Đúng là không phải một nhà, không vào cùng một cửa
 
-> **Tiêu đề gốc**: 第91章 不是一家人不进一家门。
-
 Đứng bên cạnh, Vương Kim Như nghe hai người đối đáp mà bĩu môi một cái thật dài.
 
 Chao ôi, đúng là trời sinh một cặp, tuyệt phối không chê vào đâu được!
@@ -88,7 +86,7 @@ Doãn Hiểu Lan chính là cánh tay đắc lực nhất của bà nội, tính
 
 Triệu Quốc Hoa đứng xem một lúc, sau đó lẳng lặng bước ra chỗ vắng để gọi điện thoại cho hai người cô ruột của Triệu Kim An.
 
-Mức độ "giàu có" của Tô Miến đã hoàn toàn vượt xa những phán đoán ngày hôm qua của Triệu Quốc Hoa. Triệu Quốc Khánh đã qua đời, Đoàn Thu Bình thì tái giá nhiều năm, chú ruột như Triệu Quốc Hoa cùng hai người cô dĩ nhiên sẽ càng thêm lưu tâm đến chuyện "cháu dâu" tương lai.
+Mức độ "giàu có" của Tô Miến đã hoàn toàn vượt xa những phán đoán ngày hôm qua của Triệu Quốc Hoa. Triệu Quốc Khánh đã qua đời, Đoạn Thu Bình thì tái giá nhiều năm, chú ruột như Triệu Quốc Hoa cùng hai người cô dĩ nhiên sẽ càng thêm lưu tâm đến chuyện "cháu dâu" tương lai.
 
 Đã rất nhiều năm rồi, căn nhà của Triệu Kim An và Triệu Quốc Hoa mới lại nhộn nhịp, tưng bừng đến nhường này.
 

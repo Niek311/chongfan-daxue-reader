@@ -1,7 +1,5 @@
 # Chương 190: Dương Thù Mỹ trở về
 
-> **Tiêu đề gốc**: 第190章 杨姝美回来了。
-
 "Chỉ vì bấy nhiêu thôi ư!?"
 
 Giọng điệu Dương Thù Mỹ đanh lại, vô cùng gay gắt. Có lẽ đây chính là khoảng cách thế hệ giữa hai mẹ con.

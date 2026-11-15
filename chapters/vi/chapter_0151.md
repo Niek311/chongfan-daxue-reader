@@ -1,7 +1,5 @@
 # Chương 151: Để mọi người chê cười rồi
 
-> **Tiêu đề gốc**: 第151章 让你们见笑了。
-
 "Giám đốc Triệu, Giám đốc Lạc."
 
 Tưởng Chỉ Tình khẽ mỉm cười gật đầu, cất tiếng chào Triệu Kim An và Lạc Cẩn Chi.
@@ -58,7 +56,7 @@ Suốt cả chặng đường đi, Tưởng Chỉ Tình đều im lặng, lúc q
 
 Cô cứ lặng lẽ đi phía sau dắt tay con gái. Bé Tưởng Uyển Nhi dường như rất ngoan ngoãn, không hề quấy khóc, cũng chẳng nũng nịu đòi mẹ bế.
 
-Mãi đến khi về tới xưởng đồ hộp, Tưởng Chỉ Tình mới khẽ gọi mọi người dừng lại một chút. Cô vội vã chạy vào trong mang ra mấy lọ lê đóng hộp, mời Triệu Kim An và Lạc Cẩn Chi nếm thử, cả Triệu Quốc Hoa lẫn Đơn Vĩ cũng đều có phần.
+Mãi đến khi về tới xưởng đồ hộp, Tưởng Chỉ Tình mới khẽ gọi mọi người dừng lại một chút. Cô vội vã chạy vào trong mang ra mấy lọ lê đóng hộp, mời Triệu Kim An và Lạc Cẩn Chi nếm thử, cả Triệu Quốc Hoa lẫn Đan Vĩ cũng đều có phần.
 
 Đợi mọi người nhận lấy, Tưởng Chỉ Tình khẽ gật đầu chào rồi lại dắt con gái bước vào trong khuôn viên xưởng.
 
@@ -80,7 +78,7 @@ Người xưa có câu: quan huyện không bằng người quản trực tiếp
 
 Nhóm Lạc Cẩn Chi đã ở đây được một thời gian. Khi mọi thủ tục hành chính hoàn tất và thỏa thuận xong xuôi với thôn, cô liền gọi điện bố trí đội thi công tiến vào công trường, đồng thời gọi cả Bành Trung Ngạn – quản đốc nhà máy ở Tư Tinh – tới hỗ trợ. Về mảng thi công xây dựng thì ông ấy là người dày dặn kinh nghiệm nhất.
 
-Đơn Vĩ cũng đã đoán ra, Triệu Quốc Hoa sau này nhiều khả năng sẽ đảm nhận vị trí quản đốc nhà máy nước Tư Tinh, chuyến đi này thực chất là để ông tích lũy kinh nghiệm thực tế.
+Đan Vĩ cũng đã đoán ra, Triệu Quốc Hoa sau này nhiều khả năng sẽ đảm nhận vị trí quản đốc nhà máy nước Tư Tinh, chuyến đi này thực chất là để ông tích lũy kinh nghiệm thực tế.
 
 Trong bữa ăn mì, Lạc Cẩn Chi tò mò hỏi thăm về người chồng quá cố của Tưởng Chỉ Tình. Sau khi nghe xong câu chuyện, cô không khỏi có chút xúc động.
 
@@ -168,7 +166,7 @@ Mỗi lần đi ngang qua xưởng, công nhân ở đây đúng nghĩa làm m�
 
 Cũng may toàn bộ công nhân đều là người trong làng, ai nấy chỉ mong kiếm thêm được đồng nào hay đồng nấy, bằng không có lẽ Tưởng Chỉ Tình còn chẳng đủ sức cáng đáng nổi tiền lương cho họ.
 
-Đơn Vĩ lại nhắc tới xưởng làm đũa tre ở quê mình, bảo tình cảnh cũng y hệt như vậy, lúc nào có tre thì tụ tập làm việc, khi không thu mua được tre thì lại ai về nhà nấy làm ruộng.
+Đan Vĩ lại nhắc tới xưởng làm đũa tre ở quê mình, bảo tình cảnh cũng y hệt như vậy, lúc nào có tre thì tụ tập làm việc, khi không thu mua được tre thì lại ai về nhà nấy làm ruộng.
 
 Hẻm Tưởng Gia không có tuyết lớn, ngày nào trời cũng lất phất vài hạt mưa phùn.
 

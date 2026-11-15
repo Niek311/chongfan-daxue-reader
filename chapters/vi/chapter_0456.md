@@ -1,7 +1,5 @@
 # Chương 456: Cảm ơn, xin lỗi
 
-> **Tiêu đề gốc**: 第456章 谢谢，对不起。
-
 Quan Văn Bách ở lại chịu trách nhiệm lái xe đưa họ hàng nhà Đồng Nghệ Mẫn về lại nhà Tôn Cảnh Phong.
 
 Tôn Cảnh Phong chưa sắm ô tô, Từ Tắc Đống có chiếc Santana, còn dượng hai thì chạy con Jetta. Lúc chia tay, Quan Văn Bách xin một tấm danh thiếp của Đồng Nghệ Mẫn rồi nói: "Sau này có nhu cầu mua xe, tôi nhất định sẽ tìm chị."
@@ -22,17 +20,17 @@ Từ Mạn Mạn được đưa vào bệnh viện nằm chờ sinh.
 
 Thím Vương Kim Như bắt chuyến tàu cao tốc chạy thẳng tới Quận Sa. Không một ai báo cho Đoạn Thu Bình hay biết, bà hoàn toàn chẳng mảy may hay biết chuyện gì.
 
-Đoạn Thu Bình lúc này chỉ mải miết tính xem ngày dự sinh của Tô Miện chừng nào tới. Ngay cả Tống Uyển Hòa cũng bồn chồn ngóng trông, quay sang bảo với Tống Gia Nguyệt: "Tiểu Nguyệt à, em sắp sửa được làm cô út rồi đấy nhé."
+Đoạn Thu Bình lúc này chỉ mải miết tính xem ngày dự sinh của Tô Miến chừng nào tới. Ngay cả Tống Uyển Hòa cũng bồn chồn ngóng trông, quay sang bảo với Tống Gia Nguyệt: "Tiểu Nguyệt à, em sắp sửa được làm cô út rồi đấy nhé."
 
 Tống Gia Nguyệt còn quá ngây thơ, chẳng hiểu những lời ấy có ý nghĩa gì.
 
-Tống Siêu Văn hiếm hoi lắm mới mở lời hỏi han một câu, ông ướm hỏi Đoạn Thu Bình: "Tô Miện mang thai mà bên này chúng ta trước giờ chưa từng có chút biểu thị nào, liệu có nên gửi chút quà cáp để tỏ chút tấm lòng không bà?"
+Tống Siêu Văn hiếm hoi lắm mới mở lời hỏi han một câu, ông ướm hỏi Đoạn Thu Bình: "Tô Miến mang thai mà bên này chúng ta trước giờ chưa từng có chút biểu thị nào, liệu có nên gửi chút quà cáp để tỏ chút tấm lòng không bà?"
 
 Đoạn Thu Bình đáp gọn lỏn: "Không gửi sang đó được đâu."
 
 "Thế nào gọi là không gửi được?" Tống Siêu Văn không hiểu.
 
-Đến như thím Vương Kim Như và bà nội muốn gửi chút sản vật quê hương cho Tô Miện tẩm bổ còn khó khăn trăm bề, cái kiểu "khu nhà biệt viện" tầng lớp đó đâu phải là nơi nhân viên chuyển phát nhanh có thể tùy tiện ra vào. Huống chi, Tô Miện xưa nay chưa từng chủ động liên lạc với Đoạn Thu Bình lấy một lần.
+Đến như thím Vương Kim Như và bà nội muốn gửi chút sản vật quê hương cho Tô Miến tẩm bổ còn khó khăn trăm bề, cái kiểu "khu nhà biệt viện" tầng lớp đó đâu phải là nơi nhân viên chuyển phát nhanh có thể tùy tiện ra vào. Huống chi, Tô Miến xưa nay chưa từng chủ động liên lạc với Đoạn Thu Bình lấy một lần.
 
 Trong phòng bệnh, Vương Kim Như gọt quả táo cắn ăn giòn rụm, quay sang hỏi Từ Mạn Mạn: "Mạn Mạn, có căng thẳng không cháu?"
 
@@ -90,17 +88,17 @@ Vẫn chưa thấy có dấu hiệu chuyển dạ, Lưu Hiểu Tĩnh ngày đêm
 
 Lưu Hiểu Tĩnh ngoảnh đầu lại nhìn Đường Hiểu Tình, quả "mẹ nhỏ" này kể ra có phần hơi bị "khủng" đấy, đây chính là mẹ nhỏ của trưởng công tử hoặc trưởng công chúa cơ mà.
 
-"Haizz, cái cô Diêu Tân lớp bọn họ, thật là..."
+"Haizz, cái cô Diêu Sân lớp bọn họ, thật là..."
 
 Đường Hiểu Tình không suy tính sâu xa đến thế. Mối quan hệ giữa cô và Triệu Kim An ở công ty xưa nay chẳng cần phải dựa dẫm vào danh xưng "mẹ nhỏ" để tăng thêm sức nặng. Ngay cả hồi Thẩm Tử Ngôn còn nắm quyền ở công ty, cùng với Từ Mạn Mạn cũng chưa từng một lần nào gây khó dễ hay nhắm vào Đường Hiểu Tình.
 
-Thế nhưng trong lòng đám người Lưu Hiểu Tĩnh, Diêu Tân mới đích thị là "kẻ được số phận ưu ái" nhất trần đời — vừa là bạn cùng phòng ký túc xá đại học của cả Thẩm tổng lẫn Từ tổng, lại là bạn học cùng lớp với thư ký Du Phi. Triệu Kim An gánh vác nhiều công ty lớn nhỏ như thế, liệu có thể chuyện to chuyện nhỏ gì cũng đích thân quán xuyến hết được chăng?
+Thế nhưng trong lòng đám người Lưu Hiểu Tĩnh, Diêu Sân mới đích thị là "kẻ được số phận ưu ái" nhất trần đời — vừa là bạn cùng phòng ký túc xá đại học của cả Thẩm tổng lẫn Từ tổng, lại là bạn học cùng lớp với thư ký Du Phi. Triệu Kim An gánh vác nhiều công ty lớn nhỏ như thế, liệu có thể chuyện to chuyện nhỏ gì cũng đích thân quán xuyến hết được chăng?
 
-Thế nhưng kết quả thì sao? Đến một bóng hình của Diêu Tân cũng chẳng thấy tăm hơi đâu.
+Thế nhưng kết quả thì sao? Đến một bóng hình của Diêu Sân cũng chẳng thấy tăm hơi đâu.
 
 Triệu Kim An ghé qua bệnh viện cũng thoáng thấy lạ lùng, nhưng anh không mở miệng gặng hỏi.
 
-Trong suy nghĩ của Lưu Hiểu Tĩnh, Diêu Tân chẳng khác nào người nắm trọn trong tay đôi phăng teo, bốn con heo cùng tứ quý át, thế mà đánh ván bài tiến lên cuối cùng lại thua trắng mắt.
+Trong suy nghĩ của Lưu Hiểu Tĩnh, Diêu Sân chẳng khác nào người nắm trọn trong tay đôi phăng teo, bốn con heo cùng tứ quý át, thế mà đánh ván bài tiến lên cuối cùng lại thua trắng mắt.
 
 "Hì hì."
 
@@ -130,7 +128,7 @@ Từ Mạn Mạn cuống cuồng thực sự, lỡ đâu Triệu Kim An thần k
 
 Đường Hiểu Tình và Từ Mạn Mạn ôm nhau cười ngặt nghẽo. Đợt Triệu Kim An đi Kinh Đô, kỳ nghỉ giao thừa năm ấy Đường Hiểu Tình thực sự đã ngủ cùng Từ Mạn Mạn trong phòng ngủ chính, hai người đắp chung một tấm chăn.
 
-Đường Hiểu Tình từng nói với Triệu Kim An: Quan Linh không sạch sẽ, Tô Miện sạch sẽ, Mạn Mạn sạch sẽ, Tử Ngôn sạch sẽ...
+Đường Hiểu Tình từng nói với Triệu Kim An: Quan Linh không sạch sẽ, Tô Miến sạch sẽ, Mạn Mạn sạch sẽ, Tử Ngôn sạch sẽ...
 
 Từ Mạn Mạn cũng cảm nhận được Đường Hiểu Tình là người thuần khiết, trong sáng, chẳng có toan tính vụ lợi.
 
@@ -152,47 +150,47 @@ Thời gian: 00:42.
 
 Số lạ: Chúc vượt cạn an toàn, mẹ tròn con vuông.
 
-Đây là lần đầu tiên Tô Miện chủ động liên lạc với Từ Mạn Mạn. Từ Mạn Mạn hiểu rõ tin nhắn này mang sức nặng thế nào. Đó không hẳn là sự công nhận, mà là Tô Miện không muốn Từ Mạn Mạn phải gánh chịu bất kỳ áp lực tâm lý nào.
+Đây là lần đầu tiên Tô Miến chủ động liên lạc với Từ Mạn Mạn. Từ Mạn Mạn hiểu rõ tin nhắn này mang sức nặng thế nào. Đó không hẳn là sự công nhận, mà là Tô Miến không muốn Từ Mạn Mạn phải gánh chịu bất kỳ áp lực tâm lý nào.
 
 Hơn nữa, bốn chữ phía sau chính là: Mẹ tròn con vuông!
 
-Tô Miện đang ngầm nhắc nhở Từ Mạn Mạn đừng để những lời đàm tiếu bên ngoài làm lung lạc tâm can. Miệng lưỡi thế gian, nhân viên công ty cùng những người xung quanh có quá nhiều lời xì xào bàn tán, đến mức Từ Mạn Mạn cho đến tận bây giờ vẫn chưa từng một lần dám lộ diện ở công ty.
+Tô Miến đang ngầm nhắc nhở Từ Mạn Mạn đừng để những lời đàm tiếu bên ngoài làm lung lạc tâm can. Miệng lưỡi thế gian, nhân viên công ty cùng những người xung quanh có quá nhiều lời xì xào bàn tán, đến mức Từ Mạn Mạn cho đến tận bây giờ vẫn chưa từng một lần dám lộ diện ở công ty.
 
 Thím Vương Kim Như lặn lội lên Quận Sa cũng chưa từng dắt Từ Mạn Mạn đi dạo chuỗi siêu thị Trăn Hối Tuyển. Phải biết rằng Vương Kim Như chính là "Vương giám đốc" danh chính ngôn thuận của Trăn Hối Tuyển, cớ sao bà lại chẳng đến đó để phô trương thanh thế?
 
-Vương Kim Như là người trông thì bộc trực ruột để ngoài da nhưng bên trong lại thấu hiểu sự đời, bà biết rõ mình phải giữ gìn thể diện tuyệt đối cho Tô Miện.
+Vương Kim Như là người trông thì bộc trực ruột để ngoài da nhưng bên trong lại thấu hiểu sự đời, bà biết rõ mình phải giữ gìn thể diện tuyệt đối cho Tô Miến.
 
-Từ Mạn Mạn cũng ngầm hiểu ý mà không hề vác chiếc bụng bầu vượt mặt tới công ty, bằng không thì bảo một Tô Miện đang đi lại bất tiện ngoài Kinh Đô biết giấu mặt vào đâu? Bao nhiêu con mắt nhân viên dưới trướng sẽ dị nghị, bàn tán ra sao?
+Từ Mạn Mạn cũng ngầm hiểu ý mà không hề vác chiếc bụng bầu vượt mặt tới công ty, bằng không thì bảo một Tô Miến đang đi lại bất tiện ngoài Kinh Đô biết giấu mặt vào đâu? Bao nhiêu con mắt nhân viên dưới trướng sẽ dị nghị, bàn tán ra sao?
 
 Từ Mạn Mạn siết chặt chiếc điện thoại trong lòng bàn tay, cẩn trọng cân nhắc từng câu từng chữ.
 
-Cô biết chắc chắn tin nhắn này là do chính Tô Miện gửi tới.
+Cô biết chắc chắn tin nhắn này là do chính Tô Miến gửi tới.
 
-Từ Mạn Mạn: Tô Miện, cảm ơn chị.
+Từ Mạn Mạn: Tô Miến, cảm ơn chị.
 
 Từ Mạn Mạn: Chị dạo này thế nào rồi?
 
-Tô Miện: Rất tốt.
+Tô Miến: Rất tốt.
 
 Từ Mạn Mạn: Em bị nghén dữ dội lắm, chị có bị nghén không?
 
-Tô Miện: Không, chỉ là hay thèm ngủ thôi.
+Tô Miến: Không, chỉ là hay thèm ngủ thôi.
 
-Không một ai nhắc lại chuyện "chẳng mấy vui vẻ" tại khuôn viên trường đại học dạo nọ, cũng chẳng ai để bụng điều đó. Khi ấy Tô Miện ra mặt là vì muốn bảo vệ Triệu Kim An, tuyệt nhiên không phải vì tư thù cá nhân.
+Không một ai nhắc lại chuyện "chẳng mấy vui vẻ" tại khuôn viên trường đại học dạo nọ, cũng chẳng ai để bụng điều đó. Khi ấy Tô Miến ra mặt là vì muốn bảo vệ Triệu Kim An, tuyệt nhiên không phải vì tư thù cá nhân.
 
-Tô Miện: Mấy tháng nay rồi, em không cần phải ngày nào cũng giấu mình trong nhà nữa đâu. Ở cữ xong xuôi cứ việc đến công ty làm việc, không sao cả. Chân chị không đi lại được, không tiện đỡ đần Kim An quán xuyến công việc, em hãy thay chị giúp anh ấy cho thật tốt.
+Tô Miến: Mấy tháng nay rồi, em không cần phải ngày nào cũng giấu mình trong nhà nữa đâu. Ở cữ xong xuôi cứ việc đến công ty làm việc, không sao cả. Chân chị không đi lại được, không tiện đỡ đần Kim An quán xuyến công việc, em hãy thay chị giúp anh ấy cho thật tốt.
 
-Tô Miện: Đừng để chị biết em có hai lòng, bằng không thì trời cũng không cứu nổi em đâu.
+Tô Miến: Đừng để chị biết em có hai lòng, bằng không thì trời cũng không cứu nổi em đâu.
 
-Đây đúng là phong thái rất đỗi Tô Miện.
+Đây đúng là phong thái rất đỗi Tô Miến.
 
-Từ Mạn Mạn hiểu rõ Tô Miện đang muốn ám chỉ đến Trần Trạch hay bất kỳ người đàn ông nào khác, ám chỉ cái ngày bước chân lên tầng thượng năm ấy. Tô Miện chuyện gì cũng nắm tường tận như lòng bàn tay.
+Từ Mạn Mạn hiểu rõ Tô Miến đang muốn ám chỉ đến Trần Trạch hay bất kỳ người đàn ông nào khác, ám chỉ cái ngày bước chân lên tầng thượng năm ấy. Tô Miến chuyện gì cũng nắm tường tận như lòng bàn tay.
 
-Từ Mạn Mạn: Sẽ không bao giờ có chuyện đó đâu, Tô Miện. Em và con có thể từ bỏ mọi sản nghiệp, em sẵn sàng ký thỏa thuận.
+Từ Mạn Mạn: Sẽ không bao giờ có chuyện đó đâu, Tô Miến. Em và con có thể từ bỏ mọi sản nghiệp, em sẵn sàng ký thỏa thuận.
 
-Tô Miện: Những chuyện ấy đừng nhắc tới làm gì, chị tin em. Mặc kệ người đời bàn tán xì xào ra sao.
+Tô Miến: Những chuyện ấy đừng nhắc tới làm gì, chị tin em. Mặc kệ người đời bàn tán xì xào ra sao.
 
-Từ Mạn Mạn: Tô Miện, chị mới chính là người giúp đỡ anh ấy nhiều nhất.
+Từ Mạn Mạn: Tô Miến, chị mới chính là người giúp đỡ anh ấy nhiều nhất.
 
 Cả hai người đàn bà đều thấu hiểu đối phương đang nghĩ gì và muốn gửi gắm điều chi.
 
@@ -200,13 +198,13 @@ Cả hai người đàn bà đều thấu hiểu đối phương đang nghĩ gì
 
 Từ Mạn Mạn: Sao chị không đi siêu âm màu xem là con trai hay con gái?
 
-Tô Miện: Đợi em sinh xong đã.
+Tô Miến: Đợi em sinh xong đã.
 
 Từ Mạn Mạn siết chặt chiếc điện thoại, ngón tay gõ từng chữ rồi lại xóa đi, xóa rồi lại gõ, cuối cùng chỉ còn lại vỏn vẹn hai chữ, chẳng thể tìm ra bất kỳ lời lẽ nào khác để diễn tả cõi lòng mình lúc này.
 
 Từ Mạn Mạn: Cảm ơn chị.
 
-Tô Miện từ lâu đã có thể đi siêu âm màu để biết rõ giới tính đứa trẻ, cớ sao chị lại chấp nhận chờ đợi Từ Mạn Mạn sinh trước?
+Tô Miến từ lâu đã có thể đi siêu âm màu để biết rõ giới tính đứa trẻ, cớ sao chị lại chấp nhận chờ đợi Từ Mạn Mạn sinh trước?
 
 Đêm khuya thanh vắng.
 
@@ -214,4 +212,4 @@ Bệnh viện chìm vào tĩnh mịch, hành lang bên ngoài hun hút không m�
 
 Ánh trăng bàng bạc như làn nước tràn qua khung cửa kính. Từ Mạn Mạn chậm rãi gượng người ngồi dậy, rón rén bước xuống giường, khẽ đẩy mép cửa sổ để làn gió đêm se lạnh mơn man da thịt. Cô nắm chặt chiếc điện thoại trong tay, đứng lặng hồi lâu, nghẹn ngào chẳng thể thốt nên lời.
 
-"Em xin lỗi, Tô Miện..."
+"Em xin lỗi, Tô Miến..."

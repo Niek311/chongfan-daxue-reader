@@ -1,7 +1,5 @@
 # Chương 177: Có những ai từng ngồi ghế phụ của cậu?
 
-> **Tiêu đề gốc**: 第177章 有谁坐过你的副驾驶。
-
 Đêm ấy, Triệu Vĩ không về.
 
 Doãn Hiểu Lan thui thủi một mình ngồi ăn bữa cơm tất niên nơi gian nhà vắng lặng, không có một tiếng pháo nổ đón mừng.

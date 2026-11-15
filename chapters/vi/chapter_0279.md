@@ -1,10 +1,8 @@
 # Chương 279: Giờ này rồi mà còn nội chiến?
 
-> **Tiêu đề gốc**: 第279章 这个时候还内斗？
-
 "Cho nên... Triệu Kim An thích Mạn Mạn sao?"
 
-Dương Thục Mỹ bỗng cảm thấy mọi chuyện trên đời sao mà nực cười và trớ trêu đến thế. Bản thân bà ta trước đây từng tính toán muốn lôi kéo Triệu Kim An về làm trợ lý cho mình, trong khi Từ Mạn Mạn lại vốn là bạn gái của con trai bà ta — nói là bạn gái còn là nói giảm nói tránh, trong thâm tâm Dương Thục Mỹ, Mạn Mạn từ lâu đã là cô con dâu danh chính ngôn thuận của nhà họ Trần.
+Dương Thù Mỹ bỗng cảm thấy mọi chuyện trên đời sao mà nực cười và trớ trêu đến thế. Bản thân bà ta trước đây từng tính toán muốn lôi kéo Triệu Kim An về làm trợ lý cho mình, trong khi Từ Mạn Mạn lại vốn là bạn gái của con trai bà ta — nói là bạn gái còn là nói giảm nói tránh, trong thâm tâm Dương Thù Mỹ, Mạn Mạn từ lâu đã là cô con dâu danh chính ngôn thuận của nhà họ Trần.
 
 Cái mối quan hệ dây mơ rễ má này...
 
@@ -14,7 +12,7 @@ Cái mối quan hệ dây mơ rễ má này...
 
 Trần Trạch câm nín: "..."
 
-Dương Thục Mỹ rút điện thoại ra, bấm số gọi cho Từ Mạn Mạn.
+Dương Thù Mỹ rút điện thoại ra, bấm số gọi cho Từ Mạn Mạn.
 
 "Mạn Mạn, con đang ở đâu đấy? Dì vừa bay về Quận Sa rồi, dì cháu mình gặp nhau một lát được không?"
 
@@ -34,7 +32,7 @@ Dương Thục Mỹ rút điện thoại ra, bấm số gọi cho Từ Mạn M�
 
 Trần Trạch rụt cổ lại như rùa rụt đầu.
 
-Dương Thục Mỹ trừng mắt lườm hắn một cái cháy mặt. Bà ta vốn định dỗ dành, vỗ về Từ Mạn Mạn cho êm chuyện trước, rồi mới vác mặt sang gặp vợ chồng Từ Tắc Đống và Lương Huệ Trân.
+Dương Thù Mỹ trừng mắt lườm hắn một cái cháy mặt. Bà ta vốn định dỗ dành, vỗ về Từ Mạn Mạn cho êm chuyện trước, rồi mới vác mặt sang gặp vợ chồng Từ Tắc Đống và Lương Tuệ Trân.
 
 "Thế con bé kia đâu rồi?"
 
@@ -44,13 +42,13 @@ Dương Thục Mỹ trừng mắt lườm hắn một cái cháy mặt. Bà ta v
 
 Sau khi lên xe, Trần Trạch cẩn thận liếc nhìn kính chiếu hậu, khẽ hỏi: "Mẹ, giờ mình đi đâu ạ?"
 
-Hắn tuyệt đối không dám vác xác đến đối mặt với Từ Tắc Đống và Lương Huệ Trân lúc này. Dương Thục Mỹ đưa tay lên day day thái dương, mệt mỏi hỏi: "Triệu Kim An đâu?"
+Hắn tuyệt đối không dám vác xác đến đối mặt với Từ Tắc Đống và Lương Tuệ Trân lúc này. Dương Thù Mỹ đưa tay lên day day thái dương, mệt mỏi hỏi: "Triệu Kim An đâu?"
 
 "Mẹ hỏi Triệu Kim An làm gì ạ?"
 
 "Mày là đồ ngu thật hay giả vờ ngu đấy hả?"
 
-Dương Thục Mỹ uể oải, không còn chút hơi sức: "Triệu Kim An là Triệu tổng của tập đoàn Trăn Nhiên! Trăn Nhiên vừa mới ký hợp đồng tài trợ cho Olympic, mày có biết hiện tại có bao nhiêu nhà phân phối trên cả nước đang xếp hàng nộp tiền cọc để lấy hàng không?"
+Dương Thù Mỹ uể oải, không còn chút hơi sức: "Triệu Kim An là Triệu tổng của tập đoàn Trăn Nhiên! Trăn Nhiên vừa mới ký hợp đồng tài trợ cho Olympic, mày có biết hiện tại có bao nhiêu nhà phân phối trên cả nước đang xếp hàng nộp tiền cọc để lấy hàng không?"
 
 "..."
 
@@ -62,15 +60,15 @@ Dương Thục Mỹ uể oải, không còn chút hơi sức: "Triệu Kim An l�
 
 "Trong đầu mày cả ngày rốt cuộc chứa cái giống gì thế hả? Chỉ biết đến mỗi đàn bà con gái thôi sao?"
 
-Dương Thục Mỹ đâu biết rằng chính miệng thằng con trai quý hóa của mình vừa châm ngòi nổ tung màn Tu La trường của Triệu Kim An. Vừa nói, bà ta vừa bấm số gọi thẳng vào máy của Triệu Kim An.
+Dương Thù Mỹ đâu biết rằng chính miệng thằng con trai quý hóa của mình vừa châm ngòi nổ tung màn Tu La trường của Triệu Kim An. Vừa nói, bà ta vừa bấm số gọi thẳng vào máy của Triệu Kim An.
 
-"Kim An à, dì là dì Dương Thục Mỹ đây. Cháu đang ở đâu thế, dì muốn gặp cháu một chút..."
+"Kim An à, dì là dì Dương Thù Mỹ đây. Cháu đang ở đâu thế, dì muốn gặp cháu một chút..."
 
 "..."
 
 Trần Trạch há hốc mồm, thầm nghĩ sao giọng điệu của mẹ mình nghe có vẻ mập mờ, lả lơi thế nhỉ? Cái gì mà "dì muốn gặp cháu"?
 
-Dương Thục Mỹ vốn là người đàn bà lăn lộn thương trường, lúc này quả thực cũng đã bước đường cùng không còn lối thoát.
+Dương Thù Mỹ vốn là người đàn bà lăn lộn thương trường, lúc này quả thực cũng đã bước đường cùng không còn lối thoát.
 
 Bà ta nói thẳng muốn vay tạm một khoản vốn xoay vòng.
 
@@ -80,15 +78,15 @@ Bà ta nói thẳng muốn vay tạm một khoản vốn xoay vòng.
 
 "..."
 
-Dương Thục Mỹ lập tức cảm nhận được thái độ của Triệu Kim An đối với mình đã thay đổi một trời một vực. Trước đây cậu ta mở miệng ra là "dì Dương, dì Dương" ngọt xớt kia mà. Trần Trạch nhìn lén qua gương chiếu hậu, rụt rè hỏi: "Mẹ, nó nói sao ạ?"
+Dương Thù Mỹ lập tức cảm nhận được thái độ của Triệu Kim An đối với mình đã thay đổi một trời một vực. Trước đây cậu ta mở miệng ra là "dì Dương, dì Dương" ngọt xớt kia mà. Trần Trạch nhìn lén qua gương chiếu hậu, rụt rè hỏi: "Mẹ, nó nói sao ạ?"
 
-Dương Thục Mỹ đã quá tự cao, đánh giá bản thân quá cao rồi. Bà ta liếc nhìn đứa con trai đang lái xe, ngậm đắng nuốt cay không thốt nên lời.
+Dương Thù Mỹ đã quá tự cao, đánh giá bản thân quá cao rồi. Bà ta liếc nhìn đứa con trai đang lái xe, ngậm đắng nuốt cay không thốt nên lời.
 
 Tại nhà họ Từ.
 
-Từ Tắc Đống ngồi bất động trên ghế sô pha đợi Dương Thục Mỹ đến tạ tội, sắc mặt âm u, đen sì như thể sắp nhỏ ra nước.
+Từ Tắc Đống ngồi bất động trên ghế sô pha đợi Dương Thù Mỹ đến tạ tội, sắc mặt âm u, đen sì như thể sắp nhỏ ra nước.
 
-Lương Huệ Trân ngồi bên cạnh sụt sùi nức nở không ngừng. Vừa rồi bà ta và chồng đã bị Đan Vĩ cùng Tôn Dũng "lịch sự mời" ra khỏi siêu thị Trăn Hối Tuyển.
+Lương Tuệ Trân ngồi bên cạnh sụt sùi nức nở không ngừng. Vừa rồi bà ta và chồng đã bị Đan Vĩ cùng Tôn Dũng "lịch sự mời" ra khỏi siêu thị Trăn Hối Tuyển.
 
 Tại khu làng đại học.
 

@@ -1,7 +1,5 @@
 # Chương 260: Chú ơi, bên cháu có hàng này!
 
-> **Tiêu đề gốc**: 第260章 叔叔，我们这里有。
-
 Từ Mạn Mạn không có tính cách hoạt bát, nhí nhảnh như Thẩm Tử Ngôn. Đứng trước tin báo được tăng thêm một nghìn tệ tiền lương, cô chỉ bình thản nhắn lại vỏn vẹn một chữ "Được".
 
 Siêu thị Trăn Hối Tuyển vừa mới tưng bừng khai trương, Từ Mạn Mạn lại càng không có lấy một phút rảnh rỗi để ngồi xem tivi.

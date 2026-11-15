@@ -1,7 +1,5 @@
 # Chương 18: Màn "thao túng tâm lý" của mẹ vợ tương lai (2)
 
-> **Tiêu đề gốc**: 第18章 来自“准岳母娘”的PUA，2
-
 "Bố ơi, sau khi tốt nghiệp Kim An cũng sẽ thi công chức mà bố!"
 
 Xem kìa, Mộc Dao cũng đã lờ mờ nghe hiểu được nửa phần ẩn ý của người lớn rồi đấy.

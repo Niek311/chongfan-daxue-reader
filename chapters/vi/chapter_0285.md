@@ -1,7 +1,5 @@
 # Chương 285: Anh ấy là ai?
 
-> **Tiêu đề gốc**: 第285章 他是谁？
-
 Chiếc xe buýt lớn của trường đã chật kín người.
 
 Đối với những chuyến xe đưa đón của các trường đại học lớn thế này, lực lượng cảnh sát giao thông cũng có phần châm chước, nhẹ tay hơn, tận tình hướng dẫn các xe xếp hàng nối đuôi nhau rời bến.

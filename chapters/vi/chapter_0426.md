@@ -1,7 +1,5 @@
 # Chương 426: Chẳng còn gì để lưu luyến nữa
 
-> **Tiêu đề gốc**: 第426章 没有留恋的了。
-
 Sáng mùng bốn Tết.
 
 Du Phi và Ngải Manh Manh đến từ sớm, đứng dưới chân tòa nhà khu tập thể đợi Mộc Dao.

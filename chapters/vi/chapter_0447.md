@@ -1,7 +1,5 @@
 # Chương 447: Đại Cương (DJI)
 
-> **Tiêu đề gốc**: 第447章 大疆。
-
 "Hút thuốc không phải học theo em đâu, em nào có hút thuốc bao giờ."
 
 Trương Vân Thiến khoác trên mình chiếc váy ngủ lụa hai dây xẻ ngực chữ V sâu hun hút, xoay người nhìn chị gái rồi nói tiếp: "Chị à, Dao Dao không chịu về, chuyến này em buộc phải lặn lội qua Quận Sa một chuyến. Giản Mộ nhắm vào thị trường bình dân, còn Vân Thoa định vị ở phân khúc tầm trung. Em muốn thăm dò xem liệu Vân Thoa có thể chen chân mở quầy chuyên doanh trong hai khu trung tâm thương mại của Kim An được hay không."
@@ -54,17 +52,17 @@ Trương Vân Thiến đáp vọng vào: "Ban nãy em tính đi Quận Sa nên m
 
 Trần Trạch đưa tay gõ cửa phòng làm việc của tổng giám đốc: "Mẹ ơi, Triệu Kim An tới Thâm Quyến rồi."
 
-Bà Dương Thục Mỹ lúc này đang dán chặt mắt vào bảng số liệu các gian hàng Taobao trên màn hình, miệng vẫn đang tiếp chuyện điện thoại với Lưu Sấm Phong. Trần Trạch giơ chiếc điện thoại trong tay lên: "Có mấy đứa bạn học hỏi thăm, chính miệng cậu ta nói trong nhóm chat là đang ở Thâm Quyến. Mẹ à, mẹ không cần phải hạ mình đi hỏi han Lưu Sấm Phong nữa đâu, con sẽ dốc tâm trông nom mảng thương mại điện tử này thật cẩn thận."
+Bà Dương Thù Mỹ lúc này đang dán chặt mắt vào bảng số liệu các gian hàng Taobao trên màn hình, miệng vẫn đang tiếp chuyện điện thoại với Lưu Sấm Phong. Trần Trạch giơ chiếc điện thoại trong tay lên: "Có mấy đứa bạn học hỏi thăm, chính miệng cậu ta nói trong nhóm chat là đang ở Thâm Quyến. Mẹ à, mẹ không cần phải hạ mình đi hỏi han Lưu Sấm Phong nữa đâu, con sẽ dốc tâm trông nom mảng thương mại điện tử này thật cẩn thận."
 
 Có lẽ nhìn thấy mẹ mình phải cất công "thỉnh giáo" chính cậu bạn cùng phòng đại học của con trai, hoặc giả nhìn thấy mẹ ngày đêm lao lực quá vất vả, Trần Trạch bỗng tỏ ra hiểu chuyện khác thường. Huống hồ, Lưu Sấm Phong dạo gần đây tỏ ra nhiệt tình với mẹ cậu một cách thái quá.
 
-Dương Thục Mỹ cúp máy, ngẩng đầu hỏi dồn: "Kim An nó có ghé qua Dương Thành không con?"
+Dương Thù Mỹ cúp máy, ngẩng đầu hỏi dồn: "Kim An nó có ghé qua Dương Thành không con?"
 
 "Con không rõ."
 
 Trần Trạch liếc nhìn màn hình điện thoại: "Mấy đứa bạn học đang hò hét rủ rê tụ tập, Phương Khiết còn tha thiết mời cậu ấy ghé qua chỉ đạo công việc một chút, nhưng cậu ta vẫn chưa hồi đáp."
 
-Dương Thục Mỹ bảo: "Hay là con đứng ra làm chủ xị thết đãi một bữa đi?"
+Dương Thù Mỹ bảo: "Hay là con đứng ra làm chủ xị thết đãi một bữa đi?"
 
 "Phương Khiết bảo cô ấy bao trọn rồi, địa điểm cũng đặt xong xuôi cả, chỉ còn chờ Triệu Kim An báo giờ rảnh thôi."
 
@@ -72,7 +70,7 @@ Trần Trạch im lặng hồi lâu, rồi ngập ngừng cất lời: "Mẹ à.
 
 "..."
 
-Dương Thục Mỹ chết trân tại chỗ, thần người ra một hồi lâu.
+Dương Thù Mỹ chết trân tại chỗ, thần người ra một hồi lâu.
 
 Trần Trạch khép nhẹ cánh cửa phòng, cúi gằm mặt lầm lũi bước đi.
 
@@ -86,11 +84,11 @@ Cốc Siêu Thừa không ít lần xuýt xoa bảo số mệnh của Trần Tr�
 
 Gia cảnh nhà Vương Phương Dụ vô cùng bề thế, bố cô là một vị lãnh đạo cốt cán bên Cục Xây dựng đô thị. Quan trọng hơn cả là Vương Phương Dụ không hề có tính ham chơi đua đòi, trái lại ngày ngày đều kèm cặp, đốc thúc Trần Trạch phải dồn hết tâm trí vào sự nghiệp làm ăn.
 
-Mối tình trước đó của Trần Trạch ở Dương Thành từng bị Dương Thục Mỹ gạt phắt đi, nhưng tới lượt Vương Phương Dụ thì bà gật đầu cái rụp.
+Mối tình trước đó của Trần Trạch ở Dương Thành từng bị Dương Thù Mỹ gạt phắt đi, nhưng tới lượt Vương Phương Dụ thì bà gật đầu cái rụp.
 
 Trước mặt Vương Phương Dụ, Trần Trạch đã thẳng thắn thú nhận toàn bộ quá khứ trăng hoa của mình, từ Từ Mạn Mạn, Lâm Thanh Tuyết cho tới Triệu Kim An, Lưu Sấm Phong. Vương Phương Dụ nghe xong chỉ thản nhiên phán một câu: "Trần Trạch, trong mấy chuyện này là anh hành xử không đàng hoàng."
 
-Nhờ sự hậu thuẫn đắc lực từ phía gia đình họ Vương, Dương Thục Mỹ vừa thâu tóm được một lô đất béo bở, chuẩn bị nhảy vào thị trường bất động sản.
+Nhờ sự hậu thuẫn đắc lực từ phía gia đình họ Vương, Dương Thù Mỹ vừa thâu tóm được một lô đất béo bở, chuẩn bị nhảy vào thị trường bất động sản.
 
 Đó chính là số mệnh!
 
@@ -98,7 +96,7 @@ Thời buổi năm 2010 này, làm bất động sản chẳng khác nào ra đ�
 
 Nhưng cũng chính vì thế mà Trần Trạch ngoan ngoãn hẳn ra như một đứa trẻ, thử hỏi cậu ta còn dám giở thói ba hoa trăng hoa với Vương Phương Dụ nữa hay không?
 
-Dương Thục Mỹ bấm máy gửi một tin nhắn cho Triệu Kim An: [Kim An, con có ghé qua Dương Thành không?]
+Dương Thù Mỹ bấm máy gửi một tin nhắn cho Triệu Kim An: [Kim An, con có ghé qua Dương Thành không?]
 
 ...
 
@@ -180,11 +178,11 @@ Nghe thì có vẻ đùa cợt như trò trẻ con, nhưng bọn họ tuyệt nh
 
 Uông tổng và mấy tay cộng sự lập tức túm tụm lại bàn chiến thuật tác chiến. Năm mươi nghìn đô cho một điểm bóng! Đây đích thị là trận bóng rổ đắt đỏ nhất trần đời mà họ từng được chơi!
 
-Triệu Kim An tiện tay chỉ sang hai gã Đơn Vĩ và Đặng Thần Bình đang đứng ngơ ngác hóng chuyện: "Hai cậu vào đây chơi cùng tôi."
+Triệu Kim An tiện tay chỉ sang hai gã Đan Vĩ và Đặng Thần Bình đang đứng ngơ ngác hóng chuyện: "Hai cậu vào đây chơi cùng tôi."
 
 "Sếp ơi... bọn em đâu có biết chơi bóng rổ..."
 
-Đơn Vĩ và Đặng Thần Bình đưa mắt nhìn nhau đầy bất lực. Bọn họ khỏe như voi thì có ích gì khi bóng còn chẳng biết ném vào rổ thế nào!
+Đan Vĩ và Đặng Thần Bình đưa mắt nhìn nhau đầy bất lực. Bọn họ khỏe như voi thì có ích gì khi bóng còn chẳng biết ném vào rổ thế nào!
 
 Cả hai bên trong lòng đều tự nhủ: ván này cầm chắc phần thắng, chỉ có lời chứ không thể lỗ!
 
@@ -226,7 +224,7 @@ Triệu Kim An giờ đây đi đâu, làm gì cũng đều ngoan ngoãn "trình
 
 Thế nhưng Du Phi luôn làm tròn bổn phận của mình. Trước hết cô là thư ký của Triệu Kim An, rồi sau đó mới là bạn học kiêm cô bạn thân thiết của Mộc Dao.
 
-Nửa tiếng đồng hồ sau, cả Tô Miến lẫn Từ Mạn Mạn đều cười đến đau cả ruột. Cứ hễ Triệu Kim An chạm tay vào bóng là y như rằng Đơn Vĩ và Đặng Thần Bình lại hùng hổ lao tới "bảo vệ" sếp một cách mù quáng, rốt cuộc lại thành ra cản trở chính Triệu Kim An, khiến anh tức tối đến mức phải bật cười chửi đổng ngay trên sân.
+Nửa tiếng đồng hồ sau, cả Tô Miến lẫn Từ Mạn Mạn đều cười đến đau cả ruột. Cứ hễ Triệu Kim An chạm tay vào bóng là y như rằng Đan Vĩ và Đặng Thần Bình lại hùng hổ lao tới "bảo vệ" sếp một cách mù quáng, rốt cuộc lại thành ra cản trở chính Triệu Kim An, khiến anh tức tối đến mức phải bật cười chửi đổng ngay trên sân.
 
 Trong video, tiếng Du Phi hò hét cổ vũ lảnh lót hòa cùng tiếng Chu Hoa Phong đứng bên đường biên chỉ đạo bậy bạ rộn vang cả một góc trời.
 

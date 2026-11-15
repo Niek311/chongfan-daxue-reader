@@ -1,16 +1,14 @@
 # Chương 405: Để em ngửi xem.
 
-> **Tiêu đề gốc**: 第405章 给我闻闻。
+Triệu Kim An không gọi cô là "đại tiểu thư" như mọi khi, mà khẽ gọi một tiếng "chị Tô Miến".
 
-Triệu Kim An không gọi cô là "đại tiểu thư" như mọi khi, mà khẽ gọi một tiếng "chị Tô Miện".
-
-Tô Miện nói: "Không đánh nữa."
+Tô Miến nói: "Không đánh nữa."
 
 Cô ngồi lặng lẽ bên mép giường.
 
-Triệu Kim An ngồi xổm dưới đất, người nép sát vào đầu gối Tô Miện. Tô Miện cúi đầu ngắm nhìn chàng trai trước mặt, trong lòng cô hiểu rất rõ anh vẫn còn muốn cô vung tay đánh thêm mấy cái nữa cho bõ tức.
+Triệu Kim An ngồi xổm dưới đất, người nép sát vào đầu gối Tô Miến. Tô Miến cúi đầu ngắm nhìn chàng trai trước mặt, trong lòng cô hiểu rất rõ anh vẫn còn muốn cô vung tay đánh thêm mấy cái nữa cho bõ tức.
 
-Thực ra Tô Miện hoàn toàn có thể tự mình nằm xuống giường, hai tay cô chỉ cần dùng lực chống đỡ để xê dịch thân thể nằm ngay ngắn lại, có điều dáng vẻ trông sẽ có phần chật vật, vụng về.
+Thực ra Tô Miến hoàn toàn có thể tự mình nằm xuống giường, hai tay cô chỉ cần dùng lực chống đỡ để xê dịch thân thể nằm ngay ngắn lại, có điều dáng vẻ trông sẽ có phần chật vật, vụng về.
 
 Bên trong phòng ngủ.
 
@@ -18,19 +16,19 @@ Bên trong phòng ngủ.
 
 Hai người nhất thời đều chìm vào im lặng, chẳng ai thốt thêm lời nào.
 
-Triệu Kim An cẩn thận từng li từng tí bế bổng Tô Miện nằm ngay ngắn lại trên đệm êm. Cái tát vừa rồi thực sự buốt nhức đến tận tâm can. Tô Miện không mắng mỏ nửa lời, chỉ giáng đúng một cái tát duy nhất, chính vì thế mà nỗi đau đọng lại trong lòng anh lại càng thêm xót xa, nhức nhối khôn nguôi.
+Triệu Kim An cẩn thận từng li từng tí bế bổng Tô Miến nằm ngay ngắn lại trên đệm êm. Cái tát vừa rồi thực sự buốt nhức đến tận tâm can. Tô Miến không mắng mỏ nửa lời, chỉ giáng đúng một cái tát duy nhất, chính vì thế mà nỗi đau đọng lại trong lòng anh lại càng thêm xót xa, nhức nhối khôn nguôi.
 
-Bác sĩ chuyên khoa từng ân cần dặn dò Tô Miện: Tâm trạng của cô tuyệt đối không được có biến động quá lớn!
+Bác sĩ chuyên khoa từng ân cần dặn dò Tô Miến: Tâm trạng của cô tuyệt đối không được có biến động quá lớn!
 
-Tô Miện không hề kể lại điều này cho Triệu Kim An nghe.
+Tô Miến không hề kể lại điều này cho Triệu Kim An nghe.
 
 Kỳ thực bất kỳ phụ nữ mang thai nào tâm trạng cũng đều không nên dao động dữ dội, càng không được phép chịu những cú sốc kích thích tâm lý.
 
 "Kim An, gối chưa kê ngay ngắn này."
 
-Tô Miện cất tiếng phá vỡ bầu không khí tĩnh mịch, đây chính là tín hiệu "bắc thang bước xuống" cho cả hai.
+Tô Miến cất tiếng phá vỡ bầu không khí tĩnh mịch, đây chính là tín hiệu "bắc thang bước xuống" cho cả hai.
 
-Triệu Kim An lập tức ngồi thẳng dậy, ân cần chỉnh lại chiếc gối đầu cho cô thật êm ái. Tô Miện sở hữu gương mặt trái xoan đậm nét đài các cổ điển phương Đông, làn da trắng ngần mịn màng như tuyết đầu mùa. Cô nằm ngửa nhìn Triệu Kim An, trong đáy mắt vẫn còn vương chút hờn dỗi:
+Triệu Kim An lập tức ngồi thẳng dậy, ân cần chỉnh lại chiếc gối đầu cho cô thật êm ái. Tô Miến sở hữu gương mặt trái xoan đậm nét đài các cổ điển phương Đông, làn da trắng ngần mịn màng như tuyết đầu mùa. Cô nằm ngửa nhìn Triệu Kim An, trong đáy mắt vẫn còn vương chút hờn dỗi:
 
 "Lại gần đây cho em ngửi thử xem nào."
 
@@ -40,17 +38,17 @@ Triệu Kim An lập tức ngồi thẳng dậy, ân cần chỉnh lại chiếc
 
 "Được rồi."
 
-Triệu Kim An chẳng buồn thắc mắc vì sao cô lại đòi ngửi miệng, cứ ngỡ Tô Miện nổi hứng lãng mạn muốn trao một nụ hôn nồng thắm. Nào ngờ Tô Miện ghé sát chóp mũi ngửi ngửi một hồi rồi nghiêm nghị dặn dò: "Cấm anh không được hút thuốc lá trong nhà, sau này càng không được phép hút thuốc trước mặt con trẻ."
+Triệu Kim An chẳng buồn thắc mắc vì sao cô lại đòi ngửi miệng, cứ ngỡ Tô Miến nổi hứng lãng mạn muốn trao một nụ hôn nồng thắm. Nào ngờ Tô Miến ghé sát chóp mũi ngửi ngửi một hồi rồi nghiêm nghị dặn dò: "Cấm anh không được hút thuốc lá trong nhà, sau này càng không được phép hút thuốc trước mặt con trẻ."
 
-Triệu Kim An không kìm lòng được liền cúi xuống khẽ cắn nhẹ lên bờ môi mềm mại của Tô Miện: "Đại tiểu thư à, miệng em thơm quá, khắp người em chỗ nào cũng thơm ngát."
+Triệu Kim An không kìm lòng được liền cúi xuống khẽ cắn nhẹ lên bờ môi mềm mại của Tô Miến: "Đại tiểu thư à, miệng em thơm quá, khắp người em chỗ nào cũng thơm ngát."
 
-Tô Miện quả thực xinh đẹp tuyệt trần, khí chất cao quý được hun đúc từ trong chiếc nôi trâm anh thế phiệt từ tấm bé, tuyệt đối chẳng phải thứ phong thái mà tầng lớp nhà giàu mới nổi có thể bì kịp. Cô đưa ngón tay thon thả chỉ về phía chiếc tủ đầu giường, trên đó đã xếp la liệt đủ loại sách thai giáo dày cộp.
+Tô Miến quả thực xinh đẹp tuyệt trần, khí chất cao quý được hun đúc từ trong chiếc nôi trâm anh thế phiệt từ tấm bé, tuyệt đối chẳng phải thứ phong thái mà tầng lớp nhà giàu mới nổi có thể bì kịp. Cô đưa ngón tay thon thả chỉ về phía chiếc tủ đầu giường, trên đó đã xếp la liệt đủ loại sách thai giáo dày cộp.
 
 "Có sớm quá không em?"
 
 "Sớm gì mà sớm chứ."
 
-Tô Miện vừa đưa tay vuốt ve bụng vừa rạng rỡ nở nụ cười ngập tràn hạnh phúc: "Kim An, em thực sự mang thai rồi này. Giờ đây một ngày trôi qua với em chẳng còn buồn chán, tẻ nhạt chút nào nữa, thời gian trôi nhanh thoăn thoắt, hễ mở mắt thức dậy là em lại đọc sách, em sắp sửa được làm mẹ thật rồi."
+Tô Miến vừa đưa tay vuốt ve bụng vừa rạng rỡ nở nụ cười ngập tràn hạnh phúc: "Kim An, em thực sự mang thai rồi này. Giờ đây một ngày trôi qua với em chẳng còn buồn chán, tẻ nhạt chút nào nữa, thời gian trôi nhanh thoăn thoắt, hễ mở mắt thức dậy là em lại đọc sách, em sắp sửa được làm mẹ thật rồi."
 
 "Nó đã nghe hiểu được gì đâu cơ chứ?"
 
@@ -58,7 +56,7 @@ Tô Miện vừa đưa tay vuốt ve bụng vừa rạng rỡ nở nụ cười 
 
 "Liệu có cơ sở khoa học không đấy?... Có, có chứ, chắc chắn là có!"
 
-Bắt gặp ánh mắt sắc lẹm của Tô Miện liếc xéo qua, Triệu Kim An lập tức vứt bỏ mọi nguyên tắc lập trường, vội vàng đổi giọng tắp lự. Tô Miện xoa xoa bụng, nụ cười càng thêm rạng rỡ: "Kim An, anh nói đúng lắm, cứ thả lỏng tâm lý là có thai ngay."
+Bắt gặp ánh mắt sắc lẹm của Tô Miến liếc xéo qua, Triệu Kim An lập tức vứt bỏ mọi nguyên tắc lập trường, vội vàng đổi giọng tắp lự. Tô Miến xoa xoa bụng, nụ cười càng thêm rạng rỡ: "Kim An, anh nói đúng lắm, cứ thả lỏng tâm lý là có thai ngay."
 
 "Đứa bé sinh ra sau này nhất định sẽ giống em."
 
@@ -76,17 +74,17 @@ Anh cố tình trêu chọc để cô tranh cãi, bởi đó là những cuộc 
 
 "Vâng."
 
-Tô Miện cười khúc khích: "Các chị ấy muốn tha hồ mua váy áo xúng xính, kẹp tóc lấp lánh... Em cũng đang háo hức muốn sắm sửa lắm đây này."
+Tô Miến cười khúc khích: "Các chị ấy muốn tha hồ mua váy áo xúng xính, kẹp tóc lấp lánh... Em cũng đang háo hức muốn sắm sửa lắm đây này."
 
-"Nói cho anh biết nhé, cả bố và mẹ em cũng đều mong ngóng có một đứa cháu ngoại gái lắm đấy. Nhà em có hai người con trai, rồi lại có hai đứa cháu đích tôn rồi..." Tô Miện ghé tai anh thì thầm to nhỏ: "Bố em nghiêm khắc với con trai dữ lắm."
+"Nói cho anh biết nhé, cả bố và mẹ em cũng đều mong ngóng có một đứa cháu ngoại gái lắm đấy. Nhà em có hai người con trai, rồi lại có hai đứa cháu đích tôn rồi..." Tô Miến ghé tai anh thì thầm to nhỏ: "Bố em nghiêm khắc với con trai dữ lắm."
 
 Triệu Kim An gật đầu: "Đó là vì sau này phải theo con đường chính trị."
 
-Tô Miện tán thành.
+Tô Miến tán thành.
 
 Triệu Kim An nghiêng người nằm sát bên cô, quả quyết: "Dù là con trai hay con gái thì cũng quyết không giao cho hai bà chị dâu nuôi đâu nhé."
 
-Tô Miện mắt cười cong cong, gật đầu lia lịa: "Các chị mà đòi bế đi, bố mẹ em có khi còn chẳng nỡ buông tay ấy chứ lị."
+Tô Miến mắt cười cong cong, gật đầu lia lịa: "Các chị mà đòi bế đi, bố mẹ em có khi còn chẳng nỡ buông tay ấy chứ lị."
 
 "Chẳng phải chị dâu cả đã lên chức bà nội rồi sao?"
 
@@ -94,7 +92,7 @@ Triệu Kim An ngẫm nghĩ một lát: "Vợ của Tô Quân Dương... hình n
 
 "Vâng, lại là một thằng cu tí nữa."
 
-Tô Miện bật cười: "Bố mẹ với anh cả, chị dâu cả nhà em vừa mừng rỡ mà lại vừa có chút tiếc nuối khôn nguôi. Kim An, anh hiểu tâm lý đó mà đúng không?"
+Tô Miến bật cười: "Bố mẹ với anh cả, chị dâu cả nhà em vừa mừng rỡ mà lại vừa có chút tiếc nuối khôn nguôi. Kim An, anh hiểu tâm lý đó mà đúng không?"
 
 "Hiểu chứ."
 
@@ -108,19 +106,19 @@ Chẳng phải thiên hạ vẫn ra rả khẩu hiệu nam nữ bình đẳng, p
 
 "À phải rồi, anh đã gửi phong bao đỏ mừng cháu chưa đấy!?"
 
-Triệu Kim An chợt nhớ ra. Vợ chồng Tô Cảnh Ngôn và Khương Phức Hàm vốn không tổ chức tiệc mừng rình rang. Tô Miện bảo: "Gửi rồi chứ, em lấy danh nghĩa của anh gửi rồi đấy, anh phải thanh toán lại, đưa tiền trả lại cho em đấy nhé."
+Triệu Kim An chợt nhớ ra. Vợ chồng Tô Cảnh Ngôn và Khương Phức Hàm vốn không tổ chức tiệc mừng rình rang. Tô Miến bảo: "Gửi rồi chứ, em lấy danh nghĩa của anh gửi rồi đấy, anh phải thanh toán lại, đưa tiền trả lại cho em đấy nhé."
 
 "Thế còn con của chúng mình sau này thì định hướng thế nào..."
 
 Triệu Kim An ướm hỏi, đây mới là chủ đề then chốt.
 
-Tô Miện nghiêm túc đáp: "Bố em bảo rồi, nếu là con trai thì vẫn nên theo con đường chính trị là tốt nhất, còn nếu là con gái thì cứ để nó tùy ý phát triển tự do theo sở thích của vợ chồng mình."
+Tô Miến nghiêm túc đáp: "Bố em bảo rồi, nếu là con trai thì vẫn nên theo con đường chính trị là tốt nhất, còn nếu là con gái thì cứ để nó tùy ý phát triển tự do theo sở thích của vợ chồng mình."
 
 "Đại tiểu thư, em đi hỏi cả bố em chuyện này rồi cơ à?"
 
 "Vâng chứ."
 
-Tô Miện vừa vuốt ve bụng vừa nói một cách hiển nhiên: "Kim An anh cứ yên tâm đi, nếu là con trai thì cả anh cả lẫn anh hai của em nhất định sẽ dốc toàn lực nâng đỡ hết mình. Bọn họ là bác ruột, cậu ruột... uy quyền và giỏi giang lắm đấy."
+Tô Miến vừa vuốt ve bụng vừa nói một cách hiển nhiên: "Kim An anh cứ yên tâm đi, nếu là con trai thì cả anh cả lẫn anh hai của em nhất định sẽ dốc toàn lực nâng đỡ hết mình. Bọn họ là bác ruột, cậu ruột... uy quyền và giỏi giang lắm đấy."
 
 "Đặc biệt là anh cả, em sẽ bắt các anh ấy..."
 
@@ -144,7 +142,7 @@ Có thì có, nhưng chắc chắn là hiếm hoi vô cùng.
 
 Quận Sa.
 
-Du Phỉ lái xe chở tới cả một cốp sau đầy ắp đồ đạc quê nhà.
+Du Phi lái xe chở tới cả một cốp sau đầy ắp đồ đạc quê nhà.
 
 Quan Văn Bách và Lưu Hiểu Tĩnh xách từng giỏ đồ mang lên lầu.
 
@@ -168,25 +166,25 @@ Từ Mạn Mạn cúi đầu nhìn xuống bụng mình: "Dạ vâng, trộm ví
 
 "..."
 
-Du Phỉ vừa cặm cụi sắp xếp đồ đạc vào tủ lạnh vừa chăm chú lắng nghe. Bà nội với thím lại yêu thương, cưng chiều Mạn Mạn đến mức này cơ à!? Đây đúng là coi như con dâu ruột thịt trong nhà mà hết lòng chăm bẵm rồi còn gì. Than ôi, nhớ ngày trước Dao Dao cũng từng về tận nhà Kim An chơi...
+Du Phi vừa cặm cụi sắp xếp đồ đạc vào tủ lạnh vừa chăm chú lắng nghe. Bà nội với thím lại yêu thương, cưng chiều Mạn Mạn đến mức này cơ à!? Đây đúng là coi như con dâu ruột thịt trong nhà mà hết lòng chăm bẵm rồi còn gì. Than ôi, nhớ ngày trước Dao Dao cũng từng về tận nhà Kim An chơi...
 
 Dạo ấy bà nội cũng xào biết bao nhiêu món ngon đãi đằng, thím còn sốt sắng chạy đi mua nước ngọt Sprite cho mấy đứa uống nữa.
 
 "Dao Dao mở màn bài đẹp thế cơ mà, nắm trong tay cả đôi vương với bốn con hai..."
 
-Du Phỉ liếc nhìn vòng bụng nhô cao của Từ Mạn Mạn, đứng dậy cất tiếng hỏi: "Mạn Mạn, cậu còn muốn ăn thêm thứ gì nữa không? Để tớ chạy đi mua cho."
+Du Phi liếc nhìn vòng bụng nhô cao của Từ Mạn Mạn, đứng dậy cất tiếng hỏi: "Mạn Mạn, cậu còn muốn ăn thêm thứ gì nữa không? Để tớ chạy đi mua cho."
 
-"Tớ ăn no rồi, Du Phỉ cậu ăn bánh đi này."
+"Tớ ăn no rồi, Du Phi cậu ăn bánh đi này."
 
 "Đó là... bà nội làm riêng cho cậu tẩm bổ cơ mà..."
 
-Du Phỉ ngập ngừng khách khí nói, khách sáo tới mức có phần gượng gạo.
+Du Phi ngập ngừng khách khí nói, khách sáo tới mức có phần gượng gạo.
 
-Trên bàn ăn bày la liệt năm loại bánh giầy thôn quê khác nhau, Lưu Hiểu Tĩnh và Quan Văn Bách đều rất ý tứ giữ kẽ không hề đụng đũa, không phải vì mấy chiếc bánh giầy ấy đắt đỏ gì, mà bởi vì Du Phỉ và Từ Mạn Mạn vốn là bạn học cùng lớp đại học.
+Trên bàn ăn bày la liệt năm loại bánh giầy thôn quê khác nhau, Lưu Hiểu Tĩnh và Quan Văn Bách đều rất ý tứ giữ kẽ không hề đụng đũa, không phải vì mấy chiếc bánh giầy ấy đắt đỏ gì, mà bởi vì Du Phi và Từ Mạn Mạn vốn là bạn học cùng lớp đại học.
 
-Nếu như người đang đứng ở vị trí này là Mộc Dao, Du Phỉ chắc chắn sẽ chẳng thèm khách sáo mà thò tay nhón ngay một cái ăn thử.
+Nếu như người đang đứng ở vị trí này là Mộc Dao, Du Phi chắc chắn sẽ chẳng thèm khách sáo mà thò tay nhón ngay một cái ăn thử.
 
-Từ Mạn Mạn khẽ mỉm cười dịu dàng. Cô thừa hiểu mối quan hệ giữa Du Phỉ và Mộc Dao thân thiết đến nhường nào, Mộc Dao rảnh rỗi là lại chạy sang phòng 411 chơi, còn Du Phỉ đối với cô và Thẩm Tử Ngôn xưa nay luôn giữ một khoảng cách nhất định, không quá thân cận.
+Từ Mạn Mạn khẽ mỉm cười dịu dàng. Cô thừa hiểu mối quan hệ giữa Du Phi và Mộc Dao thân thiết đến nhường nào, Mộc Dao rảnh rỗi là lại chạy sang phòng 411 chơi, còn Du Phi đối với cô và Thẩm Tử Ngôn xưa nay luôn giữ một khoảng cách nhất định, không quá thân cận.
 
 ...
 
@@ -206,7 +204,7 @@ Khoảng thời gian này, trong toàn công ty tuyệt nhiên chẳng một ai 
 
 Thẩm Tử Ngôn vốn là người kiêu hãnh ngút trời, nhưng lúc này lại cảm thấy vô cùng bất lực.
 
-Tô Miện là người đến trước, Tô Miện lại mang thai trước, thử hỏi cô còn có thể nói được điều gì đây?
+Tô Miến là người đến trước, Tô Miến lại mang thai trước, thử hỏi cô còn có thể nói được điều gì đây?
 
 Giang Công Kỳ trở thành "nạn nhân" đầu tiên gánh đòn. Số liệu tăng trưởng doanh số của Trăn Nhiên tại khu vực tỉnh Thiểm Tây so với tháng trước không đạt chỉ tiêu đề ra, Thẩm Tử Ngôn gọi điện chất vấn thẳng mặt: "Giang tổng, anh chê tiền thưởng năm nay nhiều quá rồi đúng không?"
 
@@ -218,7 +216,7 @@ Giang Công Kỳ sợ run lẩy bẩy như cầy sấy, mùa đông giá rét bu
 
 ...
 
-Lúc này ở Kinh Đô, Triệu Kim An đang xắn tay áo vào bếp nấu nướng cho Tô Miện ăn. Người bảo mẫu trong nhà chưa từng nấu món măng mùa đông xào theo khẩu vị vùng Hồ Nam bao giờ, Triệu Kim An liền tự mình đích thân xuống bếp. Tô Mặc đứng bên cạnh tò mò học lỏm, bà Quách Uyển Thanh gắp một đũa nếm thử liền tấm tắc khen không ngớt lời.
+Lúc này ở Kinh Đô, Triệu Kim An đang xắn tay áo vào bếp nấu nướng cho Tô Miến ăn. Người bảo mẫu trong nhà chưa từng nấu món măng mùa đông xào theo khẩu vị vùng Hồ Nam bao giờ, Triệu Kim An liền tự mình đích thân xuống bếp. Tô Mặc đứng bên cạnh tò mò học lỏm, bà Quách Uyển Thanh gắp một đũa nếm thử liền tấm tắc khen không ngớt lời.
 
 "Kim An à, cháu nấu ăn khéo tay thế cơ đấy."
 

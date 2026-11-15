@@ -1,7 +1,5 @@
 # Chương 543: Chiếc vé nhập cuộc
 
-> **Tiêu đề gốc**: 第543章 入场券。
-
 Ngay tại khách sạn.
 
 Người nắm quyền tối cao của gia tộc họ Bao lừng lẫy, ông Bao Văn Thanh, đã đích thân đến tận nơi để gặp mặt Triệu Kim An.

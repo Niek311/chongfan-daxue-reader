@@ -1,7 +1,5 @@
 # Chương 474: Thế Giới Phồn Hoa
 
-> **Tiêu đề gốc**: 第474章 花花世界。
-
 Hương Cảng.
 
 Tại một câu lạc bộ tư nhân sang trọng, Giản Tài Kiệt vừa tiễn chân một vị "đại gia" tới nhờ vả công việc, quay trở vào liền nhún vai nói với một người đàn ông trung niên ngồi chờ: "Triệu tổng ở Quận Sa không đồng ý với đề xuất chia cổ phần của tôi..."
@@ -34,11 +32,11 @@ Diêu Sân bắt nhịp với công việc tại cảng mới vô cùng nhanh ch
 
 Nói thế nào nhỉ?
 
-Một sinh viên mới tốt nghiệp Đại học Trung Nam vào năm 2010 mà nhận mức lương 7.800 tệ thì chưa hẳn là quá cao ngất ngưởng, nhưng Diêu Sân hiểu rất rõ trong lòng, đây là do Hứa Mạn Mạn đã cố ý dặn dò phòng nhân sự nâng bậc lương cho mình, bằng không mức khởi điểm bình thường chỉ vỏn vẹn 6.000 tệ mà thôi.
+Một sinh viên mới tốt nghiệp Đại học Trung Nam vào năm 2010 mà nhận mức lương 7.800 tệ thì chưa hẳn là quá cao ngất ngưởng, nhưng Diêu Sân hiểu rất rõ trong lòng, đây là do Từ Mạn Mạn đã cố ý dặn dò phòng nhân sự nâng bậc lương cho mình, bằng không mức khởi điểm bình thường chỉ vỏn vẹn 6.000 tệ mà thôi.
 
-Cả Thẩm Tử Ngôn lẫn Hứa Mạn Mạn đều không hề buông lời oán trách Diêu Sân, và họ cũng chẳng có bất kỳ lý do gì để trách cứ cô cả.
+Cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều không hề buông lời oán trách Diêu Sân, và họ cũng chẳng có bất kỳ lý do gì để trách cứ cô cả.
 
-Nếu đặt mình vào hoàn cảnh của Diêu Sân, chẳng ai dám vỗ ngực cam đoan mình sẽ xử sự khéo léo hơn cô. Mối quan hệ phức tạp, tế nhị giữa Thẩm Tử Ngôn và Hứa Mạn Mạn như vậy, Diêu Sân kẹp ở giữa thì biết phải làm sao?
+Nếu đặt mình vào hoàn cảnh của Diêu Sân, chẳng ai dám vỗ ngực cam đoan mình sẽ xử sự khéo léo hơn cô. Mối quan hệ phức tạp, tế nhị giữa Thẩm Tử Ngôn và Từ Mạn Mạn như vậy, Diêu Sân kẹp ở giữa thì biết phải làm sao?
 
 Tới cảng Chu Sơn nhận việc, Diêu Sân không hề chủ động đi tìm Thẩm Tử Ngôn.
 
@@ -94,21 +92,21 @@ Từ mùa thu năm 2006 chập chững bước chân lên Quận Sa nhập học
 
 ...
 
-Triệu Kim An đang ở xa Quận Sa liền gọi một cuộc điện thoại về. Hứa Mạn Mạn lập tức sắp xếp lại vị trí công tác cho Triệu Trí Dũng, điều chuyển cậu bạn nối khố sang phụ trách toàn bộ mảng kinh doanh phân phối của Trăn Nhiên tại quận Nhạc Lộc.
+Triệu Kim An đang ở xa Quận Sa liền gọi một cuộc điện thoại về. Từ Mạn Mạn lập tức sắp xếp lại vị trí công tác cho Triệu Trí Dũng, điều chuyển cậu bạn nối khố sang phụ trách toàn bộ mảng kinh doanh phân phối của Trăn Nhiên tại quận Nhạc Lộc.
 
 "Mạn Mạn, con bé Tri Nặc đâu rồi em?"
 
 "Đang ngủ anh ạ."
 
-Hứa Mạn Mạn một tay áp điện thoại bên tai, ánh mắt dịu dàng đưa nhìn về phía chiếc nôi em bé đặt ngay góc phòng làm việc.
+Từ Mạn Mạn một tay áp điện thoại bên tai, ánh mắt dịu dàng đưa nhìn về phía chiếc nôi em bé đặt ngay góc phòng làm việc.
 
 Triệu Kim An bật cười sảng khoái: "Cái đồ nhóc tì này sao lần nào bố gọi điện về cũng thấy đang ngủ say sưa thế hả?"
 
-Hứa Mạn Mạn nhìn con gái với ánh mắt ngập tràn cưng chiều vô bờ bến: "Con bé cả ngày ngoài ăn no ra thì chỉ biết lăn ra ngủ thôi."
+Từ Mạn Mạn nhìn con gái với ánh mắt ngập tràn cưng chiều vô bờ bến: "Con bé cả ngày ngoài ăn no ra thì chỉ biết lăn ra ngủ thôi."
 
-Ngay trong phòng làm việc tổng giám đốc được kê ngay ngắn một chiếc giường nôi trẻ em. Hứa Mạn Mạn đã chính thức quay trở lại công ty làm việc, cô không hề phô trương rầm rộ, mỗi sáng chỉ ẵm Triệu Tri Nặc từ bãi đỗ xe dưới tầng hầm đi thang máy thẳng lên tầng ba của Trăn Hối Tuyển.
+Ngay trong phòng làm việc tổng giám đốc được kê ngay ngắn một chiếc giường nôi trẻ em. Từ Mạn Mạn đã chính thức quay trở lại công ty làm việc, cô không hề phô trương rầm rộ, mỗi sáng chỉ ẵm Triệu Tri Nặc từ bãi đỗ xe dưới tầng hầm đi thang máy thẳng lên tầng ba của Trăn Hối Tuyển.
 
-Quan Văn Bách đích thân lái chiếc xe bảo mẫu Mercedes đưa đón hai mẹ con, Hứa Mạn Mạn tuyệt nhiên không bao giờ bế con đi nghênh ngang qua lối cửa chính của đại siêu thị.
+Quan Văn Bách đích thân lái chiếc xe bảo mẫu Mercedes đưa đón hai mẹ con, Từ Mạn Mạn tuyệt nhiên không bao giờ bế con đi nghênh ngang qua lối cửa chính của đại siêu thị.
 
 Trong công ty, chẳng một ai dám hé nửa lời dị nghị.
 

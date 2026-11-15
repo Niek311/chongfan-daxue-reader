@@ -1,7 +1,5 @@
 # Chương 147: Kiếp trước nhìn không thấu, kiếp này cũng chẳng hiểu nổi.
 
-> **Tiêu đề gốc**: 第147章 上一世看不懂，这一世也看不懂。
-
 Ba ngày tiếp theo, thị trường chứng khoán tiếp tục lao dốc không phanh.
 
 Chuyên gia nào lên tiếng trấn an cũng vô ích, dù các tổ chức tài chính lớn vẫn ngoan cố giữ thái độ lạc quan tếu.

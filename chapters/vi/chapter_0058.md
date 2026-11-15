@@ -1,14 +1,12 @@
 # Chương 58: Triệu Kim An là bạn trai tớ!
 
-> **Tiêu đề gốc**: 第58章 赵今安是我男朋友！
-
 Đại học Trung Nam, phòng ký túc xá 406.
 
 Chẳng hiểu vì lý do gì, Từ Mạn Mạn hôm nay lại đứng lục lọi tủ quần áo hồi lâu, rồi còn cẩn thận dặm lại một lớp phấn trang điểm nhẹ nhàng.
 
 Giữa cô và Trần Trạch vốn dĩ đã quá quen thuộc, chẳng còn cần thiết phải cầu kỳ chau chuốt đến mức này.
 
-Ngắm nhìn bóng hình mình phản chiếu trong gương, Từ Mạn Mạn khẽ thoa thêm chút son bóng lên môi. Diêu Tân thấy vậy liền nhào tới ôm chầm lấy cô ríu rít:
+Ngắm nhìn bóng hình mình phản chiếu trong gương, Từ Mạn Mạn khẽ thoa thêm chút son bóng lên môi. Diêu Sân thấy vậy liền nhào tới ôm chầm lấy cô ríu rít:
 
 — Oa, Mạn Mạn ơi hôm nay cậu xinh lung linh luôn á!
 
@@ -20,21 +18,21 @@ Có người dì ruột làm trong ngành mỹ phẩm nên Mộc Dao là ngườ
 
 Ban đầu cô nàng vốn chẳng mấy mặn mà với buổi hẹn này, chỉ vì nể mặt Từ Mạn Mạn nên mới miễn cưỡng nhận lời tham gia buổi tiệc giao lưu giữa hai phòng ký túc xá.
 
-Cho đến khi cái tên “Triệu Kim An” thốt ra từ khóe môi của Diêu Tân.
+Cho đến khi cái tên “Triệu Kim An” thốt ra từ khóe môi của Diêu Sân.
 
 Mộc Dao thoắt cái quay phắt người lại, giọng nói đanh lên:
 
-— Diêu Tân, cậu vừa nhắc đến ai cơ?!
+— Diêu Sân, cậu vừa nhắc đến ai cơ?!
 
 Thấy phản ứng dữ dội bất thường của Mộc Dao, ba cô gái còn lại trong phòng đưa mắt nhìn nhau đầy ngơ ngác.
 
 Rốt cuộc là có chuyện gì mà cậu phải làm quá lên như thế?
 
-Mộc Dao dồn dập gặng hỏi Diêu Tân:
+Mộc Dao dồn dập gặng hỏi Diêu Sân:
 
 — Sao các cậu lại quen biết Triệu Kim An? Có phải là Triệu Kim An bên Học viện Thương mại Đại học Sư phạm không?!
 
-Diêu Tân ngơ ngác gật đầu, đáp rằng quen biết nhau vào đúng cái hôm vừa kết thúc đợt huấn luyện quân sự.
+Diêu Sân ngơ ngác gật đầu, đáp rằng quen biết nhau vào đúng cái hôm vừa kết thúc đợt huấn luyện quân sự.
 
 Vành mắt Mộc Dao lập tức đỏ hoe. Cô nàng đảo mắt nhìn lướt qua ba người bạn cùng phòng, cuối cùng dừng lại, dán chặt ánh nhìn vào Thẩm Tử Ngôn và Từ Mạn Mạn, bất thình lình gào thét lên một cách vô cớ:
 
@@ -44,7 +42,7 @@ Cả căn phòng ký túc xá chìm vào một khoảng lặng chết chóc!
 
 Từ Mạn Mạn bất giác siết chặt thỏi son bóng trong lòng bàn tay, ngước nhìn Mộc Dao rồi lặng lẽ giấu tay ra sau lưng.
 
-Thẩm Tử Ngôn đưa mắt nhìn sang Diêu Tân. Cách đây không lâu, chính Diêu Tân vừa mới quả quyết bảo rằng “Mộc Dao và Triệu Kim An không hợp nhau”. Cả phòng bọn họ trước giờ chỉ biết Mộc Dao đang cãi nhau to với bạn trai.
+Thẩm Tử Ngôn đưa mắt nhìn sang Diêu Sân. Cách đây không lâu, chính Diêu Sân vừa mới quả quyết bảo rằng “Mộc Dao và Triệu Kim An không hợp nhau”. Cả phòng bọn họ trước giờ chỉ biết Mộc Dao đang cãi nhau to với bạn trai.
 
 Lại còn là trận cãi vã nảy lửa đến mức chặn số, xóa liên lạc của nhau nữa chứ.
 
@@ -56,7 +54,7 @@ Mộc Dao cảm thấy tủi thân vô cùng. Rốt cuộc mình đã làm sai c
 
 Biết Từ Mạn Mạn đã có bạn trai đàng hoàng, ánh mắt Mộc Dao bèn chuyển hướng, chằm chằm ghim thẳng vào Thẩm Tử Ngôn.
 
-Diêu Tân hoàn toàn bị gạt ra ngoài rìa.
+Diêu Sân hoàn toàn bị gạt ra ngoài rìa.
 
 Bị Mộc Dao nhìn trừng trừng bằng ánh mắt ấy, Thẩm Tử Ngôn bỗng dâng lên một thoáng chột dạ không rõ nguyên do. Cô hít sâu một hơi, lấy lại vẻ thản nhiên rồi phân bua:
 
@@ -64,7 +62,7 @@ Bị Mộc Dao nhìn trừng trừng bằng ánh mắt ấy, Thẩm Tử Ngôn b
 
 Thẩm Tử Ngôn đã nói dối.
 
-Diêu Tân cũng vội vã đỡ lời:
+Diêu Sân cũng vội vã đỡ lời:
 
 — Dao Dao à, tụi này đâu có biết Triệu Kim An là bạn trai cậu đâu, bọn tớ đâu cố ý giấu giếm cậu làm gì. Tại dạo này cậu cứ thích chạy sang phòng 411 tìm Du Phi chơi miết đấy chứ.
 
@@ -102,7 +100,7 @@ Trong đợt huấn luyện quân sự, bốn cô gái từng nằm trên giư�
 
 Từ Mạn Mạn từng khiêm tốn bảo rằng nhà Trần Trạch cũng chỉ buôn bán kinh doanh nhỏ lẻ, chẳng phải đại gia giàu có gì cho cam, không có gì đáng để ghen tị ngưỡng mộ.
 
-Diêu Tân khi ấy liền quay sang gặng hỏi Mộc Dao.
+Diêu Sân khi ấy liền quay sang gặng hỏi Mộc Dao.
 
 Mộc Dao vốn rất ghét người khác đào sâu vào hoàn cảnh gia đình mình, cô nàng liếc nhìn sang giường của Từ Mạn Mạn rồi ậm ừ qua quýt:
 
@@ -110,7 +108,7 @@ Mộc Dao vốn rất ghét người khác đào sâu vào hoàn cảnh gia đì
 
 Còn lúc này đây.
 
-Diêu Tân cười hì hì trêu chọc:
+Diêu Sân cười hì hì trêu chọc:
 
 — Dao Dao này, hôm trước cậu còn bảo nhà Triệu Kim An chỉ làm ăn nhỏ thôi á? Chị họ cậu ấy lái hẳn con xe Range Rover bạc tỷ đấy nhé! Nhà làm ăn nhỏ nào mà mua nổi chiếc xe sang chảnh cỡ đó cơ chứ?
 
@@ -118,7 +116,7 @@ Mộc Dao thoáng ngẩn người ra. Xe Range Rover là xe gì?
 
 Chị họ... chị họ nào? Sao mình lại chưa từng nghe nói bao giờ nhỉ?
 
-Diêu Tân giả vờ thở dài thườn thượt:
+Diêu Sân giả vờ thở dài thườn thượt:
 
 — Ai chà chà, bạn trai của các cậu người nào người nấy đều là phú nhị đại ngầm, mà ai cũng khiêm tốn giấu nghề thế không biết.
 
@@ -130,7 +128,7 @@ Chỉ có duy nhất Từ Mạn Mạn là vẫn im lặng, ánh mắt không r�
 
 Mộc Dao vẫn đang chìm trong cơn ngơ ngác tột độ.
 
-Chiếc BMW của dì ruột cô cũng chỉ chưa đầy 400.000 tệ. Nhà Triệu Kim An thì cô cũng đã từng ghé qua rồi, làm gì nghe nói có người chị họ nào giàu có nhường ấy? Người mẹ kế Đoàn Thu Bình sau khi tái giá nghe đâu cũng lấy một gia đình hết sức bình thường.
+Chiếc BMW của dì ruột cô cũng chỉ chưa đầy 400.000 tệ. Nhà Triệu Kim An thì cô cũng đã từng ghé qua rồi, làm gì nghe nói có người chị họ nào giàu có nhường ấy? Người mẹ kế Đoạn Thu Bình sau khi tái giá nghe đâu cũng lấy một gia đình hết sức bình thường.
 
 À, đúng rồi, hình như anh ấy có một người chị gái không cùng huyết thống...
 
@@ -146,7 +144,7 @@ Tất cả những điều này đều là do mẹ cô — bà Trương Tuệ v�
 
 Ở phía bên kia, Triệu Kim An đang ngồi ở hàng ghế sau của chiếc Audi, sau khi ngắt cuộc gọi, anh hoàn toàn không nhớ ra chuyện Mộc Dao và Từ Mạn Mạn lại ở chung một phòng ký túc xá. Trong ký ức kiếp trước của anh, bạn cùng phòng của Mộc Dao dường như có một người mang họ Vương cơ mà.
 
-Đơn Vĩ đưa mắt liếc nhìn gương chiếu hậu, ban nãy gã vừa nghe thấy ông chủ thốt lên câu “Bọn tôi chia tay rồi”.
+Đan Vĩ đưa mắt liếc nhìn gương chiếu hậu, ban nãy gã vừa nghe thấy ông chủ thốt lên câu “Bọn tôi chia tay rồi”.
 
 Hóa ra là vậy...
 
@@ -154,7 +152,7 @@ Khi xe gần đến nơi, Triệu Kim An thoáng thấy bóng dáng Lưu Sùng P
 
 — Dừng xe ở đây.
 
-Đơn Vĩ lại định vòng ra mở cửa xe nhưng Triệu Kim An đã bảo không cần.
+Đan Vĩ lại định vòng ra mở cửa xe nhưng Triệu Kim An đã bảo không cần.
 
 Thấy Triệu Kim An từ đằng xa thong thả rảo bước đi tới, Lưu Sùng Phong liền lao tới đấm nhẹ vào vai anh một cú:
 
@@ -162,7 +160,7 @@ Thấy Triệu Kim An từ đằng xa thong thả rảo bước đi tới, Lưu 
 
 — Mày nỡ lòng nào buông tay một đại mỹ nhân như thế hả?
 
-Đơn Vĩ lái chiếc Audi chầm chậm bám theo sau ở khoảng cách bốn, năm mươi mét.
+Đan Vĩ lái chiếc Audi chầm chậm bám theo sau ở khoảng cách bốn, năm mươi mét.
 
 Cốc Siêu Thừa chỉ lặng lẽ dán chặt ánh mắt vào Triệu Kim An mà không thốt nên lời. Cậu ta không tài nào hiểu nổi, một cô gái xinh đẹp rạng ngời như Mộc Dao, cớ sao Triệu Kim An lại có thể nhẫn tâm nói ra hai chữ chia tay dễ dàng đến thế.
 
@@ -180,7 +178,7 @@ Mẹ kiếp, đẹp trai thì thực sự có quyền muốn làm gì thì làm 
 
 Mười phút sau, Trần Trạch vừa bước xuống xe vừa bấm số gọi cho Lưu Sùng Phong, dẫn cả đoàn người bước vào sảnh lớn của nhà hàng Hiên Tụ Đức. Đập vào mắt mọi người là từng hàng bể kính khổng lồ nuôi đầy các loại cá tôm, cua biển tươi sống đang bơi lội tung tăng.
 
-Mộc Dao và Từ Mạn Mạn không có phản ứng gì đặc biệt, nhưng Diêu Tân thì khẽ kéo áo thì thào hỏi nhỏ:
+Mộc Dao và Từ Mạn Mạn không có phản ứng gì đặc biệt, nhưng Diêu Sân thì khẽ kéo áo thì thào hỏi nhỏ:
 
 — Ăn ở đây... liệu có đắt đỏ lắm không các cậu?
 
@@ -192,11 +190,11 @@ Nghe thấy lời cô nói, mấy vị khách gần đó đồng loạt ngoảnh
 
 Trần Trạch vội vã vỗ ngực nhận hết về mình, bảo rằng bữa này cứ để gã đứng ra thanh toán toàn bộ, không có vấn đề gì cả.
 
-Thế nhưng cả Mộc Dao và Diêu Tân đều kiên quyết đòi chia đều (Campuchia). Mộc Dao còn hào phóng nói thêm rằng phần của Triệu Kim An cứ để cô gánh thay. Thẩm Tử Ngôn ngẫm nghĩ một thoáng, liền bảo hai người họ cứ đi lên phòng bao trước, còn mình thì nán lại dưới sảnh để gọi món cùng Trần Trạch.
+Thế nhưng cả Mộc Dao và Diêu Sân đều kiên quyết đòi chia đều (Campuchia). Mộc Dao còn hào phóng nói thêm rằng phần của Triệu Kim An cứ để cô gánh thay. Thẩm Tử Ngôn ngẫm nghĩ một thoáng, liền bảo hai người họ cứ đi lên phòng bao trước, còn mình thì nán lại dưới sảnh để gọi món cùng Trần Trạch.
 
 Đến khi chỉ còn lại hai người, Thẩm Tử Ngôn liền cất giọng ngắn gọn, dứt khoát:
 
-— Phần tiền của bên con trai cậu lo, phần của Diêu Tân để tôi trả. Lát nữa nếu có ai hỏi về chuyện chia tiền, cậu cứ bảo tổng bữa ăn này hết hơn ba trăm tệ là được.
+— Phần tiền của bên con trai cậu lo, phần của Diêu Sân để tôi trả. Lát nữa nếu có ai hỏi về chuyện chia tiền, cậu cứ bảo tổng bữa ăn này hết hơn ba trăm tệ là được.
 
 — ...
 

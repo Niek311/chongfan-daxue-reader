@@ -1,7 +1,5 @@
 # Chương 311: Cảng vụ Hoàn Vũ
 
-> **Tiêu đề gốc**: 第311章 寰宇港务。
-
 "No... no rồi, em ăn trọn một bát cơm to tướng mà."
 
 Trịnh Như vừa định bưng đĩa thức ăn thừa đổ vào thùng rác thì Vương Duy Đào đã lách người lẻn vào, vội vàng cản lại: "Khoan đã, anh vẫn chưa no!"
@@ -146,21 +144,21 @@ Dư Tĩnh vẫn chưa lên đường ngay chuyến này. Cô cần phải điề
 
 Cô biết rõ chuỗi ngày bận rộn sắp sửa bắt đầu.
 
-Trên đường quay về, Triệu Kim An quay sang hỏi Đơn Vĩ: "Anh có đồng đội xuất ngũ nào tính tình đáng tin cậy không?"
+Trên đường quay về, Triệu Kim An quay sang hỏi Đan Vĩ: "Anh có đồng đội xuất ngũ nào tính tình đáng tin cậy không?"
 
-Sắp tới phải ra nước ngoài công tác, Triệu Kim An chỉ dẫn theo mỗi một mình Đơn Vĩ thì không thể an tâm tuyệt đối được, bởi lẽ rất nhiều quốc gia không hề cấm sử dụng súng đạn tự do.
+Sắp tới phải ra nước ngoài công tác, Triệu Kim An chỉ dẫn theo mỗi một mình Đan Vĩ thì không thể an tâm tuyệt đối được, bởi lẽ rất nhiều quốc gia không hề cấm sử dụng súng đạn tự do.
 
 "Ông chủ, tiêu chuẩn 'đáng tin cậy' của cậu là thế nào?"
 
 "Không dính vào tệ nạn xấu xa, và không phải kiểu người sống buông thả 'một thân ăn no cả họ không lo đói'."
 
-Đơn Vĩ lập tức hiểu ngay ý tứ: người có gia đình, có trách nhiệm, giữ mình nghiêm cẩn.
+Đan Vĩ lập tức hiểu ngay ý tứ: người có gia đình, có trách nhiệm, giữ mình nghiêm cẩn.
 
 Triệu Kim An dặn thêm: "Đi đặt mua thêm hai chiếc xe thương vụ Mercedes cỡ lớn."
 
 "Vâng, thưa ông chủ."
 
-Đơn Vĩ tập trung lái xe. Quả thực hai chiếc Rolls-Royce và Bentley tuy sang trọng nhưng xét về tính tiện dụng khi di chuyển theo đoàn thì không bằng dòng xe thương vụ MPV.
+Đan Vĩ tập trung lái xe. Quả thực hai chiếc Rolls-Royce và Bentley tuy sang trọng nhưng xét về tính tiện dụng khi di chuyển theo đoàn thì không bằng dòng xe thương vụ MPV.
 
 Dư Tĩnh cũng là lần đầu tiên được ngồi trên chiếc Rolls-Royce sang trọng này. Ngồi song song bên cạnh Triệu Kim An ở hàng ghế sau, cô khẽ nghiêng đầu quan sát dáng ngồi đoan chính, trầm tĩnh của cậu học trò. Trong lòng cô thực sự không tài nào nhìn thấu nổi chàng trai trẻ này.
 

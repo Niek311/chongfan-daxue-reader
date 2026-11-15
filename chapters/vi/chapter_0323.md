@@ -1,18 +1,16 @@
 # Chương 323: Cơn giận này đã xả hết chưa?
 
-> **Tiêu đề gốc**: 第323章 你这口气出完了吗？
-
-Dương Thục Mỹ cùng đường bí lối, bà đành lái xe chạy thẳng tới siêu thị Trăn Hối Tuyển.
+Dương Thù Mỹ cùng đường bí lối, bà đành lái xe chạy thẳng tới siêu thị Trăn Hối Tuyển.
 
 Lần này bà không còn mặt mũi nào để mở lời nhờ Từ Mạn Mạn về phụ giúp xưởng nữa. Khoan hãy nói đến chuyện Trần Trạch và Lâm Thanh Tuyết vẫn chưa chia tay, bản thân Từ Mạn Mạn giờ đã là Phó Tổng giám đốc của Trăn Hối Tuyển; vả lại sức lực cá nhân của Từ Mạn Mạn lúc này cũng chẳng giải quyết được gốc rễ vấn đề.
 
 Thứ cấp bách sống còn nhất bây giờ là dòng tiền!
 
-Nói cho cùng, Lưu Sấm Phong muốn vượt mặt Trần Trạch là việc vô cùng gian nan. Dương Thục Mỹ năm nay mới ngoài 40 tuổi, trong điều kiện bình thường bà dư sức "bảo kê" cho Trần Trạch êm ấm thêm ít nhất 20 năm nữa; đầu thai vốn dĩ đã là một môn nghệ thuật mang tính quyết định. Năng lực làm việc của Lưu Sấm Phong còn lâu mới sánh bằng Dương Thục Mỹ, chỉ là chưa biết sau này khi Phương Khiết trưởng thành hơn thì sẽ xoay chuyển ra sao.
+Nói cho cùng, Lưu Sấm Phong muốn vượt mặt Trần Trạch là việc vô cùng gian nan. Dương Thù Mỹ năm nay mới ngoài 40 tuổi, trong điều kiện bình thường bà dư sức "bảo kê" cho Trần Trạch êm ấm thêm ít nhất 20 năm nữa; đầu thai vốn dĩ đã là một môn nghệ thuật mang tính quyết định. Năng lực làm việc của Lưu Sấm Phong còn lâu mới sánh bằng Dương Thù Mỹ, chỉ là chưa biết sau này khi Phương Khiết trưởng thành hơn thì sẽ xoay chuyển ra sao.
 
 Trăn Hối Tuyển về đêm buôn bán càng tấp nập hơn. Quận Sa vốn là thành phố không ngủ, đêm xuống người dân đổ ra đường nườm nượp.
 
-Nhìn dòng người xếp hàng dài dằng dặc trước các quầy thu ngân, khu đồ ăn chín và bánh ngọt rất nhiều quầy kệ đã bị vét sạch trơn, Dương Thục Mỹ tuy chưa từng nghiên cứu sâu về tỷ suất lợi nhuận của mô hình đại siêu thị, nhưng nhìn doanh thu tiền tươi thóc thật luân chuyển khổng lồ hàng ngày cũng đủ khiến bà kinh hồn bạt vía.
+Nhìn dòng người xếp hàng dài dằng dặc trước các quầy thu ngân, khu đồ ăn chín và bánh ngọt rất nhiều quầy kệ đã bị vét sạch trơn, Dương Thù Mỹ tuy chưa từng nghiên cứu sâu về tỷ suất lợi nhuận của mô hình đại siêu thị, nhưng nhìn doanh thu tiền tươi thóc thật luân chuyển khổng lồ hàng ngày cũng đủ khiến bà kinh hồn bạt vía.
 
 Trong đầu bà lập tức nảy ra một thuật ngữ thương mại: kỳ hạn công nợ!
 
@@ -22,25 +20,25 @@ Trăn Hối Tuyển tuy mới chỉ mở duy nhất một cơ sở tại Quận 
 
 Giai đoạn này, buôn bán mặt tiền đường rất dễ kiếm ăn, mà mở shop online cũng ít sự cạnh tranh, chỉ cần có gan bươn chải là rất dễ hốt bạc. Trừ phi số mệnh đã định sẵn không có duyên với tiền tài!
 
-Dương Thục Mỹ cũng đinh ninh rằng Triệu Kim An chỉ tập trung vào hai mảng Trăn Nhiên và Trăn Hối Tuyển chứ không bành trướng thêm sang các lĩnh vực khác, có được cơ nghiệp Trăn Nhiên chẳng lẽ còn chưa đủ hay sao?
+Dương Thù Mỹ cũng đinh ninh rằng Triệu Kim An chỉ tập trung vào hai mảng Trăn Nhiên và Trăn Hối Tuyển chứ không bành trướng thêm sang các lĩnh vực khác, có được cơ nghiệp Trăn Nhiên chẳng lẽ còn chưa đủ hay sao?
 
 "Dương tổng? Chị lại tới nữa à?"
 
-Tại khúc quanh hành lang tầng ba, Dương Thục Mỹ bị Lưu Hiểu Tĩnh đưa tay chặn lại.
+Tại khúc quanh hành lang tầng ba, Dương Thù Mỹ bị Lưu Hiểu Tĩnh đưa tay chặn lại.
 
 "Mạn Mạn!"
 
-Dương Thục Mỹ cất tiếng gọi dồn dập mấy câu, lát sau Từ Mạn Mạn mới từ trong phòng làm việc bước ra.
+Dương Thù Mỹ cất tiếng gọi dồn dập mấy câu, lát sau Từ Mạn Mạn mới từ trong phòng làm việc bước ra.
 
 Cô khoác trên mình bộ âu phục công sở chỉn chu, điềm tĩnh đứng ngay ngưỡng cửa.
 
-Dương Thục Mỹ bất giác ngẩn người ra một lúc.
+Dương Thù Mỹ bất giác ngẩn người ra một lúc.
 
-Đây thực sự là Từ Mạn Mạn sao? Khí chất ngút ngàn này... Năm ngoái Dương Thục Mỹ vẫn còn khoác vai Từ Mạn Mạn dạo bước trên phố rồi tình cờ chạm mặt Triệu Kim An ngồi trên chiếc Audi sang trọng; đầu năm nay Từ Mạn Mạn vẫn còn ngoan ngoãn gọi điện báo cáo công việc cho bà cơ mà.
+Đây thực sự là Từ Mạn Mạn sao? Khí chất ngút ngàn này... Năm ngoái Dương Thù Mỹ vẫn còn khoác vai Từ Mạn Mạn dạo bước trên phố rồi tình cờ chạm mặt Triệu Kim An ngồi trên chiếc Audi sang trọng; đầu năm nay Từ Mạn Mạn vẫn còn ngoan ngoãn gọi điện báo cáo công việc cho bà cơ mà.
 
 "Mạn Mạn."
 
-Dương Thục Mỹ nở nụ cười đon đả, toan bước vào trong phòng làm việc.
+Dương Thù Mỹ nở nụ cười đon đả, toan bước vào trong phòng làm việc.
 
 Lưu Hiểu Tĩnh lập tức đưa tay ngăn lại, dứt khoát không cho vào.
 
@@ -60,7 +58,7 @@ Từ Mạn Mạn khẽ lắc đầu.
 
 Từ Mạn Mạn dứt lời liền quay lưng bước vào phòng, cánh cửa gỗ đóng sầm lại và khóa chốt bên trong.
 
-Ngoài hành lang, Dương Thục Mỹ bước dồn tới mấy bước, giọng nói nghẹn ngào, hoảng loạn: "Mạn Mạn, dì thực sự cùng đường rồi cháu ơi! Chỗ nào vay mượn được dì đều đã vay hết rồi, ngay cả căn biệt thự kia... cái phòng của cháu dì cũng đã phải bán tống bán tháo đi rồi!"
+Ngoài hành lang, Dương Thù Mỹ bước dồn tới mấy bước, giọng nói nghẹn ngào, hoảng loạn: "Mạn Mạn, dì thực sự cùng đường rồi cháu ơi! Chỗ nào vay mượn được dì đều đã vay hết rồi, ngay cả căn biệt thự kia... cái phòng của cháu dì cũng đã phải bán tống bán tháo đi rồi!"
 
 "Mạn Mạn, nể tình nghĩa bao nhiêu năm qua dì cháu mình gắn bó, cháu giúp dì một lần này thôi được không?"
 
@@ -74,7 +72,7 @@ Từ Mạn Mạn tựa lưng vào mép cửa, im lặng không đáp lấy một
 
 Đến tận giây phút này, cô mới thực sự thấm thía tại sao ngày trước khi cô mới bước chân vào công ty, Triệu Kim An lại nói ra những lời sâu xa ấy.
 
-Nếu hỏi Từ Mạn Mạn có muốn nhìn thấy Dương Thục Mỹ rơi vào cảnh tán gia bại sản hay không? Có muốn nhìn thấy cảnh bà cùng đường phải lưu lạc đầu đường xó chợ như lời bà vừa than khóc hay không?
+Nếu hỏi Từ Mạn Mạn có muốn nhìn thấy Dương Thù Mỹ rơi vào cảnh tán gia bại sản hay không? Có muốn nhìn thấy cảnh bà cùng đường phải lưu lạc đầu đường xó chợ như lời bà vừa than khóc hay không?
 
 Câu trả lời chắc chắn là không.
 

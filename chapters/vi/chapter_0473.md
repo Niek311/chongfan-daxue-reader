@@ -1,7 +1,5 @@
 # Chương 473: Pháo Hoa, Điều Lãng Mạn Nhất
 
-> **Tiêu đề gốc**: 第473章 烟花，最浪漫的事。
-
 Đã biết Thẩm Tử Ngôn không đến, Tô Miến cũng chẳng buồn "đợi" thêm nữa.
 
 Cô đã trao cho hai lần cơ hội, nhưng Thẩm Tử Ngôn đều không xuất hiện.
@@ -68,9 +66,9 @@ Triệu Kim An chỉ biết rằng giờ khắc này người nằm trong vòng 
 
 Bà Kim Như còn xót cháu mà kể tội: Mạn Mạn dám "đánh" đòn Triệu Tri Nặc!
 
-Thế là bà lập tức "đánh" lại Hứa Mạn Mạn để bênh cháu gái.
+Thế là bà lập tức "đánh" lại Từ Mạn Mạn để bênh cháu gái.
 
-Hứa Mạn Mạn xưa nay chẳng bao giờ biết mách lẻo, cô không hiểu cách mách tội với ai, chưa từng than thở, cũng chẳng biết làm nũng.
+Từ Mạn Mạn xưa nay chẳng bao giờ biết mách lẻo, cô không hiểu cách mách tội với ai, chưa từng than thở, cũng chẳng biết làm nũng.
 
 Cô chỉ cười hiền từ tràn ngập cưng chiều, vừa cặm cụi pha sữa cho con gái, vừa dỗ dành cho Triệu Tri Nặc vừa tắm vừa bú bình.
 

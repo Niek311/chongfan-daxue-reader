@@ -1,7 +1,5 @@
 # Chương 297: Rộng rãi bằng tiền của người khác
 
-> **Tiêu đề gốc**: 第297章 慷他人之慨。
-
 Đại học Trung Nam, phòng ký túc xá 406.
 
 Mộc Dao nhìn chằm chằm vào màn hình điện thoại suốt nửa phút đồng hồ mới hoàn hồn phản ứng lại: Từ Mạn Mạn cũng thích Triệu Kim An!!

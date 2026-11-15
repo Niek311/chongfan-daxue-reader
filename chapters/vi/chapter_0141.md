@@ -1,7 +1,5 @@
 # Chương 141: Bắt đầu
 
-> **Tiêu đề gốc**: 第141章 开始了。
-
 Cứ như thế, Đoạn Thu Bình dắt tay Tống Gia Nguyệt rời đi khi bữa cơm trưa còn chưa kịp động đũa.
 
 Suốt dọc đường ra ngõ, con bé Tống Gia Nguyệt cứ liên tục ngoái đầu lại, ngơ ngác nhìn người mà mẹ vừa bảo mình phải gọi là "anh trai".
@@ -140,7 +138,7 @@ Còn Tô Miến thì mãi đến ngày thứ hai mới gửi cho anh một mẩu
 
 Hôm nay khi trở về phòng ký túc xá, Triệu Kim An thấy Trần Trạch đang nghe điện thoại.
 
-Đầu dây bên kia, giọng của Dương Thục Mỹ vang lên gay gắt, bảo con trai phải biết tiết kiệm tiền bạc, đừng suốt ngày chỉ mải mê đàn đúm chơi bời, rảnh rỗi thì chạy qua xưởng ở Tinh Sa một chuyến...
+Đầu dây bên kia, giọng của Dương Thù Mỹ vang lên gay gắt, bảo con trai phải biết tiết kiệm tiền bạc, đừng suốt ngày chỉ mải mê đàn đúm chơi bời, rảnh rỗi thì chạy qua xưởng ở Tinh Sa một chuyến...
 
 Trần Trạch cầm điện thoại đi ra ngoài ban công, một lát sau quay vào phòng, vội vã mở máy tính lên.
 
@@ -166,7 +164,7 @@ Gia đình Trần Trạch vốn làm ăn trong ngành ngoại thương xuất kh
 
 Chỉ là ở kiếp trước, dường như Trần Trạch cũng chẳng bị ảnh hưởng gì mấy, ít nhất thì chiếc xe BMW vẫn chạy tà tà suốt thời đại học.
 
-Sau khi tốt nghiệp, Trần Trạch liền về tiếp quản công ty gia đình, điều đó chứng tỏ Dương Thục Mỹ cũng là người có bản lĩnh thực sự, chí ít cũng không để cơ nghiệp bị phá sản.
+Sau khi tốt nghiệp, Trần Trạch liền về tiếp quản công ty gia đình, điều đó chứng tỏ Dương Thù Mỹ cũng là người có bản lĩnh thực sự, chí ít cũng không để cơ nghiệp bị phá sản.
 
 Trần Trạch không muốn cho các bạn cùng phòng biết chuyện, ngón tay gõ bàn phím lách cách liên hồi.
 

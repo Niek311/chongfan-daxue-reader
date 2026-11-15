@@ -1,7 +1,5 @@
 # Chương 81: Vòng tròn quan hệ
 
-> **Tiêu đề gốc**: 第81章 圈子。
-
 Sinh viên đại học được nghỉ Tết khá sớm. Triệu Trí Dũng đã sốt sắng gọi điện từ mấy hôm trước, bảo vé tàu hỏa về quê đợt này khó mua vô cùng, may mà có thể đặt vé trước nửa tháng.
 
 Triệu Kim An dặn cậu ta cứ nán lại chờ mình thêm mấy ngày, không cần phải mua vé tàu làm gì.
@@ -88,27 +86,27 @@ Triệu Kim An cười bảo công ty quy mô còn nhỏ, tài chính eo hẹp, 
 
 Thế là hai chữ "phấn đấu" cứ thế được Chu Sở Hân mang ra réo rắt bên tai. Nào ngờ Đường Hiểu Tình nghe xong lại cảm thấy hừng hực khí thế, Chu Sở Hân rảnh rỗi sinh nông nổi còn hào hứng chạy theo phụ Đường Hiểu Tình khảo sát thị trường suốt hai ngày trời.
 
-Triệu Kim An bảo Đơn Vĩ mua thêm nhiều thức ăn ngon, cả nhóm mấy người cùng quây quần tụ tập ăn bữa cơm tất niên tại nhà Đơn Vĩ.
+Triệu Kim An bảo Đan Vĩ mua thêm nhiều thức ăn ngon, cả nhóm mấy người cùng quây quần tụ tập ăn bữa cơm tất niên tại nhà Đan Vĩ.
 
-Bữa ăn còn có cả Đơn Na Tề.
+Bữa ăn còn có cả Đan Na Tề.
 
 Đường Hiểu Tình nấu nướng rất khéo tay, cô vô cùng yêu thích bầu không khí ấm cúng này, cảm giác chẳng khác nào một gia đình lớn sum vầy.
 
 Cái miệng của Chu Sở Hân vốn chẳng giữ được bí mật, thế nên cả đám đều đã biết chuyện Triệu Bác Lan phải gọi Triệu Kim An bằng "chú".
 
-Đơn Na Tề xếp ngay ngắn bát đũa, kéo ghế cho Triệu Kim An ngồi, sau khi an tọa liền nâng ly nước ngọt lên cất lời: "Anh Kim An, sau này tốt nghiệp em cũng muốn vào công ty của anh làm việc."
+Đan Na Tề xếp ngay ngắn bát đũa, kéo ghế cho Triệu Kim An ngồi, sau khi an tọa liền nâng ly nước ngọt lên cất lời: "Anh Kim An, sau này tốt nghiệp em cũng muốn vào công ty của anh làm việc."
 
 Triệu Kim An mỉm cười xoa đầu: "Em mới học lớp mười một thôi mà."
 
-Ấy vậy mà Đơn Na Tề đã sớm hạ quyết tâm, sau này nhất định phải trở thành cánh tay phải đắc lực bên cạnh Triệu Kim An.
+Ấy vậy mà Đan Na Tề đã sớm hạ quyết tâm, sau này nhất định phải trở thành cánh tay phải đắc lực bên cạnh Triệu Kim An.
 
-Đơn Vĩ xoay mâm tròn trên bàn: "Ông chủ, mời cậu gắp thêm thức ăn."
+Đan Vĩ xoay mâm tròn trên bàn: "Ông chủ, mời cậu gắp thêm thức ăn."
 
 Triệu Kim An quay sang hỏi Đường Hiểu Tình: "Em mua được vé xe về quê chưa?"
 
 Đường Hiểu Tình gật đầu bảo đã mua được rồi, thi xong môn cuối vào ngày kia là cô sẽ lên đường về ngay.
 
-Đơn Na Tề tò mò hỏi: "Thế bao giờ mọi người quay lại đây làm việc ạ?"
+Đan Na Tề tò mò hỏi: "Thế bao giờ mọi người quay lại đây làm việc ạ?"
 
 Triệu Kim An đáp: "Chắc tầm khoảng mùng bảy Tết."
 
@@ -122,11 +120,11 @@ Triệu Bác Lan vừa nén cười vừa kéo tay áo giật phắt Chu Sở H�
 
 Triệu Kim An khẽ cười, cũng đứng dậy nâng ly.
 
-Thấy Triệu Kim An đứng lên, mấy người còn lại lập tức nhất tề đứng dậy, cụng những ly nước ngọt "miễn phí", hào sảng tuôn ra những lời chúc tụng may mắn nhất cho năm mới, ngay cả bác tài Đơn Vĩ cũng không giấu nổi vẻ xúc động trên gương mặt.
+Thấy Triệu Kim An đứng lên, mấy người còn lại lập tức nhất tề đứng dậy, cụng những ly nước ngọt "miễn phí", hào sảng tuôn ra những lời chúc tụng may mắn nhất cho năm mới, ngay cả bác tài Đan Vĩ cũng không giấu nổi vẻ xúc động trên gương mặt.
 
-Đưa mắt nhìn cô con gái nhỏ mới học lớp mười một cùng ba cô nữ sinh đại học trước mắt, trong lòng Đơn Vĩ thầm nghĩ, lòng trung thành tuyệt đối của những con người này đối với ông chủ chắc chắn là điều không cần phải hoài nghi.
+Đưa mắt nhìn cô con gái nhỏ mới học lớp mười một cùng ba cô nữ sinh đại học trước mắt, trong lòng Đan Vĩ thầm nghĩ, lòng trung thành tuyệt đối của những con người này đối với ông chủ chắc chắn là điều không cần phải hoài nghi.
 
-Vào ngày thi xong môn cuối cùng, Đơn Vĩ đánh xe đưa Đường Hiểu Tình ra ga tàu hỏa. Ông mua sẵn vé vào sân ga, ân cần tiễn cô tận cửa toa tàu rồi lén lút giúi vào tay Đường Hiểu Tình sáu trăm tệ.
+Vào ngày thi xong môn cuối cùng, Đan Vĩ đánh xe đưa Đường Hiểu Tình ra ga tàu hỏa. Ông mua sẵn vé vào sân ga, ân cần tiễn cô tận cửa toa tàu rồi lén lút giúi vào tay Đường Hiểu Tình sáu trăm tệ.
 
 "Bác Đơn... chuyện này..."
 
@@ -136,7 +134,7 @@ Vào ngày thi xong môn cuối cùng, Đơn Vĩ đánh xe đưa Đường Hiể
 
 Đó cũng là những phần quà tết do đích thân Triệu Kim An và Triệu Bác Lan căn dặn cô mang về quê cho gia đình.
 
-Nhìn theo bóng lưng Đơn Vĩ dần khuất xa giữa dòng người tấp nập, hốc mắt Đường Hiểu Tình bất giác đỏ hoe.
+Nhìn theo bóng lưng Đan Vĩ dần khuất xa giữa dòng người tấp nập, hốc mắt Đường Hiểu Tình bất giác đỏ hoe.
 
 Mọi năm hai mẹ con cô đón Tết chỉ dám chắt chiu mua chút ít thịt thà. Biết rõ hoàn cảnh ngặt nghèo của gia đình cô, hiếm khi có họ hàng nào ghé qua chúc Tết mẹ, mà dẫu có ghé qua thì cũng chẳng mấy ai chịu ở lại dùng bữa cơm đạm bạc.
 

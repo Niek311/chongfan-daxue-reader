@@ -1,7 +1,5 @@
 # Chương 70: Mỗi người một phương trời bình yên
 
-> **Tiêu đề gốc**: 第70章 各自安好。
-
 Lạc Cẩn Chi đã chạy vạy khắp các ngân hàng. Khoản vay thế chấp có thể tạm thời hoãn binh giải ngân sau, nhưng theo đúng lộ trình kế hoạch mà Triệu Kim An vạch ra, nguồn vốn hiện tại của công ty vẫn còn thiếu hụt một khoảng rất xa.
 
 Đây cũng là điều mà Triệu Kim An thầm nợ Lạc Cẩn Chi: sau khi mua lại phân nửa nhà máy nước, Lạc Cẩn Chi đã không hề rút một đồng nào từ khoản tiền bán cổ phần ra để chi tiêu cá nhân, mà dồn toàn bộ để lại làm vốn lưu động cho công ty.

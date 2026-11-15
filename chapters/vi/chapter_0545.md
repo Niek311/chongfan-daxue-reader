@@ -1,7 +1,5 @@
 # Chương 545: Lần đầu nhe nanh vuốt
 
-> **Tiêu đề gốc**: 第545章 第一次张开獠牙。
-
 Lý Hạo Triết mang theo sáu nhân viên an ninh tinh nhuệ từ trong nước sang. Dư Tĩnh lại cẩn thận dặn dò nhóm bốn người của Đan Vĩ phải luôn túc trực, để mắt cảnh giác cao độ tới tình hình an ninh quanh khu vực khách sạn.
 
 Thực chất, khu vực quanh khách sạn lúc này lại vô cùng an toàn. Nhóm người của La Kiến Thành từ lâu đã chi tiền thuê các công ty an ninh vũ trang tư nhân của địa phương bảo vệ nghiêm ngặt.

@@ -1,18 +1,16 @@
 # Chương 101: Tìm kiếm vị trí của riêng mình
 
-> **Tiêu đề gốc**: 第101章 找到自己的定位。
+Nhìn quanh cả phòng học, Từ Mạn Mạn trông thế nào cũng chẳng giống một tình nguyện viên, dáng vẻ của cô có phần lạc lõng, tách biệt hẳn với đám đông.
 
-Nhìn quanh cả phòng học, Hứa Mạn Mạn trông thế nào cũng chẳng giống một tình nguyện viên, dáng vẻ của cô có phần lạc lõng, tách biệt hẳn với đám đông.
-
-Thế nhưng, khi chứng kiến mọi người bận rộn tất bật, tràn đầy nhiệt huyết thanh xuân, lúc nói chuyện gần như phải gào tướng lên để át đi tiếng ồn, cô gái vốn điềm đạm, ít nói như Hứa Mạn Mạn lại cảm thấy vô cùng ngưỡng mộ.
+Thế nhưng, khi chứng kiến mọi người bận rộn tất bật, tràn đầy nhiệt huyết thanh xuân, lúc nói chuyện gần như phải gào tướng lên để át đi tiếng ồn, cô gái vốn điềm đạm, ít nói như Từ Mạn Mạn lại cảm thấy vô cùng ngưỡng mộ.
 
 Sau vài câu hỏi han qua loa, Vương Duy Đào cũng vội vã quay lại với mớ công việc ngập đầu.
 
-Chẳng còn ai rảnh rỗi để bận tâm hay tiếp đãi Hứa Mạn Mạn nữa.
+Chẳng còn ai rảnh rỗi để bận tâm hay tiếp đãi Từ Mạn Mạn nữa.
 
-Cả Vương Duy Đào lẫn Đường Hiểu Tình đều đinh ninh rằng Hứa Mạn Mạn chỉ tiện đường ghé qua chơi bời cho biết, có lẽ dạo chơi được dăm bữa nửa tháng, khi cảm giác mới lạ qua đi thì cô nàng tiểu thư này cũng sẽ tự khắc bỏ cuộc mà thôi.
+Cả Vương Duy Đào lẫn Đường Hiểu Tình đều đinh ninh rằng Từ Mạn Mạn chỉ tiện đường ghé qua chơi bời cho biết, có lẽ dạo chơi được dăm bữa nửa tháng, khi cảm giác mới lạ qua đi thì cô nàng tiểu thư này cũng sẽ tự khắc bỏ cuộc mà thôi.
 
-Hứa Mạn Mạn đưa mắt nhìn quanh quất một lượt, rồi chủ động bước lại gần, cúi người phụ giúp Đường Hiểu Tình sắp xếp, phân loại các bảng biểu kê khai.
+Từ Mạn Mạn đưa mắt nhìn quanh quất một lượt, rồi chủ động bước lại gần, cúi người phụ giúp Đường Hiểu Tình sắp xếp, phân loại các bảng biểu kê khai.
 
 "Mạn Mạn, cậu cũng tới đây ư?"
 
@@ -22,7 +20,7 @@ Theo ngay sau lưng cô là Triệu Trí Dũng. Cậu chàng vốn dĩ sức dà
 
 "Ừm."
 
-Hứa Mạn Mạn đứng bên cạnh bàn học, khẽ gật đầu đáp lời, đôi tay thon thả vẫn thoăn thoắt xếp ngay ngắn từng tập biểu mẫu.
+Từ Mạn Mạn đứng bên cạnh bàn học, khẽ gật đầu đáp lời, đôi tay thon thả vẫn thoăn thoắt xếp ngay ngắn từng tập biểu mẫu.
 
 Thẩm Tử Ngôn đã có mặt từ hai ngày trước, chính là buổi sáng ngay sau đêm hôm ấy.
 
@@ -52,7 +50,7 @@ Nghe vậy, tất cả mọi người đều nhìn nhau mỉm cười đầy th�
 
 Đường Hiểu Tình liếc nhìn đồng hồ trên tay, vội vàng đứng dậy chuẩn bị bước ra ngoài.
 
-"Đường Hiểu Tình, cậu định đi đâu thế?" Hứa Mạn Mạn vội vã cất giọng hỏi, thanh âm vừa tha thiết lại vừa dịu dàng.
+"Đường Hiểu Tình, cậu định đi đâu thế?" Từ Mạn Mạn vội vã cất giọng hỏi, thanh âm vừa tha thiết lại vừa dịu dàng.
 
 Đường Hiểu Tình đáp: "Tớ đi mua cơm trưa cho mọi người."
 
@@ -60,7 +58,7 @@ Trong lòng cô thực sự cảm thấy cô bạn gái này của Trần Trạc
 
 "Tớ đi cùng với, để tớ xách phụ cho."
 
-Hứa Mạn Mạn nhanh chân bước theo sau. Cô muốn nhanh chóng tìm ra một "vị trí" thích hợp cho bản thân trong căn phòng này.
+Từ Mạn Mạn nhanh chân bước theo sau. Cô muốn nhanh chóng tìm ra một "vị trí" thích hợp cho bản thân trong căn phòng này.
 
 Cô hoàn toàn không có ý định so đo, hơn thua với bất kỳ ai.
 
@@ -68,9 +66,9 @@ Thẩm Tử Ngôn vốn là cán bộ trong Hội Sinh viên, bẩm sinh đã c�
 
 Lúc quay trở lại, trên tay hai người xách lỉnh kỉnh đủ các phần cơm canh nóng hổi, kèm theo đó là một quả dưa hấu to tròn, căng mọng.
 
-Đường Hiểu Tình bảo quả dưa hấu này là do chính Hứa Mạn Mạn tự bỏ tiền túi ra mua.
+Đường Hiểu Tình bảo quả dưa hấu này là do chính Từ Mạn Mạn tự bỏ tiền túi ra mua.
 
-Vào độ tháng Tư, dưa hấu đầu mùa vẫn chưa hạ giá rẻ. Chẳng rõ ở các thành phố khác ra sao, chứ ở Quận Sa, mức lương cơ bản thì thấp mà mức chi tiêu sinh hoạt lại chẳng hề rẻ rúng chút nào. Một quả dưa hấu như thế này đã ngốn của Hứa Mạn Mạn hơn ba mươi tệ.
+Vào độ tháng Tư, dưa hấu đầu mùa vẫn chưa hạ giá rẻ. Chẳng rõ ở các thành phố khác ra sao, chứ ở Quận Sa, mức lương cơ bản thì thấp mà mức chi tiêu sinh hoạt lại chẳng hề rẻ rúng chút nào. Một quả dưa hấu như thế này đã ngốn của Từ Mạn Mạn hơn ba mươi tệ.
 
 Đường Hiểu Tình xưa nay vốn không bao giờ dám tiêu xài hoang phí, lúc nào cô cũng chỉ tâm niệm làm sao để tiết kiệm từng đồng từng cắc cho công ty.
 
@@ -82,7 +80,7 @@ Cũng chính vì đức tính cẩn trọng, thật thà ấy mà Triệu Bác L
 
 Triệu Trí Dũng huých nhẹ cùi chỏ vào sườn Vương Duy Đào, hạ giọng tò mò: "Ai đấy?"
 
-Vương Duy Đào liếc mắt nhìn Hứa Mạn Mạn một cái: "Bạn gái của Trần Trạch."
+Vương Duy Đào liếc mắt nhìn Từ Mạn Mạn một cái: "Bạn gái của Trần Trạch."
 
 "Trần Trạch lại là đứa nào?"
 
@@ -98,9 +96,9 @@ Vương Duy Đào trố mắt nhìn Triệu Trí Dũng. Cậu chàng họ Triệ
 
 Vương Duy Đào: "..."
 
-Cậu ta cứ ngỡ Triệu Trí Dũng đang tơ tưởng đến Thẩm Tử Ngôn hay Hứa Mạn Mạn, đang định bụng mở lời khuyên can bạn mình rằng hạng gái xinh như hai người họ nhìn qua là biết không dễ theo đuổi, đừng có dại dột mà đi làm kẻ bám đuôi hèn mọn.
+Cậu ta cứ ngỡ Triệu Trí Dũng đang tơ tưởng đến Thẩm Tử Ngôn hay Từ Mạn Mạn, đang định bụng mở lời khuyên can bạn mình rằng hạng gái xinh như hai người họ nhìn qua là biết không dễ theo đuổi, đừng có dại dột mà đi làm kẻ bám đuôi hèn mọn.
 
-Nhìn mọi người ngồi quây quần ăn uống ngon lành, Hứa Mạn Mạn sau một hồi phụ giúp tay chân cũng bắt đầu cảm thấy bụng đói cồn cào.
+Nhìn mọi người ngồi quây quần ăn uống ngon lành, Từ Mạn Mạn sau một hồi phụ giúp tay chân cũng bắt đầu cảm thấy bụng đói cồn cào.
 
 Thẩm Tử Ngôn đặt đôi đũa xuống, cẩn thận thu dọn lại xấp biểu mẫu trên bàn rồi lên tiếng: "Cứ làm thủ công thế này mãi không ổn đâu, chúng ta phải dùng máy tính xách tay để nhập dữ liệu, nếu không khối lượng công việc quá lớn, lại rất dễ bị người ta lợi dụng sơ hở."
 
@@ -112,7 +110,7 @@ Vào năm 2006, máy tính xách tay tuy chưa hẳn là món đồ xa xỉ ngo�
 
 Thẩm Tử Ngôn liền bảo: "Tớ có một chiếc, ngày mai tớ sẽ mang tới đây cho mọi người dùng."
 
-Hứa Mạn Mạn cũng vội vàng tiếp lời: "Tớ cũng có một máy, ngày mai tớ có thể mang qua đây đóng góp."
+Từ Mạn Mạn cũng vội vàng tiếp lời: "Tớ cũng có một máy, ngày mai tớ có thể mang qua đây đóng góp."
 
 Thẩm Tử Ngôn gật đầu tán thành: "Cứ mỗi người điền xong một lá đơn, chúng ta lập tức nhập dữ liệu vào máy tính, như vậy sẽ không lo xảy ra nhầm lẫn, vừa tránh được tình trạng đăng ký trùng lặp, lại vừa kiểm tra đối chiếu kỹ càng được thẻ sinh viên. Nếu phát hiện trường hợp nào gian lận, chúng ta sẽ thẳng tay tước quyền thi đấu ngay lập tức."
 
@@ -150,7 +148,7 @@ Sự giàu có cùng phong thái tiêu tiền không chớp mắt của Tô Mi�
 
 Đặc biệt là đối với Triệu Trí Dũng.
 
-Hứa Mạn Mạn ngồi bên cạnh vẫn giữ thẳng lưng, tư thế đoan trang, hai bàn tay đan nhẹ đặt trên đầu gối, im lặng lắng nghe và quan sát tất cả.
+Từ Mạn Mạn ngồi bên cạnh vẫn giữ thẳng lưng, tư thế đoan trang, hai bàn tay đan nhẹ đặt trên đầu gối, im lặng lắng nghe và quan sát tất cả.
 
 Dáng vẻ ấy hệt như lần đầu tiên Triệu Kim An nhìn thấy cô trong quán bar ở kiếp trước.
 
@@ -170,19 +168,19 @@ Thẩm Tử Ngôn lập tức liên tưởng ngay đến lời đồn thổi t�
 
 Tổng giám đốc Triệu ư!?
 
-Lần đầu tiên nghe thấy có người gọi Triệu Kim An bằng chức danh "Tổng giám đốc Triệu", Hứa Mạn Mạn bất giác ngẩn người ra mất vài giây.
+Lần đầu tiên nghe thấy có người gọi Triệu Kim An bằng chức danh "Tổng giám đốc Triệu", Từ Mạn Mạn bất giác ngẩn người ra mất vài giây.
 
 Trước đó, cô chỉ mơ hồ đoán rằng Triệu Kim An là người đứng ra phụ trách tổ chức giải đấu Cúp Trăn Nhiên này mà thôi.
 
 Trên con đường rảo bước trở về ký túc xá.
 
-Thẩm Tử Ngôn quay sang hỏi Hứa Mạn Mạn: "Mạn Mạn, cậu đã nói chuyện này với Trần Trạch chưa?"
+Thẩm Tử Ngôn quay sang hỏi Từ Mạn Mạn: "Mạn Mạn, cậu đã nói chuyện này với Trần Trạch chưa?"
 
-Hứa Mạn Mạn thoáng nở nụ cười rạng rỡ: "Tớ vẫn chưa nói với anh ấy. Tớ chỉ thấy tan học xong rảnh rỗi quá, hôm nay nhìn thấy các cậu bận rộn như thế, ai nấy đều tràn đầy năng lượng và nhiệt huyết... Tớ thực sự rất thích bầu không khí này."
+Từ Mạn Mạn thoáng nở nụ cười rạng rỡ: "Tớ vẫn chưa nói với anh ấy. Tớ chỉ thấy tan học xong rảnh rỗi quá, hôm nay nhìn thấy các cậu bận rộn như thế, ai nấy đều tràn đầy năng lượng và nhiệt huyết... Tớ thực sự rất thích bầu không khí này."
 
 Thẩm Tử Ngôn khẽ gật đầu: "Đến phụ giúp thì chẳng sao cả, chỉ sợ Trần Trạch biết được người chịu trách nhiệm chính lại là Triệu Kim An thì..."
 
-Hứa Mạn Mạn im lặng, không đáp lại.
+Từ Mạn Mạn im lặng, không đáp lại.
 
 Tận sâu trong đáy lòng, cô tự thú nhận với chính mình rằng, chỉ khi biết sự kiện này do Triệu Kim An đích thân phụ trách, cô mới cảm thấy công việc này dường như ngập tràn ý nghĩa, trong lòng mới cuộn trào bao nhiêu hăng say và động lực. Nếu là một chương trình tình nguyện của người khác, e rằng cô cũng chẳng mảy may bận tâm hay có chút hứng thú nào.
 

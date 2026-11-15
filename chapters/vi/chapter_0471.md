@@ -1,12 +1,10 @@
 # Chương 471: "Hành" Trong Bước Đi, "Vi" Trong Gió Thoảng
 
-> **Tiêu đề gốc**: 第471章 行走的行，微风的微。
-
 Lúc này...
 
 Nhìn dòng tin nhắn của Tô Miến, cõi lòng Thẩm Tử Ngôn phẳng lặng như tờ, không gợn lên lấy một chút sóng sánh lăn tăn.
 
-"Hứa Mạn Mạn đã sinh con gái, cô lại còn mang long phụng thai..."
+"Từ Mạn Mạn đã sinh con gái, cô lại còn mang long phụng thai..."
 
 Tâm lý của Thẩm Tử Ngôn kỳ thực rất dễ hiểu. Cô đọc xong tin nhắn liền đặt điện thoại xuống, định bụng dồn tâm sức vào công việc. Thế nhưng chẳng tài nào tập trung nổi, một lát sau lại cầm máy lên nhìn, đắn đo hồi lâu mới soạn một dòng gửi lại:
 
@@ -94,7 +92,7 @@ Những chuyện khác chẳng cần nói nhiều, một tay lão luyện lọc 
 
 Chu Hoa Phong lái chiếc Mercedes thương vụ dẫn đường phía trước, Đặng Thần Bình lái xe bọc hậu theo sau. Họ đã tới cảng Chu Sơn trước một ngày, bộ đàm luôn bật thông suốt, Chu Hoa Phong chạy trước tuyệt đối không dám đạp phanh gấp.
 
-Phía Cảng vụ Hoàn Vũ vẫn chưa cử người xuống, Triệu Kim An liền nhấc máy gọi cho Hứa Mạn Mạn.
+Phía Cảng vụ Hoàn Vũ vẫn chưa cử người xuống, Triệu Kim An liền nhấc máy gọi cho Từ Mạn Mạn.
 
 Xưởng gia công bên này chắc chắn Cảng vụ Hoàn Vũ phải cắt cử một người thực sự đáng tin cậy tới giám sát. Bao Uyển Yên cho biết những con tàu chở quặng đã chạy con thoi đến chuyến thứ ba, tổng lượng quặng cập cảng đã vượt quá 1,2 triệu tấn.
 
@@ -138,9 +136,9 @@ Tô Miến đưa tay khẽ xoa lên bụng bầu, mỉm cười dịu dàng:
 
 Triệu Kim An nắm lấy bàn tay mềm mại của cô: "Tên hay lắm, rất ý nghĩa."
 
-Có lẽ chữ "Hành" và chữ "Vi" còn ẩn chứa những tầng ý niệm sâu xa khác. Nhưng chữ "Hành" tượng trưng cho bước đi, bước chạy, có lẽ chính là niềm khát khao thầm kín tận đáy lòng của Tô Miến. Cũng giống như chữ "Nặc" trong cái tên Triệu Tri Nặc, là chữ do chính Hứa Mạn Mạn cố tâm lựa chọn.
+Có lẽ chữ "Hành" và chữ "Vi" còn ẩn chứa những tầng ý niệm sâu xa khác. Nhưng chữ "Hành" tượng trưng cho bước đi, bước chạy, có lẽ chính là niềm khát khao thầm kín tận đáy lòng của Tô Miến. Cũng giống như chữ "Nặc" trong cái tên Triệu Tri Nặc, là chữ do chính Từ Mạn Mạn cố tâm lựa chọn.
 
-Nó đại diện cho lời hứa của Hứa Mạn Mạn dành cho Tô Miến, và cũng là lời thề hẹn tận đáy lòng cô ấy trao gửi trọn vẹn cho Triệu Kim An.
+Nó đại diện cho lời hứa của Từ Mạn Mạn dành cho Tô Miến, và cũng là lời thề hẹn tận đáy lòng cô ấy trao gửi trọn vẹn cho Triệu Kim An.
 
 Quách Uyển Thanh không quên gọi điện thoại chia sẻ niềm vui với Khương Phức Hàm và Phùng Nhược Đan. Khương Phức Hàm nghe ra mẹ mình đang vô cùng phấn khởi, bèn dặn Triệu Kim An hãy đưa bà và Tô Miến đi chơi thêm nhiều nơi nữa.
 

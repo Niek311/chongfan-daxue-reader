@@ -1,7 +1,5 @@
 # Chương 432: Rất có phong cách
 
-> **Tiêu đề gốc**: 第432章 很有风格。
-
 Từ Mạn Mạn không về.
 
 Một tiếng rưỡi sau, Từ Tắc Đống cùng các cô lái xe quay trở lại.
@@ -198,4 +196,4 @@ Bao Uyển Yên nhàn nhạt đáp: "Lấy chồng rồi thì mất tự do."
 
 Triệu Kim An khẽ gật đầu, không tán đồng mà cũng chẳng buồn phản bác lại quan điểm ấy.
 
-Anh rút điện thoại bấm số gọi cho Tô Miện, nâng máy áp sát vào tai: "Đại tiểu thư, anh tới nơi rồi. Ừm, vừa mới nhận phòng ở nhà khách xong, Quân Dương bận việc chạy lên thành phố rồi..."
+Anh rút điện thoại bấm số gọi cho Tô Miến, nâng máy áp sát vào tai: "Đại tiểu thư, anh tới nơi rồi. Ừm, vừa mới nhận phòng ở nhà khách xong, Quân Dương bận việc chạy lên thành phố rồi..."

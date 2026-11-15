@@ -1,20 +1,18 @@
 # Chương 201: Tôi không thích cô thế này...
 
-> **Tiêu đề gốc**: 第201章 我不喜欢你这样.....
-
 Khu nhà nhỏ.
 
 Nước khoáng Trăn Nhiên đặt trụ sở làm việc ngay tại nơi này, trong sân lúc này vô cùng tĩnh lặng.
 
-Dưới tầng một, nhà của Đơn Vĩ vẫn sáng đèn; trên tầng hai có hai gian phòng làm việc cũng đang hắt ra ánh sáng vàng vọt.
+Dưới tầng một, nhà của Đan Vĩ vẫn sáng đèn; trên tầng hai có hai gian phòng làm việc cũng đang hắt ra ánh sáng vàng vọt.
 
 Căn phòng duy nhất còn tối đèn là của Lạc Cẩn Chi, trên cánh cửa có cài tấm biển đề chức danh "Tổng Giám đốc".
 
 "Cô bé, cháu tìm ai thế?"
 
-Trời tối ánh sáng lờ mờ nên thoạt nhìn Đơn Vĩ chưa nhận ra Từ Mạn Mạn.
+Trời tối ánh sáng lờ mờ nên thoạt nhìn Đan Vĩ chưa nhận ra Từ Mạn Mạn.
 
-Hiện tại Đơn Vĩ một thân gánh ba chức vụ, kiêm luôn chân bảo vệ của công ty.
+Hiện tại Đan Vĩ một thân gánh ba chức vụ, kiêm luôn chân bảo vệ của công ty.
 
 Nói theo đúng nguyên văn lời của Triệu Kim An: Công ty hết tiền rồi.
 
@@ -24,9 +22,9 @@ Thành ra ngay cả Thẩm Tử Ngôn hay Đường Hiểu Tình mỗi lần đ�
 
 "Cháu tìm Triệu Kim An ạ."
 
-Từ Mạn Mạn nhận ra Đơn Vĩ, chính là người hôm trước đã nhiệt tình giúp cô sửa xe đạp.
+Từ Mạn Mạn nhận ra Đan Vĩ, chính là người hôm trước đã nhiệt tình giúp cô sửa xe đạp.
 
-Đơn Vĩ chăm chú nhìn kỹ lại một lượt rồi bảo: "Cậu ấy ở trên lầu đấy."
+Đan Vĩ chăm chú nhìn kỹ lại một lượt rồi bảo: "Cậu ấy ở trên lầu đấy."
 
 Từ Mạn Mạn cất bước lên cầu thang, đi ngang qua phòng tài vụ, không một chút do dự đưa tay gõ nhẹ lên cánh cửa phòng làm việc.
 
@@ -124,7 +122,7 @@ Triệu Kim An khẽ liếc nhìn khóe miệng của Từ Mạn Mạn, cậu v�
 
 "Cô biết từ bao giờ thế?"
 
-"Hôm Đơn Vĩ lái xe, anh bước xuống từ hàng ghế sau."
+"Hôm Đan Vĩ lái xe, anh bước xuống từ hàng ghế sau."
 
 Từ Mạn Mạn hiểu rõ những quy tắc ngầm khi đi xe, chỉ là lúc ấy cô chưa dám khẳng định chắc chắn, không rõ Triệu Kim An lấy đâu ra số vốn ban đầu để khởi nghiệp.
 
@@ -166,7 +164,7 @@ Triệu Kim An không nói, Từ Mạn Mạn cũng không gặng hỏi.
 
 Cứ như thế, hai người đứng song song bên nhau ngoài hành lang lầu hai.
 
-Đơn Vĩ dưới sân ngước lên nhìn một cái rồi quay vào trong nhà, cô con gái Đơn Na Tề đang học lớp 12 thì đang cắm cúi ôn bài trong phòng ngủ dưới tầng một.
+Đan Vĩ dưới sân ngước lên nhìn một cái rồi quay vào trong nhà, cô con gái Đan Na Tề đang học lớp 12 thì đang cắm cúi ôn bài trong phòng ngủ dưới tầng một.
 
 Từ Mạn Mạn ngẩng đầu nhìn vầng trăng sáng vằng vặc trên bầu trời đêm. Nếu Triệu Kim An cứ đứng yên như thế này, cô sẵn sàng đứng cùng cậu suốt cả một đêm dài, dẫu cho đôi bên chẳng ai thốt ra lấy một lời nào.
 

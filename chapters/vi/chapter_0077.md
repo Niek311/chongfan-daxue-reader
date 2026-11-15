@@ -1,7 +1,5 @@
 # Chương 77: Tao ra ngoài một lát
 
-> **Tiêu đề gốc**: 第77章 我出去下。
-
 Tại Phật Sơn.
 
 Với phương châm tiết kiệm được đồng nào hay đồng nấy, nhóm người Triệu Kim An chỉ thuê một khách sạn bình dân dạng chuỗi để nghỉ chân. Quá mười hai giờ đêm, cậu mới nhận được tin nhắn hồi âm từ Từ Mạn Mạn.

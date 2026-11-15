@@ -1,7 +1,5 @@
 # Chương 35: Đừng quay đầu lại
 
-> **Tiêu đề gốc**: 第35章 别回头。
-
 Đến ga xe lửa Sâm Thành, ở cái thời kỳ chưa có tàu điện ngầm hay đường sắt cao tốc, trước sảnh nhà ga lúc nào cũng đông nghẹt dòng người chen chúc, tấp nập.
 
 "Người lạ bắt chuyện thì tuyệt đối đừng tiếp lời."

@@ -1,7 +1,5 @@
 # Chương 487: Nếu là cậu, cậu có gặp không?
 
-> **Tiêu đề gốc**: 第487章 如果是你，你会见吗？
-
 Triệu Quốc Hoa ôm Triệu Tri Nặc trong lòng, khi nhìn thấy Tống Gia Nguyệt, ông cũng chẳng nói năng gì. Nếu người đứng trước mặt là Tống Uyển Hòa, có lẽ Triệu Quốc Hoa đã gặng hỏi Triệu Kim An dăm ba câu. Xưa nay ông và Vương Kim Như chưa từng can thiệp quá sâu vào chuyện riêng của Triệu Kim An.
 
 Thế nhưng điều đó không đồng nghĩa với việc Triệu Kim An đối xử quá tốt với gia đình Tống Siêu Văn mà trong lòng Triệu Quốc Hoa cùng Vương Kim Như không gợn lên chút suy nghĩ nào.
@@ -78,11 +76,11 @@ Lư Kiều Vĩ dẫu sao cũng là kẻ có chút khôn ngoan, thừa hiểu ý 
 
 Lư Kiều Vĩ câm bặt, không thốt nổi lời nào.
 
-Giang Công Kỳ khẽ hất cằm về phía Hứa Mạn Mạn:
+Giang Công Kỳ khẽ hất cằm về phía Từ Mạn Mạn:
 
-— Nếu anh nhất quyết muốn tìm đường chết thì thay vì tìm Triệu tổng, chi bằng đi tìm Hứa tổng còn hơn. Dù sao Hứa tổng vốn dĩ cũng là Phó tổng giám đốc của Trăn Hối Tuyển.
+— Nếu anh nhất quyết muốn tìm đường chết thì thay vì tìm Triệu tổng, chi bằng đi tìm Từ tổng còn hơn. Dù sao Từ tổng vốn dĩ cũng là Phó tổng giám đốc của Trăn Hối Tuyển.
 
-Lư Kiều Vĩ nhìn sang hướng Hứa Mạn Mạn và Lạc Cẩn Chi đang đứng, lòng không khỏi do dự, giằng xé.
+Lư Kiều Vĩ nhìn sang hướng Từ Mạn Mạn và Lạc Cẩn Chi đang đứng, lòng không khỏi do dự, giằng xé.
 
 — Không nỡ buông bỏ chiếc ghế xưởng trưởng béo bở này chứ gì?
 
@@ -176,7 +174,7 @@ Tuy nhiên, cô “em gái ruột thực sự” Triệu Duyệt Thiên nhân d�
 
 Bước vào sâu bên trong sảnh chờ của ga tàu cao tốc, anh đứng tựa vào lan can, ngóng chờ đoàn tàu chuẩn bị tiến vào sân ga.
 
-Hứa Mạn Mạn một tay bế Triệu Tri Nặc, thấy Triệu Kim An cứ đi đi lại lại không yên một chỗ, trong lòng không khỏi có chút khó hiểu.
+Từ Mạn Mạn một tay bế Triệu Tri Nặc, thấy Triệu Kim An cứ đi đi lại lại không yên một chỗ, trong lòng không khỏi có chút khó hiểu.
 
 Mà cô cũng chẳng thể nào thấu hiểu được tâm trạng anh lúc này.
 
@@ -198,31 +196,31 @@ Sẽ có người bảo Trần Thanh Trĩ có khi còn chẳng tha thiết gì c
 
 — Sao em?
 
-Hứa Mạn Mạn một tay ôm Triệu Tri Nặc, tay kia khẽ nắm lấy cánh tay Triệu Kim An, dịu dàng trấn an:
+Từ Mạn Mạn một tay ôm Triệu Tri Nặc, tay kia khẽ nắm lấy cánh tay Triệu Kim An, dịu dàng trấn an:
 
 — Tri Nặc đang ở đây với anh mà. Tàu cao tốc của bà nội và Thiên Thiên sắp vào ga rồi, chỉ còn năm phút nữa thôi.
 
-Hứa Mạn Mạn không hiểu vì sao Triệu Kim An trông lại có vẻ bồn chồn, căng thẳng đến vậy, cô chỉ có thể nhẹ nhàng an ủi anh như thế.
+Từ Mạn Mạn không hiểu vì sao Triệu Kim An trông lại có vẻ bồn chồn, căng thẳng đến vậy, cô chỉ có thể nhẹ nhàng an ủi anh như thế.
 
 — Ừ.
 
-Triệu Kim An cố gắng trấn tĩnh lại, cúi đầu nhìn ngắm Triệu Tri Nặc đang ngoan ngoãn trong vòng tay Hứa Mạn Mạn.
+Triệu Kim An cố gắng trấn tĩnh lại, cúi đầu nhìn ngắm Triệu Tri Nặc đang ngoan ngoãn trong vòng tay Từ Mạn Mạn.
 
 Chính anh cũng chẳng rõ vì sao đáy lòng mình lại dâng lên nỗi hồi hộp, bồn chồn khó tả đến thế.
 
 Triệu Quốc Hoa đã quay về Sâm Thành từ sớm. Ông và Vương Kim Như đều đoán được lý do vì sao lần này Triệu Kim An lại triệu tập toàn bộ nhân sự cấp cao của cả Trăn Hối Tuyển lẫn Hoàn Vũ Cảng Vụ về họp mặt đông đủ như vậy: là bởi vì Triệu Kim An chuẩn bị lên đường ra Bắc Kinh.
 
-Hứa Mạn Mạn cũng biết rõ, ngày dự sinh của Tô Miến đã cận kề.
+Từ Mạn Mạn cũng biết rõ, ngày dự sinh của Tô Miến đã cận kề.
 
-Chính vì vậy, Triệu Kim An mới nhân cơ hội này chính thức đưa Hứa Mạn Mạn bước ra “tiền đài”, danh chính ngôn thuận quản lý mọi công việc nội vụ của tập đoàn.
+Chính vì vậy, Triệu Kim An mới nhân cơ hội này chính thức đưa Từ Mạn Mạn bước ra “tiền đài”, danh chính ngôn thuận quản lý mọi công việc nội vụ của tập đoàn.
 
 Ở nơi Tô Thành xa xôi, Thẩm Tử Ngôn, và cả Mộc Dao đang ở tận Hàn Quốc, trong lòng đều khắc ghi như in ngày dự sinh của Tô Miến.
 
-Dẫu trong lòng không hề muốn nhớ, nhưng ngày tháng ấy cứ tự nhiên khắc sâu vào tâm trí, hễ đến thời điểm là bất giác nhớ tới, chẳng khác nào cái ngày Hứa Mạn Mạn sinh Triệu Tri Nặc năm xưa.
+Dẫu trong lòng không hề muốn nhớ, nhưng ngày tháng ấy cứ tự nhiên khắc sâu vào tâm trí, hễ đến thời điểm là bất giác nhớ tới, chẳng khác nào cái ngày Từ Mạn Mạn sinh Triệu Tri Nặc năm xưa.
 
-Thẩm Tử Ngôn bỗng thấy cõi lòng bất an, thẫn thờ. Cô nhớ lại khoảnh khắc Triệu Kim An lên tiếng ngắt lời Hứa Mạn Mạn trong cuộc họp, lại nhớ tới chuyện Tô Miến từng cất công tìm đến tận cảng Chu Sơn.
+Thẩm Tử Ngôn bỗng thấy cõi lòng bất an, thẫn thờ. Cô nhớ lại khoảnh khắc Triệu Kim An lên tiếng ngắt lời Từ Mạn Mạn trong cuộc họp, lại nhớ tới chuyện Tô Miến từng cất công tìm đến tận cảng Chu Sơn.
 
-Cô cầm điện thoại lên, ngắm nhìn bức ảnh chụp trong phòng họp của Hứa Mạn Mạn hồi lâu. Dõi mắt nhìn chiếc xe đẩy em bé kia, cuối cùng cô bấm gửi cho Mộc Dao một dòng tin nhắn.
+Cô cầm điện thoại lên, ngắm nhìn bức ảnh chụp trong phòng họp của Từ Mạn Mạn hồi lâu. Dõi mắt nhìn chiếc xe đẩy em bé kia, cuối cùng cô bấm gửi cho Mộc Dao một dòng tin nhắn.
 
 Thẩm Tử Ngôn: [Dao Dao, Tô Miến sắp sinh rồi đấy.]
 

@@ -1,7 +1,5 @@
 # Chương 436: Cảng Chu Sơn
 
-> **Tiêu đề gốc**: 第436章 舟山港。
-
 Cảng Chu Sơn.
 
 Bên bàn hải sản nghi ngút khói thơm.

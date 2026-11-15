@@ -1,7 +1,5 @@
 # Chương 262: Chờ một phút
 
-> **Tiêu đề gốc**: 第262章 等一分钟。
-
 Đúng vậy, từ lúc bóng ma khủng hoảng tài chính bắt đầu manh nha, cho đến cả việc dự đoán chính xác khoảng thời gian nào cơn bão này sẽ đi qua.
 
 Đó mới thực sự là món quà vô giá.
@@ -160,7 +158,7 @@ Cậu không sử dụng đòn bẩy tài chính quá mức, cũng không hề r
 
 Chỉ còn chưa đầy một tháng nữa là ngân hàng đầu tư khổng lồ Lehman Brothers sẽ chính thức sụp đổ.
 
-Dương Thục Mỹ lúc này ắt hẳn đang quay cuồng trong cảnh bận rộn đến kiệt sức. Triệu Kim An không ngờ Lưu Sấm Phong lại mang trong mình hoài bão lớn lao đến thế, lại một lòng một dạ muốn vượt mặt Trần Trạch, muốn nhìn thấy Lâm Thanh Tuyết phải hối hận khôn nguôi.
+Dương Thù Mỹ lúc này ắt hẳn đang quay cuồng trong cảnh bận rộn đến kiệt sức. Triệu Kim An không ngờ Lưu Sấm Phong lại mang trong mình hoài bão lớn lao đến thế, lại một lòng một dạ muốn vượt mặt Trần Trạch, muốn nhìn thấy Lâm Thanh Tuyết phải hối hận khôn nguôi.
 
 Muốn vượt qua cơ nghiệp của bốn xưởng sản xuất lớn quả thực là điều muôn vàn khó khăn!
 

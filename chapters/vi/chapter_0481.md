@@ -1,7 +1,5 @@
 # Chương 481: Nơi đó là thủ phủ...
 
-> **Tiêu đề gốc**: 第481章 那是省会...
-
 Sâm Châu.
 
 Đặng Thần Bình không tìm được địa chỉ nhà riêng, đành theo hướng dẫn qua điện thoại của Đan Vĩ mà tìm đến quầy thịt nướng của Tống Siêu Văn.

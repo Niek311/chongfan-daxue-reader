@@ -1,7 +1,5 @@
 # Chương 452: Những ẩn số
 
-> **Tiêu đề gốc**: 第452章 谜....
-
 Nhận được tin báo, Trương Vân Thiến đã ra đứng đợi sẵn ở cổng xưởng từ sớm. Xét cho cùng, cô và Mộc Dao cũng được tính là nhà cung ứng của Trăn Hối Tuyển. Thẩm Tử Ngôn đã rút lui, thậm chí đến cả chuỗi Bàn Đông Lai cũng đã triệt thoái vốn.
 
 Trông thấy hai chiếc Mercedes mang biển số Tương A của thành phố Quận Sa lướt tới, Trương Vân Thiến mừng rỡ reo lên: "Đến rồi!"
@@ -88,13 +86,13 @@ Cô kéo ngăn kéo bàn làm việc, rút ra một bao thuốc lá, động tá
 
 Tại thành phố Quận Sa.
 
-Từ Mạn Mạn nhận được hai phần quà đặc biệt. Một phần là từ Từ Tắc Đống và Lương Huệ Trân — tình yêu thương của ông bà ngoại dành cho đứa cháu sắp chào đời.
+Từ Mạn Mạn nhận được hai phần quà đặc biệt. Một phần là từ Từ Tắc Đống và Lương Tuệ Trân — tình yêu thương của ông bà ngoại dành cho đứa cháu sắp chào đời.
 
-Không được gặp mặt con gái, dưới ánh mắt giám sát chặt chẽ của Quan Văn Bách, Lương Huệ Trân đành phải đặt từng túi lớn túi nhỏ đồ tẩm bổ trước cửa căn hộ.
+Không được gặp mặt con gái, dưới ánh mắt giám sát chặt chẽ của Quan Văn Bách, Lương Tuệ Trân đành phải đặt từng túi lớn túi nhỏ đồ tẩm bổ trước cửa căn hộ.
 
 Bà khẽ gõ cửa.
 
-Lương Huệ Trân đứng ngoài cửa dặn dò với vào trong vài câu. Chờ đợi hồi lâu vẫn không thấy có người mở cửa, bà mới ngậm ngùi, lưu luyến bước đi.
+Lương Tuệ Trân đứng ngoài cửa dặn dò với vào trong vài câu. Chờ đợi hồi lâu vẫn không thấy có người mở cửa, bà mới ngậm ngùi, lưu luyến bước đi.
 
 Đợi người đi khuất, Lưu Mỹ Nga kiểm tra kỹ lưỡng từng món đồ rồi mới dám xách vào nhà.
 
@@ -186,7 +184,7 @@ Dượng hai lập tức gật đầu phụ họa ngay: "Đông người nhốn 
 
 "Lúc đấy thì trời sập chứ chẳng chơi!"
 
-Ý kiến này lập tức nhận được sự đồng tình của rất nhiều người, đặc biệt là Lương Huệ Trân.
+Ý kiến này lập tức nhận được sự đồng tình của rất nhiều người, đặc biệt là Lương Tuệ Trân.
 
 "Bác cả..."
 
@@ -206,7 +204,7 @@ Bác gái cả và bác rể cả cũng nhìn cô cháu dâu tương lai với �
 
 Từ Tắc Lương dè dặt thăm dò: "Thế... thế Triệu Kim An có đến không mẹ?"
 
-Tất cả mọi người lập tức đổ dồn ánh mắt về phía vợ chồng Từ Tắc Đống và Lương Huệ Trân. Họ nào có biết được cơ chứ! Nhưng trong thâm tâm mọi người đều nghĩ, Từ Tắc Đống và Lương Huệ Trân dẫu sao cũng là bố mẹ vợ danh chính ngôn thuận, chút thể diện cỏn con ấy chắc chắn phải có chứ?
+Tất cả mọi người lập tức đổ dồn ánh mắt về phía vợ chồng Từ Tắc Đống và Lương Tuệ Trân. Họ nào có biết được cơ chứ! Nhưng trong thâm tâm mọi người đều nghĩ, Từ Tắc Đống và Lương Tuệ Trân dẫu sao cũng là bố mẹ vợ danh chính ngôn thuận, chút thể diện cỏn con ấy chắc chắn phải có chứ?
 
 Dù sao cũng toàn là họ hàng nội tộc trong nhà, tuyệt đối không có người ngoài.
 

@@ -1,197 +1,193 @@
-# Chương 399: Chí đồng đạo hợp
+# Chương 399: Chí Hướng Tương Đồng.
 
-> **Tiêu đề gốc**: 第399章 志同道合。
+Chuyển đổi thành khách sạn liệu có khả thi không?
 
-Liệu việc chuyển đổi công năng sang làm khách sạn năm sao có thực sự khả thi hay không?
+Ban đầu Triệu Kim An dự tính xây lên để làm cao ốc văn phòng cho thuê.
 
-Ý định ban đầu của Triệu Kim An là xây dựng tòa tháp đôi để làm cao ốc văn phòng cho thuê: một tòa dành trọn làm trụ sở đầu não cho các công ty trong hệ sinh thái của mình, còn một tòa văn phòng chuẩn hạng A để cho các tập đoàn lớn thuê mặt bằng lâu dài.
+Một tòa để công ty mình tự làm trụ sở văn phòng, một tòa còn lại làm cao ốc văn phòng hạng A cho thuê.
 
-Hình thức nào sẽ sinh lời bền vững hơn, và dòng tiền quay vòng sẽ về nhanh hơn?
+Hình thức nào kiếm tiền tốt hơn, thu hồi vốn nhanh hơn?
 
-Bao Uyển Yên đã dọn vào ở tại khách sạn Sheraton, Triệu Kim An cũng chẳng buồn đích thân kè kè tiếp đón cô ta nữa.
+Bao Uyển Yên vào ở tại khách sạn Sheraton, Triệu Kim An cũng chẳng bận tâm tới cô ta nữa.
 
-Toàn bộ mọi chi phí ăn uống, dịch vụ phát sinh tại khách sạn Sheraton, Bao Uyển Yên đều được quyền ký hóa đơn ghi nợ thẳng vào tài khoản của tập đoàn.
+Mọi chi phí ở Sheraton, Bao Uyển Yên đều có thể ký sổ ghi nợ cho công ty thanh toán.
 
-Đó đã là tiêu chuẩn tiếp đãi ở cấp bậc cao nhất của công ty dành cho khách quý phương xa.
+Đây đã là chế độ tiếp đãi cấp cao nhất của tập đoàn rồi.
 
-Nhớ lại hồi Lưu Xuyên từ Thiểm Tây lặn lội xuống Quận Sa đòi tiền công nợ, anh chàng thậm chí còn phải tự mình bỏ tiền túi ra thuê phòng nhà nghỉ bình dân, mãi về sau Triệu Bác Lan thấy tội nghiệp quá mới duyệt chi thanh toán lại cho.
+Trước kia Lưu Xuyên lên Quận Sa đòi nợ còn phải tự bỏ tiền túi thuê phòng, sau này Triệu Bác Lan thấy cậu ta đáng thương quá mới cho thanh toán hoàn ứng.
 
-Mấy hôm sau, Bao Uyển Yên gọi điện tới ngỏ ý muốn mượn một chiếc xe ô tô để tự mình vi vu vài hôm, cô bảo đây là lần đầu tiên đặt chân tới Quận Sa nên muốn tranh thủ đi thăm thú đó đây.
+Bao Uyển Yên gọi điện tới muốn mượn một chiếc xe, nói lần đầu đến Quận Sa nên muốn dạo chơi mấy hôm.
 
-Từ Mạn Mạn biết chuyện liền nhỏ nhẹ hỏi Triệu Kim An: "Kim An này, hay là đưa chiếc Bentley của em cho cô ấy lái nhé?"
+Từ Mạn Mạn biết chuyện liền hỏi Triệu Kim An: "Kim An, có cần đưa chiếc Bentley cho cô ấy lái không?"
 
-Dù sao người ta cũng là khách quý từ xa tới.
+Khách đến là quý.
 
-Nhân vật thuộc gia tộc Thuyền vương thế giới hiển hách ghé thăm, Hoàn Vũ Cảng Vụ sau này chắc chắn sẽ còn phải chạm mặt, bắt tay làm ăn lâu dài với họ cùng hàng loạt các tập đoàn vận tải tàu biển sừng sỏ trên toàn cầu.
+Người của gia tộc Vua tàu biển thế giới đích thân tới thăm, sau này Hoàn Vũ Cảng Vụ ắt hẳn sẽ không ít lần phải giao thiệp với họ.
 
-Mà Tập đoàn Vận tải Hoàn Cầu của gia tộc họ Bao thì quả thực hoàn toàn xứng đáng với danh xưng "Thuyền vương thế giới" lẫy lừng ấy.
+Cũng như với đủ các hãng tàu vận tải hàng hóa trên khắp toàn cầu.
 
-Triệu Kim An chỉ mỉm cười dịu dàng, đưa mắt nhìn ngắm vòng hai vốn phẳng lì nay đã bắt đầu hơi nhô lên đôi chút của Từ Mạn Mạn.
+Mà Tập đoàn Vận tải Biển Toàn Cầu của nhà họ Bao thực sự xứng đáng với danh hiệu "Vua tàu biển thế giới" ấy.
+
+Triệu Kim An nhìn Từ Mạn Mạn với vùng bụng dưới phẳng lì nay đã hơi nhô lên mà bật cười.
 
 "Anh cười cái gì thế?"
 
-Từ Mạn Mạn dường như vẫn chưa tự nhận thức được sự thay đổi trong tâm lý của mình, cô đã hoàn toàn nhập vai một người vợ hiền dâu thảo, biết quán xuyến việc lớn việc nhỏ trong gia đình.
+Từ Mạn Mạn chẳng hề nhận ra, cô đã tự nhập vai vào vị trí bà chủ nhà mất rồi.
 
-Ừm... nói thế nào nhỉ?
+Ừm... nói sao nhỉ?
 
-Nội tâm Từ Mạn Mạn rốt cuộc đã tìm thấy "bến đỗ quy thuộc" vững chãi của cuộc đời mình, chỉ có điều bến đỗ ấy đã dịch chuyển từ thôn họ Triệu sang chính sự nghiệp kinh doanh của người đàn ông trước mặt.
+Trong thâm tâm Từ Mạn Mạn đã tìm thấy "chốn nương tựa" của đời mình, chỉ có điều từ Triệu Gia Thôn nay chuyển sang công ty mà thôi.
 
-"Không cần thiết đâu em, để cô ấy chạy chiếc Audi A6 là được rồi."
+"Không cần đâu, đi Audi A6 là được rồi."
 
-Chiếc Rolls-Royce Phantom quá đỗi phô trương, chiếc xe thương vụ Mercedes cỡ lớn cũng chẳng phù hợp cho một cô gái lái đi dạo phố, thế nên Triệu Kim An bảo Đan Vĩ và Chu Hoa Phong lái cả chiếc Audi A6 lẫn chiếc Toyota Prado (Bá Đạo) tới sảnh khách sạn để Bao Uyển Yên tùy ý lựa chọn.
+Rolls-Royce Phantom thì không hợp, xe thương vụ Mercedes-Benz lại càng không thích hợp để lái đi chơi. Triệu Kim An bảo Đan Vĩ và Chu Phong Hoa lái chiếc Audi A6 cùng chiếc Toyota Prado ra cho Bao Uyển Yên tự chọn.
 
-Đan Vĩ sau đó báo lại rằng Bao tiểu thư đã chọn ngay chiếc Toyota Prado hầm hố.
+Đan Vĩ báo lại rằng cô Bao đã chọn chiếc Toyota Prado.
 
-Bao Uyển Yên một mình cầm lái vi vu qua khắp các danh lam thắng cảnh nổi tiếng của đất Quận Sa: từ rặng Núi Nhạc Lộc bảng lảng khói sương, Bãi Cam (Quất Tử Châu Đầu) lộng gió giữa dòng Tương Giang, cho tới lầu Thiên Tâm Các cổ kính, trầm mặc...
+Bao Uyển Yên tự mình lái xe đi tham quan các danh lam thắng cảnh ở Quận Sa: Núi Nhạc Lộc, Mũi Quất Tử Châu, Thiên Tâm Các...
 
-Chu Hoa Phong báo cáo rằng cô nàng này dường như rất mê văn hóa quán bar, cứ đều đặn tầm 10 giờ đêm mỗi ngày là lại rời khách sạn, hòa mình vào không khí sôi động của phố bar Giải Phóng Tây.
+Chu Phong Hoa kể cô ta rất thích đi bar, cứ đúng 10 giờ tối mỗi ngày là rời khách sạn thẳng tiến tới đường Giải Phóng Tây.
 
-Triệu Kim An nghe xong cũng chẳng lấy làm ngạc nhiên. Vừa nghe thấy cái tên tiếng Anh Eleanor, anh đã đoán chừng những người trẻ tuổi từng có thời gian dài tu nghiệp và sinh sống ở trời Tây phần lớn đều dành cho văn hóa quán bar một sự say mê đặc biệt.
+Triệu Kim An không lấy làm ngạc nhiên; nghe thấy tên tiếng Anh là đoán ngay được, mấy người từng sống ở nước ngoài này phần lớn đều rất chuộng văn hóa quán bar.
 
-Không hề có định kiến hay phán xét nào ở đây cả.
+Không hề có thành kiến gì cả.
 
-Mỗi con người sinh ra vốn dĩ đã là một cá thể hoàn toàn khác biệt, và chính sự thiên sai vạn biệt giữa muôn ngàn cá nhân ấy mới tạo nên bức tranh muôn màu, chân thực và thú vị nhất của thế giới này.
+Mỗi người một vẻ, chính sự muôn màu muôn vẻ của từng cá thể mới làm nên một thế giới chân thực và thú vị đến thế.
 
-Hôm ấy, Bao Uyển Yên xuất phát từ khách sạn từ rất sớm, một mình nhấn ga chiếc Prado hướng thẳng về phía Phượng Hoàng Cổ Trấn xa xôi.
+Hôm đó Bao Uyển Yên xuất phát từ khách sạn rất sớm, lái xe đi Phượng Hoàng Cổ Trấn.
 
-Đi được nửa chặng đường, cô bỗng tấp xe vào lề đường, quàng lại chiếc khăn len ấm áp rồi giẫm đôi bốt da nâu xuống nền đất, giơ cánh tay thon dài vẫy vẫy chiếc xe bám đuôi phía sau.
+Giữa đường, cô ta đột ngột dừng xe, quấn khăn choàng, đi đôi bốt cao cổ màu nâu bước xuống rồi vẫy tay về phía chiếc xe chạy đằng sau.
 
-Chu Hoa Phong bất đắc dĩ đành phải tấp xe vào lề, lật đật chạy bước nhỏ tới: "Bao tiểu thư..."
+Chu Phong Hoa đành phải xuống xe chạy bước nhỏ tới trước mặt: "Cô Bao..."
 
-"Anh bám theo tôi suốt mấy ngày nay rồi đấy nhé."
+"Anh theo dõi tôi mấy ngày nay rồi đấy."
 
-"Ông chủ lo lắng cho sự an toàn của cô khi lưu lại đất Quận Sa."
+"Ông chủ lo lắng cho sự an toàn của cô khi ở Quận Sa."
 
-Chu Hoa Phong cung kính giải thích: "Ngay từ giây phút cô vừa bước chân xuống sân bay..."
-
-"..."
-
-Bao Uyển Yên thoáng chút ngập ngừng rồi khẽ gật đầu, xoay người trèo lên xe tiếp tục hành trình hướng về Phượng Hoàng Cổ Trấn.
-
-"Đúng là phong cách hành xử của Triệu tổng đất Quận Sa... Một khi đã bước chân vào địa bàn của anh ta, anh ta sẽ chịu trách nhiệm tuyệt đối về sự an nguy của người khác."
-
-Bao Uyển Yên vốn là mẫu người đam mê xê dịch một mình, dấu chân cô từng in khắp từ các vùng đất hoang dã của Mỹ Latinh cho tới lục địa đen châu Phi, có những đợt cô cắm trại sống giữa thảo nguyên hoang dã châu Phi ròng rã suốt nửa năm trời. Lời tuyên bố hôm trước trước mặt Thẩm Tử Ngôn rằng: "Tôi hoàn toàn miễn nhiễm với những gã đàn ông đẹp mã" tuyệt đối không phải là lời nói dối suông.
-
-Có lẽ các bậc trưởng bối trong gia tộc họ Bao có ý tứ muốn gán ghép, tạo điều kiện để cô tiếp xúc tìm hiểu gã thanh niên kiệt xuất mới nổi Triệu Kim An này xem sao. Thế nhưng trong mắt Bao Uyển Yên, mẫu đàn ông như Triệu Kim An tuyệt đối không phải là mẫu hình lý tưởng mà cô tìm kiếm. Thứ cô khao khát nơi người bạn đời là sự đồng điệu sâu sắc trong tâm hồn, là những kẻ "chí đồng đạo hợp" có cùng lý tưởng phiêu lưu.
-
-Việc cô nán lại Quận Sa thăm thú chơi bời thêm mấy ngày dẫu sao cũng là để có một lời giải trình tương đối thỏa đáng và tròn trịa khi trở về báo cáo với gia đình.
-
-...
-
-Bước sang tháng 1.
-
-Quận Sa sau chuỗi ngày dài âm u, xám xịt vì mưa phùn và gió bấc bỗng hiếm hoi đón nhận những ngày hửng nắng ấm áp.
-
-Bầu trời xanh trong văn vắt như vừa được gột rửa qua làn nước biếc, vài dải mây mỏng manh lững lờ trôi tựa như những dải lụa mềm, ánh nắng chan hòa rải đều khắp từng góc nhỏ trong căn phòng — món quà quý giá, ấm áp nhất mà thiên nhiên ban tặng cho những ngày đông giá rét.
-
-Từ Mạn Mạn hôm nay bỗng nhiên cầm một chiếc khăn lau trên tay, lững thững đi dạo từ phòng khách sang phòng ngủ, chỗ này lau một tí, chỗ kia quẹt một cái, nom hệt như một người vợ hiền đang chăm chút dọn dẹp tổ ấm của mình.
-
-Triệu Kim An thì đã có mặt tại trụ sở công ty từ sớm.
-
-Hôm nay là ngày mở sổ tài chính đầu năm mới.
-
-Trong thời gian khóa sổ quyết toán cuối năm, toàn bộ hệ thống tài chính của tập đoàn thực hiện nguyên tắc "chỉ thu vào chứ không xuất ra". Giờ đây khi lệnh mở sổ được ban hành, cũng là lúc các khoản công nợ và chi phí dồn ứ bắt đầu bước vào giai đoạn giải ngân, chi trả.
-
-Triệu Bác Lan và Chu Sở Hân hiện tại vẫn chưa thể trở về Quận Sa. Lượng đối soát công nợ ở các cơ sở địa phương quá đỗi đồ sộ, các trạm cảng biển ở Piraeus và Sài Gòn thậm chí còn phải cử các chuyên viên tài vụ khác bay sang để trực tiếp rà soát.
-
-Ngày đầu tiên mở sổ, chiếu theo tiến độ thi công thực tế của hai tòa tháp văn phòng, công ty đã phải ký lệnh giải ngân thanh toán số tiền lên tới 102 triệu NDT.
-
-Ngày thứ hai, Thẩm Tử Ngôn đặt bút ký duyệt, khoản quyết toán xây dựng nhà máy nước Mân Nam (Phúc Kiến) tiêu tốn thêm 29,01 triệu NDT.
-
-Ngày thứ ba, chi phí xây dựng, nâng cấp hạ tầng Cảng Piraeus đòi thanh toán 9,03 triệu USD.
-
-Triệu Kim An bị những cú điện thoại réo rắt của Lưu Xuyên làm cho phát phiền, cuối cùng Triệu Bác Lan đành phải duyệt lệnh chuyển tiếp cho Lưu Xuyên thêm 6 triệu NDT nữa.
-
-Mỗi một đầu mối liên lạc đều chỉ chực chờ chìa tay ra đòi tiền.
-
-Liễu Ôn Ninh ôm một xấp hóa đơn dày cộp bước vào phòng làm việc, giục Triệu Kim An đặt bút ký duyệt: các khoản tiền hàng của các nhà cung cấp bắt buộc phải thanh toán sòng phẳng theo đúng kỳ hạn hợp đồng đã cam kết.
-
-"Triệu tổng, những khoản này tuyệt đối không thể dây dưa chậm trễ được đâu ạ. Bằng không đám nhà cung cấp sẽ lập tức đồn ầm lên rằng chuỗi dòng tiền của công ty chúng ta đang gặp vấn đề rủi ro."
-
-Liễu Ôn Ninh ngập ngừng muốn nói lại thôi. Trong suốt năm 2009 vừa qua, những thương vụ thâu tóm bạt mạng của Triệu Kim An cho Hoàn Vũ Cảng Vụ là quá đỗi kinh hoàng, chỉ cần hệ thống có chút gió lay cỏ động, trong bụng đám đối tác cung ứng ắt sẽ nảy sinh nỗi hoài nghi:
-
-Liệu có phải Triệu tổng đã âm thầm rút ruột vốn lưu động của chuỗi siêu thị đem đi đầu tư cảng biển rồi không? Để đến nông nỗi Trăn Hối Tuyển giờ đây không còn đủ tiền mặt để thanh toán tiền hàng đúng hạn!
-
-Nếu đúng là như thế, liệu chúng ta có nên mạo hiểm tiếp tục giao hàng nữa hay không?
-
-"Thế khoản nào thì có thể trì hoãn được?"
-
-Triệu Kim An khẽ buông lời cằn nhằn Thẩm Tử Ngôn: "Tử Ngôn chẳng biết bới lông tìm vết, bắt bẻ chút lỗi kỹ thuật của bên đối tác để kéo dài thời gian công nợ thêm một dạo..."
+Chu Phong Hoa đáp: "Từ khoảnh khắc cô đặt chân lên máy bay..."
 
 "..."
 
-Liễu Ôn Ninh khẽ bĩu môi, lẳng lặng không dám tiếp lời sếp.
+Bao Uyển Yên chần chừ một chút rồi gật đầu, lên xe tiếp tục hành trình tới Phượng Hoàng Cổ Trấn.
 
-Triệu Kim An đưa ngón tay rà dọc theo danh sách thanh toán, Liễu Ôn Ninh thừa hiểu anh đang tìm kiếm những cái tên nào, liền chủ động bước tới chỉ ngón tay vào trang giấy: "Triệu tổng, ở chỗ này ạ, khoản công nợ của công ty gia đình Thẩm tổng là 1,71 triệu NDT."
+"Đúng phong cách Triệu tổng Quận Sa thật... Trên địa bàn của anh ta, anh ta lo trọn phần an toàn."
 
-"Còn ở dòng này là của Trương Vân Thiến, 510 nghìn NDT."
+Bao Uyển Yên thích đi du lịch một mình, từ Mỹ Latinh cho tới châu Phi cô đều đã đặt chân qua, có dạo ở hẳn trên thảo nguyên châu Phi suốt nửa năm trời; câu nói với Thẩm Tử Ngôn rằng "tôi miễn nhiễm với mấy anh chàng đẹp trai" không hề là lời nói dối.
 
-"Chu kỳ công nợ của họ đều là ba tháng gối đầu đúng không?"
+Có lẽ nhà họ Bao có ý định để Bao Uyển Yên tiếp xúc thử với ngôi sao mới nổi Triệu Kim An này, nhưng Bao Uyển Yên lại chẳng hề thích mẫu con trai như Triệu Kim An — thứ cô tìm kiếm là một người có chí hướng tương đồng.
 
-Triệu Kim An ngẩng lên hỏi.
+Ở lại Quận Sa chơi mấy ngày chỉ là để có lời ăn tiếng nói cho phải phép với người nhà mà thôi.
 
-Liễu Ôn Ninh gật đầu xác nhận: "Dạ đúng vậy ạ. Doanh số này thực sự là rất ấn tượng rồi đấy ạ, một phần cũng nhờ các quầy hàng của họ đều được ưu ái bố trí ở những vị trí đắc địa nhất trong siêu thị."
+Tháng Một.
 
-"Sức bán như vậy là khá tốt rồi."
+Quận Sa âm u suốt nhiều ngày liền hiếm hoi mới hửng nắng.
 
-Triệu Kim An đang thầm nhận xét về thương hiệu mỹ phẩm của Trương Vân Thiến. Dòng sản phẩm đồ uống của gia đình Thẩm Tử Ngôn biên lợi nhuận vốn không cao, nhưng thương hiệu mỹ phẩm của Trương Vân Thiến bán được 510 nghìn NDT thì bét nhất cô nàng cũng đút túi tới 410 nghìn NDT tiền lãi ròng. Một năm có bốn quý, chỉ tính riêng một điểm bán tại Trăn Hối Tuyển này thôi, Trương Vân Thiến đã có thể bỏ túi êm đẹp hơn 1,2 triệu NDT tiền lãi ròng.
+Bầu trời mang một sắc xanh biếc trong vắt như vừa được gột rửa, vài dải mây mỏng tựa tấm khăn voan, ánh nắng chẳng chút giữ kẽ mà tràn ngập mọi ngóc ngách trong căn phòng — món quà quý giá nhất của mùa đông.
 
-...
+Từ Mạn Mạn vậy mà lại cầm giẻ lau trên tay, đi qua đi lại lau chùi vài chỗ, hệt như đang dọn dẹp nhà cửa.
+
+Triệu Kim An tới công ty.
+
+Công ty mở sổ đầu kỳ.
+
+Trong thời gian khóa sổ công ty chỉ thu vào chứ không chi ra, giờ mở sổ lại là lúc phải quyết toán và thanh toán các khoản nợ.
+
+Triệu Bác Lan và Chu Sở Hân vẫn chưa về tới Quận Sa, họ còn quá nhiều đầu mối phải đối chiếu sổ sách; còn bên cảng Piraeus và cảng Sài Gòn thì đã có nhân sự tài chính khác sang kiểm toán.
+
+Ngày đầu tiên mở sổ, theo tiến độ thi công của hai tòa cao ốc văn phòng, công ty thanh toán 102 triệu tệ.
+
+Ngày thứ hai, Thẩm Tử Ngôn ký duyệt, thanh toán cho nhà máy nước Mân Nam 29,01 triệu tệ.
+
+Ngày thứ ba, thanh toán tiền xây dựng cảng Piraeus 9,03 triệu USD.
+
+Triệu Kim An bị Lưu Xuyên giục đến phát bực, Triệu Bác Lan lại phải chuyển thêm cho Lưu Xuyên 6 triệu tệ.
+
+Ai nấy đều ngửa tay đòi tiền cả.
+
+Liễu Ôn Ninh cầm một xấp chứng từ dày cộp vào xin chữ ký Triệu Kim An, tiền hàng của nhà cung cấp cũng phải thanh toán đúng hạn công nợ.
+
+"Triệu tổng, mấy khoản này không khất được đâu ạ, nếu không nhà cung cấp sẽ tưởng dòng tiền của công ty ta đang gặp trục trặc đấy."
+
+Liễu Ôn Ninh ngập ngừng muốn nói lại thôi; cả năm 2009 Triệu Kim An đổ tiền đầu tư vào Hoàn Vũ Cảng Vụ quá lớn, chỉ cần có chút gió thổi cỏ lay là các nhà cung cấp sẽ bắt đầu sinh nghi ngay:
+
+Có phải Triệu tổng lấy tiền hàng của chúng ta đem đi đầu tư rồi không? Khiến Trăn Hối Tuyển giờ không thanh toán nổi công nợ!
+
+Thế thì chúng ta có nên tiếp tục giao hàng nữa không?
+
+"Khoản nào khất được?"
+
+Triệu Kim An lẩm bẩm trách móc Thẩm Tử Ngôn: "Tử Ngôn chẳng biết đường bới lông tìm vết, khất lại một thời gian xem sao..."
+
+"..."
+
+Liễu Ôn Ninh bĩu môi, không thèm tiếp lời.
+
+Triệu Kim An lấy ngón tay chỉ dọc từ trên xuống dưới; Liễu Ôn Ninh biết ngay anh đang tìm gì, liền bước lên chỉ tay báo cáo: "Triệu tổng, chỗ này là công nợ của nhà Thẩm tổng, 1,71 triệu tệ ạ."
+
+"Còn chỗ này là của Trương Vân Thiến, 510 nghìn tệ."
+
+"Cả hai bên đều áp dụng kỳ hạn công nợ 3 tháng à?"
+
+Triệu Kim An hỏi.
+
+Liễu Ôn Ninh gật đầu: "Vâng ạ, doanh số thế này là tốt lắm rồi, bởi vì vị trí trưng bày của họ đều là đẹp nhất."
+
+"Bán cũng được đấy chứ."
+
+Triệu Kim An đang nói tới Trương Vân Thiến; sản phẩm nhà Thẩm Tử Ngôn biên lợi nhuận không cao, chứ Trương Vân Thiến bán được 510 nghìn tệ thì ít nhất cũng bỏ túi 410 nghìn tệ tiền lãi. Một năm 4 quý, Trương Vân Thiến chỉ riêng tại một siêu thị Trăn Hối Tuyển thôi đã kiếm được 1,24 triệu tệ rồi.
 
 Tại Dương Thành.
 
-Chiếc điện thoại bỗng phát ra tiếng "đinh" giòn giã. Trương Vân Thiến khoác chiếc áo măng tô thanh lịch, vội vã nhấc điện thoại lên kiểm tra tin nhắn báo biến động số dư tài khoản ngân hàng. Mộc Dao hiện vẫn đang du học bên Hàn Quốc, bản thân Trương Vân Thiến từ tận đáy lòng luôn dành sự ưu ái và tin tưởng tuyệt đối vào các kênh bán lẻ hữu hình truyền thống.
+Điện thoại vang lên tiếng "tinh", Trương Vân Thiến khoác chiếc áo măng tô cầm máy lên xem tin nhắn. Mộc Dao đang ở Hàn Quốc, trong thâm tâm Trương Vân Thiến vẫn thiên về kênh siêu thị bán lẻ truyền thống hơn.
 
-Chỉ sau vỏn vẹn một năm rưỡi hợp tác, Trăn Hối Tuyển đã vươn lên trở thành kênh phân phối mang lại doanh số bán hàng bùng nổ nhất cho toàn bộ hệ thống của Trương Vân Thiến.
+Mới chỉ một năm rưỡi mà Trăn Hối Tuyển đã trở thành điểm bán có doanh số tốt nhất của Trương Vân Thiến.
 
-Trương Vân Thiến chọn ở lại thị trường nội địa để tập trung mở rộng mạng lưới phân phối vào các trung tâm thương mại cao cấp tại Dương Thành. Ngặt nỗi kết quả thu về lại chẳng mấy khả quan; các trung tâm thương mại xa xỉ căn bản không chịu mở cửa cho thương hiệu của cô chen chân vào, đó vốn là lãnh địa độc tôn của các thương hiệu quốc tế đình đám, những nhãn hàng "vô danh tiểu tốt" tuyệt đối không có cửa bước chân qua khe cửa hẹp.
+Trương Vân Thiến ở lại trong nước để mở rộng vào các trung tâm thương mại tại Dương Thành, nhưng hiệu quả chẳng mấy khả quan; những trung tâm thương mại cao cấp không cho vào, đó là địa bàn của các thương hiệu lớn quốc tế, hàng "nhãn hiệu tạp nham" người ta chẳng cho phép đặt chân vào.
 
-Dòng sản phẩm "Thiên Ngữ Thực Thúy" của Trương Vân Thiến xét cho cùng trên thương trường lúc này vẫn chỉ bị coi là một thương hiệu nội địa nhỏ bé, chưa có tên tuổi.
+Thương hiệu "Thiên Ngữ Thực Tụy" của Trương Vân Thiến nói thẳng ra cũng chỉ là nhãn hiệu vô danh mà thôi.
 
-"Không biết hai khu trung tâm thương mại hoành tráng của Kim An bao giờ mới xây dựng xong xuôi nhỉ?"
+"Hai cái trung tâm thương mại kia của Kim An bao giờ mới xây xong nhỉ?"
 
-Trương Vân Thiến thường xuyên phải đi lại như con thoi giữa Quận Sa và các tỉnh phía Nam, số lần cô một mình lẳng lặng ghé thăm Trăn Hối Tuyển nhiều không đếm xuể. Cô thậm chí còn từng chủ động lên tận văn phòng tìm gặp Tôn Dũng bên phòng thu mua một lần, duy chỉ có Triệu Kim An là cô chưa từng một lần gặp mặt.
+Trương Vân Thiến thường xuyên đi lại giữa hai nơi và Quận Sa, chẳng ít lần một mình ghé qua Trăn Hối Tuyển, cô thậm chí còn lên văn phòng tìm Tôn Dũng bên bộ phận thu mua một lần, duy chỉ có Triệu Kim An là chưa gặp được.
 
-Một kênh phân phối độc lập có thể đều đặn mang lại cho mình hơn một triệu tệ tiền lãi ròng mỗi năm, hoàn toàn xứng đáng để Trương Vân Thiến dồn trọn tâm huyết và đối đãi bằng sự cẩn trọng cao nhất.
+Một điểm bán hàng mỗi năm có thể mang về cho mình hơn một triệu tệ thu nhập, rất xứng đáng để Trương Vân Thiến dốc lòng coi trọng.
 
-Trên thực tế, số liệu bán hàng trên gian hàng Taobao trực tuyến của công ty thời gian gần đây đã bắt đầu có dấu hiệu chững lại và sụt giảm nhẹ. Kể từ sau ngày hội mua sắm 11/11 năm 2009, nền tảng Taobao bỗng chốc chứng kiến một làn sóng các đối thủ cạnh tranh ồ ạt đổ xô vào thị trường, khiến cho hiệu quả của việc chạy quảng cáo mua từ khóa đẩy traffic (xe lửa trực thông) sụt giảm trông thấy.
+Thực tế số liệu bán hàng trên gian hàng Taobao của công ty đang có dấu hiệu sụt giảm; sau dịp Lễ Độc Thân 11/11 năm 2009, lượng đối thủ cạnh tranh tràn vào Taobao quá đông, hiệu quả từ việc chạy quảng cáo Trực Thông Xa cũng giảm sút rõ rệt.
 
-Tình trạng bão hòa và cạnh tranh gay gắt này cũng đã được vợ chồng Thẩm Vĩnh Đàm và Lục Mai Tiêu sớm nhận thấy rõ.
+Tình hình này Thẩm Vĩnh Đàm và Lục Mai Tiêu cũng đã nhận ra.
 
-Mảnh đất Taobao màu mỡ đã chính thức bước qua thời kỳ hoàng kim hái ra tiền dễ như trở bàn tay. Chặng đường phía trước sẽ là chuỗi ngày cạnh tranh ngày càng khốc liệt theo từng năm: kẻ nào dám bạo chi nhiều tiền hơn để mua lưu lượng truy cập, kẻ nào dám hạ giá thành sản phẩm xuống mức sát ván hơn thì kẻ đó mới mong sống sót.
+Taobao đã đi qua giai đoạn hái ra tiền dễ dàng nhất; thời gian tới sẽ càng ngày càng cạnh tranh khốc liệt — đấu xem ai chịu chi tiền chạy quảng cáo mua lưu lượng truy cập mạnh hơn, đấu xem giá của ai rẻ hơn.
 
-Và tỷ lệ đổi trả hàng sẽ càng ngày càng leo thang chóng mặt theo từng năm tháng!
+Tỷ lệ hoàn trả hàng sẽ năm sau cao hơn năm trước!
 
-Đặc biệt là ở mảng thời trang nữ.
+Đặc biệt là mặt hàng thời trang nữ.
 
-Cái viễn cảnh trớ trêu "mua 10 món hàng thì bấm bụng trả lại tới 9 món" chỉ vài năm nữa thôi sẽ lần đầu tiên trở thành một thực trạng nhức nhối trên toàn cõi mạng.
+Cái câu chuyện bi hài "mua 10 món trả lại 9 món" vài năm nữa sẽ lần đầu tiên xuất hiện.
 
-Với cương vị là nhân vật số hai điều hành Trăn Hối Tuyển, Liễu Ôn Ninh cũng vừa mạnh dạn đặt ra chỉ tiêu doanh thu cho năm 2010 của chuỗi siêu thị: Chinh phục mốc 2 tỷ NDT!
+Với tư cách là nhân vật số hai của Trăn Hối Tuyển, Liễu Ôn Ninh cũng đã đặt mục tiêu cho công ty: 2 tỷ tệ!
 
-Thế nhưng Triệu Kim An lại không mấy lạc quan về bức tranh kinh doanh năm 2010 của Trăn Hối Tuyển. Có người sẽ bảo rằng năm 2009 doanh thu đã chạm mốc 1,8 tỷ rồi, thì năm 2010 cán mốc 2 tỷ chẳng phải là chuyện thuận nước đẩy thuyền đương nhiên hay sao?
+Triệu Kim An lại không mấy lạc quan về năm 2010 của Trăn Hối Tuyển. Có người sẽ bảo năm 2009 doanh thu Trăn Hối Tuyển đã đạt 1,8 tỷ tệ rồi, thì năm 2010 lên 2 tỷ tệ là chuyện bình thường.
 
-Đó hoàn toàn là lối tư duy rập khuôn, xơ cứng.
+Đó là lối tư duy lối mòn.
 
-Thực tế là vào cái thời buổi này, các mặt hàng đồ điện gia dụng và quần áo may mặc thời trang đều đang được bán với mức giá rất đắt đỏ mà lại chẳng bao giờ lo ế ẩm; các mặt bằng kinh doanh bám mặt đường luôn trong tình trạng cung không đủ cầu. Một chiếc áo phông bình dân giá 39 tệ đã được coi là rẻ lắm rồi, còn cái chuyện "9 tệ 9 bao phí vận chuyển tận giường" ư? Lúc này ngay cả trong giấc mơ người ta cũng chưa từng dám nghĩ tới.
+Thực tế thời buổi này đồ điện gia dụng và quần áo đều bán rất đắt mà vẫn không lo ế, mặt bằng mặt phố thì có tiền cũng khó thuê; một chiếc áo phông giá 39 tệ đã tính là rẻ rồi, còn chuyện 9,9 tệ miễn phí vận chuyển á? Nằm mơ cũng chưa từng nghĩ tới.
 
-Thế nên đừng bao giờ lầm tưởng rằng mức chi tiêu và vật giá ở thời điểm này là thấp. Trong bốn nhu cầu thiết yếu "ăn, mặc, ở, đi lại", ngoại trừ giá bất động sản ra, thì chi phí cho cái ăn và cái mặc đều đắt đỏ vô cùng.
+Thế nên đừng lầm tưởng vật giá thời điểm này thấp; ăn mặc ở đi lại, ngoại trừ giá nhà đất ra thì đồ ăn thức mặc thứ gì cũng đắt đỏ cả.
 
-...
+Triệu Bác Lan và Chu Sở Hân lại một lần nữa có mặt tại thôn Tưởng Gia Ao, nơi đặt nhà máy nước lớn nhất của Trăn Nhiên.
 
-Triệu Bác Lan và Chu Sở Hân lại một lần nữa đặt chân tới Tưởng Gia Áo — nơi đặt cụm nhà máy nước có quy mô đồ sộ nhất của tập đoàn Trăn Nhiên.
+Liễu Ôn Ninh và Tôn Dũng cũng thu xếp thời gian bay sang tỉnh Thiểm.
 
-Liễu Ôn Ninh và Tôn Dũng cũng tranh thủ thời gian bay khẩn cấp sang tỉnh Thiểm Tây.
+Năm ngoái anh đào bán ở Trăn Hối Tuyển cực kỳ đắt hàng, giá 10 tệ một cân vừa chuyển về tới Quận Sa là gần như bán sạch veo. Liễu Ôn Ninh và Tôn Dũng tới đây để ký hợp đồng thu mua cho năm tới, bao gồm cả táo của tỉnh Thiểm và táo tàu mùa đông Đại Lệ.
 
-Mùa vụ năm ngoái, mặt hàng quả anh đào (cherry) tươi nhập từ vùng này bán cực kỳ chạy tại siêu thị Trăn Hối Tuyển. Mức giá 10 tệ một cân vừa cập bến Quận Sa là gần như lập tức bị khách hàng vét sạch nhẵn trong chớp mắt. Chuyến này Liễu Ôn Ninh và Tôn Dũng đích thân lặn lội tới đây để đặt bút ký kết hợp đồng bao tiêu nông sản cho vụ mùa tới, bao gồm cả giống táo Thiểm Tây nức tiếng cùng đặc sản táo tàu tươi Đại Lệ.
+Họ bắt đầu từ thôn Tưởng Gia Ao; vì nhà máy nước đặt tại đây nên có mối lợi gì chắc chắn họ sẽ ưu tiên cho Tưởng Gia Ao trước.
 
-Địa điểm khởi đầu cho chuỗi ký kết chính là Tưởng Gia Áo. Bởi vì nhà máy nước trọng điểm được đặt tại mảnh đất này, nên mỗi khi có bất kỳ nguồn lợi kinh tế nào, ban lãnh đạo công ty chắc chắn sẽ luôn dành sự ưu tiên hàng đầu cho bà con Tưởng Gia Áo.
+Chuyện này thu hút sự quan tâm của Tưởng Tăng Niên; ông cùng vài vị lãnh đạo huyện đã đích thân xuống Tưởng Gia Ao một chuyến.
 
-Sự kiện hợp tác này đã nhận được sự quan tâm đặc biệt từ phía chính quyền địa phương. Bí thư huyện Tưởng Tăng Niên cùng hàng loạt các cán bộ đầu ngành của huyện đã đích thân có mặt tại Tưởng Gia Áo để tham dự.
+Lưu Lệ Hà cũng dắt theo Tưởng Uyển Nhi tới cùng.
 
-Bà Lưu Lệ Hà cũng dẫn theo cô cháu ngoại nhỏ Tưởng Uyển Nhi tới dự buổi lễ.
+"Kim An không về à con?"
 
-"Kim An đợt này không về cùng đoàn sao con?"
+Lưu Lệ Hà nắm tay Tưởng Uyển Nhi, khẽ hỏi nhỏ.
 
-Bà Lưu Lệ Hà khẽ nắm lấy bàn tay nhỏ bé của Tưởng Uyển Nhi, nhỏ giọng quay sang hỏi con gái.
-
-Tưởng Chỉ Tình khẽ lắc đầu, ánh mắt thoáng nét trầm tư: "Anh ấy không về đâu mẹ..."
+Tưởng Chỉ Tình khẽ lắc đầu: "Không ạ."

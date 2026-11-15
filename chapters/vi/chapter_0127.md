@@ -1,7 +1,5 @@
 # Chương 127: Lần đầu tiên!
 
-> **Tiêu đề gốc**: 第127章 第一次！
-
 Nhưng đối với Triệu Kim An mà nói, một khi đã dứt khoát chia tay Mộc Dao, Trương Tuệ cũng chỉ là một người xa lạ không hơn không kém.
 
 Lúc này, anh và Thẩm Tử Ngôn còn đang bận rộn chỉ đạo điều phối hàng hóa.

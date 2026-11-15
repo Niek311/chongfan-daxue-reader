@@ -1,7 +1,5 @@
 # Chương 83: Lần đầu tiên bước vào nhà vệ sinh nữ
 
-> **Tiêu đề gốc**: 第83章 第一次进女洗手间。
-
 Triệu Trí Dũng liếc nhìn Triệu Kim An một cái, rồi buột miệng nói đùa: "Cháu muốn thi công chức để vào Ủy ban Phát triển và Cải cách làm việc, chỉ tiếc là bằng cấp của cháu chưa đủ tầm. Thật ra Kim An cũng muốn vào đấy lắm."
 
 Triệu Kim An chợt nhớ ra, bố của Âu Cường vốn đang công tác tại Ủy ban Cải cách và Phát triển. Hồi kỳ nghỉ hè bọn họ từng trêu đùa nhau về chuyện này, chính miệng anh cũng từng nói giỡn rằng sau này sẽ tìm một cô bạn gái làm việc trong Ủy ban Cải cách và Phát triển.

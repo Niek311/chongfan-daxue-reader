@@ -1,7 +1,5 @@
 # Chương 287: Không hề né tránh
 
-> **Tiêu đề gốc**: 第287章 没有回避。
-
 Mộc Dao cũng không đến mức quá đỗi ngây thơ, cô không hề hé răng nửa lời trong nhóm về chuyện hôm nay mình đã cùng Triệu Kim An ngồi chiếc Rolls-Royce trở về trường.
 
 Trong nhóm im ắng, không một ai lên tiếng.
@@ -208,7 +206,7 @@ Triệu Kim An không hề né tránh, một lát sau anh gõ cửa bước vào
 
 Thẩm Tử Ngôn ngẩng đầu liếc nhìn anh một cái, rồi lại tiếp tục cúi đầu tập trung vào công việc.
 
-Triệu Kim An cầm chùm chìa khóa chiếc Rolls-Royce đặt ngay ngắn lên mặt bàn: "Nếu cô muốn tự lái thì lái, còn không thì cứ gọi Đơn Vĩ đưa đón."
+Triệu Kim An cầm chùm chìa khóa chiếc Rolls-Royce đặt ngay ngắn lên mặt bàn: "Nếu cô muốn tự lái thì lái, còn không thì cứ gọi Đan Vĩ đưa đón."
 
 Hành động này tương đương với việc công ty chính thức trang bị xe riêng cho Thẩm tổng của Trăn Nhiên.
 

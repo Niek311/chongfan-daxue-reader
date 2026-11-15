@@ -1,7 +1,5 @@
 # Chương 519: Vai ác này cứ để tôi làm
 
-> **Tiêu đề gốc**: 第519章 这个坏人我来当。
-
 Trưa hôm ấy, Triệu Kim An không đẩy xe lăn đưa Tô Miến sang bên kia dùng bữa.
 
 Thẩm Tử Ngôn và Mộc Dao ngồi bên mâm cỗ để ý thấy ngay giữa gian nhà chính có hai chiếc ghế bát tiên bỏ trống, tuyệt nhiên không một ai dám ngồi vào.
@@ -156,7 +154,7 @@ Thẩm Tử Ngôn chua chát gật đầu. Cô thừa hiểu hai chữ "về đi
 
 Anh muốn họ vĩnh viễn rời khỏi mảnh đất Quận Sa này.
 
-"Tớ biết, Dao Dao biết, Lạc tổng biết, Du Phỉ biết..."
+"Tớ biết, Dao Dao biết, Lạc tổng biết, Du Phi biết..."
 
 "Kim An à, ngay cả mẹ tớ cũng biết tỏng tòng tong rằng tớ không nên quay về Quận Sa làm gì, bởi vì quay về cũng hoàn toàn vô ích. Thế nhưng tớ vẫn cứ đâm đầu quay trở lại, và Dao Dao cũng vậy!"
 

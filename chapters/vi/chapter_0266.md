@@ -1,7 +1,5 @@
 # Chương 266: Ôm bọc tiền lớn
 
-> **Tiêu đề gốc**: 第266章 身怀巨款。
-
 "Ông chủ Triệu, cậu cũng không mấy khi ở nhà... tôi chỉ giúp cậu dọn dẹp vệ sinh một chút thôi."
 
 Lưu Mỹ Nga có phần lúng túng: "Vệ sinh... vốn dĩ trong nhà đã rất sạch sẽ rồi... thêm nữa cũng chỉ là giặt giũ mấy bộ quần áo."

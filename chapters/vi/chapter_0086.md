@@ -1,7 +1,5 @@
 # Chương 86: Mình có phải là người phụ nữ của cậu ấy không?
 
-> **Tiêu đề gốc**: 第86章 我是他的女人吗？
-
 Chiếc Audi đỗ ngay ngắn giữa khoảng sân trước nhà.
 
 Trước khi về, Đan Vĩ đã chu đáo mang xe đi rửa sạch bong, ngay cả vành bánh xe cũng được lau chùi sáng loáng không dính một hạt bụi.

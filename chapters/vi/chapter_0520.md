@@ -1,7 +1,5 @@
 # Chương 520: Bóng người đã khuất
 
-> **Tiêu đề gốc**: 第520章 人不见了。
-
 Tô Mặc bỗng nhiên biến đâu mất tăm, hóa ra cô bé đang nép mình bên con đường mòn phủ đầy tuyết trắng ngoài đầu ngõ, hai tay nâng chiếc điện thoại thì thầm gọi đi đâu đó.
 
 Bà nội đứng lặng người lắng nghe một hồi lâu, đoạn khẽ còng lưng, chậm rãi quay bước rời đi.
@@ -54,9 +52,9 @@ Doãn Hiểu Lan đang cầm chổi quét dọn, khẽ ngẩng đầu cất gi�
 
 Thẩm Tử Ngôn gửi trả lại chùm chìa khóa xe cho Triệu Quốc Hoa, đoạn bước lên xe của Mộc Dao, phóng thẳng ra ga tàu cao tốc.
 
-Ngồi trên xe, Mộc Dao rút điện thoại bấm số gọi đi: "Du Phỉ à, cậu đang ở đâu thế?"
+Ngồi trên xe, Mộc Dao rút điện thoại bấm số gọi đi: "Du Phi à, cậu đang ở đâu thế?"
 
-"Tớ đang ở nhà chứ ở đâu." Đầu dây bên kia, Du Phỉ lộ rõ vẻ ngạc nhiên. Cô thừa biết Thẩm Tử Ngôn và Mộc Dao đã lặn lội tìm về Triệu Gia Thôn.
+"Tớ đang ở nhà chứ ở đâu." Đầu dây bên kia, Du Phi lộ rõ vẻ ngạc nhiên. Cô thừa biết Thẩm Tử Ngôn và Mộc Dao đã lặn lội tìm về Triệu Gia Thôn.
 
 Thẩm Tử Ngôn lập tức bấm máy gọi thẳng cho Từ Mạn Mạn: "Mạn Mạn, Kim An đã quay trở về Quận Sa chưa?"
 

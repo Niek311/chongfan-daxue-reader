@@ -1,7 +1,5 @@
 # Chương 257: Con đường phu nhân ngoại giao
 
-> **Tiêu đề gốc**: 第257章 夫人路线
-
 Một người phụ nữ tầm sáu mươi tuổi, tính theo tuổi tác thì đáng gọi là một bà lão rồi.
 
 Chỉ có điều nhờ được chăm sóc, bảo dưỡng vô cùng chu đáo nên thoạt nhìn bà vẫn trẻ trung hơn tuổi thật rất nhiều.
@@ -24,7 +22,7 @@ Triệu Kim An dẫu không bước chân vào con đường quan lộ, nhưng t
 
 Nếu nói đây là việc đi theo "con đường phu nhân ngoại giao" thì cũng chẳng có gì sai.
 
-Bằng không thì việc gì Quách Uyển Thanh và Khương Phức Hàm phải đích thân đứng ra lo liệu, trong khi Tô Miễn chỉ ngoan ngoãn đứng bên cạnh không hé răng nửa lời? Tại sao Phùng Nhược Đan không tới mà lại là Khương Phức Hàm – với tư cách là chị dâu cả – cùng với Quách Uyển Thanh đồng hành?
+Bằng không thì việc gì Quách Uyển Thanh và Khương Phức Hàm phải đích thân đứng ra lo liệu, trong khi Tô Miến chỉ ngoan ngoãn đứng bên cạnh không hé răng nửa lời? Tại sao Phùng Nhược Đan không tới mà lại là Khương Phức Hàm – với tư cách là chị dâu cả – cùng với Quách Uyển Thanh đồng hành?
 
 Điều đó thể hiện sự coi trọng và tôn trọng tuyệt đối của nhà họ Tô dành cho Triệu Kim An, chứ không hề qua loa, tùy tiện.
 
@@ -32,15 +30,15 @@ Một gia đình bình thường có lẽ chẳng mấy ai để tâm đến nh�
 
 Nhưng ở tầng lớp này, tất cả mọi người đều hành xử như thế. Nói đúng hơn là những ai hiện diện ở đây đều có xuất thân và vị thế tương đương nhau. Năm xưa khi Khương Phức Hàm và Phùng Nhược Đan gả vào làm dâu nhà họ Tô, bọn họ cũng từng trải qua đúng những quy trình lễ nghi tương tự.
 
-Người phụ nữ cao quý mang họ Trần kia còn chủ động hỏi xin số điện thoại di động của Triệu Kim An, bảo rằng hễ có dịp ra Kinh Đô thì nhớ dắt con bé Tô Miễn sang nhà bà chơi.
+Người phụ nữ cao quý mang họ Trần kia còn chủ động hỏi xin số điện thoại di động của Triệu Kim An, bảo rằng hễ có dịp ra Kinh Đô thì nhớ dắt con bé Tô Miến sang nhà bà chơi.
 
 "Cháu cảm ơn dì Trần ạ."
 
 "Cháu cảm ơn dì Trần ạ."
 
-Đứng trước mặt người phụ nữ họ Trần này, ngay cả Tô Miễn cũng trở nên vô cùng ngoan ngoãn, lễ phép.
+Đứng trước mặt người phụ nữ họ Trần này, ngay cả Tô Miến cũng trở nên vô cùng ngoan ngoãn, lễ phép.
 
-Sự lễ phép này hoàn toàn khác biệt với nét mộc mạc khi Tô Miễn về Triệu Gia Thôn. Người phụ nữ tên Trần Nhuế bèn hỏi thêm một câu: "Triệu Kim An này, thương hiệu nước khoáng Trăn Nhiên kia là của cháu đấy à?"
+Sự lễ phép này hoàn toàn khác biệt với nét mộc mạc khi Tô Miến về Triệu Gia Thôn. Người phụ nữ tên Trần Nhuế bèn hỏi thêm một câu: "Triệu Kim An này, thương hiệu nước khoáng Trăn Nhiên kia là của cháu đấy à?"
 
 "Dạ vâng đúng rồi, thưa dì Trần."
 
@@ -70,9 +68,9 @@ Hóa ra cô bé này chính là cháu gái ruột của Trần Nhuế. Triệu K
 
 Triệu Kim An xưa nay không bao giờ nói dối, chuyện "đạo nhái" lại các ca khúc đình đám của hậu thế thì... đâu thể tính là đạo nhái được, đúng không nào?
 
-Các vị nữ quyến có mặt trong khu vực VIP nhỏ hẹp này đều đồng loạt dõi mắt nhìn về phía Triệu Kim An và Tô Miễn. Quách Uyển Thanh và Khương Phức Hàm tỏ ra vô cùng hài lòng trước phong thái đĩnh đạc, chững chạc lần này của Triệu Kim An, hắn không hề giở chứng chọc tức phụ huynh như cái lần đối đáp với ông Tô Minh Tùng ở nhà.
+Các vị nữ quyến có mặt trong khu vực VIP nhỏ hẹp này đều đồng loạt dõi mắt nhìn về phía Triệu Kim An và Tô Miến. Quách Uyển Thanh và Khương Phức Hàm tỏ ra vô cùng hài lòng trước phong thái đĩnh đạc, chững chạc lần này của Triệu Kim An, hắn không hề giở chứng chọc tức phụ huynh như cái lần đối đáp với ông Tô Minh Tùng ở nhà.
 
-Triệu Kim An dứt khoát cúi người bế bổng Tô Miễn trở về vị trí ghế ngồi của mình, hướng về phía các vị phu nhân xung quanh mỉm cười chào hỏi lịch thiệp. Địa vị của bà Trần Nhuế quả thực vô cùng "đặc biệt", chỉ cần nhìn vào thái độ cung kính của Quách Uyển Thanh và Khương Phức Hàm là đủ hiểu.
+Triệu Kim An dứt khoát cúi người bế bổng Tô Miến trở về vị trí ghế ngồi của mình, hướng về phía các vị phu nhân xung quanh mỉm cười chào hỏi lịch thiệp. Địa vị của bà Trần Nhuế quả thực vô cùng "đặc biệt", chỉ cần nhìn vào thái độ cung kính của Quách Uyển Thanh và Khương Phức Hàm là đủ hiểu.
 
 Đối với những nữ quyến khác, Quách Uyển Thanh và Khương Phức Hàm không nán lại trò chuyện quá lâu.
 
@@ -82,13 +80,13 @@ Trái lại, chính những người đó là bên chủ động tiến lại g�
 
 "..."
 
-Triệu Kim An thoáng ngớ người ra một nhịp, rồi ghé sát đầu hôn chụt một cái lên má Tô Miễn.
+Triệu Kim An thoáng ngớ người ra một nhịp, rồi ghé sát đầu hôn chụt một cái lên má Tô Miến.
 
 "Chậc chậc chậc..."
 
 Xung quanh bỗng vang lên vài tiếng trêu chọc nho nhỏ, mọi người đều nở nụ cười hòa nhã, thiện ý.
 
-Còn chuyện có thực sự hòa nhã từ tận đáy lòng hay không thì chẳng ai biết được, nhưng dù sao ở chốn này ai nấy đều phải giữ gìn thể diện ngoài mặt cho trọn vẹn. Hầu hết những người hiện diện ở đây đều đến với nhau thông qua những cuộc hôn nhân liên minh gia tộc, mối tình giữa Triệu Kim An và Tô Miễn xem như là một ngoại lệ hiếm hoi.
+Còn chuyện có thực sự hòa nhã từ tận đáy lòng hay không thì chẳng ai biết được, nhưng dù sao ở chốn này ai nấy đều phải giữ gìn thể diện ngoài mặt cho trọn vẹn. Hầu hết những người hiện diện ở đây đều đến với nhau thông qua những cuộc hôn nhân liên minh gia tộc, mối tình giữa Triệu Kim An và Tô Miến xem như là một ngoại lệ hiếm hoi.
 
 Quách Uyển Thanh và Khương Phức Hàm đưa mắt nhìn nhau, cũng không kìm được nụ cười.
 
@@ -110,7 +108,7 @@ Vừa mới phút trước còn bình thường, giờ lại giở chứng bất
 
 Trên đời này có ai lại đi nói ra cái câu ngang phè phè như thế, mà người được hỏi lại chính là Khương Phức Hàm cơ chứ!
 
-Duy chỉ có Tô Miễn là ôm bụng cười khúc khích.
+Duy chỉ có Tô Miến là ôm bụng cười khúc khích.
 
 "..."
 
@@ -118,19 +116,19 @@ Khương Phức Hàm ngây người mất một hồi lâu mới thốt lên: "K
 
 Trong đầu cô lúc này chỉ có thể nảy ra đúng một suy nghĩ duy nhất ấy.
 
-Tô Miễn liền đón lời, cười tươi roi rói: "Kim An, anh đừng có đưa tiền cho mấy người bọn họ!"
+Tô Miến liền đón lời, cười tươi roi rói: "Kim An, anh đừng có đưa tiền cho mấy người bọn họ!"
 
 "..."
 
-Khương Phức Hàm hết nhìn Tô Miễn lại nhìn sang Triệu Kim An, dở khóc dở cười quay sang mẹ: "Mẹ ơi, mẹ con mình đổi chỗ ngồi đi, con không thèm ngồi sát cạnh hai cái đứa dở hơi này nữa đâu."
+Khương Phức Hàm hết nhìn Tô Miến lại nhìn sang Triệu Kim An, dở khóc dở cười quay sang mẹ: "Mẹ ơi, mẹ con mình đổi chỗ ngồi đi, con không thèm ngồi sát cạnh hai cái đứa dở hơi này nữa đâu."
 
 Thời gian lúc này vẫn chưa điểm 8 giờ tối.
 
-Chỉ thấy Triệu Kim An thản nhiên thò tay vào trong túi xách rút ra một chiếc quạt máy mini chạy pin, bấm nút rồi đưa lại gần phe phẩy cho Tô Miễn: "Em thấy mát và dễ chịu không?"
+Chỉ thấy Triệu Kim An thản nhiên thò tay vào trong túi xách rút ra một chiếc quạt máy mini chạy pin, bấm nút rồi đưa lại gần phe phẩy cho Tô Miến: "Em thấy mát và dễ chịu không?"
 
 "Dạ mát lắm."
 
-Tô Miễn cười tít mắt gật đầu, cô bé hoàn toàn chẳng thèm bận tâm xem những người xung quanh nhìn mình và Triệu Kim An bằng ánh mắt gì.
+Tô Miến cười tít mắt gật đầu, cô bé hoàn toàn chẳng thèm bận tâm xem những người xung quanh nhìn mình và Triệu Kim An bằng ánh mắt gì.
 
 Triệu Kim An lại thò tay vào túi lôi ra một chai nước khoáng ướp lạnh mát rượi.
 
@@ -140,13 +138,13 @@ Mấy thứ đó đã đành.
 
 "Kim An, anh... anh mang cả vịt quay vào đây thật đấy à?"
 
-Lần này đến ngay cả Tô Miễn cũng phải tròn mắt ngạc nhiên, cô hoàn toàn không hề hay biết Triệu Kim An đã cất công chuẩn bị sẵn những thứ này từ lúc nào.
+Lần này đến ngay cả Tô Miến cũng phải tròn mắt ngạc nhiên, cô hoàn toàn không hề hay biết Triệu Kim An đã cất công chuẩn bị sẵn những thứ này từ lúc nào.
 
 "Thời gian ngồi xem lễ khai mạc dài như thế, anh sợ lát nữa bụng em sẽ bị đói."
 
 "Dạ..."
 
-Tô Miễn siết chặt lấy bàn tay Triệu Kim An, ngón tay nhẹ nhàng miết lên những vết chai sần trên lòng bàn tay hắn.
+Tô Miến siết chặt lấy bàn tay Triệu Kim An, ngón tay nhẹ nhàng miết lên những vết chai sần trên lòng bàn tay hắn.
 
 Quách Uyển Thanh: "..."
 
@@ -158,7 +156,7 @@ Thế nhưng trong lòng ai nấy lại dấy lên không ít phần ngưỡng m
 
 Những cuộc hôn nhân môn đăng hộ đối, liên minh gia tộc như bọn họ thì lấy đâu ra nền tảng tình cảm mặn nồng chân thật đến nhường này, làm bất cứ điều gì cũng chỉ là để diễn kịch cho thiên hạ ngắm nhìn mà thôi.
 
-Cách đó không xa, cô bé Hồ Kiều Tri đang rướn người ngó nghiêng nhìn chằm chằm về phía Triệu Kim An và Tô Miễn.
+Cách đó không xa, cô bé Hồ Kiều Tri đang rướn người ngó nghiêng nhìn chằm chằm về phía Triệu Kim An và Tô Miến.
 
 Ngay cả bà Trần Nhuế cũng phải đưa mắt nhìn sang thêm một lần nữa.
 
@@ -170,7 +168,7 @@ Quách Uyển Thanh nghe xong khẽ gật đầu, trong lòng không khỏi cả
 
 "Dì ơi, dì có muốn dùng một miếng không ạ? Chị dâu, chị thì sao?"
 
-Triệu Kim An đeo găng tay nilon dùng một lần vào, thoăn thoắt cuốn một miếng bánh tráng kẹp thịt vịt quay thơm lừng rồi đút tận miệng cho Tô Miễn. Tô Miễn há miệng cắn một miếng, nhai ngấu nghiến một cách ngon lành.
+Triệu Kim An đeo găng tay nilon dùng một lần vào, thoăn thoắt cuốn một miếng bánh tráng kẹp thịt vịt quay thơm lừng rồi đút tận miệng cho Tô Miến. Tô Miến há miệng cắn một miếng, nhai ngấu nghiến một cách ngon lành.
 
 "Ăn... ăn một cuốn xem sao nhé?"
 
@@ -196,7 +194,7 @@ Triệu Kim An: "..."
 
 "Chị dâu ơi, ý em lúc nãy là muốn hỏi xem chị có muốn ăn thêm một cuốn vịt quay nữa không mà..."
 
-Lần này thì cả Tô Miễn lẫn Quách Uyển Thanh đều không kìm nổi mà bật cười thành tiếng.
+Lần này thì cả Tô Miến lẫn Quách Uyển Thanh đều không kìm nổi mà bật cười thành tiếng.
 
 "Hóa ra cái ân tình to tát này của tôi chỉ đáng giá bằng một cuốn vịt quay thôi đấy hả?!"
 

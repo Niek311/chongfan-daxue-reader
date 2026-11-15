@@ -1,7 +1,5 @@
 # Chương 122: Con không dẫn cậu ấy về à?
 
-> **Tiêu đề gốc**: 第122章 你没把他带回来？
-
 Gần đến ngày khai giảng.
 
 Thẩm Tử Ngôn thu xếp ổn thỏa mọi công việc ở thị trường Thường Đức xong xuôi mới chịu trở về nhà.
@@ -24,7 +22,7 @@ Hơn nữa, Lạc Cẩn Chi có quá nhiều việc phải quán xuyến, chị 
 
 Mộc Dao luôn dõi theo từng động thái của Thẩm Tử Ngôn.
 
-Hứa Mạn Mạn cũng luôn để tâm đến hành tung của Thẩm Tử Ngôn.
+Từ Mạn Mạn cũng luôn để tâm đến hành tung của Thẩm Tử Ngôn.
 
 Diêu Hân thì có chút tò mò hóng chuyện.
 
@@ -68,7 +66,7 @@ Chiếc Mercedes-Benz E230 không bày biện quá nhiều phụ kiện rườm 
 
 Cô chỉ mua duy nhất một bộ bọc ghế da phối hai màu đen đỏ sang trọng.
 
-Xe của Trần Trạch cũng chẳng có vật trang trí gì, chắc hẳn là do Hứa Mạn Mạn không mua.
+Xe của Trần Trạch cũng chẳng có vật trang trí gì, chắc hẳn là do Từ Mạn Mạn không mua.
 
 Chẳng bù cho Triệu Kim An ở kiếp trước, sau khi tậu xe, Trần Thanh Trĩ đã sắm đủ loại tượng nhỏ ngộ nghĩnh bày kín cả bảng điều khiển trung tâm, xe chạy là đầu chúng cứ lắc lư qua lại không ngừng.
 

@@ -1,7 +1,5 @@
 # Chương 106: Căn bệnh sạch sẽ trong tình cảm
 
-> **Tiêu đề gốc**: 第106章 情感上的精神洁癖。
-
 Chuyện tình cảm trên đời, vốn dĩ chẳng ai nói trước được điều gì.
 
 Nếu Triệu Kim An là một gã tồi bắt cá hai tay, các cô gái phòng 406 sẵn sàng đứng về phía Mộc Dao, cùng nhau mắng chửi hắn vài câu cho hả giận.

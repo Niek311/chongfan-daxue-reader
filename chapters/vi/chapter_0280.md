@@ -1,7 +1,5 @@
 # Chương 280: Vĩnh viễn có hiệu lực
 
-> **Tiêu đề gốc**: 第280章 永远有效。
-
 Thẩm Tử Ngôn chăm chú nhìn bản hợp đồng chuyển nhượng cổ phần một hồi lâu, rồi lại liếc nhìn cây bút đang nằm trong tay Triệu Kim An.
 
 Cuối cùng, cô ngẩng đầu lên, trừng mắt nhìn thẳng vào chàng trai trước mặt.

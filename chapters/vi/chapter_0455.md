@@ -1,12 +1,10 @@
 # Chương 455: Chớ để thiếu sót
 
-> **Tiêu đề gốc**: 第455章 不要差事。
-
 "Đàn bà con gái lật mặt nhanh đến thế cơ à?"
 
-Nhìn thấy Lương Huệ Trân nắm chặt lấy cánh tay Triệu Kim An không buông, vẻ mặt tự đắc hệt như đang tuyên bố chủ quyền và khoe khoang rể thảo với toàn thể họ hàng thân thích, Từ Tắc Đống đứng trơ mắt ếch há hốc mồm. Cái điệu bộ ấy chỉ có thể dành cho con rể quý, chứ đến con trai ruột cũng chẳng bao giờ được cưng nựng đến thế.
+Nhìn thấy Lương Tuệ Trân nắm chặt lấy cánh tay Triệu Kim An không buông, vẻ mặt tự đắc hệt như đang tuyên bố chủ quyền và khoe khoang rể thảo với toàn thể họ hàng thân thích, Từ Tắc Đống đứng trơ mắt ếch há hốc mồm. Cái điệu bộ ấy chỉ có thể dành cho con rể quý, chứ đến con trai ruột cũng chẳng bao giờ được cưng nựng đến thế.
 
-Ông còn nhớ như in trước đây Lương Huệ Trân mê mẩn Trần Trạch đến mức nào, ngay cả khi Từ Mạn Mạn đã chuyển vào Thượng Hải, bà vẫn luôn mồm tấm tắc nhắc về cậu ta.
+Ông còn nhớ như in trước đây Lương Tuệ Trân mê mẩn Trần Trạch đến mức nào, ngay cả khi Từ Mạn Mạn đã chuyển vào Thượng Hải, bà vẫn luôn mồm tấm tắc nhắc về cậu ta.
 
 "Anh cả, anh cả ơi! Bác Tắc Đống!!"
 
@@ -52,7 +50,7 @@ Từ Tắc Đống đứng đằng xa lại một phen nghẹn ứ nơi cổ h�
 
 Đồng Nghệ Mẫn đứng nhìn không chớp mắt lấy một giây. Ngay từ cái nhìn đầu tiên gặp Triệu Kim An, cô đã đinh ninh chàng trai này chắc chắn phải là một vị công tử xuất thân từ một gia tộc hiển hách bậc nhất nào đó.
 
-Triệu Kim An khẽ nâng bàn tay lên, búng nhẹ một ngón tay. Đơn Vĩ và Quan Văn Bách ở phía sau lập tức hiểu ý, nhanh nhẹn mở toang cốp sau chiếc Rolls-Royce, ôm ra từng tút thuốc lá nguyên đai nguyên kiện.
+Triệu Kim An khẽ nâng bàn tay lên, búng nhẹ một ngón tay. Đan Vĩ và Quan Văn Bách ở phía sau lập tức hiểu ý, nhanh nhẹn mở toang cốp sau chiếc Rolls-Royce, ôm ra từng tút thuốc lá nguyên đai nguyên kiện.
 
 "Cháu biếu các bác, các chú ạ..."
 
@@ -110,19 +108,19 @@ Kể cả chiếc xe tải chở đầy ắp hàng hóa chất đống trước 
 
 Thế nhưng toàn thể họ hàng thân thích ở đây đều đinh ninh rằng tất cả những món quà hậu hĩnh này là do đích thân Từ Mạn Mạn chuẩn bị, đã được bàn bạc kỹ lưỡng cùng Triệu Kim An.
 
-Ở phía ngoài, Đơn Vĩ và Quan Văn Bách mở toang nắp cốp sau xe, ra hiệu mời Từ Tắc Đống bước lại lấy thêm. Nửa tút thuốc lá ban nãy thì bõ bèn gì, được mấy bao đâu?
+Ở phía ngoài, Đan Vĩ và Quan Văn Bách mở toang nắp cốp sau xe, ra hiệu mời Từ Tắc Đống bước lại lấy thêm. Nửa tút thuốc lá ban nãy thì bõ bèn gì, được mấy bao đâu?
 
 Từ Tắc Đống chầm chậm bước tới, nhìn vào cốp xe đầy ắp nhưng chỉ dám rụt rè thò tay lấy thêm đúng một tút.
 
-Đơn Vĩ và Quan Văn Bách đưa mắt nhìn nhau, rồi chủ động lấy thêm hai tút nữa nhét thẳng vào tay Từ Tắc Đống.
+Đan Vĩ và Quan Văn Bách đưa mắt nhìn nhau, rồi chủ động lấy thêm hai tút nữa nhét thẳng vào tay Từ Tắc Đống.
 
-Đơn Vĩ cất giọng dõng dạc: "Sếp chúng tôi đã dặn dò kỹ rồi, mỗi người hai bao, tuyệt đối chớ để thiếu sót."
+Đan Vĩ cất giọng dõng dạc: "Sếp chúng tôi đã dặn dò kỹ rồi, mỗi người hai bao, tuyệt đối chớ để thiếu sót."
 
 Từ Tắc Đống sững sờ: "..."
 
 "Ừ."
 
-Ở phía bên kia, Lương Huệ Trân ân cần dìu lấy một bên tay Từ Mạn Mạn, Lưu Hiểu Tĩnh đứng ở phía còn lại mở sẵn miệng túi xách. Từ Mạn Mạn đưa tay rút từng cặp thẻ mua hàng trao tận tay cho mỗi người thân, mỗi người hai tấm thẻ trị giá hai nghìn tệ. Toàn thể họ hàng đứng nhìn cảnh tượng ấy mà không khỏi xuýt xoa trầm trồ, đây mới thực sự là phong thái của một bậc mệnh phụ phu nhân nhà hào môn quyền quý chứ đâu!
+Ở phía bên kia, Lương Tuệ Trân ân cần dìu lấy một bên tay Từ Mạn Mạn, Lưu Hiểu Tĩnh đứng ở phía còn lại mở sẵn miệng túi xách. Từ Mạn Mạn đưa tay rút từng cặp thẻ mua hàng trao tận tay cho mỗi người thân, mỗi người hai tấm thẻ trị giá hai nghìn tệ. Toàn thể họ hàng đứng nhìn cảnh tượng ấy mà không khỏi xuýt xoa trầm trồ, đây mới thực sự là phong thái của một bậc mệnh phụ phu nhân nhà hào môn quyền quý chứ đâu!
 
 Bác cả và cô hai lần trước trở về có kể lại rằng, lúc Mạn Mạn phát phong bao lì xì, bên cạnh bàn ăn luôn có người đếm tiền, có người nhét tiền vào bao, lại có người cầm sổ ghi chép cẩn thận.
 
@@ -134,7 +132,7 @@ Bà nội đứng ngoài sân nhìn ngắm hồi lâu, rồi lặng lẽ còng l
 
 Những hủ tục trọng nam khinh nữ ngày xưa... Từ Mạn Mạn hôm nay chỉ giữ lễ phép cất tiếng gọi "bà nội" một câu thật đúng mực, tuyệt nhiên không biểu lộ lấy nửa phần thân mật hay bịn rịn. Với bà nội, đó chính là lời hồi đáp sòng phẳng cho suốt hai mươi năm lạnh nhạt đã qua.
 
-Chỉ có Lương Huệ Trân là da mặt dày dạn, Từ Mạn Mạn dẫu sao cũng không thể nhẫn tâm hất tay mẹ ruột ra được.
+Chỉ có Lương Tuệ Trân là da mặt dày dạn, Từ Mạn Mạn dẫu sao cũng không thể nhẫn tâm hất tay mẹ ruột ra được.
 
 Được giáo dục và uốn nắn từ tấm bé, Từ Mạn Mạn lúc này toát lên cốt cách của một phu nhân nhà quyền quý thực thụ, từ diện mạo, thần thái cho đến khí chất vương giả toát ra từ sâu thẳm con người cô, thậm chí còn quý phái và đài các hơn cả Vương Phương Dụ.
 
@@ -144,7 +142,7 @@ Tôn Cảnh Phong đứng nhìn cô em họ mà ngỡ như không còn nhận ra
 
 Trước đây Tôn Cảnh Phong từng nghĩ Từ Mạn Mạn là đứa lập dị, không hòa đồng, tính khí có phần dở hơi. Đến tận bây giờ anh ta mới vỡ lẽ, đó chính là sự phân tầng giai cấp tự nhiên. Từng lời ăn tiếng nói, từng cử chỉ hành động đều chuẩn xác và chừng mực đến từng chân tơ kẽ tóc. Nói một cách thẳng thắn, kiểu gia đình giàu xổi như nhà Trần Trạch hoàn toàn không thể với tới tầm đẳng cấp này.
 
-Đến Lý Đình Đình còn biết chuyện mẹ con Dương Thục Mỹ và Trần Trạch từng sống ở căn hộ đối diện nhà Từ Tắc Đống, thì Tôn Cảnh Phong là anh họ, mỗi dịp lễ tết qua lại thăm hỏi lẽ nào lại không biết? Gia cảnh nhà Trần Trạch đúng là có tiền thật, điều đó Tôn Cảnh Phong thừa nhận.
+Đến Lý Đình Đình còn biết chuyện mẹ con Dương Thù Mỹ và Trần Trạch từng sống ở căn hộ đối diện nhà Từ Tắc Đống, thì Tôn Cảnh Phong là anh họ, mỗi dịp lễ tết qua lại thăm hỏi lẽ nào lại không biết? Gia cảnh nhà Trần Trạch đúng là có tiền thật, điều đó Tôn Cảnh Phong thừa nhận.
 
 Thế nhưng... họ vẫn còn phàm tục lắm.
 
@@ -158,7 +156,7 @@ Triệu Kim An bật cười hỏi khẽ: "Có thấy hơi chát đầu lưỡi 
 
 Từ Mạn Mạn mỉm cười gật đầu, không nói lời nào.
 
-Lương Huệ Trân đứng nghiêng người bên cạnh, chăm chú nhìn con gái.
+Lương Tuệ Trân đứng nghiêng người bên cạnh, chăm chú nhìn con gái.
 
 Từ Tắc Đống cũng dừng tay lại, ngơ ngẩn đứng nhìn. Người ta vẫn thường bảo con gái là chiếc áo bông ấm áp của cha, vậy mà ngẫm lại cả đời mình, dường như ông chưa từng một lần dành cho con gái sự cưng chiều, nâng niu dịu dàng đến nhường ấy.
 
@@ -172,30 +170,30 @@ Triệu Kim An và Từ Mạn Mạn đến lúc mười một giờ rưỡi trư
 
 Cô chỉ kín đáo đưa thêm cho Tôn Cảnh Phong một phong bao đỏ mừng cưới thật dày.
 
-Tôn Cúc Lệ đã chu đáo sắp xếp riêng một bàn tiệc thịnh soạn cho Đơn Vĩ, Quan Văn Bách, Chu Hoa Phong và Lưu Hiểu Tĩnh ngồi ăn cơm, thức ăn cũng giống hệt như mâm cỗ trên nhà.
+Tôn Cúc Lệ đã chu đáo sắp xếp riêng một bàn tiệc thịnh soạn cho Đan Vĩ, Quan Văn Bách, Chu Hoa Phong và Lưu Hiểu Tĩnh ngồi ăn cơm, thức ăn cũng giống hệt như mâm cỗ trên nhà.
 
-Lưu Hiểu Tĩnh xách túi giúp Từ Mạn Mạn, Đơn Vĩ chỉ cần nhìn ánh mắt của Từ Mạn Mạn là lập tức bước tới mở sẵn cửa chiếc Rolls-Royce chờ cô bước lên.
+Lưu Hiểu Tĩnh xách túi giúp Từ Mạn Mạn, Đan Vĩ chỉ cần nhìn ánh mắt của Từ Mạn Mạn là lập tức bước tới mở sẵn cửa chiếc Rolls-Royce chờ cô bước lên.
 
 Từ Mạn Mạn không hề có chút lưu luyến nào. Hệt như cái ngày năm thứ hai đại học dứt áo bước chân ra khỏi ngôi nhà này, cô không hề quay đầu nhìn lại lấy một lần, dứt khoát bước lên chiếc xe sang.
 
 Từ Tắc Đống đứng chết lặng nơi cổng lớn, giương mắt nhìn bóng dáng con gái bước lên xe.
 
-Lương Huệ Trân hớt hải đuổi theo bám chặt lấy mép cửa xe. Là một người mẹ, một người sắp lên chức bà ngoại, đây mới chỉ là lần thứ hai bà được nhìn thấy đứa con gái ruột thịt với chiếc bụng bầu vượt mặt.
+Lương Tuệ Trân hớt hải đuổi theo bám chặt lấy mép cửa xe. Là một người mẹ, một người sắp lên chức bà ngoại, đây mới chỉ là lần thứ hai bà được nhìn thấy đứa con gái ruột thịt với chiếc bụng bầu vượt mặt.
 
 Lưu Hiểu Tĩnh khẽ khàng hỏi nhỏ: "Từ tổng, cô có muốn ngồi nán lại thêm vài phút nữa không ạ?"
 
-Từ Mạn Mạn khẽ lắc đầu. Nhìn người mẹ đang bám víu lấy cánh cửa xe với ánh mắt chan chứa niềm khát khao và mong đợi, cô thò tay vào túi xách, rút toàn bộ số thẻ mua sắm còn lại đưa hết vào tay Lương Huệ Trân, khẽ cất lời: "Mẹ ơi, sau này nếu thấy người ta xếp hàng đông quá... thì mẹ đừng đi xếp hàng để nhận mấy quả trứng gà miễn phí nữa nhé..."
+Từ Mạn Mạn khẽ lắc đầu. Nhìn người mẹ đang bám víu lấy cánh cửa xe với ánh mắt chan chứa niềm khát khao và mong đợi, cô thò tay vào túi xách, rút toàn bộ số thẻ mua sắm còn lại đưa hết vào tay Lương Tuệ Trân, khẽ cất lời: "Mẹ ơi, sau này nếu thấy người ta xếp hàng đông quá... thì mẹ đừng đi xếp hàng để nhận mấy quả trứng gà miễn phí nữa nhé..."
 
-Nghe trọn câu nói ấy, Lương Huệ Trân bỗng òa lên nức nở, vội vàng đưa mu bàn tay lên gạt đi dòng nước mắt đang tuôn rơi lã chã.
+Nghe trọn câu nói ấy, Lương Tuệ Trân bỗng òa lên nức nở, vội vàng đưa mu bàn tay lên gạt đi dòng nước mắt đang tuôn rơi lã chã.
 
-Đó chính là cảnh tượng năm xưa khi vợ chồng Lương Huệ Trân và Từ Tắc Đống lần đầu tiên bước chân vào siêu thị Trăn Hối Tuyển, chen chúc xếp hàng chỉ để nhận vài quả trứng gà khuyến mãi. Khi ấy Từ Mạn Mạn đã là phó tổng giám đốc của Trăn Hối Tuyển, con bé mới chỉ học năm thứ hai đại học, nhưng đã là phó tổng giám đốc lẫy lừng.
+Đó chính là cảnh tượng năm xưa khi vợ chồng Lương Tuệ Trân và Từ Tắc Đống lần đầu tiên bước chân vào siêu thị Trăn Hối Tuyển, chen chúc xếp hàng chỉ để nhận vài quả trứng gà khuyến mãi. Khi ấy Từ Mạn Mạn đã là phó tổng giám đốc của Trăn Hối Tuyển, con bé mới chỉ học năm thứ hai đại học, nhưng đã là phó tổng giám đốc lẫy lừng.
 
-Giờ đây, hễ trong nhà cần mua sắm bất cứ thứ gì, Từ Tắc Đống và Lương Huệ Trân đều nhất mực tìm đến siêu thị Trăn Hối Tuyển để mua, xem như một cách âm thầm ủng hộ việc làm ăn của con gái.
+Giờ đây, hễ trong nhà cần mua sắm bất cứ thứ gì, Từ Tắc Đống và Lương Tuệ Trân đều nhất mực tìm đến siêu thị Trăn Hối Tuyển để mua, xem như một cách âm thầm ủng hộ việc làm ăn của con gái.
 
 Họ đều là những cán bộ có cơ quan công tác, có đồng lương hưu ổn định, kỳ thực đâu có thiếu thốn đến mức phải tranh giành mấy quả trứng gà miễn phí ấy.
 
 Bà nội vẫn đứng lặng nơi cổng lớn, đưa ánh mắt đùng đục nhìn theo đứa cháu gái.
 
-Từ Mạn Mạn đưa mắt nhìn bà nội một cái, rồi chuyển ánh nhìn về phía Đơn Vĩ đang ngồi ở ghế lái.
+Từ Mạn Mạn đưa mắt nhìn bà nội một cái, rồi chuyển ánh nhìn về phía Đan Vĩ đang ngồi ở ghế lái.
 
 Chiếc Rolls-Royce cất lên một hồi còi trầm ấm, rồi từ từ chuyển bánh lăn dài trên con đường phía trước...

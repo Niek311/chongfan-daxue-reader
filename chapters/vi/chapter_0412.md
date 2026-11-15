@@ -1,7 +1,5 @@
 # Chương 412: Tạm biệt
 
-> **Tiêu đề gốc**: 第412章 再见。
-
 Dương Thù Mỹ đến Trăn Hối Tuyển để sắm sửa đồ Tết. Những ngày giáp Tết Nguyên đán, siêu thị Trăn Hối Tuyển người đông như nêm cội, biển người chen chúc rộn ràng.
 
 Không khí Tết ngập tràn khắp các gian hàng.

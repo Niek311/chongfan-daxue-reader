@@ -1,7 +1,5 @@
 # Chương 134: Thím nhỏ về làng!
 
-> **Tiêu đề gốc**: 第134章 小婶婶来了！
-
 Tô Miến ngây thơ hỏi: “Trí Dũng, mùa này trong rừng trúc không mọc măng sao anh?”
 
 Triệu Trí Dũng gãi đầu cười xòa: “Thím nhỏ ơi, mùa đông thì có măng đông, mùa xuân thì có măng xuân, riêng hai mùa hè thu này thì đào đâu ra măng hả thím.”

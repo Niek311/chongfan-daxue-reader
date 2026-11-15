@@ -1,7 +1,5 @@
 # Chương 120: Những kỳ nghỉ hè mỗi người một vẻ
 
-> **Tiêu đề gốc**: 第120章 各有不同的暑假。
-
 Sau khi Đoạn Thu Bình dắt con gái nhỏ bỏ về trước, thấy lượng khách khứa kéo đến quán nướng ngày một đông đúc, Tống Siêu Văn liền rút điện thoại gọi cho cô con gái lớn Tống Uyển Hòa, giục cô mau chóng đến quán phụ giúp một tay.
 
 Kinh doanh một quầy thịt nướng vỉa hè vốn dĩ chẳng hề dễ dàng, không kể những việc bếp núc nặng nhọc, riêng khâu ghi chép thực đơn, thu tiền và lau dọn bàn ghế cũng luôn cần người túc trực thường xuyên.

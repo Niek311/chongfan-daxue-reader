@@ -1,7 +1,5 @@
 # Chương 306: Có khách.
 
-> **Tiêu đề gốc**: 第306章 有客人。
-
 "Thế giờ bọn mình sang trường Tài chính luôn à?"
 
 Vương Duy Đào – gã chúa nhiều chuyện – lúc này chỉ nôn nóng muốn tận mắt gặp Trịnh Như và bé Triệu Niệm Khả.
@@ -106,7 +104,7 @@ Triệu Kim An nhấc máy gọi cho Dư Tĩnh, bảo cô khi nào rảnh thì g
 
 Trời ngả về chiều.
 
-Đơn Vĩ lái chiếc Rolls-Royce Phantom tới, đỗ ngay ngắn dưới sân tòa nhà.
+Đan Vĩ lái chiếc Rolls-Royce Phantom tới, đỗ ngay ngắn dưới sân tòa nhà.
 
 Vương Duy Đào và Triệu Chí Dũng làm sao giữ được vẻ điềm tĩnh như Trương Tuệ. Vừa bước lên xe, hai gã đã sờ soạng chỗ này, vuốt ve chỗ kia, trầm trồ thán phục: "Vãi thật, đây là Rolls-Royce Phantom bằng xương bằng thịt đấy à!"
 

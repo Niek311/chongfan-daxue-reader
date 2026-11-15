@@ -1,247 +1,267 @@
-# Chương 351: Tôi đã đặt cược sai.
+# Chương 351: Tôi đặt cược nhầm rồi.
 
-> **Tiêu đề gốc**: 第351章 我押错了。
+Sinh viên vây xem quá đông.
 
-Sinh viên hiếu kỳ vây kín xem trò vui quá đông.
+Chiếc Honda đen nhích từng chút một, gần như chẳng thể nhúc nhích.
 
-Chiếc Honda màu đen nhích từng chút một giữa biển người.
+Đan Vĩ và Quan Văn Bách không đời nào phô trương ở khu đại học, đến một tiếng còi cũng chẳng bấm.
 
-Đơn Vĩ và Quan Văn Bách thừa hiểu thân phận, chẳng dại gì lên mặt hay bấm còi inh ỏi trong khuôn viên đại học thành.
+Trần Cẩm Thu cũng đi một chiếc Honda đen.
 
-Trần Cẩm Thu cũng lái một chiếc Honda đen tương tự.
+Từ Tắc Đống và Lương Tuệ Trân thì có chiếc Santana riêng.
 
-Vợ chồng Từ Tắc Đống và Lương Tuệ Trân thì đi chiếc Santana riêng của gia đình.
+Ở cái thời buổi này mà có xe hơi riêng, nói công tâm thì gia cảnh đã thuộc hàng rất khá giả rồi.
 
-Nói một cách công tâm, vào những năm tháng ấy, gia đình nào sắm được ô tô con riêng đều thuộc diện kinh tế rất khá giả.
+Xét về môn đăng hộ đối, Lâm Thanh Tuyết quả thực là trèo cao.
 
-Xét về môn đăng hộ đối, Lâm Thanh Tuyết đúng là trèo cao.
+Đám sinh viên lớp Kế toán 1 ai nấy đều im thin thít, chẳng dám hó hé nửa lời.
 
-Đám sinh viên lớp Kế toán 1 đứng quanh chẳng ai hé răng lấy nửa lời.
-
-Lưu Sấm Phong muốn vượt mặt Trần Trạch thì khó lắm, gia cảnh nền tảng chênh lệch một trời một vực.
+Lưu Sấm Phong muốn vượt mặt Trần Trạch cũng hơi khó, nền tảng gia đình kém xa quá.
 
 "Đi thôi."
 
 "Tiểu Tuyết, đừng nhìn nữa."
 
-Phương Khiết cùng đám nữ sinh lớp Kế toán 1 vội vàng kéo Lâm Thanh Tuyết lại, che chở cho cô bạn cùng phòng. Thói đời phần lớn vẫn là "bênh người thân hơn bênh lẽ phải". Gặp được người lúc nào cũng chí công vô tư, chỉ đứng về phía lẽ phải dĩ nhiên rất đáng quý, tam quan vô cùng ngay thẳng. Nhưng trong cuộc sống thực tế, chẳng mấy ai lại muốn kết bạn thâm giao với một người như thế.
+Phương Khiết cùng đám nữ sinh lớp Kế toán 1 xúm lại "bảo vệ" Lâm Thanh Tuyết. Phần lớn người ta vẫn bênh người thân chứ chẳng màng lý lẽ; nếu gặp được ai chỉ đứng về phía lẽ phải thì người đó thật sự rất tốt.
 
-Lâm Thanh Tuyết nở nụ cười lạnh tanh, ánh mắt lướt qua Trần Trạch, nhìn sang Dương Thù Mỹ, Trần Cẩm Thu, rồi dừng lại ở vợ chồng Từ Tắc Đống và Lương Tuệ Trân.
+Tốt thật sự, tam quan vô cùng ngay thẳng.
+
+Nhưng có lẽ chẳng mấy ai muốn kết bạn với kiểu người như thế đâu.
+
+Lâm Thanh Tuyết mỉm cười nhìn Trần Trạch, nhìn Dương Thù Mỹ, nhìn Trần Cẩm Thu, rồi nhìn sang Từ Tắc Đống và Lương Tuệ Trân.
 
 Cô không nhúc nhích.
 
-Cứ thế đứng sững tại chỗ, trân trân nhìn thẳng vào họ.
+Cứ đứng chôn chân tại chỗ, trân trân nhìn họ.
 
-Vài vị lãnh đạo trường vẫn đang dặn dò Dương Thù Mỹ, bảo bà cứ để Trần Trạch tạm thời nghỉ ngơi ở nhà, không cần vội đến lớp. Họ chẳng phải thật lòng quan tâm gì đến cậu ấm nhà này, chẳng qua sợ cậu ta luẩn quẩn rồi làm bậy ngay trong trường, ảnh hưởng đến thành tích thi đua. Có lẽ trong bụng họ chỉ hận không thể đuổi học quách Trần Trạch cho rảnh nợ, nhưng lại nơm nớp lo xảy ra án mạng.
+Mấy vị lãnh đạo nhà trường vẫn đang "dặn dò" Dương Thù Mỹ, bảo tạm thời cứ để Trần Trạch nghỉ học ở nhà ít hôm. Họ chẳng phải thật lòng lo cho Trần Trạch, chỉ là sợ cậu ta xảy ra chuyện ngay trong khuôn viên trường.
 
-Mạnh Song Viên – người mẹ kế của Trần Trạch – đứng lọt thỏm giữa đám người chẳng có chỗ chen chân, đành nở nụ cười gượng gạo bước về phía Lâm Thanh Tuyết: "Chào cháu, cháu là Lâm Thanh Tuyết phải không?"
+Có lẽ trong bụng họ hận không thể đuổi học Trần Trạch cho rảnh nợ, nhưng lại sợ cậu ta quẫn trí làm liều ở trường thật.
 
-Lâm Thanh Tuyết liếc xéo Mạnh Song Viên một cái, chẳng buồn đáp lời.
+Mạnh Song Viên - bà mẹ kế này chẳng có chỗ nào để đứng cho phải phép, đành gượng cười bước về phía Lâm Thanh Tuyết: "Chào cháu, cháu là Lâm Thanh Tuyết phải không?"
 
-Cô không còn chút kiên nhẫn nào để bận tâm nữa.
+Lâm Thanh Tuyết liếc nhìn Mạnh Song Viên một cái, chẳng thèm để ý.
 
-Lương Tuệ Trân ngập ngừng một thoáng rồi cũng bước tới. Bà và Từ Tắc Đống vốn vô cùng tò mò, rốt cuộc là đứa con gái nào đã thừa nước đục thả câu, chen chân vào giữa mối tình của Trần Trạch và Từ Mạn Mạn.
+Cô chẳng buồn tiếp chuyện nữa rồi.
 
-Lâm Thanh Tuyết nhìn Lương Tuệ Trân hồi lâu, chợt cười khẩy: "Bà chẳng thông minh chút nào."
+Lương Tuệ Trân do dự một lát rồi cũng bước tới.
 
-"..."
+Bà và Từ Tắc Đống cũng rất tò mò về Lâm Thanh Tuyết, không biết là cô gái thế nào mà lại chen chân vào được kẽ hở giữa Trần Trạch và Từ Mạn Mạn.
 
-Lương Tuệ Trân sững sờ trong giây lát, mặt biến sắc: "Cô vừa nói cái gì đấy!?"
-
-"Tôi nói sự thật."
-
-Dứt lời, Lâm Thanh Tuyết quay ngoắt đi, xem bà ta như không khí.
+Lâm Thanh Tuyết nhìn Lương Tuệ Trân một hồi, cười lạnh: "Bác cũng đâu có thông minh lắm nhỉ."
 
 "..."
 
-Lý Ngải Lan và đám con gái xung quanh trố mắt kinh ngạc. Tiểu Tuyết hôm nay đỉnh thật đấy! Nhưng trong lòng ai nấy đều gật đầu tán thưởng lia lịa, bọn họ hiểu rõ câu nói ấy nhắm vào điều gì.
+Lương Tuệ Trân sững người giây lát: "Cháu nói cái gì thế?!"
 
-"Có phải cô đã chủ động quyến rũ con trai tôi không?"
+"Cháu nói sự thật thôi."
 
-Trần Cẩm Thu hạ thấp giọng gặng hỏi. Dù tình cảm với Dương Thù Mỹ đã rạn nứt, ông vẫn mong con trai cưới được một cô dâu môn đăng hộ đối, đoan trang nề nếp. Ngay từ cái nhìn đầu tiên, tính khí đanh đá, bất cần của Lâm Thanh Tuyết đã khiến ông có ấn tượng vô cùng tồi tệ.
+Nói xong, Lâm Thanh Tuyết quay đi, chẳng thèm đoái hoài đến Lương Tuệ Trân nữa.
+
+"..."
+
+Lý Ngải Lan và đám nữ sinh xung quanh trố mắt kinh ngạc, hôm nay Tiểu Tuyết ngầu quá trời, nhưng trong lòng lại gật đầu lia lịa tán thành vì họ hiểu rõ Lâm Thanh Tuyết đang ám chỉ chuyện gì.
+
+"Là cô quyến rũ con trai tôi đúng không?"
+
+Trần Cẩm Thu hạ giọng chất vấn. Tuy tình cảm giữa ông và Dương Thù Mỹ đã rạn nứt, nhưng ông vẫn mong con trai lấy được một cô vợ tử tế; với hành xử của Lâm Thanh Tuyết, ấn tượng đầu tiên của Trần Cẩm Thu đã tệ sẵn rồi.
 
 "Quyến rũ?"
 
-"Trần Trạch kể với các người thế à?"
+"Trần Trạch nói với các người thế à?"
 
-Lâm Thanh Tuyết nhìn thẳng vào mắt Trần Cẩm Thu, bật ra một tiếng cười lạnh buốt: "Các người muốn nghĩ thế nào thì tùy."
+Lâm Thanh Tuyết nhìn thẳng vào mắt Trần Cẩm Thu, cười nhạt: "Các người muốn nghĩ vậy cũng được."
 
-"Nhưng con trai ông là cái thớ người gì chứ? Loại như nó mà cũng cần tôi phải phí công quyến rũ sao?"
+"Nhưng con trai ông là loại người gì? Cần tôi phải quyến rũ thế nào mới được?"
 
-Lâm Thanh Tuyết chẳng buồn giữ kẽ, giọng nói sang sảng vang lên giữa đám đông. Sắc mặt Trần Cẩm Thu "xoẹt" một cái đỏ bừng vì ngượng ngùng và tức giận. Cô gái trẻ nhếch môi châm chọc: "Trần Trạch kể với các người như thế đúng không? Sao nó không bảo là tôi đè nó ra, cưỡng bức nó luôn đi!"
+Lâm Thanh Tuyết chẳng hề nén giọng, khiến mặt Trần Cẩm Thu "xoẹt" một cái đỏ bừng lên. Cô lại cười: "Chắc Trần Trạch kể với các người thế nhỉ, sao anh ta không nói luôn là tôi đè anh ta ra? Cưỡng bức anh ta luôn đi!"
 
-Lời này thốt ra quả thật chẳng màng chút thể diện nào nữa!
+Thế này là hoàn toàn chẳng thèm giữ thể diện nữa rồi.
 
-Cả lớp Kế toán 1, từ nam sinh đến nữ sinh, đều phải bấm bụng cúi đầu nén cười.
+Sinh viên lớp Kế toán 1, bất kể nam hay nữ đều cúi đầu bật cười khúc khích.
 
-Lâm Thanh Tuyết dứt khoát quay lưng lại với Trần Cẩm Thu, sải bước tiến thẳng đến trước mặt Dương Thù Mỹ.
+Lâm Thanh Tuyết cũng chẳng thèm nhìn Trần Cẩm Thu thêm cái nào, sải bước đi thẳng tới đối diện Dương Thù Mỹ.
 
-Người phụ nữ quyền quý mà trước đây cô từng hao tâm tổn tứ, khát khao nhận được một cái gật đầu công nhận.
+Người phụ nữ mà trước nay cô luôn khao khát nhận được sự công nhận.
 
-"Bà thấy tôi không xứng với con trai bà đúng không?" Lâm Thanh Tuyết cười hỏi.
+"Bác thấy tôi không xứng với con trai bác sao?"
+
+Lâm Thanh Tuyết cười hỏi.
 
 "..."
 
-Dương Thù Mỹ còn chưa kịp mở miệng, Trần Trạch đã ngẩng phắt đầu lên, cất giọng khàn đặc: "Tiểu Tuyết..."
+Dương Thù Mỹ chưa kịp mở miệng, Trần Trạch đã ngẩng đầu gọi: "Tiểu Tuyết..."
 
 "Đừng gọi tôi là Tiểu Tuyết!"
 
-Lâm Thanh Tuyết không thèm liếc nhìn Trần Trạch lấy nửa phần, đôi mắt như dao găm cắm chặt vào Dương Thù Mỹ: "Tôi và con trai bà chia tay, là do chính miệng TÔI ĐÁ NÓ!"
+Lâm Thanh Tuyết không thèm nhìn Trần Trạch, mắt găm chặt vào Dương Thù Mỹ: "Tôi và con trai bà chia tay, là tôi đá anh ta!"
 
-"Năm vạn tệ kia là thứ tôi xứng đáng được nhận! Bà cắt tiền sinh hoạt, con trai bà bòn rút không biết bao nhiêu tiền của tôi! Từ bao thuốc lá nó hút đến bình xăng xe nó chạy, từng hào từng cắc đều là tiền trong túi tôi móc ra!"
+"Năm vạn tệ là số tiền tôi xứng đáng nhận được. Bà không cho tiền sinh hoạt, con trai bà chẳng ít lần tiêu tiền của tôi đâu, từ tiền thuốc lá đến tiền đổ xăng đều là tôi móc túi trả cả!"
 
-"Còn nữa, quán bida kia là của tôi!"
+"Còn nữa, phòng bida là của tôi!"
 
-Từ đầu chí cuối, Lâm Thanh Tuyết không hề gọi một tiếng "dì", mà chỉ buông ra ba chữ "con trai bà" đầy khinh miệt, ngay cả cái tên Trần Trạch cũng không thèm nhắc tới.
+Từ đầu đến cuối, Lâm Thanh Tuyết không hề gọi Dương Thù Mỹ một tiếng "bác" hay "cô", nhắc đến Trần Trạch cũng chỉ gọi là "con trai bà", đến cái tên cũng chẳng buồn nhắc.
 
 "..."
 
-Đám sinh viên Kế toán 1 bấy giờ mới vỡ lẽ. Lâm Thanh Tuyết đã quyết tâm dứt áo ra đi, đã muốn chia tay thì việc quái gì phải kiêng dè phụ huynh nhà họ Trần nữa? Chẳng việc gì phải hạ mình lấy lòng bất cứ ai!
+Đám sinh viên lớp Kế toán 1 chợt bừng tỉnh: Lâm Thanh Tuyết đã xác định chia tay rồi thì còn cần nể nang phụ huynh nhà người ta làm gì nữa? Chẳng việc gì phải lấy lòng ai cả.
 
-Thảo nào cô lại cứng cỏi, đanh thép đến vậy!
+Thảo nào lại cứng rắn đến thế!
 
-Bước lùi lại vài bước, Lâm Thanh Tuyết chợt xoay người, gằn từng chữ ném thẳng vào mặt Trần Trạch: "Đồ hèn nhát!"
+Bước đi được vài bước, Lâm Thanh Tuyết lại quay đầu nói với Trần Trạch: "Đồ hèn!"
 
-"Bíp ——"
+"Bíp——"
 
-Đúng lúc ấy, một tiếng còi xe ngắn vang lên. Chiếc Honda màu đen từ từ trờ tới, kính xe bên ghế sau chầm chậm hạ xuống.
+Đúng lúc này có tiếng còi xe vang lên. Một chiếc Honda đen chạy ngang qua, cửa kính từ từ hạ xuống.
 
-"Triệu Kim An!?"
+"Triệu Kim An?!"
 
-Đám sinh viên lớp 1 và lớp 2 tròn mắt kinh ngạc. Triệu Kim An vẫn luôn ngồi trong xe từ nãy đến giờ sao!?
+Sinh viên lớp Kế toán 1 và Kế toán 2 đồng loạt sững sờ. Triệu Kim An vẫn ở đây từ nãy đến giờ sao?!
 
-"Học trưởng Triệu? Chủ tịch Triệu!?"
+"Học trưởng Triệu, Chủ tịch Triệu?!"
 
-Có người buột miệng thốt lên kinh ngạc. Họ cứ ngỡ lúc này học trưởng Triệu bận rộn trăm công nghìn việc, khó lòng gặp lại anh trong khuôn viên trường nữa.
+Thậm chí có người còn buột miệng thốt lên đầy kinh ngạc, họ cứ tưởng sẽ chẳng còn mấy cơ hội gặp lại học trưởng Triệu ở trường nữa chứ.
 
-Các vị lãnh đạo khoa cùng giáo viên hướng dẫn Lưu Huy lập tức tươi cười rảo bước tiến lại gần cửa kính xe chào hỏi. Nào là "Kim An", "Triệu tổng", "Chủ tịch Triệu", đủ mọi danh xưng cung kính vang lên.
+Mấy vị lãnh đạo nhà trường và giảng viên phụ trách Lưu Huy càng vội vàng bước lên chào hỏi Triệu Kim An ngồi ở hàng ghế sau. Nào là Triệu Kim An, Triệu tổng, Chủ tịch Triệu, gọi đủ cả.
 
 "Kim An..."
 
-Từ Mạn Mạn cất bước đi tới, cô muốn giải thích cho Triệu Kim An hiểu rõ ngọn ngành.
+Từ Mạn Mạn nhấc bước đi tới, cô muốn giải thích với Triệu Kim An.
 
-Triệu Kim An ngồi ngay ngắn ở hàng ghế sau, ánh mắt điềm tĩnh đảo qua một lượt.
+Triệu Kim An ngồi ngay ngắn ở hàng ghế sau, đưa mắt quét qua đám đông một lượt.
 
-Anh không hề nở nụ cười xã giao với bất kỳ ai.
+Không còn nụ cười xã giao với tất cả mọi người như trước nữa.
 
-Ánh mắt lạnh nhạt lướt qua từng gương mặt: Dương Thù Mỹ, Trần Cẩm Thu, Từ Tắc Đống, Lương Tuệ Trân.
+Ánh mắt anh lần lượt lướt qua Dương Thù Mỹ, Trần Cẩm Thu, Từ Tắc Đống và Lương Tuệ Trân.
 
-"Tử Ngôn, hóa ra Triệu Kim An vẫn ở đây..." Diêu Tân khẽ giật giật vạt áo Thẩm Tử Ngôn, trong lòng dâng lên cảm giác căng thẳng khó tả. Cô thầm nghĩ Triệu Kim An dạo này bay đông bay tây liên miên, sao hôm nay lại trùng hợp có mặt ở trường thế này?
+"Tử Ngôn, hóa ra Triệu Kim An vẫn ở đây..."
+
+Lòng Diêu Sân bỗng thắt lại một cách kỳ lạ, cô kéo nhẹ tay áo Thẩm Tử Ngôn, thầm nghĩ dạo này Triệu Kim An bay đi bay lại suốt, sao hôm nay lại khéo có mặt ở trường đúng lúc thế này?
 
 "..."
 
-Trần Cẩm Thu và Mạnh Song Viên từng nghe danh Triệu Kim An từ lâu, nhưng đây là lần đầu tiên họ tận mắt thấy dung nhan vị Triệu tổng của tập đoàn Chân Nhiên. Mạnh Song Viên len lén nhìn Trần Trạch rồi lại nhìn chàng trai trong xe, trong lòng thầm tự thừa nhận: Chàng trai trẻ tuổi kia quả thực xuất chúng hơn con riêng của chồng gấp vạn lần.
+Trần Cẩm Thu và Mạnh Song Viên từng nghe danh Triệu Kim An, nhưng đây là lần đầu tiên gặp mặt trực tiếp Tổng giám đốc Triệu của Trăn Nhiên. Mạnh Song Viên liếc nhìn Trần Trạch, tự hỏi lòng mình, chàng trai trước mắt quả thực ưu tú hơn Trần Trạch quá nhiều, quá nhiều.
 
-Đây là lần thứ hai Triệu Kim An bộc lộ phong thái uy nghiêm của một vị tổng tài.
+Đây là lần thứ hai Triệu Kim An lên mặt ra dáng tổng tài.
 
-Nói chính xác hơn, đây là lần đầu tiên anh thể hiện khí chất ấy ngay giữa đời sống thường nhật.
+Chính xác hơn là lần đầu tiên anh ra dáng tổng tài ngay trong đời sống thường nhật.
 
-Giống như Lâm Thanh Tuyết, một khi đã quyết dứt tình với Trần Trạch thì Dương Thù Mỹ hay Trần Cẩm Thu trong mắt cô cũng chỉ là những kẻ lớn tuổi xa lạ ngoài đường, chẳng đáng để tôn sùng làm "bậc trưởng bối".
+Cũng giống như Lâm Thanh Tuyết vậy, cô đã quyết định chia tay Trần Trạch thì Dương Thù Mỹ và Trần Cẩm Thu đối với cô chẳng qua chỉ là hai người lớn tuổi hơn chút thôi, chẳng còn xứng gọi là "bề trên" nữa.
 
 "Lên xe!"
 
-Triệu Kim An buông ra hai chữ ngắn gọn, mặt không chút biểu cảm, cũng không chỉ đích danh ai.
+Triệu Kim An nói với vẻ mặt không chút cảm xúc, chẳng hề chỉ đích danh ai.
 
-Nhưng Lâm Thanh Tuyết chẳng hề do dự lấy nửa giây, cô thoăn thoắt vòng qua phía bên kia, mở cửa bước tọt vào xe.
+Lâm Thanh Tuyết không mảy may do dự, vòng sang bên kia mở cửa xe bước vào ngồi gọn gàng.
 
-Lý Ngải Lan đứng chôn chân tại chỗ: "..."
+Lý Ngải Lan: "..."
 
-Còn tao thì sao? Còn tao thì sao chứ? Tao mới là cô bạn gái thứ ba của người ta cơ mà!
+Còn mình thì sao? Còn mình thì sao? Mình là bạn gái thứ ba đấy nhé!
 
-Toàn bộ nữ sinh lớp Kế toán 1 cùng những cô gái có mặt tại hiện trường đều nhìn theo với ánh mắt ngập tràn ngưỡng mộ và ganh tị.
+Đám nữ sinh lớp Kế toán 1 nhìn mà phát thèm, tất cả nữ sinh có mặt ở đó đều ghen tị không thôi.
 
 "..."
 
-Bước chân Từ Mạn Mạn khựng lại.
+Từ Mạn Mạn khựng bước.
 
-Trần Cẩm Thu hoàn toàn mất đi vẻ ngạo nghễ của người bề trên; đứng trước mặt ông lúc này là Triệu tổng của Chân Nhiên.
+Trần Cẩm Thu chẳng còn chút cảm giác bề trên nào nữa, người ông đang đối diện lúc này là Triệu tổng của Trăn Nhiên.
 
-Vợ chồng Từ Tắc Đống và Lương Tuệ Trân lại càng bối rối, ánh mắt chẳng biết giấu vào đâu cho đỡ ngượng.
+Từ Tắc Đống và Lương Tuệ Trân lại càng lúng túng, chẳng biết nên giấu ánh mắt vào đâu.
 
-Đối diện với ánh nhìn của Trần Trạch, Triệu Kim An chẳng thèm liếc sang Từ Mạn Mạn lấy một cái, chỉ bình thản thốt lên: "Người thật lòng muốn nhảy lầu sẽ chẳng bao giờ làm ầm ĩ cho cả thiên hạ cùng hay."
+Đón lấy ánh nhìn của Trần Trạch, Triệu Kim An không thèm liếc sang Từ Mạn Mạn, chỉ buông một câu nhạt thếch: "Người thật sự muốn nhảy lầu sẽ không làm ầm ĩ cho cả thiên hạ biết đâu."
 
-"Ấy, Triệu tổng à, cậu đừng kích tướng cậu ấy chứ! Nói dại lỡ cậu ta nhảy thật từ trên lầu xuống thì cậu chẳng dính chút trách nhiệm nào chắc?" Mấy vị lãnh đạo trường cười trừ gượng gạo xoa dịu bầu không khí.
+"Ấy, Chủ tịch Triệu, cậu đừng kích tướng thế chứ, nhỡ cậu ta nhảy xuống ngay trong trường thật thì cậu không liên đới chút trách nhiệm nào à?"
 
-Chỉ có Lưu Sấm Phong là đứng phía sau gật đầu lia lịa tán đồng.
+Đám lãnh đạo nhà trường gượng cười đầy lúng túng, vội vàng đỡ lời.
 
-Dương Thù Mỹ toan bước tới nói thêm điều gì đó, nhưng Triệu Kim An chẳng buồn cho bà cơ hội. Kính xe từ từ nâng lên, chiếc Honda màu đen êm ái rẽ dòng người rời khỏi khuôn viên trường học.
+Chỉ có Lưu Sấm Phong là gật đầu lia lịa tán thành.
+
+Dương Thù Mỹ định bước tới nhưng Triệu Kim An chẳng cho bà cơ hội. Cửa kính xe kéo lên, chiếc Honda rời khỏi khuôn viên trường.
 
 Trong xe.
 
 "Triệu Kim An, cảm ơn cậu."
 
-Lâm Thanh Tuyết cất giọng có phần tự giễu: "Cậu lại xuất hiện đúng vào lúc tôi bẽ bàng nhất... giữ lại cho tôi chút thể diện cuối cùng."
+Lâm Thanh Tuyết hơi tự giễu: "Cậu lại xuất hiện đúng lúc tôi thảm hại nhất... giữ lại cho tôi chút thể diện."
 
 "Không khóc à?"
 
-"Khóc chán chê từ lâu rồi."
+"Khóc chán từ sớm rồi."
 
 "Ừ."
 
-Triệu Kim An không nói thêm gì nữa, anh mở máy tính xách tay đặt trên đùi, bắt đầu xử lý công việc.
+Triệu Kim An không nói thêm gì, mở máy tính xách tay ra làm việc.
 
-"Triệu Kim An, cậu thấy tôi có phải là một người phụ nữ tồi tệ không?"
+"Triệu Kim An, tôi có phải là một người phụ nữ xấu xa không?"
 
-"Định nghĩa thế nào là tồi tệ?"
+"Định nghĩa thế nào mới là xấu?"
 
-Triệu Kim An nói thẳng: "Đối với Trần Trạch, cô là một người phụ nữ quá tốt. Đối với Lưu Sấm Phong, cô là kẻ tồi. Còn đối với tôi và Cốc Siêu Thừa, cô tốt hay xấu thì có can hệ gì tới chúng tôi đâu."
-
-"..."
-
-Lâm Thanh Tuyết bật cười: "Với Trần Trạch mà tôi vẫn được coi là người phụ nữ tốt à?"
-
-"Chẳng phải sao? Thấy quán bida kiếm được tiền, cô mua thuốc lá, đổ xăng xe cho nó, lại còn ngủ với nó. Như thế mà còn chưa đủ tốt hay sao?" Triệu Kim An thản nhiên hỏi ngược lại.
+Triệu Kim An nói thẳng: "Với Trần Trạch thì cậu là phụ nữ tốt, với Lưu Sấm Phong thì cậu là phụ nữ xấu, còn với tôi và Cốc Siêu Thừa thì tốt hay xấu cũng chẳng liên quan gì đến chúng tôi."
 
 "..."
 
-Đơn Vĩ đang cầm lái cùng Quan Văn Bách ngồi ghế phụ đều thầm bái phục sát đất. Sếp ơi là sếp, nửa câu sau "ngủ với nó" sếp cứ giữ trong lòng là được rồi, hà cớ gì phải bộc trực toạc móng heo ra như thế chứ. Dẫu sao người ta cũng là con gái mới lớn, lại còn là bạn học cùng lớp với sếp nữa.
+Lâm Thanh Tuyết bật cười: "Với Trần Trạch mà vẫn tính là phụ nữ tốt à?"
 
-Thế nhưng Lâm Thanh Tuyết lại cười phá lên thành tiếng.
+"Cậu xem, phòng bida kiếm được tiền là cậu mua thuốc lá, đổ xăng cho cậu ta, rồi ngủ với cậu ta, như thế còn chưa tính là tốt sao?"
 
-"Triệu Kim An, cậu đã xem mấy tấm ảnh tôi gửi cho cậu chưa?"
+Triệu Kim An hỏi ngược lại.
+
+"..."
+
+Đan Vĩ và Quan Văn Bách thật sự bái phục sát đất. Ông chủ à, nửa câu sau "ngủ với cậu ta" ấy thì ngài nuốt vào trong bụng giùm đi, mọi người tự hiểu với nhau là được rồi mà.
+
+Người ta dù sao cũng là con gái, lại còn là bạn học cùng lớp với ngài đấy.
+
+Ấy thế mà Lâm Thanh Tuyết lại bật cười thành tiếng.
+
+"Triệu Kim An, cậu có xem mấy tấm ảnh tôi gửi cho cậu không?"
 
 "Xem rồi."
 
-Một câu trả lời thừa thãi, ai gửi ảnh kiểu đó qua QQ mà người nhận lại không thấy cơ chứ.
+Đúng là hỏi thừa, ai nhận được kiểu ảnh như thế trên QQ mà chẳng nhìn thấy chứ.
 
-"Tôi đã đặt cược sai cửa rồi."
+"Tôi đặt cược nhầm rồi."
 
-Lâm Thanh Tuyết thẳng thắn thừa nhận tất cả, không hề che giấu toan tính ban đầu của mình khi tiếp cận Trần Trạch.
+Lâm Thanh Tuyết quả thực chẳng giấu giếm gì nữa, thẳng thắn thừa nhận động cơ ban đầu của mình khi đến với Trần Trạch.
 
-"Cô thấy mình bị lỗ vốn à?" Triệu Kim An nghiêm túc hỏi.
+"Cậu thấy mình bị lỗ à?"
+
+Triệu Kim An nghiêm túc hỏi.
 
 Lâm Thanh Tuyết: "..."
 
-"Triệu Kim An, trên đời này chẳng có ai an ủi người khác kiểu như cậu đâu đấy."
+"Triệu Kim An, chẳng có ai an ủi người khác kiểu như cậu đâu."
 
-Lâm Thanh Tuyết vẫn cười. Là chân thật, hay bản tính Triệu Kim An xưa nay nói chuyện đều như vậy? Người thi đỗ vào Đại học Sư phạm thì khả năng đọc hiểu chẳng ai kém cỏi cả. Một năm đổi lấy năm vạn tệ, có lỗ không?
+Lâm Thanh Tuyết vẫn cười, không biết là thật lòng hay tính cách Triệu Kim An vốn ăn nói như vậy. Người thi đỗ được vào Sư Đại thì khả năng đọc hiểu đâu có kém: một năm năm vạn tệ, tính ra có lỗ không?
 
-"Lỗ nặng ấy chứ."
+"Lỗ chứ."
 
-Lâm Thanh Tuyết cũng thuận miệng nói đùa một câu chua xót: "Năm vạn tệ, tính ra mỗi tháng mới được hơn bốn ngàn bạc. Dung mạo này, vóc dáng này, lại thêm tấm bằng đại học chính quy, tôi bước chân vào chốn ăn chơi đèn mờ nào mà chẳng kiếm hơn bốn ngàn một tháng! Bốn vạn còn có nữa là!"
+Lâm Thanh Tuyết cũng đùa lại: "Năm vạn tệ, tính ra một tháng mới được hơn bốn nghìn. Với nhan sắc, vóc dáng và tấm bằng đại học này của tôi, vào bất kỳ tụ điểm giải trí nào cũng kiếm hơn bốn nghìn!"
 
-Nói đoạn, cô cười lớn.
+"Bốn vạn có không?"
+
+Lâm Thanh Tuyết cười phá lên.
 
 "..."
 
-Đơn Vĩ tập trung nhìn đường lái xe, Quan Văn Bách trước sau vẫn đóng vai kẻ câm như hến, chỉ mang mắt chứ không mang miệng.
+Đan Vĩ tập trung lái xe, còn Quan Văn Bách trước giờ vẫn như người câm, chỉ mang theo mắt chứ chẳng mang miệng.
 
-Sinh viên đại học thời nay ai cũng bộc trực, dữ dội thế này sao!?
+Sinh viên đại học thời nay đều bạo dạn thế này cả sao?!
 
-Lâm Thanh Tuyết đang tự bôi xấu chính mình. Cô hạ thấp tình cảm suốt một năm qua với Trần Trạch xuống mức rẻ mạt chẳng đáng một xu, đem cả những tháng ngày lặn lội mang từng hộp cơm về căn phòng trọ cho anh ta ra để cân đong đo đếm bằng tiền bạc.
+Lâm Thanh Tuyết đang tự bôi nhọ mình, tự hạ thấp quãng tình cảm một năm qua với Trần Trạch xuống mức chẳng đáng một xu, đem cả mấy tháng trời mang cơm hộp về phòng trọ cho Trần Trạch ra quy đổi thành tiền bạc.
 
-Cô rút điện thoại di động trong túi xách ra, bấm một dãy số.
+Cô cầm điện thoại lên bấm gọi một cuộc.
 
-"Mẹ à, con và Trần Trạch chia tay rồi. Mẹ với bố ở quê không cần phải bận tâm lo lắng xem nhà họ có phá sản hay không nữa đâu."
+"Mẹ à, con với Trần Trạch chia tay rồi, ở nhà bố mẹ không cần lo nhà họ có phá sản hay không nữa đâu."
 
-"Mẹ đừng hỏi thêm gì nữa. Con nhất định sẽ tự kiếm thật nhiều tiền để bố mẹ được sống sung sướng."
+"Mẹ đừng hỏi nữa, con nhất định sẽ kiếm được tiền để bố mẹ có cuộc sống sung túc."
 
-Có lẽ ngay từ khoảnh khắc Lâm Thanh Tuyết ngẩng cao đầu nói với Dương Thù Mỹ câu "Bà thấy tôi không xứng với con trai bà sao", trong lòng cô đã nhen nhóm một niềm tin sắt đá, một quyết tâm chỉ riêng mình cô thấu hiểu.
+Có lẽ ngay khoảnh khắc Lâm Thanh Tuyết nói với Dương Thù Mỹ câu "Bác thấy tôi không xứng với con trai bác sao", trong lòng cô đã nung nấu một niềm tin kiên định, một niềm tin mà chỉ riêng mình cô biết.
 
-Chiếc xe dừng lại trước cổng trường đại học một thoáng. Lâm Thanh Tuyết mở cửa bước xuống.
+Xe dừng lại ở cổng trường một lát, Lâm Thanh Tuyết bước xuống.
 
 "Triệu Kim An, cảm ơn nhé."
 
-Triệu Kim An chỉ khẽ xua tay.
+Triệu Kim An phất phất tay.
 
-Lâm Thanh Tuyết gật đầu, nhẹ nhàng khép cánh cửa xe lại.
+Lâm Thanh Tuyết gật đầu, khẽ khàng đóng cửa xe lại.

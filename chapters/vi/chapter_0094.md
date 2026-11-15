@@ -1,7 +1,5 @@
 # Chương 94: Cậu là ai?
 
-> **Tiêu đề gốc**: 第94章 你是谁？
-
 Đêm giao thừa.
 
 Triệu Quốc Hoa là người châm ngòi bánh pháo lớn trước hiên nhà.
@@ -18,7 +16,7 @@ Anh khẽ đưa mũi hít hà, quả thực đúng như lời con bé Triệu Du
 
 Thẩm Tử Ngôn: [Triệu Kim An, năm mới vui vẻ.]
 
-Hứa Mạn Mạn: [Năm mới vui vẻ.]
+Từ Mạn Mạn: [Năm mới vui vẻ.]
 
 Lạc Cẩn Chi: [Kim An, năm mới an khang thịnh vượng.]
 
@@ -26,11 +24,11 @@ Du Phi: [Kim An, năm mới vui vẻ.]
 
 Lại còn rất nhiều người khác nữa, chẳng hạn như Hồ Thần, Bành Trung Ngạn ở nhà máy nước... Đám bạn học lớp Kế toán 1 như Vương Duy Đào, Cốc Siêu Thừa, Lưu Sấm Phong, Lâm Thanh Tuyết, cùng hai anh em Đan Vĩ, Đan Na Tề...
 
-À phải rồi, còn có cả Diêu Tân nữa. Cả phòng 406 của nữ sinh Sư Đại đều gửi tin chúc mừng, ngoại trừ Mộc Dao.
+À phải rồi, còn có cả Diêu Sân nữa. Cả phòng 406 của nữ sinh Sư Đại đều gửi tin chúc mừng, ngoại trừ Mộc Dao.
 
 Bởi vì cái tên Mộc Dao đến giờ vẫn còn đang nằm ngay ngắn trong danh sách đen chặn số.
 
-Thế nhưng tuyệt nhiên chẳng có lấy một tin nhắn nào mang hơi hướng mập mờ hay ái muội. Cả Thẩm Tử Ngôn lẫn Hứa Mạn Mạn đều chỉ gửi vẻn vẹn bốn chữ ngắn gọn: Năm mới vui vẻ.
+Thế nhưng tuyệt nhiên chẳng có lấy một tin nhắn nào mang hơi hướng mập mờ hay ái muội. Cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều chỉ gửi vẻn vẹn bốn chữ ngắn gọn: Năm mới vui vẻ.
 
 Triệu Kim An kiên nhẫn trả lời từng người một, cách đáp lại cũng vô cùng giản dị, vỏn vẹn bốn chữ "Năm mới vui vẻ".
 

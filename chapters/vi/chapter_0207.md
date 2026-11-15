@@ -1,7 +1,5 @@
 # Chương 207: Thẩm Tử Ngôn ra tay
 
-> **Tiêu đề gốc**: 第207章 沈子言出手了。
-
 Bành Trung Ngạn ghé sát lại cùng xem bản hợp đồng, một khi Thế vận hội Olympic khởi tranh, thương hiệu Trăn Nhiên chắc chắn sẽ một bước lên mây.
 
 "Khu vực Tây Nam ai sẽ qua đó phụ trách?"

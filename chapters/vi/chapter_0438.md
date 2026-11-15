@@ -1,7 +1,5 @@
 # Chương 438: Hoa mãn thiên tinh
 
-> **Tiêu đề gốc**: 第438章 满天星。
-
 Sáng sớm tinh mơ.
 
 Tô Mặc cùng cô y tá hộ lý khẽ khàng đẩy cửa bước vào phòng ngủ, Tô Miến đã thức giấc từ sớm chuẩn bị dùng bữa điểm tâm.

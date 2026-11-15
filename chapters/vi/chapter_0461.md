@@ -1,7 +1,5 @@
 # Chương 461: Giám đốc Lý của Hoàn Vũ?
 
-> **Tiêu đề gốc**: 第461章 寰宇李经理？
-
 "Con gái của Từ Mạn Mạn đầy tháng, anh có nên gửi phần quà chúc mừng không?"
 
 Trần Trạch ướm lời hỏi thử.

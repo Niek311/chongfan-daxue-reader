@@ -1,7 +1,5 @@
 # Chương 263: Lát nữa em trả tiền nhé
 
-> **Tiêu đề gốc**: 第263章 等下你付钱。
-
 Sáng hôm sau.
 
 Thẩm Tử Ngôn sang gõ cửa phòng nhắc Triệu Kim An xuống tầng ăn bữa sáng.
@@ -126,11 +124,11 @@ Kết quả là, Đan Na Tề ở đầu dây bên kia chẳng thèm có lấy n
 
 Tại Trường Sa.
 
-Trần Trạch lái xe chở Lâm Thanh Tuyết cùng nhau đến siêu thị Trăn Hối Tuyển. Bà Dương Thục Mỹ lần này đã thực sự cắt đứt hoàn toàn tiền sinh hoạt phí hàng tháng của Trần Trạch.
+Trần Trạch lái xe chở Lâm Thanh Tuyết cùng nhau đến siêu thị Trăn Hối Tuyển. Bà Dương Thù Mỹ lần này đã thực sự cắt đứt hoàn toàn tiền sinh hoạt phí hàng tháng của Trần Trạch.
 
 Có lẽ nguồn vốn quay vòng của các nhà máy dưới trướng bà lúc này thực sự đã rơi vào cảnh vô cùng căng thẳng.
 
-Dương Thục Mỹ quá hiểu tính nết con trai mình, bà biết khi nào Trần Trạch thực sự không thể gắng gượng sống nổi nữa thì ắt sẽ phải chủ động gọi điện về cầu cứu mà thôi.
+Dương Thù Mỹ quá hiểu tính nết con trai mình, bà biết khi nào Trần Trạch thực sự không thể gắng gượng sống nổi nữa thì ắt sẽ phải chủ động gọi điện về cầu cứu mà thôi.
 
 Bởi vậy, kể từ ngày theo chân Trần Trạch đến nay, Lâm Thanh Tuyết trên thực tế chưa từng được tận hưởng một cuộc sống nhung lụa xa hoa như trong tưởng tượng. Hai người họ chỉ đành dựa dẫm vào nguồn thu nhập ít ỏi kiếm được từ câu lạc bộ bi-a để trang trải qua ngày.
 

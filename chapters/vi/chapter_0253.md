@@ -1,7 +1,5 @@
 # Chương 253: Khai trương
 
-> **Tiêu đề gốc**: 第253章 开业。
-
 Ngày mùng 7 tháng 8.
 
 Từ Mạn Mạn và Liễu Ôn Ninh tiến hành rà soát, kiểm tra tổng thể lần cuối cùng để đảm bảo mọi khâu đều vẹn toàn, không xảy ra bất kỳ sơ suất nào.
@@ -36,21 +34,21 @@ Giá nhập một quả trứng gà khi ấy chỉ khoảng năm hào, một v�
 
 Những người chịu khó dậy sớm xếp hàng nhận trứng gà phần lớn là các cụ già hoặc những bà nội trợ trung niên, nhưng rõ ràng chiêu thức này có sức hút gom tụ nhân khí vô cùng hiệu quả. Đây là ngón đòn kinh điển trong các dịp khai trương khuyến mãi, dùng bao nhiêu lần vẫn phát huy tác dụng thần kỳ.
 
-Đường Hiểu Tình và Đơn Na Tề cũng không giấu nổi vẻ hồi hộp, lo âu. Chuẩn bị bao nhiêu ngày tháng chỉ để chờ đợi giây phút này. Đường Hiểu Tình túc trực tại quầy đồ ăn chín, còn Đơn Na Tề thì sang khu vực phát trứng miễn phí để phụ giúp một tay.
+Đường Hiểu Tình và Đan Na Tề cũng không giấu nổi vẻ hồi hộp, lo âu. Chuẩn bị bao nhiêu ngày tháng chỉ để chờ đợi giây phút này. Đường Hiểu Tình túc trực tại quầy đồ ăn chín, còn Đan Na Tề thì sang khu vực phát trứng miễn phí để phụ giúp một tay.
 
-"Đừng bảo lát nữa mọi người chỉ mua đúng một mớ rau muống rồi chạy ra nhận mười quả trứng gà đấy nhé?" Đơn Na Tề vui vẻ nói đùa một câu với mấy chị em xung quanh.
+"Đừng bảo lát nữa mọi người chỉ mua đúng một mớ rau muống rồi chạy ra nhận mười quả trứng gà đấy nhé?" Đan Na Tề vui vẻ nói đùa một câu với mấy chị em xung quanh.
 
 "Hi hi hi..."
 
-Nhân viên Trăn Hối Tuyển bật cười rôm rả. Đơn Na Tề tuy mới tốt nghiệp cấp ba nhưng ngày nào cũng chăm chỉ đến đây như đi làm chính thức. Mọi người đều biết cô bé vừa thi đỗ Đại học Đồng Tế danh tiếng, lại còn là ái nữ của chú Đơn Vĩ - tài xế riêng của Triệu tổng.
+Nhân viên Trăn Hối Tuyển bật cười rôm rả. Đan Na Tề tuy mới tốt nghiệp cấp ba nhưng ngày nào cũng chăm chỉ đến đây như đi làm chính thức. Mọi người đều biết cô bé vừa thi đỗ Đại học Đồng Tế danh tiếng, lại còn là ái nữ của chú Đan Vĩ - tài xế riêng của Triệu tổng.
 
-Đang râm ran trò chuyện thì Đơn Vĩ lù lù xuất hiện.
+Đang râm ran trò chuyện thì Đan Vĩ lù lù xuất hiện.
 
 "Bố, bố đến đây làm gì thế?"
 
 "Bố đến mua đồ chứ làm gì, bố trả tiền đàng hoàng đấy nhé!"
 
-Không chỉ có Đơn Vĩ, mà bà Lưu Mỹ Nga cũng đã đứng chờ trước cửa từ sáng sớm, là một trong những vị khách đầu tiên bước vào siêu thị. Họ đều muốn đến sớm để làm "chim mồi", tạo thêm không khí tấp nập ủng hộ cho siêu thị.
+Không chỉ có Đan Vĩ, mà bà Lưu Mỹ Nga cũng đã đứng chờ trước cửa từ sáng sớm, là một trong những vị khách đầu tiên bước vào siêu thị. Họ đều muốn đến sớm để làm "chim mồi", tạo thêm không khí tấp nập ủng hộ cho siêu thị.
 
 Ở phía bên kia, Đường Hiểu Tình cũng ngạc nhiên khi thấy mẹ mình.
 
@@ -114,13 +112,13 @@ Lượng người mua sắm đông đúc đồng nghĩa với việc siêu thị
 
 Và điều đó cũng có nghĩa là cơ hội để các sản phẩm của bà ta bán chạy là vô cùng lớn.
 
-Trương Vân Thiến rút điện thoại ra gọi ngay cho Trương Huệ ở Tư Tinh: "Chị à, siêu thị của Kim An hôm nay khai trương rồi, mới buổi sáng mà khách đã đông nghìn nghịt, việc làm ăn chắc chắn sẽ đại thắng cho mà xem!"
+Trương Vân Thiến rút điện thoại ra gọi ngay cho Trương Tuệ ở Tư Tinh: "Chị à, siêu thị của Kim An hôm nay khai trương rồi, mới buổi sáng mà khách đã đông nghìn nghịt, việc làm ăn chắc chắn sẽ đại thắng cho mà xem!"
 
-Đầu dây bên kia, Trương Huệ lặng đi hồi lâu không thốt nên lời.
+Đầu dây bên kia, Trương Tuệ lặng đi hồi lâu không thốt nên lời.
 
 Mãi sau bà ta mới gượng gạo thốt ra một câu: "Hôm nay khai trương rồi sao?"
 
-Trong đầu Trương Huệ lại hiện lên hình ảnh tòa nhà Trăn Hối Tuyển sừng sững mà bà từng nhìn thấy trên đường ra ga tàu hỏa hôm nọ. Khi ấy bà còn tấm tắc khen ngợi quả đúng là thủ phủ Quận Sa tráng lệ khác hẳn huyện lẻ Tư Tinh, vậy mà cơ ngơi tráng lệ ấy lại chính là của Kim An!!
+Trong đầu Trương Tuệ lại hiện lên hình ảnh tòa nhà Trăn Hối Tuyển sừng sững mà bà từng nhìn thấy trên đường ra ga tàu hỏa hôm nọ. Khi ấy bà còn tấm tắc khen ngợi quả đúng là thủ phủ Quận Sa tráng lệ khác hẳn huyện lẻ Tư Tinh, vậy mà cơ ngơi tráng lệ ấy lại chính là của Kim An!!
 
 "Hôm nay mới là chạy thử thôi, nhưng cũng chẳng khác gì khai trương chính thức cả."
 
@@ -162,7 +160,7 @@ Dĩ nhiên, ngày hôm nay có thể sẽ có đôi chút ngoại lệ.
 
 Bởi tối nay phần lớn người dân đều quây quần ở nhà xem truyền hình trực tiếp lễ khai mạc Olympic, nhưng ngoài quảng trường của Trăn Hối Tuyển cũng đã lắp đặt một màn hình LED khổng lồ để tiếp sóng trực tiếp phục vụ bà con.
 
-Bà Lưu Mỹ Nga và Đơn Vĩ vẫn chưa chịu về nhà. Từ Mạn Mạn còn ân cần mời hai người lên văn phòng tầng ba nghỉ ngơi, uống nước.
+Bà Lưu Mỹ Nga và Đan Vĩ vẫn chưa chịu về nhà. Từ Mạn Mạn còn ân cần mời hai người lên văn phòng tầng ba nghỉ ngơi, uống nước.
 
 Bữa trưa họ cùng ăn cơm suất làm việc tại siêu thị.
 
@@ -170,11 +168,11 @@ Bữa trưa họ cùng ăn cơm suất làm việc tại siêu thị.
 
 "Dì ơi, dì cứ gọi cháu là Mạn Mạn được rồi ạ." Từ Mạn Mạn mỉm cười dịu dàng: "Dì không cần phải xuống đâu, nhân viên siêu thị lo liệu được hết rồi ạ."
 
-Nhìn thấy siêu thị nườm nượp khách vào ra, Lưu Mỹ Nga và Đơn Vĩ mừng rỡ khôn xiết, mãi chẳng nỡ rời đi.
+Nhìn thấy siêu thị nườm nượp khách vào ra, Lưu Mỹ Nga và Đan Vĩ mừng rỡ khôn xiết, mãi chẳng nỡ rời đi.
 
-Lưu Mỹ Nga và Đường Hiểu Tình đang "nương tựa" vào Triệu Kim An, mà bố con Đơn Vĩ và Đơn Na Tề há chẳng phải cũng như vậy sao?
+Lưu Mỹ Nga và Đường Hiểu Tình đang "nương tựa" vào Triệu Kim An, mà bố con Đan Vĩ và Đan Na Tề há chẳng phải cũng như vậy sao?
 
-Công ty của Triệu Kim An càng ăn nên làm ra, thì Đường Hiểu Tình và Đơn Na Tề đi theo anh mới càng có tương lai tiền đồ xán lạn. Đạo lý đơn giản ấy thì Lưu Mỹ Nga và Đơn Vĩ làm sao không hiểu cho được.
+Công ty của Triệu Kim An càng ăn nên làm ra, thì Đường Hiểu Tình và Đan Na Tề đi theo anh mới càng có tương lai tiền đồ xán lạn. Đạo lý đơn giản ấy thì Lưu Mỹ Nga và Đan Vĩ làm sao không hiểu cho được.
 
 Dưới tầng hầm để xe.
 
@@ -212,7 +210,7 @@ Họ đâu có ngờ rằng, con gái ruột của mình đang ngồi trên tầ
 
 Nếu như...
 
-Thực ra họ hoàn toàn có thể giống như bà Lưu Mỹ Nga và chú Đơn Vĩ, chẳng cần phải bỏ tiền mua bất cứ thứ gì ở đây cả.
+Thực ra họ hoàn toàn có thể giống như bà Lưu Mỹ Nga và chú Đan Vĩ, chẳng cần phải bỏ tiền mua bất cứ thứ gì ở đây cả.
 
 Từ Mạn Mạn cứ thế "dõi theo" từng bước chân của bố mẹ, nhìn họ đẩy chiếc xe mua sắm đi dọc các quầy...
 

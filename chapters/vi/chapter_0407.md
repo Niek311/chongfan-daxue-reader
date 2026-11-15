@@ -1,7 +1,5 @@
 # Chương 407: Hơn ngàn vạn lời
 
-> **Tiêu đề gốc**: 第407章 胜过千言万语。
-
 Cuộc phỏng đoán cuối cùng rơi vào ngõ cụt.
 
 Cả Thẩm Tử Ngôn lẫn Diêu Sân có vắt óc suy nghĩ đến mấy cũng chẳng thể ngờ được rốt cuộc người đó là ai.
@@ -60,7 +58,7 @@ Triệu Kim An đã quay trở về Quận Sa. Công việc bề bộn ở hàng
 
 Bước chân ra khỏi sảnh sân bay, màn đêm đã buông xuống từ bao giờ.
 
-Đơn Vĩ lái xe tới tận cổng sân bay đón người. Lòng dạ ngổn ngang trăm mối tơ vò, Triệu Kim An không bảo tài xế chở về nhà mình, cũng không vội vã chạy tới tìm Từ Mạn Mạn ngay, mà chỉ thị cho Đơn Vĩ dừng xe trước cửa một quán pub nhẹ nhàng ven đường.
+Đan Vĩ lái xe tới tận cổng sân bay đón người. Lòng dạ ngổn ngang trăm mối tơ vò, Triệu Kim An không bảo tài xế chở về nhà mình, cũng không vội vã chạy tới tìm Từ Mạn Mạn ngay, mà chỉ thị cho Đan Vĩ dừng xe trước cửa một quán pub nhẹ nhàng ven đường.
 
 Một mình anh chọn một chiếc bàn nhỏ nép trong góc khuất, gọi một chai đồ uống nhẹ lên men cùng một đĩa hoa quả tươi, lẳng lặng ngồi nghe từng điệu nhạc du dương lướt qua tai.
 
@@ -132,7 +130,7 @@ Gửi xong tin nhắn, Triệu Kim An khẽ liếc nhìn người phụ nữ đ�
 
 "Đi luôn bây giờ sao? Anh không uống nữa à?"
 
-Người phụ nữ ngạc nhiên ngoái đầu lại, bắt gặp Đơn Vĩ đang đứng quẹt thẻ thanh toán toàn bộ hóa đơn. Cô ta tò mò đứng dậy bước nhanh ra ngoài cửa quán, vừa vặn trông thấy chiếc xe Rolls-Royce Phantom siêu sang đang đỗ sừng sững bên lề đường.
+Người phụ nữ ngạc nhiên ngoái đầu lại, bắt gặp Đan Vĩ đang đứng quẹt thẻ thanh toán toàn bộ hóa đơn. Cô ta tò mò đứng dậy bước nhanh ra ngoài cửa quán, vừa vặn trông thấy chiếc xe Rolls-Royce Phantom siêu sang đang đỗ sừng sững bên lề đường.
 
 "..."
 
@@ -146,9 +144,9 @@ Xét một cách tương đối, người như Quan Linh đã được coi là r
 
 "Sếp ơi, bây giờ chúng ta đi đâu ạ?"
 
-Đơn Vĩ chăm chú cầm vô lăng cất tiếng hỏi. Mỗi lần Triệu Kim An quay về Quận Sa, anh thường chỉ có hai chốn để đi: một là về căn hộ của chính mình, hai là sang chỗ của Từ Mạn Mạn.
+Đan Vĩ chăm chú cầm vô lăng cất tiếng hỏi. Mỗi lần Triệu Kim An quay về Quận Sa, anh thường chỉ có hai chốn để đi: một là về căn hộ của chính mình, hai là sang chỗ của Từ Mạn Mạn.
 
-Cái danh xưng "nhà của Từ Mạn Mạn" nghe qua có chút ngượng ngùng và gượng gạo. Triệu Kim An liếc mắt nhìn Đơn Vĩ một cái rồi bấm số gọi cho cô giáo Dư Tĩnh. Đơn Vĩ ngồi phía trước bỗng rùng mình một cái, thầm nghĩ trong bụng không biết vừa rồi sếp nhìn mình bằng ánh mắt sắc lẹm gì thế không biết?
+Cái danh xưng "nhà của Từ Mạn Mạn" nghe qua có chút ngượng ngùng và gượng gạo. Triệu Kim An liếc mắt nhìn Đan Vĩ một cái rồi bấm số gọi cho cô giáo Dư Tĩnh. Đan Vĩ ngồi phía trước bỗng rùng mình một cái, thầm nghĩ trong bụng không biết vừa rồi sếp nhìn mình bằng ánh mắt sắc lẹm gì thế không biết?
 
 Triệu Kim An không hề gặng hỏi xem làm cách nào mà Tô Miến lại biết được chuyện của Từ Mạn Mạn, bởi quanh đi quẩn lại cũng chỉ có mấy người trong cuộc biết chuyện mà thôi.
 

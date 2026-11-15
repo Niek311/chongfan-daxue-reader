@@ -1,18 +1,16 @@
 # Chương 490: Đại tiểu thư của tôi giận tôi rồi sao?
 
-> **Tiêu đề gốc**: 第490章 我的大小姐是生我气了吗？
-
-Nhân viên trong siêu thị không ngừng đưa mắt tò mò nhìn về phía bà nội và Hứa Mạn Mạn. Hứa Mạn Mạn đi theo Triệu Kim An bấy lâu nay nhưng chưa từng có một “danh phận” chính thức, đây vốn là điều mà năm xưa ông Hứa Tắc Đống bận tâm và day dứt nhất, bằng không thì đã chẳng xảy ra bao nhiêu biến cố đau lòng về sau.
+Nhân viên trong siêu thị không ngừng đưa mắt tò mò nhìn về phía bà nội và Từ Mạn Mạn. Từ Mạn Mạn đi theo Triệu Kim An bấy lâu nay nhưng chưa từng có một “danh phận” chính thức, đây vốn là điều mà năm xưa ông Từ Tắc Đống bận tâm và day dứt nhất, bằng không thì đã chẳng xảy ra bao nhiêu biến cố đau lòng về sau.
 
 Thế nhưng giờ đây...
 
-Bà nội và Hứa Mạn Mạn đang đường hoàng đứng ở nơi này, lại còn có cả bà thím Vương Kim Như đi cùng.
+Bà nội và Từ Mạn Mạn đang đường hoàng đứng ở nơi này, lại còn có cả bà thím Vương Kim Như đi cùng.
 
-Điều đó chẳng khác nào một lời tuyên bố ngầm với tất cả mọi người rằng: bà nội và thím hai đã hoàn toàn “thừa nhận” Hứa Mạn Mạn là cháu dâu của gia đình họ Triệu.
+Điều đó chẳng khác nào một lời tuyên bố ngầm với tất cả mọi người rằng: bà nội và thím hai đã hoàn toàn “thừa nhận” Từ Mạn Mạn là cháu dâu của gia đình họ Triệu.
 
 — Haizz.
 
-Đến cả Du Phi đi bên cạnh cũng bất giác dừng bước, ngơ ngẩn nhìn theo bóng lưng của bà nội và Hứa Mạn Mạn rồi buông một tiếng thở dài thảng thốt:
+Đến cả Du Phi đi bên cạnh cũng bất giác dừng bước, ngơ ngẩn nhìn theo bóng lưng của bà nội và Từ Mạn Mạn rồi buông một tiếng thở dài thảng thốt:
 
 — Dao Dao ơi là Dao Dao, cậu đúng là dậy thật sớm mà lại đi chợ muộn rồi... Cậu mới chính là người đầu tiên đặt chân về làng Triệu Gia cơ mà...
 
@@ -20,7 +18,7 @@ Những ngày sau đó, bà nội nhất quyết không chịu bước chân ra 
 
 Bà bảo bản thân tuổi tác đã cao như ngọn đèn trước gió, chẳng còn màng ngắm nghía phố xá phồn hoa làm gì, trên cõi đời này chẳng có thứ gì đẹp đẽ, đáng yêu bằng đứa chắt Triệu Tri Nặc của bà.
 
-Trong khoảng thời gian ấy, Đoạn Thu Bình có gọi một cuộc điện thoại cho Vương Kim Như. Bà nội vốn định chỉ ngủ lại Quận Sa hai đêm rồi về làng Triệu Gia, nhưng Triệu Kim An và Hứa Mạn Mạn tha thiết giữ mãi, bà mới nán lại trọn vẹn năm đêm.
+Trong khoảng thời gian ấy, Đoạn Thu Bình có gọi một cuộc điện thoại cho Vương Kim Như. Bà nội vốn định chỉ ngủ lại Quận Sa hai đêm rồi về làng Triệu Gia, nhưng Triệu Kim An và Từ Mạn Mạn tha thiết giữ mãi, bà mới nán lại trọn vẹn năm đêm.
 
 Triệu Duyệt Thiên thì nhất quyết khóc lóc đòi ở lại, Triệu Kim An bảo cứ để con bé chơi đến ngày khai giảng rồi anh sẽ đích thân lái xe đưa về.
 
@@ -32,7 +30,7 @@ Tống Gia Nguyệt thì được giữ lại ở lại Quận Sa.
 
 Cũng giống hệt như kiếp trước, bà nội đến một cách “lặng lẽ” rồi lại ra đi trong “lặng lẽ”, tuyệt nhiên không hề bước chân tới tham quan tòa nhà văn phòng cao ốc của cháu trai.
 
-Hứa Mạn Mạn quyến luyến không nỡ rời xa bà, cô ân cần dắt tay đưa bà vào tận sâu bên trong toa tàu cao tốc, tìm đúng số ghế cho bà ngồi yên vị.
+Từ Mạn Mạn quyến luyến không nỡ rời xa bà, cô ân cần dắt tay đưa bà vào tận sâu bên trong toa tàu cao tốc, tìm đúng số ghế cho bà ngồi yên vị.
 
 Trước giờ tàu chuyển bánh, bà nội nắm chặt lấy tay Triệu Kim An, khẽ dặn dò một câu:
 
@@ -42,11 +40,11 @@ Triệu Kim An vội vàng gạt đi, bảo bà đừng nói gở những lời 
 
 Bà nội nở nụ cười đôn hậu, bảo bà nói thế là vì trong lòng đang vui sướng khôn xiết, con bé Tô Miến và con bé Mạn Mạn đứa nào đứa nấy đều quá đỗi tốt lành, hiền thảo.
 
-Trở về nhà, Hứa Mạn Mạn lặng lẽ giúp anh thu dọn hành lý chỉnh tề, Triệu Kim An chuẩn bị lên đường bay ra Bắc Kinh.
+Trở về nhà, Từ Mạn Mạn lặng lẽ giúp anh thu dọn hành lý chỉnh tề, Triệu Kim An chuẩn bị lên đường bay ra Bắc Kinh.
 
 Về chuyện Tô Miến sinh nở, Vương Kim Như cũng đã chủ động gọi điện thoại hỏi thăm xem cô có cần thím đích thân ra Bắc Kinh túc trực chăm sóc hay không. Tô Miến nhẹ nhàng đáp rằng ở nhà đã có sẵn đội ngũ bảo mẫu chuyên nghiệp lo liệu chu toàn, nên Vương Kim Như cũng không khách sáo thêm nữa.
 
-Khác với hoàn cảnh của Hứa Mạn Mạn, gia thế và điều kiện kinh tế của nhà Tô Miến quá đỗi môn đăng hộ đối, giàu sang tột bậc.
+Khác với hoàn cảnh của Từ Mạn Mạn, gia thế và điều kiện kinh tế của nhà Tô Miến quá đỗi môn đăng hộ đối, giàu sang tột bậc.
 
 Giàu có và chu toàn tới mức chẳng cần Triệu Kim An phải bận tâm lo lắng bất cứ điều gì. Quách Uyển Thanh từ sớm đã đích thân lặn lội tìm kiếm, tuyển chọn kỹ lưỡng bảo mẫu chăm sóc cho hai đứa trẻ song sinh, phải qua được cái gật đầu của Tô Miến thì mới chính thức được nhận.
 
@@ -104,9 +102,9 @@ Cũng tuyệt nhiên không một lời hồi đáp.
 
 Mộc Dao đã cố tình thức trắng, canh đúng đến khoảnh khắc bước sang ngày mới này mới bấm gửi đi. Năm xưa Thẩm Tử Ngôn gặng hỏi Mộc Dao có muốn lấy số điện thoại của Tô Miến hay không, đại khái cũng chính là vì mục đích này: để gửi đi một dòng tin nhắn chúc phúc sau cùng.
 
-Cái ngày Hứa Mạn Mạn sinh hạ Triệu Tri Nặc, hai người họ cũng từng gửi một lời “chúc mừng” ngắn ngủi vào trong nhóm chat chung.
+Cái ngày Từ Mạn Mạn sinh hạ Triệu Tri Nặc, hai người họ cũng từng gửi một lời “chúc mừng” ngắn ngủi vào trong nhóm chat chung.
 
-Có lẽ vì những trục trặc và nỗi đau về mặt thể xác của riêng mình, cả Thẩm Tử Ngôn, Mộc Dao lẫn Hứa Mạn Mạn đều dành sự quan tâm đặc biệt sâu sắc tới ca sinh nở này. Tô Miến vốn cũng đã lên kế hoạch nhập viện theo dõi trước nửa tháng, còn Triệu Kim An thì cẩn thận đặt vé bay ra Bắc Kinh trước ba ngày.
+Có lẽ vì những trục trặc và nỗi đau về mặt thể xác của riêng mình, cả Thẩm Tử Ngôn, Mộc Dao lẫn Từ Mạn Mạn đều dành sự quan tâm đặc biệt sâu sắc tới ca sinh nở này. Tô Miến vốn cũng đã lên kế hoạch nhập viện theo dõi trước nửa tháng, còn Triệu Kim An thì cẩn thận đặt vé bay ra Bắc Kinh trước ba ngày.
 
 Thế nhưng, vừa bước chân xuống khỏi máy bay tại sân bay thủ đô, chuông điện thoại trong túi Triệu Kim An bỗng reo vang dồn dập.
 
@@ -138,7 +136,7 @@ Kể cả với Mộc Dao.
 
 “Kính coong, kính coong...”
 
-Tiếng chuông điện thoại vang lên, là Hứa Mạn Mạn gọi tới, cô đã căn đúng giờ Triệu Kim An hạ cánh xuống sân bay. Nhưng Triệu Kim An lúc này hồn xiêu phách lạc, chẳng còn nghe thấy bất cứ âm thanh nào nữa.
+Tiếng chuông điện thoại vang lên, là Từ Mạn Mạn gọi tới, cô đã căn đúng giờ Triệu Kim An hạ cánh xuống sân bay. Nhưng Triệu Kim An lúc này hồn xiêu phách lạc, chẳng còn nghe thấy bất cứ âm thanh nào nữa.
 
 Điện thoại của Du Phi cũng rung lên bần bật, cô run rẩy bấm nghe nhưng tuyệt nhiên không dám để lộ một lời, chỉ nghẹn ngào đáp ngắn gọn rằng đoàn đã đến nơi an toàn.
 

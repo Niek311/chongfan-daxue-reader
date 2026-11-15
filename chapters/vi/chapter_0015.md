@@ -1,7 +1,5 @@
 # Chương 15: Chỉ là bạn học mà thôi
 
-> **Tiêu đề gốc**: 第15章 就是同学。
-
 "Oa, Kim An nhìn này, viên đá của tớ lướt được những chín lần liền!"
 
 Một mảnh đá dẹt mỏng lướt bay là là trên mặt nước, tạo thành những vòng sóng lăn tăn nối tiếp nhau hướng về phía xa. Mộc Dao mừng rỡ nhảy cẫng lên, nét ngây thơ hồn nhiên của một cô gái nhỏ hiển hiện trọn vẹn trên từng đường nét gương mặt.

@@ -1,7 +1,5 @@
 # Chương 293: Nhà ga xe lửa
 
-> **Tiêu đề gốc**: 第293章 火车站。
-
 "Tiểu Nguyệt, con có thích anh trai không?"
 
 Đoạn Thu Bình dịu dàng hỏi han, bà cũng nhận ra Tống Gia Nguyệt tính tình quá đỗi nhút nhát.
@@ -110,7 +108,7 @@ Bọn họ vốn dĩ không hiểu rõ mối quan hệ phức tạp và những 
 
 "Có chị Triệu Bác Lan đi cùng con nữa mẹ ạ, chị ấy là người cùng làng nên nhận ra ngay."
 
-Đơn Vĩ làm tài xế thì đang đi công tác vắng mặt, thư ký Du Phi cũng đi theo tháp tùng sếp, Đường Hiểu Tình liền rút điện thoại gọi cho Hứa Mạn Mạn.
+Đan Vĩ làm tài xế thì đang đi công tác vắng mặt, thư ký Du Phi cũng đi theo tháp tùng sếp, Đường Hiểu Tình liền rút điện thoại gọi cho Từ Mạn Mạn.
 
 "Chị Mạn Mạn, chị đang ở văn phòng đấy ạ?"
 
@@ -120,17 +118,17 @@ Bọn họ vốn dĩ không hiểu rõ mối quan hệ phức tạp và những 
 
 "..."
 
-Tại văn phòng Trăn Hối Tuyển, Hứa Mạn Mạn cầm chiếc điện thoại chết lặng mất một hồi lâu mới thốt ra được một chữ: "... Được."
+Tại văn phòng Trăn Hối Tuyển, Từ Mạn Mạn cầm chiếc điện thoại chết lặng mất một hồi lâu mới thốt ra được một chữ: "... Được."
 
 "Chị Tĩnh!"
 
-"Hứa tổng."
+"Từ tổng."
 
 Lưu Hiểu Tĩnh đẩy cửa bước vào: "Sếp có gì căn dặn ạ?"
 
 "Chỗ quầy thực phẩm chín với bánh mì tươi của siêu thị mình tự làm ấy, chị xuống xem đã bán hết chưa. Mỗi loại lấy một ít đóng hộp cẩn thận đem lên đây cho tôi."
 
-"Vâng, thưa Hứa tổng."
+"Vâng, thưa Từ tổng."
 
 Lưu Hiểu Tĩnh gật đầu, vẻ mặt đầy thắc mắc lui ra ngoài.
 

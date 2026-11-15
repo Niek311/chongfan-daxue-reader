@@ -1,7 +1,5 @@
 # Chương 89: Làng họ Triệu, ngóng chờ diện kiến (2)
 
-> **Tiêu đề gốc**: 第89章 赵家村，等着见人2
-
 "Mau vào bếp phụ giúp làm cơm đi!"
 
 Triệu Quốc Hoa liếc nhìn chiếc túi xách sang trọng trên tay Vương Kim Như, khẽ bảo: "Cái thứ này chắc chắn giá trị chẳng hề rẻ rúng chút nào đâu."

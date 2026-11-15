@@ -1,7 +1,5 @@
 # Chương 204: Anh có cần tiền không?
 
-> **Tiêu đề gốc**: 第204章 你要钱吗？
-
 Chuyện Triệu Kim An sáng lập nên thương hiệu Trăn Nhiên có thể giấu giếm được thiên hạ, nhưng tuyệt đối không thể nào qua mắt được ông Tô Minh Tùng. Huống hồ Tô Cảnh Hành vẫn đang công tác tại Quận Sa, trên thực tế chính là vị "quan phụ mẫu" cai quản mảnh đất mà Triệu Kim An đang kinh doanh lập nghiệp.
 
 "Anh dạo này có nhiều tiền rồi nhỉ." Tô Miến khẽ tựa đầu vào vai Triệu Kim An, thì thầm to nhỏ.

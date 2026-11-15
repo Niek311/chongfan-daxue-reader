@@ -1,7 +1,5 @@
 # Chương 527: Ông chủ rảnh tay
 
-> **Tiêu đề gốc**: 第527章 甩手掌柜。
-
 Bé Triệu Tri Nặc nằm bò toài ra mặt bàn làm việc, hai tay ôm khư khư một quả táo tây to tướng, ra sức gặm lấy gặm để.
 
 Triệu Kim An một tay vỗ nhẹ vào mông con gái, bật cười trêu: "Sao thế con gái, quả táo này cứng quá cắn không vỡ à?"
@@ -30,7 +28,7 @@ Ngải Manh Manh đứng bên cạnh liền khẽ khàng cất tiếng: "Triệu
 
 Triệu Tri Nặc lúc thì nằm bò ra bàn, lúc lại ngồi ngất ngưởng ngay giữa chiếc bàn làm việc của ngài Chủ tịch.
 
-Mặt bàn làm từ gỗ hồng đào nguyên khối cỡ đại, chỉ riêng chi phí hoàn thiện nội thất cho cả tầng này đã ngốn đứt hai mươi triệu tệ. Ngải Manh Manh đứng nhìn một hồi rồi rón rén lui ra ngoài, thì thầm với Du Phỉ: "Du Phỉ này, Kim An còn trẻ tuổi như thế, mình thật không ngờ cậu ấy lại quấn trẻ con đến mức này đấy."
+Mặt bàn làm từ gỗ hồng đào nguyên khối cỡ đại, chỉ riêng chi phí hoàn thiện nội thất cho cả tầng này đã ngốn đứt hai mươi triệu tệ. Ngải Manh Manh đứng nhìn một hồi rồi rón rén lui ra ngoài, thì thầm với Du Phi: "Du Phi này, Kim An còn trẻ tuổi như thế, mình thật không ngờ cậu ấy lại quấn trẻ con đến mức này đấy."
 
 "Cậu nhìn xem kìa."
 
@@ -40,17 +38,17 @@ Cô nàng chỉ tay về phía căn phòng Chủ tịch ở bên trong, trên m�
 
 "Từ Mạn Mạn biết hết đấy, cô ấy cái gì mà chẳng rõ trong lòng. Cậu cứ yên tâm đi, Mạn Mạn đối với Kim An và bé Nặc Nặc..."
 
-Du Phỉ trong thoáng chốc chẳng biết phải dùng từ ngữ nào để diễn tả cho thỏa đáng, cô khẽ trầm ngâm rồi tiếp lời: "Tôi với Mạn Mạn vốn là bạn học cùng lớp đại học. Mạn Mạn là người vô cùng thông minh, một lòng một dạ sống chết vì Kim An và Nặc Nặc..."
+Du Phi trong thoáng chốc chẳng biết phải dùng từ ngữ nào để diễn tả cho thỏa đáng, cô khẽ trầm ngâm rồi tiếp lời: "Tôi với Mạn Mạn vốn là bạn học cùng lớp đại học. Mạn Mạn là người vô cùng thông minh, một lòng một dạ sống chết vì Kim An và Nặc Nặc..."
 
 "Thế nên cậu đừng có bận lòng lo mấy chuyện bao đồng ấy làm gì."
 
-Hồi học đại học, họ cùng ngồi chung một giảng đường, phòng ký túc xá lại nằm cùng một tầng cách nhau chẳng mấy bước chân, bởi vậy Du Phỉ hiểu rất rõ tính cách của cả Từ Mạn Mạn lẫn Thẩm Tử Ngôn. Ngải Manh Manh cũng chỉ là có lòng tốt, muốn Từ Mạn Mạn tận mắt thấy Triệu Kim An yêu thương đứa con gái này đến nhường nào mà thôi.
+Hồi học đại học, họ cùng ngồi chung một giảng đường, phòng ký túc xá lại nằm cùng một tầng cách nhau chẳng mấy bước chân, bởi vậy Du Phi hiểu rất rõ tính cách của cả Từ Mạn Mạn lẫn Thẩm Tử Ngôn. Ngải Manh Manh cũng chỉ là có lòng tốt, muốn Từ Mạn Mạn tận mắt thấy Triệu Kim An yêu thương đứa con gái này đến nhường nào mà thôi.
 
 Triệu Kim An vừa trở lại công ty, lập tức có quá nhiều cán bộ cấp quản lý lũ lượt kéo tới để xin báo cáo công việc.
 
 Tầng 49 này, đây cũng là lần đầu tiên họ có cơ hội bước chân lên.
 
-Thế nhưng vừa tới sảnh ngoài của Văn phòng Chủ tịch, họ đã bị Du Phỉ và Ngải Manh Manh nhẹ nhàng chặn lại, dặn mọi người cứ như lệ thường xuống tầng 48 gặp Từ tổng giải quyết là được.
+Thế nhưng vừa tới sảnh ngoài của Văn phòng Chủ tịch, họ đã bị Du Phi và Ngải Manh Manh nhẹ nhàng chặn lại, dặn mọi người cứ như lệ thường xuống tầng 48 gặp Từ tổng giải quyết là được.
 
 Riêng Triệu Bác Lan thì không ai dám cản. Cô sải bước đi thẳng vào phòng Chủ tịch ở tầng 49.
 
@@ -86,13 +84,13 @@ Triệu Kim An buông một lời nói dối không chớp mắt, rồi đẩy t
 
 "Được rồi, thế thì chẳng còn vấn đề gì phải lăn tăn nữa."
 
-Có tiền rót vào thì còn vấn đề gì làm khó được nữa chứ? Triệu Bác Lan thậm chí còn chưa thèm nhắc tới hai cô thư ký Du Phỉ và Ngải Manh Manh đang đứng ngoài cửa.
+Có tiền rót vào thì còn vấn đề gì làm khó được nữa chứ? Triệu Bác Lan thậm chí còn chưa thèm nhắc tới hai cô thư ký Du Phi và Ngải Manh Manh đang đứng ngoài cửa.
 
-Du Phỉ là Thư ký trưởng của Văn phòng Chủ tịch, lương tháng mười sáu nghìn tệ.
+Du Phi là Thư ký trưởng của Văn phòng Chủ tịch, lương tháng mười sáu nghìn tệ.
 
 Còn Ngải Manh Manh chỉ được nhận tám nghìn tệ.
 
-Thế nhưng chỉ với mức lương ấy, Ngải Manh Manh đã gọi điện về nhà buôn chuyện với bố mẹ ròng rã suốt hai tiếng đồng hồ, hào hứng khoe rằng mình đã được điều chuyển lên Văn phòng Chủ tịch, làm thư ký riêng cho Triệu Kim An, trở thành đồng nghiệp cùng bộ phận với Du Phỉ.
+Thế nhưng chỉ với mức lương ấy, Ngải Manh Manh đã gọi điện về nhà buôn chuyện với bố mẹ ròng rã suốt hai tiếng đồng hồ, hào hứng khoe rằng mình đã được điều chuyển lên Văn phòng Chủ tịch, làm thư ký riêng cho Triệu Kim An, trở thành đồng nghiệp cùng bộ phận với Du Phi.
 
 Bố mẹ Ngải Manh Manh nghe xong cũng mừng rỡ khôn xiết. Tám nghìn tệ một tháng là mức lương cực kỳ cao; ở những đại đô thị như Bắc Kinh, Thượng Hải, Quảng Châu hay Thâm Quyến thì chưa dám vỗ ngực, nhưng tại đất Quận Sa này thì rõ ràng là mức thu nhập khiến bao người phải đỏ mắt thèm thuồng.
 

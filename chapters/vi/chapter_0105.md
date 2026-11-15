@@ -1,7 +1,5 @@
 # Chương 105: Khi mái tóc anh vương giọt nước, ngắm đến mê mẩn...
 
-> **Tiêu đề gốc**: 第105章 当他头发沾水，看入迷....
-
 "Triệu Kim An!"
 
 Giữa biển người đông đúc, Lý Ngải Lan bỗng nhiên nhảy cẫng lên, giơ hai tay vẫy lia lịa.
@@ -26,7 +24,7 @@ Lâm Thanh Tuyết đứng bên cạnh khẽ bĩu môi lườm một cái, trong
 
 Ở một góc khác, Mộc Dao cũng đăm đăm nhìn anh không chớp mắt, dường như cô chẳng còn nhận ra người con trai quen thuộc thuở nào nữa.
 
-Diêu Tân đứng cạnh bên cũng thảng thốt lầm bầm: "Thật không ngờ Triệu Kim An mặc quần âu áo sơ mi trắng... lại có thể cuốn hút đến nhường này. Không phải đâu, trông cậu ấy còn xuất sắc hơn ngày thường gấp bội phần."
+Diêu Sân đứng cạnh bên cũng thảng thốt lầm bầm: "Thật không ngờ Triệu Kim An mặc quần âu áo sơ mi trắng... lại có thể cuốn hút đến nhường này. Không phải đâu, trông cậu ấy còn xuất sắc hơn ngày thường gấp bội phần."
 
 Mộc Dao cắn chặt môi, không nói một lời, ánh mắt vẫn dính chặt lấy từng bước chân của Triệu Kim An.
 
@@ -44,9 +42,9 @@ Triệu Kim An liền quay sang nở một nụ cười hòa nhã với Mộc Da
 
 Mộc Dao ngơ ngác nhìn theo, chợt nhận ra ánh mắt anh tuyệt nhiên không hề nán lại trên người mình thêm lấy nửa giây. Anh vẫn tiếp tục trò chuyện rôm rả cùng Lạc Cẩn Chi, trong khi Thẩm Tử Ngôn và Đường Hiểu Tình cũng đã nhanh chân rảo bước tiến lại gần đón tiếp họ.
 
-Trần Trạch liếc mắt nhìn Mộc Dao, rồi lại đưa mắt nhìn Thẩm Tử Ngôn, cuối cùng quay sang nhìn Hứa Mạn Mạn.
+Trần Trạch liếc mắt nhìn Mộc Dao, rồi lại đưa mắt nhìn Thẩm Tử Ngôn, cuối cùng quay sang nhìn Từ Mạn Mạn.
 
-Ánh mắt Hứa Mạn Mạn lúc này có phần thẫn thờ, ngẩn ngơ nhìn Thẩm Tử Ngôn đang đứng bàn bạc công việc cùng hai người bọn họ.
+Ánh mắt Từ Mạn Mạn lúc này có phần thẫn thờ, ngẩn ngơ nhìn Thẩm Tử Ngôn đang đứng bàn bạc công việc cùng hai người bọn họ.
 
 Trần Trạch: "..."
 
@@ -72,21 +70,21 @@ Mộc Dao khẽ cắn chặt bờ môi dưới, hai bàn tay nhỏ bé siết ch
 
 Thẩm Tử Ngôn sở hữu chiều cao một mét bảy mươi, lúc này khẽ nghiêng người, gương mặt rạng rỡ nụ cười hướng về phía Triệu Kim An. Hôm nay cô đi giày cao gót, diện áo sơ mi trắng cùng quần âu sẫm màu, đứng cạnh nhau trông chỉ thấp hơn Triệu Kim An một chút xíu.
 
-Diêu Tân đứng quan sát cảnh tượng ấy suốt một hồi lâu không chớp mắt.
+Diêu Sân đứng quan sát cảnh tượng ấy suốt một hồi lâu không chớp mắt.
 
-Trước đây cô từng lén tâm sự với Thẩm Tử Ngôn rằng từ trường năng lượng giữa Hứa Mạn Mạn và Triệu Kim An có nét tương đồng kỳ lạ.
+Trước đây cô từng lén tâm sự với Thẩm Tử Ngôn rằng từ trường năng lượng giữa Từ Mạn Mạn và Triệu Kim An có nét tương đồng kỳ lạ.
 
-Nghĩ đến đây, Diêu Tân bèn liếc trộm sang cô bạn Hứa Mạn Mạn đang đứng bên cạnh, trong lòng vẫn thầm khẳng định rằng Hứa Mạn Mạn và Triệu Kim An mới thực sự là một cặp "trời sinh xứng đôi" nhất.
+Nghĩ đến đây, Diêu Sân bèn liếc trộm sang cô bạn Từ Mạn Mạn đang đứng bên cạnh, trong lòng vẫn thầm khẳng định rằng Từ Mạn Mạn và Triệu Kim An mới thực sự là một cặp "trời sinh xứng đôi" nhất.
 
-Chính cô cũng chẳng hiểu vì sao, nhưng cứ có cảm giác Triệu Kim An đứng cạnh Hứa Mạn Mạn mới thực sự hòa hợp đến từng hơi thở.
+Chính cô cũng chẳng hiểu vì sao, nhưng cứ có cảm giác Triệu Kim An đứng cạnh Từ Mạn Mạn mới thực sự hòa hợp đến từng hơi thở.
 
 Khí chất của hai con người ấy...
 
-Diêu Tân lại đưa mắt nhìn sang Thẩm Tử Ngôn. Khí chất của Thẩm Tử Ngôn quá đỗi mạnh mẽ, lấn át cả ánh hào quang của Triệu Kim An.
+Diêu Sân lại đưa mắt nhìn sang Thẩm Tử Ngôn. Khí chất của Thẩm Tử Ngôn quá đỗi mạnh mẽ, lấn át cả ánh hào quang của Triệu Kim An.
 
-Còn Hứa Mạn Mạn khi đứng bên Triệu Kim An... lại mang đến cảm giác vừa vặn, trọn vẹn và êm đềm đến lạ lùng.
+Còn Từ Mạn Mạn khi đứng bên Triệu Kim An... lại mang đến cảm giác vừa vặn, trọn vẹn và êm đềm đến lạ lùng.
 
-Dĩ nhiên, Diêu Tân cũng chỉ là một cô gái nhiều chuyện thầm suy nghĩ vẩn vơ trong đầu mà thôi, bởi ai chẳng biết Hứa Mạn Mạn đã có người yêu rồi.
+Dĩ nhiên, Diêu Sân cũng chỉ là một cô gái nhiều chuyện thầm suy nghĩ vẩn vơ trong đầu mà thôi, bởi ai chẳng biết Từ Mạn Mạn đã có người yêu rồi.
 
 ...
 
@@ -154,9 +152,9 @@ Chứng kiến màn biểu diễn bùng nổ trên sân khấu, Thẩm Tử Ngô
 
 "Suỵt."
 
-Diêu Tân sau một hồi la cà hóng hớt tin tức liền chạy vội sang thì thầm: "Nghe bảo bài hát này là do chính Triệu Kim An sáng tác đấy, cả cái ý tưởng súng nước độc đáo này cũng là do cậu ấy nghĩ ra."
+Diêu Sân sau một hồi la cà hóng hớt tin tức liền chạy vội sang thì thầm: "Nghe bảo bài hát này là do chính Triệu Kim An sáng tác đấy, cả cái ý tưởng súng nước độc đáo này cũng là do cậu ấy nghĩ ra."
 
-Nghe thấy thế, cả Mộc Dao lẫn Hứa Mạn Mạn đều bất giác xoay người lại nhìn chằm chằm vào Triệu Kim An.
+Nghe thấy thế, cả Mộc Dao lẫn Từ Mạn Mạn đều bất giác xoay người lại nhìn chằm chằm vào Triệu Kim An.
 
 Trên sân khấu.
 
@@ -174,7 +172,7 @@ Nhiệm vụ mà Triệu Kim An giao cho họ chính là phải khuấy động 
 
 Mộc Dao cũng ngắm nhìn đến mê mẩn... Đây thực sự là Triệu Kim An của mình sao?
 
-Hứa Mạn Mạn thì đứng chết lặng mất vài giây đồng hồ, mãi một lúc sau cô mới sực tỉnh nhận ra Trần Trạch vẫn đang đứng sờ sờ ngay bên cạnh.
+Từ Mạn Mạn thì đứng chết lặng mất vài giây đồng hồ, mãi một lúc sau cô mới sực tỉnh nhận ra Trần Trạch vẫn đang đứng sờ sờ ngay bên cạnh.
 
 ...
 
@@ -200,11 +198,11 @@ Triệu Kim An cười đáp: "Cậu cứ ráng thắng lấy hai trận đầu 
 
 Lưu Sấm Phong vỗ ngực bôm bốp cam đoan: "Chuyện đó là tuyệt đối không bao giờ có!"
 
-Triệu Kim An lại khẽ gật đầu chào Trần Trạch và Hứa Mạn Mạn: "Tôi xin phép đi trước nhé."
+Triệu Kim An lại khẽ gật đầu chào Trần Trạch và Từ Mạn Mạn: "Tôi xin phép đi trước nhé."
 
 Trần Trạch mấp máy môi định nói gì đó, nhưng cuối cùng cũng chỉ thốt ra được một chữ: "Ừ."
 
-Hứa Mạn Mạn mỉm cười, khẽ gật đầu đáp lễ.
+Từ Mạn Mạn mỉm cười, khẽ gật đầu đáp lễ.
 
 "Kim An..."
 
@@ -220,11 +218,11 @@ Anh vốn dĩ không phải là kẻ thích dây dưa, níu kéo trong chuyện 
 
 Kiếp trước khi Mộc Dao nói lời chia tay, anh cũng chưa từng một lần buông lời van xin hay níu kéo.
 
-Có người từng bảo Triệu Kim An quá đỗi tuyệt tình, nhưng chỉ có Thẩm Tử Ngôn, Hứa Mạn Mạn và Diêu Tân mới hiểu rõ... Cái đêm hôm ấy, khi Khổng Triết Vũ kiếm cớ bước tới ngồi chung bàn, Mộc Dao đã không dứt khoát cầm lấy túi xách đứng dậy rời đi...
+Có người từng bảo Triệu Kim An quá đỗi tuyệt tình, nhưng chỉ có Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Sân mới hiểu rõ... Cái đêm hôm ấy, khi Khổng Triết Vũ kiếm cớ bước tới ngồi chung bàn, Mộc Dao đã không dứt khoát cầm lấy túi xách đứng dậy rời đi...
 
-Thế nên đêm hôm đó, vừa nhìn thấy Triệu Kim An xuất hiện, sắc mặt Diêu Tân mới trở nên ngượng ngập, mất tự nhiên đến thế.
+Thế nên đêm hôm đó, vừa nhìn thấy Triệu Kim An xuất hiện, sắc mặt Diêu Sân mới trở nên ngượng ngập, mất tự nhiên đến thế.
 
-Thẩm Tử Ngôn và Hứa Mạn Mạn liếc nhìn Mộc Dao một cái, rồi lại đưa mắt nhìn theo bóng lưng của Triệu Kim An.
+Thẩm Tử Ngôn và Từ Mạn Mạn liếc nhìn Mộc Dao một cái, rồi lại đưa mắt nhìn theo bóng lưng của Triệu Kim An.
 
 Triệu Kim An không bao giờ thích phô trương thanh thế, không thích chiếm vị trí trung tâm, cũng chẳng màng việc thể hiện bản thân để thu hút sự chú ý. Con người anh quá đỗi trầm tĩnh, nội liễm, suốt gần hai học kỳ qua, anh lúc nào cũng chỉ lẳng lặng một mình bước đi... dường như chỉ cần một mình anh là đã quá đủ cho thế giới của riêng mình.
 
@@ -232,10 +230,10 @@ Ngắm nhìn bóng lưng Triệu Kim An và Lạc Cẩn Chi dần khuất xa sau
 
 Xung quanh tuyệt nhiên không có lấy một ai mở lời an ủi.
 
-Chỉ có Diêu Tân chầm chậm ngồi xổm xuống bên cạnh, vòng tay ôm lấy bờ vai đang run rẩy của Mộc Dao, khẽ vỗ về an ủi.
+Chỉ có Diêu Sân chầm chậm ngồi xổm xuống bên cạnh, vòng tay ôm lấy bờ vai đang run rẩy của Mộc Dao, khẽ vỗ về an ủi.
 
 Trần Trạch đứng lặng im nhìn.
 
 Thẩm Tử Ngôn đứng lặng im nhìn.
 
-Hứa Mạn Mạn cũng đứng lặng im nhìn về nơi xa xăm...
+Từ Mạn Mạn cũng đứng lặng im nhìn về nơi xa xăm...

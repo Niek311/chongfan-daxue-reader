@@ -1,24 +1,22 @@
-# ﻿Chương 354: Nhói Lòng
+# Chương 354: Nhói đau.
 
-> **Tiêu đề gốc**: 第354章 刺痛。
+"Mọi người phải nhìn nhận vấn đề bằng con mắt phát triển."
 
-"Phải nhìn bằng con mắt phát triển."
+Triệu Kim An ngồi bệt trên bó vỉa hè: "Mọi người cứ nhìn xe hơi cá nhân chạy ngoài đường ngày càng nhiều là biết, sau này xe riêng chẳng phải thứ gì ghê gớm nữa đâu."
 
-Triệu Kim An ngồi trên bờ vỉa hè: "Các cô nhìn xem, xe con tư nhân trên đường có ngày càng nhiều không — sau này xe hơi riêng chẳng còn là gì cả."
+Hiện tại khu Vạn Gia Lệ vẫn còn hơi hẻo lánh, người qua lại chưa đông đúc.
 
-Khu Vạn Gia Lệ lúc này vẫn còn khá hoang sơ, chưa có mấy người.
+Triệu Bác Lan nhìn Triệu Kim An đang ngồi bên vệ đường, khẽ gật đầu.
 
-Triệu Bác Lan nhìn Triệu Kim An ngồi ven đường, gật đầu.
+"Chà, dạo này Kim An... chẳng thấy cười nữa nhỉ."
 
-"Ừ, dạo này Kim An... không thấy cười nữa."
+Chuyện xảy ra chắc chắn Triệu Bác Lan cũng đã nghe phong thanh, cô không biết diễn tả thế nào; chẳng riêng gì chuyện không cười, Triệu Bác Lan không hiểu Triệu Kim An có thứ tình cảm đặc biệt gì với Từ Mạn Mạn mà lại để tâm đến thế.
 
-Triệu Bác Lan chắc cũng đã nghe, cô diễn đạt không ra, không chỉ là cười — Triệu Bác Lan không hiểu Triệu Kim An có tình cảm gì đặc biệt với Từ Mạn Mạn, sao lại quan tâm đến vậy.
+Tất nhiên không phải vì xinh đẹp, chẳng liên quan gì đến dung mạo của cô gái ấy cả.
 
-Tất nhiên không phải vì xinh đẹp, chẳng liên quan gì đến nhan sắc.
+Đan Vĩ, Quan Văn Bách, Chu Phong Hoa cùng năm vệ sĩ tản ra đứng canh gác xung quanh.
 
-Đơn Vĩ, Quan Văn Bách, Chu Phong Hoa cùng năm vệ sĩ tản ra bốn phía xung quanh.
-
-Du Phỉ nghĩ một lúc rồi ngồi xuống bên Triệu Kim An, nhìn anh cầm que chọc đàn kiến dưới đất chơi.
+Du Phi nghĩ ngợi một lát rồi ngồi xuống bên cạnh Triệu Kim An, lặng lẽ nhìn anh cầm que gỗ nghịch đàn kiến dưới đất.
 
 "Kim An."
 
@@ -28,236 +26,236 @@ Du Phỉ nghĩ một lúc rồi ngồi xuống bên Triệu Kim An, nhìn anh c�
 
 "Không có nếu như."
 
-"Em hỏi thăm, Từ Mạn Mạn không đến Tinh Sa, cô ấy đến lớp học rồi."
+"Tớ nghe ngóng rồi, Từ Mạn Mạn không xuống Tinh Sa đâu, cậu ấy đến giảng đường học bài rồi."
 
-Du Phỉ muốn nói mà không nói — thật ra cô muốn nhắc đến Mộc Dao.
+Du Phi ngập ngừng muốn nói lại thôi, thật ra cô định nhắc đến Mộc Dao cơ.
 
-Cả bốn cô gái phòng 406 đều biết, Triệu Kim An vừa mua thêm hai mảnh đất để xây thương mại và văn phòng — Trương Vân Tây cũng biết, từ mua mặt bằng đến mua đất xây thương mại. Với Trương Vân Tây mà nói, đó là tin tốt, cô chỉ kinh ngạc về tốc độ tích lũy tài sản của Triệu Kim An.
+Bốn cô gái phòng 406 đều đã biết tin Triệu Kim An lại mua hai lô đất để xây trung tâm thương mại và cao ốc văn phòng. Trương Vân Thiến cũng hay tin; từ mua mặt bằng cửa hàng cho đến mua đất xây hẳn trung tâm thương mại.
 
-Các bạn cùng lớp kế toán một đều không muốn nhắc đến Triệu Kim An nữa, quá sốc.
+Với công ty của bà thì đó là tin cực tốt, nhưng Trương Vân Thiến vẫn không khỏi kinh ngạc trước tốc độ tích lũy tài sản của Triệu Kim An.
 
-Họ không biết Lâm Thanh Tuyết đã phải đánh đổi gì, chỉ biết Lâm Thanh Tuyết đến thu mua xưởng của nhà Trần Trạch — đã là điên rồ lắm rồi!
+Đám sinh viên lớp Kế toán 1 giờ chẳng ai muốn nhắc đến Triệu Kim An nữa, nghe mà tủi thân muốn chết.
 
-Còn hơi hoang đường nữa.
+Họ không biết Lâm Thanh Tuyết đã phải đánh đổi những gì, chỉ biết chuyện Lâm Thanh Tuyết đi thu mua nhà xưởng của gia đình Trần Trạch, nghe thật quá sức hoang đường!
 
-Thầy chủ nhiệm Lưu Huy biết chuyện cũng cảm thấy thế giới này phát điên mất rồi.
+Và hơi nực cười nữa.
+
+Giảng viên phụ trách Lưu Huy biết chuyện cũng phải cảm thấy thế giới này điên thật rồi.
 
 Đặc biệt là Phương Khiết.
 
-Cô mấy đêm liền không ngủ được, cứ trằn trọc mãi.
+Cô trằn trọc hết đêm này qua đêm khác, không tài nào chợp mắt nổi.
 
-Không ai nghĩ Triệu Kim An đang nhòm ngó Lâm Thanh Tuyết — sau khi chia tay, Lâm Thanh Tuyết bỏ kiểu ăn mặc sinh viên mà chưng diện trưởng thành hơn, lại còn chăm chú học hành, rồi đầu tiên là bán luôn phòng bi-a.
+Chẳng ai nghĩ Triệu Kim An để mắt tới Lâm Thanh Tuyết; sau khi chia tay, Lâm Thanh Tuyết đổi sang phong cách ăn mặc chững chạc hơn hẳn vẻ sinh viên trước đây, lên lớp cũng chăm chỉ nghe giảng, lại nhanh chóng sang nhượng luôn phòng bida.
 
-"Ôi trời, Lâm Thanh Tuyết sao nhìn đẹp hơn hồi trước thế!"
+"Vãi chưởng, Lâm Thanh Tuyết hình như xinh hơn trước thì phải!"
 
-"Là khí chất ấy."
+"Là khí chất đấy."
 
-"Thôi đi các cậu, Lâm Thanh Tuyết mà chẳng đã ở ngoài đồng cư với Trần Trạch rồi còn gì."
+"Thôi mấy ông bớt giùm đi, Lâm Thanh Tuyết còn dọn ra ngoài sống chung với Trần Trạch rồi kìa."
 
-"Cậu đang ế à, nói như thể sau này bạn gái cậu kiếm được chưa từng hẹn hò với ai vậy."
+"Cái thằng FA như mày nói cứ như thể sau này bạn gái mày chưa từng yêu ai trước mày không bằng."
 
-"Ai là tình mới mà chẳng là tình cũ của người khác?"
+"Người mới của ai mà chẳng từng là người cũ của kẻ khác?"
 
-"....."
+"..."
 
-Vương Duy Đào há miệng muốn tung ra cái lý thuyết của mình, nghĩ lại thôi.
+Vương Duy Đào há miệng định tuôn ra bộ lý thuyết của mình, nhưng nghĩ thế nào lại thôi.
 
-Vương Học Ân gãi gãi đầu: "Trần Trạch có hơi ngốc không, Lâm Thanh Tuyết đâu có kém, lại còn là hoa khôi lớp mình nữa."
+Vương Học Ân gãi đầu: "Trần Trạch có bị ngốc không nhỉ, Lâm Thanh Tuyết có kém cỏi gì đâu, lại còn là hoa khôi lớp mình nữa chứ."
 
-Chỉ có Lưu闯Phong lặng lẽ nghe, không xen vào.
+Chỉ có Lưu Sấm Phong là ngồi nghe mà chẳng chêm vào câu nào.
 
-Anh là người cảm nhận sự thay đổi của Lâm Thanh Tuyết sâu sắc nhất.
+Cậu ta là người cảm nhận rõ rệt nhất sự thay đổi của Lâm Thanh Tuyết.
 
----
+Bên bờ Tương Giang.
 
-Bên bờ sông Tương.
+Từ Mạn Mạn bước đi một mình, hứng những cơn gió thổi từ mặt sông.
 
-Từ Mạn Mạn một mình dạo bộ, hứng gió bên mép sông.
+Chiếc điện thoại trong túi quần cứ rung lên bần bật không ngừng.
 
-Điện thoại trong túi quần rung không ngừng.
+Cô rút ra liếc nhìn một cái rồi thôi, không nghe máy.
 
-Cô rút ra nhìn, rồi cất đi, không nghe.
-
-Hôm đó Triệu Kim An không cho cô cơ hội giải thích, ánh mắt nhìn cô cũng đổi khác — những điều này Từ Mạn Mạn đều cảm nhận được hết.
+Hôm đó Triệu Kim An không hề cho cô cơ hội giải thích, ngay cả ánh mắt anh nhìn cô cũng đã đổi khác rồi; những điều này Từ Mạn Mạn đều cảm nhận được rõ mồn một.
 
 "Triệu Kim An, tại sao anh không tin em?"
 
-"Không tin em, cũng không tin chính mình."
+"Không tin em, cũng chẳng tin chính bản thân anh."
 
-Từ Mạn Mạn không đến xưởng ở Tinh Sa, nhưng nghe Lương Huệ Trân kể lại những gì Lâm Thanh Tuyết đã làm trong văn phòng hôm đó.
+Từ Mạn Mạn không tới nhà xưởng ở Tinh Sa, nhưng cô đã nghe Lương Tuệ Trân kể lại toàn bộ những gì Lâm Thanh Tuyết làm ở văn phòng hôm đó.
 
-"Kim An, anh cố tình đúng không?"
+"Kim An, anh cố tình làm thế đúng không?"
 
-"Anh đã nói không cho mượn tiền, nhưng Lâm Thanh Tuyết vẫn đến."
+"Anh từng nói không cho vay tiền, nhưng Lâm Thanh Tuyết lại tới đó."
 
-"Anh tưởng cái xưởng đó là của em và Trần Trạch à?"
+"Anh tưởng cái xưởng ấy là của em và Trần Trạch rồi sao?"
 
-Vừa đi vừa nghĩ, Từ Mạn Mạn nhìn thấy Trăn Hội Tuyển đèn điện sáng rực đằng xa, rồi bước thẳng vào đó.
+Đi mãi, đi mãi, Từ Mạn Mạn chợt trông thấy siêu thị Trăn Hối Tuyển sáng rực ánh đèn ở đằng xa, cô liền cất bước đi về phía đó.
 
-Lên thang máy lên thẳng văn phòng tầng ba.
+Cô đi thang máy lên thẳng văn phòng ở tầng ba.
 
-"Từ... Từ tổng..."
+"Tổng, Tổng giám đốc Từ..."
 
-Lưu Hiểu Tĩnh thoáng lúng túng, không biết nói gì: "Chị... văn phòng của chị... Triệu tổng nói cần bàn giao cho Liễu tổng."
+Trợ lý Lưu Hiểu Tĩnh nhất thời luống cuống chẳng biết nói sao: "Chị, văn phòng của chị... Chủ tịch Triệu bảo chị làm thủ tục bàn giao với chị Liễu."
 
-"Em biết rồi."
+"Chị biết rồi."
 
-Từ Mạn Mạn nói "biết rồi," nhưng trái tim vẫn bị sự "dứt khoát và tàn nhẫn" của Triệu Kim An nhói lên một cái.
+Miệng Từ Mạn Mạn đáp "Chị biết rồi", nhưng trái tim vẫn bị sự "dứt khoát và tuyệt tình" của Triệu Kim An đâm cho nhói buốt.
 
-Đau lắm, đau lắm...
+Đau lắm, đau thắt lại...
 
-"Từ tổng, đồ đạc cá nhân của chị em đã cất hết vào phòng kho rồi."
+"Tổng giám đốc Từ, đồ đạc cá nhân của chị em đều thu dọn gọn gàng để hết trong phòng chứa đồ rồi."
 
-"Nhưng văn phòng... Liễu tổng chưa vào làm."
+"Nhưng mà văn phòng thì... chị Liễu vẫn chưa chuyển sang đây làm việc."
 
-Lưu Hiểu Tĩnh thật sự khó xử — Triệu Kim An là ông chủ, ông chủ dặn không thể không làm, nên chỉ đành "làm một nửa" cho qua. Cô và Liễu Ôn Ninh còn nhận được một mệnh lệnh.
+Lưu Hiểu Tĩnh thật sự rất khó xử; Triệu Kim An là ông chủ, việc ông chủ dặn không thể không làm, vậy nên cô đành chọn cách "làm một nửa". Hơn nữa cô và Liễu Ôn Ninh còn nhận được một mệnh lệnh:
 
-Đừng hỏi!
+Không được hỏi!
 
-Nên Lưu Hiểu Tĩnh không gọi điện hỏi Từ Mạn Mạn.
+Vì thế Lưu Hiểu Tĩnh đã không gọi điện hỏi thăm Từ Mạn Mạn.
 
-Liễu Ôn Ninh cứ chờ Từ Mạn Mạn tự đến bàn giao.
+Liễu Ôn Ninh cũng vẫn luôn đợi Từ Mạn Mạn tự quay về làm bàn giao công việc.
 
-Thực ra bàn giao hay không, Liễu Ôn Ninh đều có thể tiếp quản.
+Thật ra có bàn giao hay không thì Liễu Ôn Ninh cũng thừa sức tiếp quản được.
 
-Kỳ lạ là, Từ Mạn Mạn cũng mãi không gọi điện về.
+Điều kỳ lạ là Từ Mạn Mạn cũng tuyệt nhiên không gọi điện thoại về công ty lấy một cuộc.
 
-Lưu Hiểu Tĩnh và Liễu Ôn Ninh còn bàn với nhau: Triệu tổng và Từ tổng hai người quả thật cùng một tính cách.
+Lưu Hiểu Tĩnh và Liễu Ôn Ninh còn từng nói nhỏ với nhau: Chủ tịch Triệu và Tổng giám đốc Từ quả nhiên tính cách giống hệt nhau.
 
-Văn phòng gọn gàng sạch sẽ — cái bình giữ nhiệt vẫn thường để uống nước đã mất, chai trà sữa Ngõ Quang quen để trên bàn cũng mất, mọi thứ đang chờ phó tổng giám đốc mới đến nhậm chức.
+Văn phòng sạch sẽ ngăn nắp; chiếc bình giữ nhiệt uống nước trên bàn làm việc không còn nữa, chai trà sữa Ngung Quang cô hay để sẵn cũng biến mất, tất cả đều đang chờ đợi vị Phó tổng giám đốc mới đến tiếp quản.
 
-Từ Mạn Mạn đứng ở cửa, ngẩn người nhìn.
+Từ Mạn Mạn đứng ngay ngưỡng cửa, ngẩn người nhìn vào trong.
 
-Lưu Hiểu Tĩnh nhường lối.
+Lưu Hiểu Tĩnh lùi sang một bên nhường lối.
 
-Từ Mạn Mạn bước vào, đẩy cửa nhà vệ sinh ra — đồ dùng vệ sinh cá nhân của cô cũng không còn.
+Từ Mạn Mạn bước vào, đẩy cửa phòng vệ sinh, bộ đồ dùng cá nhân của cô cũng chẳng còn ở đó nữa.
 
-Chợt nhớ ra điều gì, cô bước nhanh về phía bàn làm việc, kéo ngăn kéo ra.
+Chợt nhớ ra điều gì, cô vội vã sải bước tới bàn làm việc, kéo ngăn tủ ra.
 
-"Chị Tĩnh, cái hạt dẻ trong ngăn kéo đâu rồi?"
+"Chị Tĩnh, hạt dẻ em để trong ngăn kéo đâu rồi?"
 
-"Hả? Hạt dẻ nào?"
+"Hả? Hạt dẻ nào cơ?"
 
-Lưu Hiểu Tĩnh ngượng ngùng — ai lại để ý một cái hạt dẻ? Chắc bỏ đi rồi.
+Lưu Hiểu Tĩnh ngượng ngùng nhìn cô, ai mà để ý tới một hạt dẻ làm gì chứ? Chắc chắn là vứt đi rồi.
 
-Từ Mạn Mạn đứng bên bàn làm việc ngây người, tay vuốt lên bàn phím máy tính, lưng thẳng đứng — Trăn Hội Tuyển được tạo ra từ hai bàn tay trắng dưới tay cô, đến cả bản kế hoạch cũng do một tay cô viết.
+Từ Mạn Mạn đứng ngây ra bên bàn làm việc, tay khẽ vuốt lên bàn phím máy tính, dáng đứng thẳng tắp. Trăn Hối Tuyển là do một tay cô gây dựng từ con số không, ngay cả bản kế hoạch ban đầu cũng là do chính cô viết.
 
-"Chị Tĩnh, Trăn Hội Tuyển làm ăn có tốt không?"
+"Chị Tĩnh, Trăn Hối Tuyển làm ăn tốt chứ?"
 
-"Tốt."
+"Tốt lắm ạ."
 
-"Địa chỉ cửa hàng mới chọn xong rồi à?"
+"Địa điểm mở chi nhánh mới chọn xong cả rồi à?"
 
-"Dạ, một cái ở khu Vạn Gia Lệ, một cái gần quảng trường Phù Dung."
+"Vâng, một lô ở Vạn Gia Lệ, một lô ở gần Quảng trường Phù Dung."
 
-Lưu Hiểu Tĩnh nhận ra Từ Mạn Mạn đã chuyển lại quần jeans, trên người mất đi thứ gì đó — không phải là sự tự tin, mà giống như toàn bộ tinh thần của người ấy đã tắt lịm.
+Lưu Hiểu Tĩnh nhận ra Từ Mạn Mạn lại mặc lại quần jeans, trên người cô thiếu đi một thứ khí chất gì đó; không hẳn là sự tự tin, mà cảm giác như cả người cô đã mất hết tinh thần sức sống.
 
-Lâu sau, Lưu Hiểu Tĩnh nhìn đồng hồ, nhỏ giọng nhắc: "Từ tổng, chúng em sắp đóng cửa rồi."
+Lát sau, Lưu Hiểu Tĩnh xem đồng hồ rồi khẽ nhắc: "Tổng giám đốc Từ, bên em sắp đóng cửa rồi ạ."
 
 "Đóng cửa?"
 
-Từ Mạn Mạn giật mình — ý này là đuổi người? Mình không còn là nhân viên Trăn Hội Tuyển nữa.
+Từ Mạn Mạn sững sờ. Đây là đuổi khách sao? Phải rồi, cô đâu còn là nhân viên của Trăn Hối Tuyển nữa.
 
-Lưu Hiểu Tĩnh cúi đầu — đây là trách nhiệm của cô.
+Lưu Hiểu Tĩnh cúi đầu, đây là trách nhiệm công việc của cô.
 
-"Chị Tĩnh, chị ra ngoài trước được không? Em gọi điện."
+"Chị Tĩnh, chị ra ngoài trước một lát được không? Em gọi cuộc điện thoại."
 
-"Được."
+"Vâng."
 
-Lưu Hiểu Tĩnh lui ra, khép cửa lại đứng gác bên ngoài.
+Lưu Hiểu Tĩnh lui ra ngoài, khép cửa lại rồi đứng chờ ngay ngoài hành lang.
 
-Từ Mạn Mạn rút điện thoại, có 26 cuộc gọi nhỡ, cô bấm gọi cho Triệu Kim An.
+Từ Mạn Mạn lấy điện thoại ra, trên màn hình hiện hai mươi sáu cuộc gọi nhỡ. Cô bấm gọi vào số của Triệu Kim An.
 
-Hồi lâu sau điện thoại mới được nghe máy.
+Đầu dây bên kia đổ chuông rất lâu mới có người bắt máy.
 
-Lần đầu tiên — lần đầu tiên Triệu Kim An chờ lâu đến vậy mới bắt máy.
+Lần đầu tiên, đây là lần đầu tiên Triệu Kim An để cô đợi lâu đến thế mới nghe máy.
 
-Không ngờ người nghe lại là thư ký Du Phỉ: "Từ Mạn Mạn, có chuyện gì không?"
+Chẳng ngờ người bắt máy lại là thư ký Du Phi: "Từ Mạn Mạn, có chuyện gì thế?"
 
-"Du Phỉ, Triệu Kim An có đó không?"
+"Du Phi, Triệu Kim An có ở đó không?"
 
-"Chờ chút."
+"Cậu đợi chút."
 
-Đầu dây bên kia, Du Phỉ bịt miệng ống nghe lại, nhìn Triệu Kim An đang ăn mỳ cay.
+Đầu dây bên kia, Du Phi lấy tay che ống nghe, nhìn về phía Triệu Kim An đang ngồi ăn lẩu xiên cay.
 
-Nhận ra ánh mắt của Du Phỉ, Đơn Vĩ, Quan Văn Bách cùng đặt bát đứng dậy.
+Nhận thấy ánh mắt của Du Phi, Đan Vĩ và Quan Văn Bách rất biết điều đặt đũa bát xuống đứng dậy.
 
-Du Phỉ còn ra hiệu mắt cho Triệu Chí Dũng.
+Du Phi còn nháy mắt ra hiệu cho Triệu Chí Dũng.
 
-Triệu Chí Dũng không chịu đứng dậy, Trịnh Như một tay giật tai anh ta, một tay dắt Triệu Niệm Khả đi ra.
+Triệu Chí Dũng vẫn lì ra không chịu đứng lên, thế là Trịnh Như một tay túm tai anh ta, tay kia dắt Triệu Niệm Khả kéo đi chỗ khác.
 
-"Ối, buông ra."
+"Ái chà, buông ra nào."
 
-Triệu Chí Dũng xoa tai, lẩm bẩm nhỏ: "Tao với Kim An có gì không thể nghe chứ?"
+Triệu Chí Dũng vừa xoa tai vừa lầm bầm: "Tao với Kim An thì có gì mà không nghe được chứ?"
 
-Trịnh Như tát anh một cái: "Du Phỉ là thư ký, thư ký nói không được nghe thì không được nghe."
+Trịnh Như vỗ cho anh ta một cái: "Du Phi là thư ký, anh có hiểu không đấy? Cô ấy bảo không được nghe thì tức là không được nghe."
 
-"Ừ, với lại Du Phỉ vừa nãy nhét tiền vào tay mày lén lén là đưa tiền cho mày đó?"
+"À phải rồi, vừa nãy Du Phi lén lút nhét tiền cho anh đấy à?"
 
-"Ừ, tao không chịu lấy, nó cứ nhét năm trăm vào."
+"Ừ, anh không chịu nhận mà cô ấy cứ nhét bằng được năm trăm tệ."
 
-Trịnh Như nhìn về phía Triệu Kim An ngồi yên lặng bên quán mỳ cay, xung quanh là mấy vệ sĩ, ven đường đỗ một chiếc Rolls-Royce và xe thương mại Mercedes.
+Trịnh Như ngoái nhìn Triệu Kim An đang ngồi lặng lẽ bên quán lẩu xiên cay. Người đàn ông này trông rất điềm đạm, xung quanh có mấy vệ sĩ đứng bảo vệ, bên vệ đường còn đỗ một chiếc Rolls-Royce và một chiếc xe thương mại Mercedes-Benz.
 
-Triệu Kim An một tay cầm que tre chọc viên bò viên, một tay bắt máy.
+Triệu Kim An một tay cầm que tre xiên một viên bò viên, tay kia nhận lấy điện thoại.
 
-"Alô."
+"Alo."
 
 "Triệu Kim An."
 
-Từ Mạn Mạn gọi một tiếng.
+Từ Mạn Mạn khẽ gọi một tiếng.
 
-Triệu Kim An không đáp, chỉ tiếp tục chọc bò viên bằng que.
+Triệu Kim An không đáp lời, chỉ cắm cúi lấy que tre chọc viên bò viên.
 
-Du Phỉ không đi xa, lặng lẽ quan sát, cô biết hành động này của Triệu Kim An nói lên rằng trong lòng anh không hề bình yên.
+Du Phi không đi đâu xa, lặng lẽ đứng nhìn; cô biết hành động này của Triệu Kim An chứng tỏ trong lòng anh chẳng hề bình tĩnh như vẻ ngoài.
 
-Lúc sau đầu dây bên kia Từ Mạn Mạn lên tiếng: "Kim An, anh hiểu lầm em rồi, em không có nhận lời làm bạn gái Trần Trạch."
+Một lúc sau, đầu dây bên kia Từ Mạn Mạn mới cất tiếng: "Kim An, anh hiểu lầm em rồi, em không hề đồng ý làm bạn gái Trần Trạch."
 
-"Quan trọng không?"
+"Chuyện đó quan trọng sao?"
 
-Triệu Kim An bình thản nói.
+Triệu Kim An bình thản hỏi lại.
 
-"Tại sao lại không quan trọng?"
+"Sao lại không quan trọng?"
 
-"Anh quên những gì anh nói với em hồi em đến công ty rồi à — anh nói nếu em chọn quay về, anh không ngăn cản, nhưng đã về rồi thì đừng quay lại nữa."
+"Em quên những gì anh nói với em trước khi em vào công ty anh rồi à? Anh đã bảo nếu em chọn quay về thì anh sẽ không cản, nhưng một khi đã quay về rồi thì đừng bao giờ quay lại nữa."
 
-"Kim An, cái văn phòng anh bảo Lưu Hiểu Tĩnh... là hôm đó ngay à?"
+"Kim An, văn phòng anh bảo chị Lưu Hiểu Tĩnh dọn... là ngay hôm đó luôn sao?"
 
-"Em không nghe ra những gì anh nói à?"
+"Em không nghe rõ lời anh nói à?"
 
-Giọng Triệu Kim An tăng lên một bậc: "Đã về rồi thì đừng quay lại."
+Triệu Kim An cao giọng hơn một chút: "Quay về rồi thì đừng bao giờ quay lại nữa."
 
-"Là hôm đó ngay à?"
+"Có phải ngay hôm đó không?"
 
-Từ Mạn Mạn vẫn cứ cố: "Là trên xe về thì anh đã gọi điện rồi."
+Từ Mạn Mạn cũng cố chấp hỏi tới cùng: "Có phải ngay hôm đó ngồi trên xe là anh đã gọi điện bảo dọn rồi không?"
 
-"Quan trọng không?"
+"Chuyện đó quan trọng sao?"
 
-"Quan trọng, với em rất quan trọng."
+"Quan trọng, đối với em rất quan trọng."
 
-Từ Mạn Mạn ôm chặt điện thoại: "Kim An, anh không cho em một phút để giải thích, một lời giải trình anh cũng không muốn nghe."
+Từ Mạn Mạn ôm chặt điện thoại: "Kim An, anh ngay cả một phút thời gian cũng không chịu cho em, một lời giải thích cũng chẳng buồn nghe."
 
-"Anh quên em tìm đến anh, em nói em hết tiền cần việc làm, anh quên khóe miệng em... là cha em đánh phải không?"
+"Anh quên mất hồi em tới tìm anh, em nói mình hết tiền rồi cần một công việc; anh quên mất khóe miệng em... là do bố em đánh sao?"
 
-Triệu Kim An lại cầm que chọc thêm viên cá viên: "Anh cho em việc làm, cho em chức vụ, kiếm cớ tăng lương liên tục..."
+Triệu Kim An lại bắt đầu lấy que tre chọc chọc viên chả cá: "Anh cho em công việc, cho em chức vụ, hết lần này đến lần khác tìm cớ tăng lương cho em..."
 
-"Kim An, em không nhận lời làm bạn gái Trần Trạch."
+"Kim An, em không hề đồng ý làm bạn gái Trần Trạch."
 
-"Quan trọng không!"
+"Chuyện đó quan trọng sao!"
 
-Giọng Triệu Kim An lại cao hơn một bậc.
+Giọng Triệu Kim An lại cao lên thêm một bậc.
 
-"Tại sao lại không quan trọng?"
+"Tại sao lại không quan trọng chứ?"
 
-Đầu dây bên kia giọng Từ Mạn Mạn cũng to lên.
+Đầu dây bên kia, giọng Từ Mạn Mạn cũng lớn hẳn lên.
 
-"Đêm giao thừa."
+"Đêm Giao thừa."
 
-Triệu Kim An buông một câu, rồi người lại lặng yên.
+Triệu Kim An buông nhẹ một câu, rồi cả người anh lại trở nên tĩnh lặng.
 
-Từ Mạn Mạn im lặng một lúc: "Kim An, anh sai người theo dõi em à?"
+Từ Mạn Mạn im bặt một hồi lâu: "Kim An, anh cho người theo dõi em?"
 
-"Em nghĩ anh như vậy sao?"
+"Em nghĩ anh là người như thế à?"
 
-Triệu Kim An cười: "Anh lo ngại cho sự an toàn của em, sợ Trần Trạch đi cực đoan, chỉ là tình cờ trông thấy — Trần Trạch tìm thấy rồi em mới tắt đèn."
+Triệu Kim An bật cười: "Anh chỉ lo cho sự an toàn của em, sợ Trần Trạch nghĩ quẩn làm liều, chẳng qua tình cờ nhìn thấy thôi. Đợi Trần Trạch tìm tới rồi em mới tắt đèn."
 
-Từ Mạn Mạn im lặng.
+Từ Mạn Mạn lặng người đi.

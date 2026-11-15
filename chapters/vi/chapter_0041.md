@@ -1,7 +1,5 @@
 # Chương 41: Phòng 303
 
-> **Tiêu đề gốc**: 第41章 303.
-
 Quay trở lại trường, Triệu Kim An ghé tiệm tạp hóa mua một chiếc chiếu trúc rồi sang phòng quản lý ký túc xá nhận bộ chăn đệm màu xanh quân đội. Một tay xách bọc chăn nệm, tay kia cắp chiếc chiếu trúc, anh rảo bước lên tầng ba, lúc này đồng hồ đã chỉ chín giờ rưỡi tối.
 
 Tầm giờ này trong ký túc xá hầu như chẳng còn phụ huynh nào nán lại dọn dẹp giường chiếu cho con cái nữa. Hoặc là họ đã bắt chuyến xe trong ngày trở về quê, hoặc đã tìm một nhà nghỉ, khách sạn gần trường thuê phòng ngủ lại qua đêm.

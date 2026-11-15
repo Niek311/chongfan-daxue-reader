@@ -1,7 +1,5 @@
 # Chương 298: Đã lâu đến thế rồi
 
-> **Tiêu đề gốc**: 第298章 那么长时间了。
-
 Trần Trạch không ngủ lại phòng ký túc xá mà quay về căn phòng trọ thuê ngoài.
 
 Bật đèn.
@@ -146,7 +144,7 @@ Du Phi mới vào công ty chưa lâu, hoàn toàn không hay biết về mối 
 
 "..."
 
-Đơn Vĩ ngồi gần đó nín thinh không dám lên tiếng. Ông chủ sẽ không định chấm dứt hợp đồng với Tưởng xưởng trưởng đấy chứ? Nếu như mất đi hai chữ "Trăn Nhiên" bảo chứng, e rằng xưởng đồ hộp kia sẽ lại rơi vào cảnh đến tiền lương công nhân cũng chẳng thể phát nổi.
+Đan Vĩ ngồi gần đó nín thinh không dám lên tiếng. Ông chủ sẽ không định chấm dứt hợp đồng với Tưởng xưởng trưởng đấy chứ? Nếu như mất đi hai chữ "Trăn Nhiên" bảo chứng, e rằng xưởng đồ hộp kia sẽ lại rơi vào cảnh đến tiền lương công nhân cũng chẳng thể phát nổi.
 
 ...
 
@@ -180,7 +178,7 @@ Ngoài bậc cửa.
 
 Triệu Kim An một tay kéo chiếc vali du lịch nhỏ, tay kia xách túi đựng máy tính xách tay. Vóc dáng cao ráo 1m81 nổi bật trong bộ âu phục chỉn chu kết hợp cùng sơ mi trắng phẳng phiu, mái tóc cắt ngắn gọn gàng, vẫn mang dáng vẻ sạch sẽ, điềm đạm và trầm tĩnh như mọi khi.
 
-Đơn Vĩ và Du Phi biết Đoạn Thu Bình đang ở trên nhà nên không đi theo lên tầng.
+Đan Vĩ và Du Phi biết Đoạn Thu Bình đang ở trên nhà nên không đi theo lên tầng.
 
 "Triệu lão bản, để tôi xách cho."
 

@@ -1,7 +1,5 @@
 # Chương 419: Tử Ngôn, cậu có khỏe không?
 
-> **Tiêu đề gốc**: 第419章 子言，你还好吗？
-
 Trên suốt chặng đường quay về, ký ức tiền kiếp bỗng ùa về rõ mồn một trong tâm trí Triệu Kim An. Kiếp trước, khu vực phân khu phía Nam mỏ quặng Simandou vốn do một tổ hợp tài phiệt mang tên Doanh Liên Minh (SMB-Winning Consortium) đứng ra khai thác, mãi về sau này Tập đoàn Nhôm Chinalco và Tập đoàn Thép Bảo Vũ mới thành lập liên danh để cùng nhảy vào tham gia.
 
 Tổ hợp Doanh Liên Minh ấy có trụ sở đăng ký tại Singapore, nhưng ông chủ đứng sau lại là một người gốc Hoa.

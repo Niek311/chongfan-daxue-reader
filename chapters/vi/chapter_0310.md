@@ -1,7 +1,5 @@
 # Chương 310: Để tôi đổi lịch dạy.
 
-> **Tiêu đề gốc**: 第310章 我调下课。
-
 "Dự báo cơn bão khủng hoảng tài chính toàn cầu sẽ còn tiếp diễn kéo dài, sang năm 2009 thị trường sẽ chạm đáy và phải đến năm 2010 mới bắt đầu có dấu hiệu phục hồi chậm chạp."
 
 Nhan Hi mở máy tính xách tay, bấm vào bảng biểu số liệu do chính cô dày công thu thập và mô hình hóa: "Triệu tổng, anh xem này, kể từ sau sự kiện ngân hàng đầu tư Lehman Brothers tuyên bố phá sản vào năm 2008, sản lượng hàng hóa thông qua các cảng biển lớn trên toàn cầu đã lao dốc gần như theo một đường thẳng đứng."
@@ -186,7 +184,7 @@ Huống chi dạo gần đây ngày nào Dư Tĩnh cũng ghé qua, chẳng có g
 
 Có Giáo sư Dư ngồi cùng mâm cơm nên Vương Duy Đào ăn không được no bụng cho lắm, gã vốn dĩ sợ vị giảng viên này một vành.
 
-Nhan Hi đi chiếc xe Mercedes-Benz sang trọng, cô đã ăn cơm tối từ trước nên không ngồi vào mâm nữa. Đoàn Thu Bình đon đả mời vài câu lấy lệ, Triệu Kim An cũng không ép.
+Nhan Hi đi chiếc xe Mercedes-Benz sang trọng, cô đã ăn cơm tối từ trước nên không ngồi vào mâm nữa. Đoạn Thu Bình đon đả mời vài câu lấy lệ, Triệu Kim An cũng không ép.
 
 Cơm nước xong xuôi, Trịnh Như nhanh tay giành phần thu dọn bát đĩa trên bàn rồi xắn tay áo lủi ngay vào bếp rửa chén.
 

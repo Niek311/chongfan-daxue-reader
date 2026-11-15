@@ -1,7 +1,5 @@
 # Chương 32: Lòng chung thủy
 
-> **Tiêu đề gốc**: 第32章 忠贞。
-
 "Triệu Kim An, cậu đừng đi học đại học nữa, về công ty tôi làm đi. Tôi trả lương cho cậu, lương cứng bảo đảm mỗi tháng một vạn tệ."
 
 Lạc Cẩn Chi bất chợt đưa ra lời mời. Chính cô cũng không hiểu tại sao mình lại có cảm giác rằng Triệu Kim An có thể làm nên chuyện.

@@ -1,7 +1,5 @@
 # Chương 460: Hận rất công bằng
 
-> **Tiêu đề gốc**: 第460章 恨的很公平。
-
 Triệu Bác Lan và Triệu Trí Dũng đến thăm, Trịnh Như dắt theo cả bé Triệu Niệm Khả.
 
 Chuyến đi này là việc bắt buộc phải đến.
@@ -58,11 +56,11 @@ Từ Mạn Mạn đến việc đun nước sôi pha bình sữa bột cũng ph�
 
 Nghe tiếng bé Triệu Tri Nặc oa oa khóc đòi ăn, cái dáng vẻ của Từ Mạn Mạn vẫn cứ ung dung, tà tà không chút vội vã, khiến thím Vương Kim Như và Doãn Hiểu Lan đứng cạnh nhìn mà nóng cả ruột gan, hận không thể giật phắt lấy bình sữa mà làm cho xong quách đi.
 
-Không một ai hay biết chuyện Diêu Tân muốn xin thôi việc.
+Không một ai hay biết chuyện Diêu Sân muốn xin thôi việc.
 
-Phòng nhân sự của công ty tạm thời vẫn chưa nhận được lá đơn từ chức của Diêu Tân.
+Phòng nhân sự của công ty tạm thời vẫn chưa nhận được lá đơn từ chức của Diêu Sân.
 
-Thẩm Tử Ngôn trước sau vẫn không hề gửi lại tin nhắn nào hồi âm cho Diêu Tân.
+Thẩm Tử Ngôn trước sau vẫn không hề gửi lại tin nhắn nào hồi âm cho Diêu Sân.
 
 Chuỗi cửa hàng "Tam Chỉ Quế Hoa Thử" tại Tô Châu đã thần tốc khai trương năm cửa hàng bán trực tiếp. Có sẵn nền tảng kinh tế vững chắc do Thẩm Vĩnh Đàm và Lục Mai Tiêu gây dựng bao năm qua, trong vòng nửa năm trời mở được năm cửa hàng kể ra cũng chưa phải là quá nhanh.
 
@@ -86,7 +84,7 @@ Một điều không thể phủ nhận là, con đường nhượng quyền nà
 
 Dĩ nhiên, nếu thị trường không sinh ra lợi nhuận thì tốc độ sập tiệm, đóng cửa cũng nhanh chẳng kém gì bão táp.
 
-Diêu Tân gửi tin nhắn cho Thẩm Tử Ngôn, đại khái là muốn chạy sang Tô Châu để đi theo Thẩm Tử Ngôn lập nghiệp.
+Diêu Sân gửi tin nhắn cho Thẩm Tử Ngôn, đại khái là muốn chạy sang Tô Châu để đi theo Thẩm Tử Ngôn lập nghiệp.
 
 Trên màn hình vô tuyến có thể bắt gặp đoạn quảng cáo của "Tam Chỉ Quế Hoa Thử" phát sóng liên tục. Thẩm Tử Ngôn với chiều cao 1m70, sải bước trên đôi giày cao gót tám phân đầy kiêu hãnh, chuỗi dòng tiền lưu động của công ty không hề gợn một chút khó khăn nào.
 
@@ -152,6 +150,6 @@ Chuyện này vốn dĩ là quy tắc "đến trước đến sau". Nếu như L
 
 Lâm Thanh Tuyết vừa tậu một chiếc xe Mercedes-Benz C-Class sang trọng, nhắn tin hỏi Phương Khiết bao giờ thì về thăm Quận Sa?
 
-Lưu Sấm Phong dạo này lại tỏ ra vô cùng sốt sắng, quan tâm tới gian hàng thương mại điện tử của Dương Thục Mỹ. Trong đầu gã không sao xóa nhòa nổi hình ảnh Dương Thục Mỹ diện bộ đồ bơi quyến rũ đêm hôm ấy, thậm chí gã còn đích thân chạy qua công ty hướng dẫn, chỉ bảo cho bộ phận thương mại điện tử của Dương Thục Mỹ tới hai lần.
+Lưu Sấm Phong dạo này lại tỏ ra vô cùng sốt sắng, quan tâm tới gian hàng thương mại điện tử của Dương Thù Mỹ. Trong đầu gã không sao xóa nhòa nổi hình ảnh Dương Thù Mỹ diện bộ đồ bơi quyến rũ đêm hôm ấy, thậm chí gã còn đích thân chạy qua công ty hướng dẫn, chỉ bảo cho bộ phận thương mại điện tử của Dương Thù Mỹ tới hai lần.
 
 Trong khi đó, toàn bộ tâm sức của Trần Trạch và Vương Phương Dụ đều dồn hết vào công ty Địa ốc Trạch Vũ. Vương Phương Dụ quay sang hỏi Trần Trạch bao giờ thì trở về Quận Sa...

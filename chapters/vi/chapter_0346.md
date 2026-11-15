@@ -1,7 +1,5 @@
 # Chương 346: Đêm trừ tịch có mưa
 
-> **Tiêu đề gốc**: 第346章 除夕夜有雨。
-
 "Cô giáo Trình!"
 
 Bác bảo vệ trước cổng trường nhiệt tình cất tiếng chào hỏi: "Chồng cô lái xe đến đón cô về ăn Tết đấy à?"
@@ -152,7 +150,7 @@ Tại thành phố Quận Sa.
 
 Chiều ba mươi Tết, siêu thị Trăn Hối Tuyển chính thức đóng cửa then cài.
 
-Lương Huệ Trân đã lặn lội tìm đến tận nơi để tìm Từ Mạn Mạn, có lẽ là muốn gọi con gái về nhà cùng ăn bữa cơm tất niên sum họp. Thế nhưng đây là lần đầu tiên trong đời, Từ Mạn Mạn kiên quyết không bước chân về căn nhà ấy. Đến sáu giờ tối, cô một mình lái xe đến căn hộ chung cư của Triệu Kim An.
+Lương Tuệ Trân đã lặn lội tìm đến tận nơi để tìm Từ Mạn Mạn, có lẽ là muốn gọi con gái về nhà cùng ăn bữa cơm tất niên sum họp. Thế nhưng đây là lần đầu tiên trong đời, Từ Mạn Mạn kiên quyết không bước chân về căn nhà ấy. Đến sáu giờ tối, cô một mình lái xe đến căn hộ chung cư của Triệu Kim An.
 
 Cô gái nhỏ ngồi ngay ngắn trên chiếc ghế sofa da mềm mại, với tay bật tivi lên rồi tiện tay chỉnh điện thoại di động về chế độ im lặng.
 
@@ -160,13 +158,13 @@ Trên bàn trà bày biện la liệt đủ các loại bánh mứt, hoa quả t
 
 Chỉ duy nhất một điều: nơi này chỉ có một mình cô.
 
-Người tuy không về nhà, nhưng ban chiều cô đã chủ động chuyển thẳng vào tài khoản của Lương Huệ Trân số tiền chín nghìn tệ, tính tròn là ba tháng sinh hoạt phí, mỗi tháng ba nghìn.
+Người tuy không về nhà, nhưng ban chiều cô đã chủ động chuyển thẳng vào tài khoản của Lương Tuệ Trân số tiền chín nghìn tệ, tính tròn là ba tháng sinh hoạt phí, mỗi tháng ba nghìn.
 
 Tuyệt nhiên không một ai hay biết đêm giao thừa năm nay, Từ Mạn Mạn lại lẻ loi một mình trong căn nhà của Triệu Kim An.
 
 Cả Diêu Sân lẫn Thẩm Tử Ngôn cho đến tận lúc này vẫn hoàn toàn không hề hay biết mối quan hệ rạn nứt sâu sắc giữa Từ Mạn Mạn và gia đình.
 
-Thậm chí ngay cả ngày hôm nay, Từ Tắc Đống cũng chẳng thèm lộ diện lấy một lần, người đến tìm cô ở siêu thị chỉ có một mình Lương Huệ Trân.
+Thậm chí ngay cả ngày hôm nay, Từ Tắc Đống cũng chẳng thèm lộ diện lấy một lần, người đến tìm cô ở siêu thị chỉ có một mình Lương Tuệ Trân.
 
 Tâm cảnh của Từ Mạn Mạn phẳng lặng như mặt hồ không một gợn sóng. Dù xung quanh trống trải không bóng người, cô vẫn giữ nguyên tư thế ngồi đoan trang, tao nhã, chốc chốc lại nhón lấy vài hạt hướng dương vừa cắn vừa chăm chú dõi mắt nhìn lên màn hình tivi.
 
@@ -192,7 +190,7 @@ Dương Thù Mỹ hiện đang ở Dương Thành, mãi đến chiều ba mươi
 
 Thậm chí bà ta còn ôm một tia hy vọng mỏng manh gọi điện hỏi thăm bên phía Từ Tắc Đống.
 
-Cuối cùng không còn cách nào khác, Dương Thù Mỹ đành phải kéo lê thân xác mệt mỏi rã rời lên xe, đạp ga thâu đêm lao về Quận Sa tìm con, đồng thời khẩn thiết nhờ cậy vợ chồng Từ Tắc Đống và Lương Huệ Trân ở đầu này chia nhau đi lùng sục khắp nơi trước.
+Cuối cùng không còn cách nào khác, Dương Thù Mỹ đành phải kéo lê thân xác mệt mỏi rã rời lên xe, đạp ga thâu đêm lao về Quận Sa tìm con, đồng thời khẩn thiết nhờ cậy vợ chồng Từ Tắc Đống và Lương Tuệ Trân ở đầu này chia nhau đi lùng sục khắp nơi trước.
 
 Trong nhóm chat QQ chung của hai phòng 303 và 406.
 

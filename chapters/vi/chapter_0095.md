@@ -1,7 +1,5 @@
 # Chương 95: Sự lịch sự của cậu thì liên quan quái gì đến tôi?
 
-> **Tiêu đề gốc**: 第95章 你的礼貌关我什么事？
-
 Các trường đại học trong khu đô thị Đại học lục tục bước vào mùa khai giảng học kỳ mới.
 
 Sau đợt nghỉ Tết trở lại ký túc xá, Lưu Sấm Phong và Cốc Siêu Thừa ngạc nhiên phát hiện Triệu Kim An đã có mặt ở trường từ lâu. Giường chiếu có dấu vết người nằm ngủ, trong gạt tàn thuốc lá trên bàn còn vương lại mấy đầu mẩu thuốc lá hút dở.
@@ -54,9 +52,9 @@ Cốc Siêu Thừa đang lúi húi thu dọn hành lý, bỗng sực nhớ ra đ
 
 Lưu Sấm Phong bĩu môi: "Làm gì có. Người ta là Trạch ca cơ mà, đẳng cấp mối quan hệ của người ta ở tầm khác, thuộc về tầng lớp chỉ nhận tin nhắn chúc tụng của thiên hạ thôi. Nó cũng đâu có thèm nhắn lại bốn chữ 'Năm mới vui vẻ' cho mày, đúng không?"
 
-Cốc Siêu Thừa gật đầu: "Hứa Mạn Mạn thì có trả lời tin nhắn của tao, cả Thẩm Tử Ngôn nữa."
+Cốc Siêu Thừa gật đầu: "Từ Mạn Mạn thì có trả lời tin nhắn của tao, cả Thẩm Tử Ngôn nữa."
 
-Lưu Sấm Phong tiếp lời: "Tao cũng thế, lại còn có cả Diêu Tân nữa."
+Lưu Sấm Phong tiếp lời: "Tao cũng thế, lại còn có cả Diêu Sân nữa."
 
 Anh ta đưa mắt liếc nhìn ra ngoài cửa hành lang, rồi hạ thấp giọng thì thào: "Con bé Mộc Dao tính nết cũng y chang như Trần Trạch vậy."
 
@@ -78,13 +76,13 @@ Lưu Sấm Phong mặt xị ra đầy vẻ uất ức: "Thằng Kim An có phả
 
 Đến tối muộn, Trần Trạch và Triệu Kim An mới cùng nhau trở về phòng.
 
-Trần Trạch rút thuốc lá ra chia cho mọi người, ngón tay vừa xoay xoay chùm chìa khóa xe ô tô vừa cao giọng kể rằng hôm nay anh ta đã lái xe chạy ra ga tàu hỏa tới hai chuyến liền để đón Thẩm Tử Ngôn và Diêu Tân. Lại còn khoe thêm rằng đợt nghỉ đông trước Tết cũng chính anh ta đã đích thân lái xe chở hai cô nàng ra tận ga tàu.
+Trần Trạch rút thuốc lá ra chia cho mọi người, ngón tay vừa xoay xoay chùm chìa khóa xe ô tô vừa cao giọng kể rằng hôm nay anh ta đã lái xe chạy ra ga tàu hỏa tới hai chuyến liền để đón Thẩm Tử Ngôn và Diêu Sân. Lại còn khoe thêm rằng đợt nghỉ đông trước Tết cũng chính anh ta đã đích thân lái xe chở hai cô nàng ra tận ga tàu.
 
 Cả căn phòng nhất thời rơi vào im lặng, chẳng có ai lên tiếng hưởng ứng.
 
-Một lát sau, Cốc Siêu Thừa mới dè dặt hỏi: "Chuyện này Hứa Mạn Mạn có biết không?"
+Một lát sau, Cốc Siêu Thừa mới dè dặt hỏi: "Chuyện này Từ Mạn Mạn có biết không?"
 
-Trần Trạch thản nhiên đáp chính Hứa Mạn Mạn là người chủ động nhờ anh ta lái xe đi đón giùm bạn cùng phòng ký túc xá.
+Trần Trạch thản nhiên đáp chính Từ Mạn Mạn là người chủ động nhờ anh ta lái xe đi đón giùm bạn cùng phòng ký túc xá.
 
 "Thế còn Mộc Dao thì sao?"
 
@@ -92,7 +90,7 @@ Cốc Siêu Thừa lại sốt sắng gặng hỏi tiếp.
 
 Trần Trạch đưa mắt liếc nhanh về phía Triệu Kim An, nhàn nhạt đáp: "Mộc Dao có người dì ruột sống ở Quận Sa ra đón rồi."
 
-Triệu Kim An nghe vậy chẳng hề tỏ ra bất ngờ. Đây chính là cung cách đối nhân xử thế quen thuộc, khéo léo và chu toàn của Hứa Mạn Mạn.
+Triệu Kim An nghe vậy chẳng hề tỏ ra bất ngờ. Đây chính là cung cách đối nhân xử thế quen thuộc, khéo léo và chu toàn của Từ Mạn Mạn.
 
 Nếu để một mình Trần Trạch tự ý quyết định, có lẽ trong đầu anh ta sẽ chỉ nghĩ đến việc lái xe đưa đón mỗi mình Thẩm Tử Ngôn mà thôi.
 
@@ -214,7 +212,7 @@ Tâm trạng của anh ta lúc này chẳng khác nào hai mẹ con Trương Tu�
 
 Thực ra Triệu Kim An mới là người không tài nào hiểu nổi những suy nghĩ ấy.
 
-Đoàn Thu Bình cũng y hệt như vậy, cứ thích kéo lôi bé Tống Gia Nguyệt vào, rồi lại muốn kéo theo cả Tống Siêu Văn cùng Tống Uyển Hòa vào cuộc đời anh. Bản thân anh vốn chẳng hề muốn dính dáng dây mơ rễ má gì với những người mang họ Tống kia, đôi bên cứ an phận thủ thường, sống tốt cuộc đời của mỗi người chẳng phải là điều vẹn cả đôi đường hay sao?
+Đoạn Thu Bình cũng y hệt như vậy, cứ thích kéo lôi bé Tống Gia Nguyệt vào, rồi lại muốn kéo theo cả Tống Siêu Văn cùng Tống Uyển Hòa vào cuộc đời anh. Bản thân anh vốn chẳng hề muốn dính dáng dây mơ rễ má gì với những người mang họ Tống kia, đôi bên cứ an phận thủ thường, sống tốt cuộc đời của mỗi người chẳng phải là điều vẹn cả đôi đường hay sao?
 
 Vốn dĩ đôi bên chẳng có chút máu mủ ruột rà nào, từ trước tới nay cũng chưa từng cùng nhau chung sống ngày nào, thử hỏi có điều gì cần thiết để phải cố gượng ép quàng vào nhau làm gì?
 
@@ -232,7 +230,7 @@ Chỉ có điều Thẩm Tử Ngôn sống kín tiếng hơn, không bao giờ l
 
 Sau vài lần tiếp xúc, ba cô gái phòng 406 không hề mở miệng nói đỡ cho Khổng Triết Vũ, nhưng cũng chẳng hề lên tiếng bênh vực cho Triệu Kim An.
 
-Khổng Triết Vũ rất hay xách theo phần ăn sáng thịnh soạn đứng túc trực dưới chân tòa nhà ký túc xá nữ để đợi Mộc Dao, Hứa Mạn Mạn và Thẩm Tử Ngôn đi ngang qua nhìn thấy cũng chỉ lẳng lặng quan sát.
+Khổng Triết Vũ rất hay xách theo phần ăn sáng thịnh soạn đứng túc trực dưới chân tòa nhà ký túc xá nữ để đợi Mộc Dao, Từ Mạn Mạn và Thẩm Tử Ngôn đi ngang qua nhìn thấy cũng chỉ lẳng lặng quan sát.
 
 Bọn họ giữ vững lập trường trung lập tuyệt đối, không đưa ra bất kỳ lời bình phẩm hay can thiệp nào.
 

@@ -1,7 +1,5 @@
 # Chương 421: Lão Từ, tôi muốn làm bà ngoại rồi.
 
-> **Tiêu đề gốc**: 第421章 老徐，我想当外婆了。
-
 Trên đường.
 
 Gương mặt Từ Tắc Đống âm u đến mức dường như có thể nhỏ ra từng giọt nước lạnh tanh.
@@ -204,7 +202,7 @@ Cánh cửa mở ra.
 
 Trên bàn trà trong phòng khách, một đĩa dưa hấu đã được gọt vỏ, cắt thành từng miếng vuông vức bày biện đẹp mắt. Lưu Hiểu Tĩnh hẳn là vừa mới rời đi không lâu.
 
-Những người như Lưu Hiểu Tĩnh, Du Phỉ, Đường Hiểu Tình hay Lưu Mỹ Nga đều có chìa khóa và có thể mở cửa bước vào căn hộ này bất cứ lúc nào. Từ Mạn Mạn đã sớm quen với điều đó, cô chưa từng cảm thấy sự riêng tư của mình bị quấy rầy hay xâm phạm, cũng giống như việc cô đi cạnh Triệu Kim An mà không khoác tay anh, tất cả đều được xem là một lẽ hết sức tự nhiên.
+Những người như Lưu Hiểu Tĩnh, Du Phi, Đường Hiểu Tình hay Lưu Mỹ Nga đều có chìa khóa và có thể mở cửa bước vào căn hộ này bất cứ lúc nào. Từ Mạn Mạn đã sớm quen với điều đó, cô chưa từng cảm thấy sự riêng tư của mình bị quấy rầy hay xâm phạm, cũng giống như việc cô đi cạnh Triệu Kim An mà không khoác tay anh, tất cả đều được xem là một lẽ hết sức tự nhiên.
 
 Phương pháp giáo dục của Từ Tắc Đống quả thực vô cùng thành công, ngay từ nhỏ đã uốn nắn cô theo chuẩn mực của một "phu nhân hào môn" khuê các.
 

@@ -1,7 +1,5 @@
 # Chương 84: Hầu thái tử đọc sách
 
-> **Tiêu đề gốc**: 第84章 陪太子念书。
-
 Khoảng chừng mười giờ rưỡi đêm, có người lái xe đến đón Tô Miến rời đi.
 
 Triệu Kim An nhìn thấy Ngô Hiểu cùng người tài xế từng xuất hiện trong đêm kỷ niệm thành lập trường.
@@ -128,7 +126,7 @@ Nước khoáng đóng chai vốn không cần nhân viên đứng tiếp thị,
 
 "Giám đốc Triệu, lô nước khoáng Trăn Nhiên mà cậu dặn sang đầu xuân năm tới sẽ kết hợp đặt cùng tủ mát trưng bày, hiện tại tất cả đều đang được tập kết lưu giữ trong kho bãi."
 
-Đơn Vĩ lái xe đưa Triệu Bác Lan cùng Triệu Kim An đến kho hàng đặt tại bến xe phía Nam.
+Đan Vĩ lái xe đưa Triệu Bác Lan cùng Triệu Kim An đến kho hàng đặt tại bến xe phía Nam.
 
 Hồ Thần đứng bên cạnh niềm nở giới thiệu: "Đây mới chỉ là một phần hàng thôi ạ, Tổng giám đốc Lạc bảo xưởng dưới kia đã sản xuất xong, nhưng hàng vẫn đang nằm ở Tư Tinh chưa kịp vận chuyển lên đây."
 
@@ -138,7 +136,7 @@ Triệu Kim An cầm lấy một chai nước ép kiwi, mở nắp nhấp thử 
 
 Có cả dòng chai nhỏ tiện lợi lẫn dòng chai lớn dung tích gia đình.
 
-Đơn Vĩ cười bảo: "Ông chủ, cái mẫu chai này chắc chắn con bé Na Tề nhà tôi sẽ mê tít cho mà xem."
+Đan Vĩ cười bảo: "Ông chủ, cái mẫu chai này chắc chắn con bé Na Tề nhà tôi sẽ mê tít cho mà xem."
 
 Triệu Bác Lan cũng cầm một chai lên ngắm nghía, xuýt xoa khen vỏ chai được thiết kế đẹp mắt vô cùng.
 

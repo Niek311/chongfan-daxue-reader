@@ -1,7 +1,5 @@
 # Chương 483: Thế thì đúng rồi
 
-> **Tiêu đề gốc**: 第483章 那就对了。
-
 "Ngoan nào, ngủ đi em."
 
 Từ Mạn Mạn gật đầu mỉm cười dịu dàng, rồi khẽ tắt đèn, nhẹ bước ra khỏi phòng.

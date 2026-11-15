@@ -1,14 +1,12 @@
 # Chương 113: Chúng tôi rất ổn
 
-> **Tiêu đề gốc**: 第113章 我们很好。
-
 Đường Hiểu Tình vừa bước xuống xe là liền lễ phép chào hỏi từng người một, rồi lấy nước ngọt ra mời mọi người uống.
 
 Bà con họ hàng xúm vào giúp khuân vác đồ đạc lên xe. Lưu Mỹ Nga đến cả chậu rửa mặt, xô nước bằng nhựa cũng muốn gom hết mang lên Quận Sa, tính toán làm vậy thì lên trút trên kia đỡ phải tốn tiền sắm sửa lại từ đầu.
 
-Đơn Vĩ nhanh tay lẹ mắt, khéo léo sắp xếp gọn gàng từng món đồ vào sâu trong thùng xe van.
+Đan Vĩ nhanh tay lẹ mắt, khéo léo sắp xếp gọn gàng từng món đồ vào sâu trong thùng xe van.
 
-Sắp sửa rời khỏi quê nhà, Lưu Mỹ Nga làm cơm, thịt hai con gà béo đãi Đơn Vĩ cùng bà con họ hàng lối xóm.
+Sắp sửa rời khỏi quê nhà, Lưu Mỹ Nga làm cơm, thịt hai con gà béo đãi Đan Vĩ cùng bà con họ hàng lối xóm.
 
 Trong bữa cơm.
 
@@ -44,13 +42,13 @@ Lưu Mỹ Nga nhìn quanh một hồi, cay đắng nói: "Tình à, con quay v�
 
 Đường Hiểu Tình cúi gằm mặt xuống, nghẹn ngào không nói nên lời.
 
-Đơn Vĩ đứng một bên chứng kiến từ đầu đến cuối, bèn cất tiếng hỏi: "Tổng cộng nợ bao nhiêu tiền?"
+Đan Vĩ đứng một bên chứng kiến từ đầu đến cuối, bèn cất tiếng hỏi: "Tổng cộng nợ bao nhiêu tiền?"
 
 Đám họ hàng nhao nhao kể lể, người này mấy trăm, người kia một nghìn.
 
 Lưu Mỹ Nga từ trong chiếc túi xách trên xe lấy ra một cuốn sổ tay nhỏ, run run nói: "Mọi người cứ yên tâm, mẹ con tôi lúc nào cũng ghi nhớ ân tình của mọi người. Chỉ cần con bé Tình kiếm ra tiền, mẹ con tôi nhất định sẽ trả đủ từng hào!"
 
-Đơn Vĩ nghĩ bụng số tiền chắc cũng chẳng đáng là bao, định bụng tự lái xe ra quỹ tín dụng nông thôn gần nhất rút tiền mặt trả giúp.
+Đan Vĩ nghĩ bụng số tiền chắc cũng chẳng đáng là bao, định bụng tự lái xe ra quỹ tín dụng nông thôn gần nhất rút tiền mặt trả giúp.
 
 Dù sao ông chủ đã giao nhiệm vụ đi đón người, anh không thể để chuyến đi này thất bại, không đón được người về.
 
@@ -64,15 +62,15 @@ Nhưng trong làng cũng có người nghĩ rằng vài trăm tệ coi như cho 
 
 "Ừ."
 
-Đơn Vĩ gật đầu. Anh rút điện thoại ra thì thấy mất sóng, bèn hỏi quanh xem ở đâu có thể gọi điện thoại bàn.
+Đan Vĩ gật đầu. Anh rút điện thoại ra thì thấy mất sóng, bèn hỏi quanh xem ở đâu có thể gọi điện thoại bàn.
 
 Bản thân anh đi làm tích cóp cũng chưa để ra được hai vạn tệ, chuyện này bắt buộc phải gọi điện xin ý kiến Triệu Kim An.
 
-Đường Hiểu Tình cũng biết Đơn Vĩ đi gọi điện cho ai.
+Đường Hiểu Tình cũng biết Đan Vĩ đi gọi điện cho ai.
 
 Cô bỗng thấy bản thân mình sao mà giống một gánh nặng nhọc nhằn đến thế.
 
-Khoảng 15 phút sau, Đơn Vĩ từ tiệm tạp hóa đầu làng quay trở lại.
+Khoảng 15 phút sau, Đan Vĩ từ tiệm tạp hóa đầu làng quay trở lại.
 
 Anh không nói với Đường Hiểu Tình, mà quay sang nói thẳng với Lưu Mỹ Nga:
 
@@ -80,15 +78,15 @@ Anh không nói với Đường Hiểu Tình, mà quay sang nói thẳng với L
 
 "Bác ngồi tính lại xem mỗi người cả gốc lẫn lãi là bao nhiêu, bây giờ cháu lái xe ra thị trấn rút tiền."
 
-Dứt lời, Đơn Vĩ liền nổ máy lái xe chạy thẳng ra quỹ tín dụng ở thị trấn gần nhất để rút tiền mặt.
+Dứt lời, Đan Vĩ liền nổ máy lái xe chạy thẳng ra quỹ tín dụng ở thị trấn gần nhất để rút tiền mặt.
 
 Nghe thấy trả nợ còn được cộng thêm cả tiền lãi sòng phẳng, đám họ hàng trong bụng mừng như mở cờ, miệng lại luôn mồm xoa dịu với Đường Hiểu Tình và Lưu Mỹ Nga rằng không phải bọn họ không tin tưởng gì hai mẹ con, rồi tấm tắc khen con bé Tình đỗ đại học đúng là có tiền đồ rạng rỡ.
 
 Hồi Triệu Kim An mượn tiền Du Phi, chỉ trong vòng một tháng anh cũng trả thêm 300 tệ tiền lãi.
 
-Nhận được điện thoại của Đơn Vĩ, anh lập tức hiểu ra vì sao kiếp trước sau khi tốt nghiệp đại học, Đường Hiểu Tình lại không chọn ở lại Quận Sa.
+Nhận được điện thoại của Đan Vĩ, anh lập tức hiểu ra vì sao kiếp trước sau khi tốt nghiệp đại học, Đường Hiểu Tình lại không chọn ở lại Quận Sa.
 
-Lằng nhằng giải quyết xong xuôi mọi chuyện thì trời đã tối muộn, Đơn Vĩ đành phải ngả lưng chợp mắt một giấc trên xe.
+Lằng nhằng giải quyết xong xuôi mọi chuyện thì trời đã tối muộn, Đan Vĩ đành phải ngả lưng chợp mắt một giấc trên xe.
 
 Mãi đến sáng hôm sau, anh mới lái xe đưa hai mẹ con quay trở lại Quận Sa.
 
@@ -100,7 +98,7 @@ Lưu Mỹ Nga cũng ngồi im thin thít.
 
 Hai mẹ con lặng lẽ nhìn qua khung cửa kính, xe đã lăn bánh ra khỏi địa phận làng mà vẫn ngoái đầu nhìn lại mãi.
 
-Đơn Vĩ tập trung lái xe, anh cũng chẳng biết nên lựa lời thế nào để an ủi.
+Đan Vĩ tập trung lái xe, anh cũng chẳng biết nên lựa lời thế nào để an ủi.
 
 Có lẽ trong lòng hai mẹ con Lưu Mỹ Nga và Đường Hiểu Tình lúc này đang ngổn ngang trăm mối tơ vò.
 
@@ -116,23 +114,23 @@ Khi xe sắp vào địa phận Quận Sa, Lưu Mỹ Nga mới mở mắt choàn
 
 Vào tới nội thành, Đường Hiểu Tình vừa đi vừa cất giọng giới thiệu từng góc phố cho mẹ, cho đến khi xe dừng trước cửa căn nhà trọ thuê ở khu làng đại học.
 
-"Đến nơi rồi!" Đơn Vĩ cố ý cất giọng vui vẻ, xua tan bầu không khí ảm đạm.
+"Đến nơi rồi!" Đan Vĩ cố ý cất giọng vui vẻ, xua tan bầu không khí ảm đạm.
 
 "Cảm ơn chú, cảm ơn chú Đơn nhiều lắm."
 
 Lưu Mỹ Nga và Đường Hiểu Tình bước xuống xe chuẩn bị dỡ đồ, tâm trạng của họ vẫn chưa thể nguôi ngoai hoàn toàn.
 
-Đơn Vĩ không dám nhận công lao về mình, vội nói: "Không có gì đâu bác, đều là do ông chủ dặn dò cháu cả đấy ạ."
+Đan Vĩ không dám nhận công lao về mình, vội nói: "Không có gì đâu bác, đều là do ông chủ dặn dò cháu cả đấy ạ."
 
 Lưu Mỹ Nga gật đầu "Dạ" một tiếng.
 
-Đơn Vĩ cũng hiểu.
+Đan Vĩ cũng hiểu.
 
 Gặp phải chuyện bẽ bàng như thế, bất kỳ ai cũng cần có một khoảng thời gian để lòng mình lắng lại và nguôi ngoai.
 
 Đường Hiểu Tình và Lưu Mỹ Nga lẳng lặng bắt tay vào chuyển đồ đạc.
 
-Đơn Vĩ cũng xắn tay áo vào phụ giúp.
+Đan Vĩ cũng xắn tay áo vào phụ giúp.
 
 Ngoại trừ mấy món đồ nội thất cồng kềnh, đến cả rau xanh hái ngoài vườn nhà Lưu Mỹ Nga và Đường Hiểu Tình cũng mang theo một ít, để vừa lên tới nơi chưa kịp đi chợ thì đã có cái ăn.
 

@@ -1,7 +1,5 @@
 # Chương 76: Chẳng là ai cả
 
-> **Tiêu đề gốc**: 第76章 没谁。
-
 Chương trình học của sinh viên năm nhất khá dày đặc, buổi sáng thường bắt đầu từ tám giờ, kéo dài từ hai đến bốn tiết. Đây cũng là khung giờ mà sinh viên hay bông đùa gọi là “tiết tám giờ sáng”, phải lục đục dậy từ tờ mờ sớm để đến giảng đường chiếm chỗ ngồi đẹp.
 
 Nhiều trường đại học chia một buổi học thành hai tiết lớn, mỗi tiết lớn lại gồm hai tiết nhỏ kéo dài bốn mươi lăm đến năm mươi phút, nghỉ giữa giờ năm mười phút, tức là hình thức “học liền hai ca” quen thuộc trong miệng các cô cậu sinh viên.

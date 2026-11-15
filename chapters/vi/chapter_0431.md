@@ -1,7 +1,5 @@
 # Chương 431: Ngay từ trong bụng mẹ đã không thể mất phong thái
 
-> **Tiêu đề gốc**: 第431章 在肚子里就不能失了风度。
-
 Từ Mạn Mạn đưa mắt nhìn sang Lưu Hiểu Tĩnh.
 
 Lưu Hiểu Tĩnh hiểu ý, khẽ gật đầu rồi quay vào phòng ngủ lấy hai bao thuốc Hòa Thiên Hạ đưa cho dượng hai, mỉm cười nhắc nhở: "Dượng đừng hút trong nhà nhé ạ."

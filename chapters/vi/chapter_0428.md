@@ -1,7 +1,5 @@
 # Chương 428: Tôi từng gặp rồi...
 
-> **Tiêu đề gốc**: 第428章 我见过....
-
 Bà nội của Từ Mạn Mạn sống cùng gia đình người con trai út là Từ Tắc Lương, ông nội thì đã qua đời từ nhiều năm trước. Lương Tuệ Trân khẽ liếc nhìn màn hình điện thoại, ấp úng nói: "Mẹ, lão Từ... lão Từ đang kẹt chút việc ở bên ngoài... lát, lát nữa sẽ đến muộn một tí ạ."
 
 Nếu không phải vì hôm nay là ngày Tết Nguyên Tiêu sum họp cả dòng họ, Lương Tuệ Trân thậm chí cũng chẳng muốn bước chân tới đây.

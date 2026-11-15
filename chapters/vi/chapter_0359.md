@@ -1,217 +1,217 @@
-# ﻿Chương 359: Một chuyến thám thính
+# Chương 359: Tìm Hiểu Cho Tận Tường
 
-> **Tiêu đề gốc**: 第359章 一探究竟。
+Chẳng phải vì tâm hồn nhạy cảm.
 
-Không phải vì nội tâm nhạy cảm.
+Chỉ là ở kiếp trước, từ Đoạn Thu Bình, Mộc Dao cùng những màn chèn ép đủ kiểu của Trương Tuệ và Trương Vân Thiến, cho đến cuối cùng là Trần Thanh Trĩ.
 
-Chỉ là đời trước — từ Đoạn Thu Bình, Mộc Dao, rồi Trương Huệ, Trương Vân Tây đủ kiểu vùi dập, đến cuối cùng là Trần Thanh Trĩ.
+Vốn dĩ từ thập niên 90, Triệu Quốc Khánh đã là “hộ vạn tệ” rồi.
 
-Vốn dĩ từ những năm 90, nhà Triệu Quốc Khánh đã là "hộ vạn nguyên" rồi.
+Gặp được Từ Mạn Mạn ở quán bar, Từ Mạn Mạn từng như một tia nắng rọi vào cuộc đời Triệu Kim An.
 
-Đêm ở quán bar gặp Từ Mạn Mạn — Từ Mạn Mạn như một tia sáng chiếu vào cuộc đời Triệu Kim An.
+Trải qua hai kiếp, chính Triệu Kim An cũng đã tự có cho mình một “Từ Mạn Mạn”.
 
-Hai kiếp người — Triệu Kim An cũng có "Từ Mạn Mạn" của riêng mình rồi.
+Vào khoảnh khắc này, Từ Mạn Mạn không còn chỉ đích danh một cá nhân nào nữa, mà là một hình tượng thay thế.
 
-Lúc này, "Từ Mạn Mạn" không phải chỉ một người cụ thể, mà là một hình ảnh đại diện.
+“Tránh ra! Cậu ăn vẫn chưa no à?”
 
-"Đi ra! Mày chưa ăn no à?"
+Thời gian Triệu Kim An và Tô Miến ở bên nhau vốn chẳng nhiều, nên anh cố gắng tự tay chăm sóc cho cô, không để Ngô Hiểu phải động tay vào. Còn tên phản đồ Vương Duy Đào đúng là một trong những tay sai trung thành bậc nhất của Tô Miến.
 
-Triệu Kim An và Tô Miên gần nhau không nhiều, anh cố gắng tự tay chăm sóc cô, không để Ngô Hiểu ra tay — còn Vương Duy Thao, thằng hai mặt đó, lại là một trong số những đầy tớ trung thành nhất của Tô Miên.
+Thêm một tên tay sai nữa là Triệu Chí Dũng.
 
-Còn một đầy tớ nữa, là Triệu Chí Dũng.
+“Để em múc cháo cho chị Tô Miến nhé, he he.”
 
-"Em múc cháo cho chị Tô Miên, hì hì."
+Vương Duy Đào lăng xăng múc cháo, Triệu Chí Dũng thì nhấc từng món ăn sáng lên hỏi Tô Miến muốn ăn thứ nào.
 
-Vương Duy Thao múc cháo, Triệu Chí Dũng thì lần lượt bưng từng món ăn sáng lên hỏi Tô Miên muốn ăn gì.
+Trong phòng khách vang lên tiếng cười nói rộn ràng.
 
-Phòng khách vang lên tiếng cười.
+Triệu Kim An thực ra chẳng hề niềm nở gì, thế nhưng ai nấy ở đây đều cảm thấy vô cùng tự nhiên thoải mái, chẳng hề coi mình là khách sáo.
 
-Triệu Kim An thật sự không nhiệt tình, nhưng mấy cô vào nhà này đều rất thoải mái, chẳng ai coi mình là khách.
+Tô Miến cũng bật cười.
 
-Tô Miên cũng cười.
+Ở Triệu Gia Thôn, hễ Tô Miến có mặt ở nhà là dân làng lại kéo nhau sang nhà Triệu Kim An chơi.
 
-Ở làng Triệu, mọi người cũng hay chạy vào nhà Triệu Kim An. Tô Miên ở nhà, dân làng cũng kéo đến chơi.
+Trịnh Như mới tới vài lần mà đã quen nếp rồi, có thứ gì không tìm thấy là hỏi ngay Lưu Mỹ Nga, còn “chủ động” hơn cả ở nhà chú ruột dưới quê; tóm lại chỉ có một nguyên tắc duy nhất: đừng làm phiền Triệu Kim An.
 
-Trịnh Nhự mới đến vài lần thôi mà đã quen, có gì không tìm được thì hỏi Lưu Mỹ Nga, còn chủ động hơn ở nhà chú ruột mình — tóm lại là không làm phiền Triệu Kim An.
+Tô Miến muốn tới khu đại học, Du Phi ngồi xổm xuống giúp cô vuốt lại tà váy cho ngay ngắn.
 
-Tô Miên muốn ra khu đại học, Dư Phi ngồi xổm xuống sửa lại tà váy cho cô.
+Du Phi là thư ký của Triệu Kim An, kiêm nhiệm cả thư ký hành chính lẫn thư ký đời sống, đương nhiên phải “phục vụ” Tô Miến chu đáo.
 
-Dư Phi là thư ký của Triệu Kim An, vừa làm thư ký hành chính vừa làm thư ký đời sống, tự nhiên phải "phục vụ" Tô Miên.
+Ai bảo Tô Miến thực sự đi lại bất tiện chứ.
 
-Không kể thứ gì đi nữa, Dư Phi trong lòng thiên về Mộc Dao — thiên về Mộc Dao nhất.
+Xét từ thâm tâm mà nói, Du Phi chắc chắn vẫn nghiêng về phía Mộc Dao hơn, nghiêng về Mộc Dao nhất.
 
-Người ta đều có tình cảm của riêng mình.
+Đó cũng là lẽ thường tình của con người.
 
-Tô Miên vẫy tay gọi đầy tớ Vương Duy Thao.
+Tô Miến vẫy tay gọi tên tay chân Vương Duy Đào lại gần.
 
-Vương Duy Thao mon men đến gần, Tô Miên nói nhỏ mấy câu.
+Vương Duy Đào ghé sát tới, Tô Miến khẽ nói vài câu gì đó.
 
-Vương Duy Thao nghiêng đầu, trông hơi phân vân.
+Vương Duy Đào nghiêng đầu, vẻ mặt trông có vẻ hơi khó xử.
 
-Triệu Kim An liếc nhìn, Vương Duy Thao ghé tai anh, vừa nói vừa tươi cười trêu ngươi: "Chị Tô Miên hỏi em đại ba rồi, muốn thực tập ở đơn vị nào, ra trường có thi công chức không?"
+Triệu Kim An liếc nhìn cậu ta một cái, Vương Duy Đào liền ghé sát tai anh, vừa cười đểu vừa hớn hở khoe: “Chị Tô Miến hỏi tớ sắp lên năm ba rồi muốn đi thực tập ở cơ quan nào, tốt nghiệp xong có định thi công chức không kìa!”
 
-"Số mày tốt thật."
+“Số chó ngáp phải ruồi.”
 
-Triệu Kim An cũng không nghĩ Vương Duy Thao nhất định phải vào công ty làm kinh doanh.
+Triệu Kim An vốn cũng chẳng nghĩ Vương Duy Đào nhất thiết phải vào công ty mình làm nhân viên kinh doanh.
 
-Vương Duy Thao hiểu chuyện đời, có Tô Miên "gợi ý", không nói được chính thức, nhưng thăng lên phó phòng sau này chắc không khó.
+Vương Duy Đào rất rành chuyện đối nhân xử thế; có Tô Miến “chỉ điểm” nâng đỡ, chức trưởng phòng chính thức thì chưa dám nói, nhưng sau này leo lên tới hàm phó phòng thì hoàn toàn nằm trong tầm tay.
 
-Cứ vậy mà Vương Học Ân hay mấy người đang cố ôn thi công chức, Cốc Siêu Thừa cũng từng mơ thi công chức — còn Vương Duy Thao, chỉ cần gật đầu là xong.
+Trong khi đám Vương Học Ân phải trầy trật ôn thi công chức, ngay cả Cốc Siêu Thừa cũng từng ấp ủ giấc mơ công chức, thì Vương Duy Đào chỉ cần gật đầu một cái là xong.
 
 Khu đại học Quận Sa.
 
-Mấy nam sinh lớp Kế toán 1 còn đang tiếc nuối mãi không thôi.
+Đám nam sinh lớp Kế toán 1 vẫn đang dư âm, tiếc hùi hụi.
 
-"Ôi trời, con bé tối qua mặc quần short, áo hai dây, thơm phức — tao sao lại hiền như con cun cút thế không biết!"
+“Ôi dào, tối qua cái em mặc quần short bó, áo hai dây ấy, người thơm nức mũi luôn. Mẹ kiếp, sao lúc đó ông đây lại ngoan ngoãn ngồi im như con chim cút thế không biết!”
 
-"Mày tính gì, tao có đứa áo hơi mỏng trong suốt, tao choàng tay lên vai nó, nó không né tí nào."
+“Thế đã nhằm nhò gì, em ngồi cạnh tớ mặc áo hơi xuyên thấu cơ, tớ khoác vai một cái mà em ấy chẳng thèm né luôn.”
 
-"Haha, Lão Lưu xui nhất, có Phương Khiết ở đó, mắt còn chả dám nhìn liếc."
+“Ha ha, lão Lưu lỗ nặng nhất, có Phương Khiết ngồi lù lù bên cạnh nên mắt chẳng dám liếc ngang liếc dọc.”
 
-"Kim An vẫn sướng nhất, anh ấy muốn qua lúc nào chả được, mấy em ngồi bàn VIP kia cứ chỉ nhìn anh ấy thôi."
+“Vẫn là Kim An sướng nhất, cậu ấy thích đi lúc nào chẳng được, mấy em ở bàn mình toàn liếc mắt đưa tình với cậu ấy đấy thôi.”
 
-"Kim An nhìn không vô mắt họ!"
+“Kim An thèm vào mấy cô đó!”
 
-Vương Học Ân thầm nghĩ — so với mấy em đó, Quan Linh hơn nhiều, không nói ngoại hình và học vấn, ít nhất cũng sạch sẽ hơn.
+Vương Học Ân thầm nghĩ so với đám con gái ở quán bar kia, Quan Linh tốt hơn gấp trăm lần; chưa bàn đến nhan sắc hay học thức, ít nhất cũng sạch sẽ hơn nhiều.
 
-Quan Linh chỉ có một người yêu, còn mấy em kia thì ai biết đã qua mấy người rồi.
+Quan Linh mới chỉ có một bạn trai, còn mấy cô gái kia ai mà biết đã qua tay bao nhiêu người rồi.
 
-Sớm thấy mặt thật của cuộc đời cũng tốt, Lưu Xung Phong lại có thêm động lực kiếm tiền — chỉ để được nghe một tiếng "tối nay anh dùng bữa gì ạ?"
+Được mở mang tầm mắt sớm một chút cũng hay; Lưu Sấm Phong càng có thêm động lực kiếm tiền, chỉ mong sau này được nghe một câu: “Chào buổi tối ông chủ.”
 
-Đúng lúc đó điện thoại kêu "ding" một tiếng.
+Đúng lúc đó điện thoại vang lên tiếng “tinh”.
 
-Lưu Xung Phong cầm điện thoại lên: "Trời ơi, Phương Khiết nói có người nhìn thấy Kim An ở trường rồi!!"
+Lưu Sấm Phong cầm máy lên xem: “Chết tiệt, Phương Khiết bảo có người nhìn thấy Kim An trong trường rồi kìa!!”
 
-Phía bên kia.
+Ở một phía khác.
 
-Triệu Kim An bế Tô Miên xuống xe, Vương Duy Thao và Triệu Chí Dũng tranh nhau lấy xe lăn.
+Triệu Kim An bế Tô Miến xuống xe, Vương Duy Đào và Triệu Chí Dũng tranh nhau lấy xe lăn.
 
-Đan Vỹ và Quan Văn Bách phân tán ra, mỗi người đứng ở một vị trí khác nhau, giữ khoảng cách vừa đủ, sẵn sàng ứng phó nếu có tình huống bất ngờ.
+Đan Vĩ và Quan Văn Bách ăn ý tản ra, mỗi người đứng ở một vị trí khác nhau, vừa giữ khoảng cách vừa có thể ứng phó kịp thời với mọi tình huống bất ngờ xảy ra.
 
-"Kim An, anh còn nói em danh tính, anh ở trường có tiếng tăm cỡ đó mà."
+“Kim An, anh còn bảo em giấu thân phận, anh ở trong trường cũng nổi tiếng chẳng kém gì đâu.”
 
-"Anh đeo kính đen rồi mà."
+“Anh đeo kính râm rồi mà.”
 
-Tô Miên ngẩng đầu nhìn người đàn ông của mình, khóe miệng khẽ nhếch lên, nụ cười vừa như vừa không như: "Có ích gì? Cái khuôn mặt đó mà xấu hơn một chút đi."
+Tô Miến ngước nhìn chàng trai của mình, khóe môi khẽ nhếch lên, nửa cười nửa không: “Có tác dụng gì chứ? Anh mọc cái mặt xấu bớt đi một chút thì hơn.”
 
-Tháng Tư — chương mở đầu dịu dàng nhất trước khi mùa hè rực rỡ ào tới. Trong từng khung cảnh của khuôn viên trường, đâu đâu cũng ẩn chứa những giấc mơ tuổi trẻ nôn nao và mầm tình cảm đang lặng lẽ nảy sinh.
+Tháng Tư là khúc dạo đầu dịu dàng nhất trước khi mùa hạ rực lửa ập tới; trong từng khung cảnh của sân trường đại học đều ẩn chứa những giấc mơ thanh xuân rạo rực và những rung động tình cảm đang lặng lẽ nảy mầm.
 
-Triệu Kim An hai mươi mốt tuổi, đeo kính đen đẩy xe lăn. Từ góc nhìn của Tô Miên, chỉ thấy chiếc sống mũi cao và đường nét rõ ràng của khóe môi, nụ cười nhẹ đang nở dần.
+Triệu Kim An tuổi hai mươi mốt đeo cặp kính râm, đẩy chiếc xe lăn bước đi; từ góc nhìn của Tô Miến chỉ thấy sống mũi cao thẳng và đường nét khóe môi rõ ràng của anh, trên môi thoáng hiện một nụ cười nhạt.
 
-Nụ cười trở lại rồi.
+Nụ cười đã quay trở lại rồi.
 
-Không còn như tối qua với đầy nỗi tâm sự.
+Không còn vẻ nặng trĩu tâm sự như tối qua nữa.
 
-Tô Miên cũng biết ghen — không ghen tức là không thích, không quan tâm.
+Tô Miến cũng biết ghen chứ; không ghen chứng tỏ chẳng thích, chẳng bận tâm.
 
-Lúc này đại tiểu thư đã hài lòng rồi.
+Lúc này tiểu thư đã hài lòng rồi.
 
-Nhưng lại càng tò mò hơn về người con gái kia — cô gái nào mà khiến người đàn ông của mình tâm sự chất chứa đến thế?
+Thế nhưng cô lại càng nảy sinh sự tò mò về cô gái kia, rốt cuộc là ai mà có thể khiến chàng trai của cô mang nặng tâm sự đến vậy.
 
-Gần hai năm rồi — đây là lần đầu tiên Tô Miên xuất hiện trong khuôn viên đại học của Triệu Kim An với tư cách là bạn gái.
+Gần hai năm rồi, đây là lần đầu tiên Tô Miến xuất hiện trong khuôn viên trường đại học của Triệu Kim An với tư cách bạn gái.
 
-Nếu không bị bất tiện về đi lại, đổi sang người con gái khác, ai mà hai năm trời không một lần xuất hiện tại trường đại học của người yêu?
+Nếu không phải vì đi lại bất tiện, đổi lại là một cô gái khác, có ai lại suốt hai năm trời không đặt chân tới trường đại học của bạn trai mình lần nào không?
 
-Sinh viên qua lại không ngừng quay nhìn "cặp đôi" này. Đeo kính đen không phải chuyện lạ, ngồi xe lăn thì khó tránh khỏi ánh mắt.
+Sinh viên qua lại trên đường không ngừng ngoái nhìn “cặp đôi” đặc biệt này; đeo kính râm thì không có gì lạ, nhưng ngồi xe lăn thì khó tránh khỏi khiến người ta phải nhìn thêm vài lần.
 
-Quan trọng là trang phục và nhan sắc của người ngồi trên xe lăn đó.
+Điểm mấu chốt chính là trang phục và dung mạo của người ngồi trên xe lăn.
 
-Thật tình mà nói, bây giờ chưa có mạng xã hội video ngắn, mua sắm trực tuyến cũng chưa phát triển, phong cách ăn mặc của sinh viên còn khá bình thường — chẳng ai dạy bạn phối đồ, mã diện thường ngay cả người biết cũng không nhiều.
+Thú thực, thời buổi này chưa có video ngắn, mua sắm trực tuyến cũng chưa thịnh hành; cách ăn mặc của sinh viên đại học còn khá giản dị, chẳng ai dạy phối đồ, ngay cả váy Mã Diện cũng ít người biết tới.
 
-Còn Tô Miên mặc toàn hàng kim tuyến thêu tay thủ công, may đo riêng theo đơn.
+Còn đồ của Tô Miến toàn bộ đều được thêu chỉ vàng thủ công hoàn toàn, may đo riêng biệt.
 
-Văn phòng hiệu trưởng.
+Văn phòng Hiệu trưởng.
 
-Một chiếc điện thoại bàn reo lên.
+Một trong những chiếc máy điện thoại bàn bỗng đổ chuông.
 
-Hiệu trưởng Cung ngẩng tay ngăn mọi người, đứng dậy tự mình nhấc ống nghe.
+Hiệu trưởng Cung giơ tay ra hiệu im lặng, tự mình đứng dậy nhấc ống nghe.
 
-"Hiệu trưởng Cung, em gái tôi đến trường ông rồi."
+“Hiệu trưởng Cung, em gái tôi sang trường ông chơi đấy.”
 
-Tô Cảnh Hành và hiệu trưởng Cung đều ở cấp chính sảnh, nhưng chính sảnh với chính sảnh lại có sự khác biệt.
+Tô Cảnh Hành và Hiệu trưởng Cung đều mang hàm Chính sảnh, nhưng Chính sảnh và Chính sảnh cũng có sự khác biệt rất lớn.
 
-"Ồ thì ra vậy... cái anh Triệu Kim An của chúng tôi quả là có bản lĩnh."
+“Thì ra là vậy... cậu sinh viên Triệu Kim An nhà mình cũng có bản lĩnh ghê đấy.”
 
-"Người ta chỉ quen sơ với Phùng Nhược Đan thôi, mà đã bỏ túi cả em gái người ta rồi!"
+“Gì mà quen biết sơ sơ với Phùng Nhược Đan chứ, cậu ta cua đổ hẳn em gái người ta luôn rồi!”
 
-"Không phải ở Quận Sa là đi ngang? Ở Kinh Đô cũng có thể đi ngang được đó."
+“Thế thì ở Quận Sa này chẳng phải đi ngang luôn sao? Không đúng, ngay cả ở Kinh Đô cũng suýt soát đi ngang được rồi ấy chứ.”
 
-"Tô chủ nhiệm!!"
+“Chủ nhiệm Tô!!”
 
-Tô Miên không có nhiều tiếng tăm, chỉ là đang kiêm nhiệm tại Bộ Giáo dục — hiệu trưởng Cung lật qua cuốn danh bạ giấy mới tìm được, nhưng kiêm nhiệm thì cũng vẫn là Tô chủ nhiệm.
+Tô Miến bình thường không phô trương, chỉ giữ chức danh biệt phái tại Bộ Giáo dục; Hiệu trưởng Cung phải lật danh bạ giấy mới tìm thấy tên cô, nhưng dù là biệt phái thì vẫn là Chủ nhiệm Tô.
 
-Sư Đại thuộc hệ thống đại học tỉnh, không phải trực thuộc Bộ.
+Đại học Sư phạm thuộc quản lý cấp tỉnh, không phải trường trực thuộc Bộ.
 
-Nhưng nói ra thì Tô Miên cũng tính là cấp trên của hiệu trưởng Cung.
+Nhưng nói đi cũng phải nói lại, xét về cấp bậc thì Tô Miến vẫn là cấp trên của Hiệu trưởng Cung.
 
-"Chơi thế này được không hả Triệu Kim An?"
+“Chơi cái quái gì vậy, Triệu Kim An à, cậu chơi kiểu này có ổn không đấy?”
 
-Hiệu trưởng Cung nghĩ ngợi, gọi điện trước cho phòng hậu cần — bữa trưa hôm nay trong căng tin phải thịnh soạn hơn.
+Hiệu trưởng Cung ngẫm nghĩ một lát rồi gọi điện ngay cho phòng Hậu cần, dặn trưa nay nhà ăn phải chuẩn bị cơm nước cho thịnh soạn một chút.
 
-Thẩm Tử Ngôn không chỉ nhìn thấy tin nhắn, còn nhận được điện thoại của Diêu Tân: Triệu Kim An và Tô Miên đang ở trong trường.
+Thẩm Tử Ngôn không chỉ thấy tin nhắn mà còn nhận được cuộc gọi từ Diêu Sân: Triệu Kim An và Tô Miến đang ở trong trường.
 
-"Đi không?"
+“Có đi không?”
 
-"Đi nhìn một cái?"
+“Qua nhìn một cái xem sao?”
 
-Không chỉ Thẩm Tử Ngôn, Từ Mạn Mạn cũng có cùng suy nghĩ đó.
+Người cùng chung băn khoăn ấy còn có cả Từ Mạn Mạn.
 
-Thẩm Tử Ngôn không còn tâm trí làm việc, thật ra từ tối qua đã mất tập trung rồi.
+Thẩm Tử Ngôn không tài nào tập trung làm việc nổi nữa; thực ra từ tối qua cô đã chẳng thể tĩnh tâm được rồi.
 
-Tô Miên chưa xuất hiện thì còn có thể giả vờ làm đà điểu, nhưng Tô Miên xuất hiện rồi.
+Khi Tô Miến chưa xuất hiện, người ta còn có thể làm con đà điểu vùi đầu vào cát; nhưng giờ Tô Miến đã xuất hiện bằng xương bằng thịt rồi.
 
-Không chỉ là khoảng cách thân phận, không chỉ là thân phận.
+Không chỉ là thân phận, không đơn thuần chỉ là sự chênh lệch về gia thế.
 
-Như lời Triệu Kim An nói: "Hồi anh và Tô Miên đang tốt với nhau, các em đại một đang làm gì? Bọn anh gặp nhau mấy lần? Anh chỉ biết em tên Thẩm Tử Ngôn, còn Từ Mạn Mạn lúc đó vẫn còn là bạn gái của Trần Trạch."
+Giống như lời Triệu Kim An từng nói: “Lúc anh và Tô Miến đến với nhau, năm nhất các em đang làm gì? Chúng ta gặp nhau được mấy lần? Anh chỉ biết em tên Thẩm Tử Ngôn, còn Từ Mạn Mạn khi ấy vẫn đang là bạn gái của Trần Trạch.”
 
-Có lẽ chỉ có Mộc Dao — Mộc Dao là người "có lợi thế" nhất.
+Có lẽ chỉ có Mộc Dao, Mộc Dao là người “chiếm tiên cơ” sớm nhất.
 
-Cô không cần nghĩ nhiều, nhưng trên đường đến Sư Đại lại nghĩ quá nhiều, bước chân bắt đầu chần chừ.
+Cô không cần phải nghĩ ngợi nhiều đến thế, nhưng khi bước đi trên con đường dẫn tới Đại học Sư phạm, lòng cô lại ngổn ngang trăm mối, bước chân bỗng trở nên chần chừ.
 
-Diêu Tân ở lại ký túc xá, nhìn vào giường Từ Mạn Mạn.
+Diêu Sân vẫn túc trực ở ký túc xá, nhìn sang giường của Từ Mạn Mạn.
 
-Cô không tin Từ Mạn Mạn không chút tò mò về Tô Miên — nếu Tô Miên về Kinh Đô rồi, sau này chưa chắc có dịp gặp lại.
+Cô không tin Từ Mạn Mạn lại chẳng mảy may tò mò về Tô Miến; nếu Tô Miến quay về Kinh Đô rồi, sau này chưa chắc đã còn cơ hội được nhìn thấy mặt nữa.
 
-Huống hồ, lần này Tô Miên đến Quận Sa rất có thể là vì Từ Mạn Mạn mà tới.
+Huống hồ lần này rất có thể Tô Miến tới Quận Sa là vì Từ Mạn Mạn.
 
-"Cái gì? Đàn anh Triệu có bạn gái rồi à!?"
+“Cái gì? Học trưởng Triệu có bạn gái rồi á!?”
 
-Những sinh viên đại một không biết gì, người yêu của Triệu Kim An đời trước — Trần Thanh Trĩ — là người đầu tiên chạy đến tìm hiểu thực hư.
+Cô sinh viên năm nhất chẳng hay biết gì, cũng là vợ cũ kiếp trước của Triệu Kim An — Trần Thanh Trĩ — là người chạy tới sớm nhất để xem thực hư ra sao.
 
-"Không phải Thẩm Tử Ngôn bên Trung Nam, cũng không phải Từ Mạn Mạn, mấy cô gái lần trước bọn mình gặp cũng đều không phải — nghe nói bạn gái là người khuyết tật, ngồi xe lăn không đi lại được."
+“Không phải Thẩm Tử Ngôn bên Trung Nam, cũng không phải Từ Mạn Mạn, mấy chị gái lần trước bọn mình thấy đều không phải hết; nghe bảo bạn gái anh ấy bị tàn tật, phải ngồi xe lăn không đi lại được.”
 
-"Sao vậy, đàn anh Triệu giàu thế, sao lại tìm bạn gái như vậy?"
+“Sao lại thế được, học trưởng Triệu giàu có thế kia mà, sao lại tìm một cô bạn gái như vậy chứ?”
 
-Mấy cô gái phòng cùng vừa nói vừa chạy theo.
+Mấy bạn cùng phòng của cô vừa chạy bước nhỏ vừa bàn tán theo sau.
 
-Trần Thanh Trĩ không nói gì.
+Trần Thanh Trĩ không nói lời nào.
 
-Cô vẫn luôn nghi ngờ Triệu Kim An nhận ra mình — bao nhiêu dấu hiệu cho thấy Triệu Kim An hình như biết cô, nếu không thì không có lý do gì kết bạn QQ với cô từ hồi lớp 11, rồi đến đầu đại một tình cờ gặp nhau ở ga tàu.
+Cô vẫn luôn nghi ngờ Triệu Kim An có quen biết mình từ trước; đủ mọi dấu hiệu đều cho thấy anh hẳn phải biết cô, nếu không thì chẳng có lý do gì hồi lớp mười một lại kết bạn QQ với cô, rồi ngày nhập học năm nhất lại tình cờ gặp nhau ở ga tàu hỏa.
 
-"Nhờ qua, cho qua với ạ."
+“Tránh đường chút, làm ơn cho qua với.”
 
-Trần Thanh Trĩ và mấy bạn cùng phòng thở không kịp chen qua đám đông hiếu kỳ, rồi thấy Triệu Kim An, thấy hiệu trưởng và mấy lãnh đạo nhà trường.
+Trần Thanh Trĩ cùng mấy bạn cùng phòng thở hồng hộc len qua đám đông đang vây kín, cuối cùng cũng trông thấy Triệu Kim An, thấy cả Hiệu trưởng cùng một số lãnh đạo nhà trường.
 
-"Cái gì!?"
+“Cái gì thế!?”
 
-"Hiệu trưởng Cung đang bắt tay với bạn gái của đàn anh Triệu à?"
+“Hiệu trưởng Cung còn đang bắt tay với bạn gái của học trưởng Triệu nữa kìa?”
 
-Trần Thanh Trĩ lách sang phải lách sang trái, cố chen vào khe hở trong đám đông để nhìn cho rõ Tô Miên.
+Trần Thanh Trĩ hết nghiêng trái lại ngó phải, cố nhìn qua khe hở để thấy rõ mặt Tô Miến.
 
-"Hơi ơi, Vũ Thao ơi!"
+“Này, Đào tử!”
 
-Sinh viên lớp Kế toán 1 và 2 vẫy tay gọi Vương Duy Thao, thì thầm hỏi: "Bạn gái Kim An có lai lịch gì vậy?"
+Đám sinh viên lớp Kế toán 1 và Kế toán 2 vẫy tay gọi Vương Duy Đào, nhỏ giọng dò hỏi: “Bạn gái của Kim An lai lịch thế nào đấy?”
 
-"Không biết nhìn à?"
+“Không biết nhìn à?”
 
-Vương Duy Thao bản thân cũng chưa rõ hết, nhưng vẫn thần bí thì thào: "Bộ Giáo dục đó."
+Chính bản thân Vương Duy Đào cũng chưa nắm rõ hết ngọn ngành, nhưng vẫn ra vẻ bí hiểm: “Người của Bộ Giáo dục đấy.”
 
-"Trời ơi!"
+“Trời đất ơi!”
 
-Vậy là không cần đoán nữa — với các bạn sinh viên mà nói, tốt nghiệp xong mà vào được Sở Giáo dục huyện nhà đã là đơn vị tốt lắm rồi.
+Thế này thì khỏi cần đoán nữa rồi; đối với đám sinh viên bọn họ, ra trường mà xin được vào Sở Giáo dục thành phố ở quê nhà đã là cơ quan ngon lành lắm rồi.
 
-Không biết sao, Phương Khiết và Quan Linh mấy cô gái bỗng thấy trong lòng... cân bằng hơn. Nếu Tô Miên chẳng có thân phận gì, họ mới thật sự không thể hiểu nổi.
+Cũng chẳng hiểu vì sao, tâm lý của đám nữ sinh như Phương Khiết và Quan Linh bỗng thấy cân bằng hơn hẳn; nếu Tô Miến chẳng có thân phận địa vị gì, chắc chắn bọn họ sẽ thấy bức bối khó chịu không sao thông nổi.
 
-Trần Thanh Trĩ cuối cùng cũng nhìn thấy Tô Miên, đứng ngây nhìn cô.
+Trần Thanh Trĩ cuối cùng cũng nhìn thấy Tô Miến, cô ngây người nhìn chằm chằm vào người con gái ấy.
 
-"Thanh Trĩ, đẹp thật nhỉ..."
+“Thanh Trĩ, chị ấy xinh thật đấy.”

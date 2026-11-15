@@ -1,7 +1,5 @@
 # Chương 307: Giấc mơ làm bố.
 
-> **Tiêu đề gốc**: 第307章 有个爸爸梦。
-
 Bước xuống xe, Vương Duy Đào cũng ra sức khuyên Trịnh Như thu xếp đi ăn cơm cùng mọi người.
 
 Trịnh Như ái ngại chỉ tay về phía sạp ma lạt thảng, ý bảo vẫn còn khách đang ngồi ăn, không thể bỏ dở việc buôn bán.
@@ -14,7 +12,7 @@ Lúc ở văn phòng, Triệu Chí Dũng có khoe chiếc xe máy điện này l
 
 "Ông chủ..."
 
-Đơn Vĩ thầm quan sát, anh nhận ra dáng ngồi trên xe của ông chủ mình trước sau vẫn không hề thay đổi. Vẫn hệt như hồi ngồi trên chiếc Audi ngày trước, cậu không hề ngả ngớn dựa lưng hay gác chân làm màu theo kiểu các đại gia thường thấy. Nói thế nào nhỉ? Đúng như cái cảm giác hôm Trương Tuệ nhìn thấy Triệu Kim An bước ra từ chiếc Rolls-Royce vậy:
+Đan Vĩ thầm quan sát, anh nhận ra dáng ngồi trên xe của ông chủ mình trước sau vẫn không hề thay đổi. Vẫn hệt như hồi ngồi trên chiếc Audi ngày trước, cậu không hề ngả ngớn dựa lưng hay gác chân làm màu theo kiểu các đại gia thường thấy. Nói thế nào nhỉ? Đúng như cái cảm giác hôm Trương Tuệ nhìn thấy Triệu Kim An bước ra từ chiếc Rolls-Royce vậy:
 
 Trẻ trung? Thanh xuân? Hay là một nét cuốn hút rất riêng?
 
@@ -36,17 +34,17 @@ Chẳng biết Trịnh Như đã nói thêm những gì với Triệu Chí Dũng
 
 "Kim An, cậu đợi một chút nhé, có mấy thứ lặt vặt phải mang về phòng trọ cất chứ để ngoài này sợ mất."
 
-Thấy vậy, Đơn Vĩ cũng nhanh nhảu tiến lên đỡ một tay.
+Thấy vậy, Đan Vĩ cũng nhanh nhảu tiến lên đỡ một tay.
 
 Những người buôn gánh bán bưng lam lũ là thế, bạn không thể cứ vung tiền ra bảo "tất cả chỗ này tôi mua hết" là xong được. Những quang gánh, nồi niêu, que xiên này chính là cần câu cơm, là công cụ mưu sinh cả đời của họ.
 
-Trịnh Như còn đon đả mời Vương Duy Đào và Đơn Vĩ ăn thử mấy xiên ma lạt thảng.
+Trịnh Như còn đon đả mời Vương Duy Đào và Đan Vĩ ăn thử mấy xiên ma lạt thảng.
 
 Đồ đã trót thả vào nồi nước dùng sôi sùng sục thì chắc chắn không thể mang về cất lại được nữa.
 
 Còn những thứ khác đều phải tốn bao công sức mới xiên xong từng que một.
 
-Vương Duy Đào với Đơn Vĩ mỗi người cầm lấy vài xiên ăn tượng trưng, miệng không ngớt lời tấm tắc khen ngon.
+Vương Duy Đào với Đan Vĩ mỗi người cầm lấy vài xiên ăn tượng trưng, miệng không ngớt lời tấm tắc khen ngon.
 
 "Kim An, cậu có ăn thử không?"
 
@@ -62,7 +60,7 @@ Trịnh Như lại bối rối xoa xoa gấu áo, nở nụ cười gượng g�
 
 Vương Duy Đào nhanh mồm nhanh miệng nói đỡ ngay: "Chị Trịnh Như, chị đừng suy nghĩ nhiều nhé. Tính thằng Kim An nói chuyện xưa nay vốn thế, không thích là nó bảo không thích thôi, thẳng ruột ngựa lắm."
 
-Đơn Vĩ khẽ cười, hạ thấp giọng nói thêm vào: "Ông chủ đã đích thân mời chị về tận nhà dùng bữa rồi mà."
+Đan Vĩ khẽ cười, hạ thấp giọng nói thêm vào: "Ông chủ đã đích thân mời chị về tận nhà dùng bữa rồi mà."
 
 Câu nói này Trịnh Như lập tức hiểu ra ngay.
 
@@ -136,7 +134,7 @@ Triệu Chí Dũng chẳng buồn câu nệ, cứ thế lách mình chen vào ng
 
 Suốt dọc đường đi, người phụ nữ ba mươi hai tuổi Trịnh Như cứ ôm chặt lấy con gái nhỏ, lòng không khỏi thấp thỏm, hồi hộp. Chị biết rõ theo vai vế trong dòng họ ở quê, mình phải gọi chàng trai trẻ tuổi ngồi cạnh này là một tiếng "chú", và chuyến đi này chẳng khác nào một buổi diện kiến bậc bề trên trong làng Triệu Gia.
 
-Nhìn cái bản mặt đang cười toe toét ngây ngô của Triệu Chí Dũng, Triệu Kim An bỗng ghé sát tai thì thào một câu: "Đoàn Thu Bình đang ở nhà tao đấy."
+Nhìn cái bản mặt đang cười toe toét ngây ngô của Triệu Chí Dũng, Triệu Kim An bỗng ghé sát tai thì thào một câu: "Đoạn Thu Bình đang ở nhà tao đấy."
 
 "..."
 

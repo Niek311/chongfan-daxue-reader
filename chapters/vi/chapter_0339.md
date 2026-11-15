@@ -1,7 +1,5 @@
 # Chương 339: Chẳng còn quân bài nào nữa.
 
-> **Tiêu đề gốc**: 第339章 没有底牌了。
-
 Lòng dạ con người đôi khi quả thực có chút mâu thuẫn đến kỳ lạ. Nếu như Từ Mạn Mạn cũng chủ động, bạo dạn như Quan Linh thì có lẽ mọi chuyện đã dễ dàng hơn nhiều, nhưng nếu cô thực sự biến thành một người như Quan Linh, e rằng một người đàn ông từng trải sẽ rất khó để trao trọn vẹn chân tình cho cô.
 
 "Kim An, anh có định mua đồ sắm Tết ở Trăn Hối Tuyển không? Lát nữa tiện có xe chở hàng chạy về hướng ấy đấy."

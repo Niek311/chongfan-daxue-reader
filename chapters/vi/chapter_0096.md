@@ -1,7 +1,5 @@
 # Chương 96: Tôi không hề ngốc, chỉ là nhìn thấy cậu cười, đầu óc bỗng chập mạch đôi chút.
 
-> **Tiêu đề gốc**: 第96章 我不是傻，只是看见你笑，脑子会有点短路。
-
 Đường Hiểu Tình hết sức trân trọng từng khoảnh khắc được ở bên cạnh Triệu Kim An.
 
 Cầm vô lăng chiếc xe van mui kín lướt trên đường, Triệu Kim An lại tìm thấy một trải nghiệm hoàn toàn mới lạ.

@@ -1,14 +1,12 @@
 # Chương 269: Mọi chuyện vượt khỏi tầm kiểm soát
 
-> **Tiêu đề gốc**: 第269章 事情脱离了掌控。
-
 Xét về tiềm lực kinh tế, vợ chồng Từ Tắc Đống và Lương Tuệ Trân dẫu sao cũng có chút của ăn của để tích cóp bấy lâu.
 
 Cũng giống như vợ chồng Mộc Nhân Cường và Trương Tuệ ở Tư Tinh.
 
 Đó chính là lợi thế không thể phủ nhận của những gia đình công chức nhà nước có thâm niên.
 
-"Dương Thục Mỹ đã đích thân gọi điện tới rồi, chẳng lẽ nhà mình lại khoanh tay không cho mượn?"
+"Dương Thù Mỹ đã đích thân gọi điện tới rồi, chẳng lẽ nhà mình lại khoanh tay không cho mượn?"
 
 Từ Tắc Đống gặng hỏi lại một câu.
 
@@ -16,9 +14,9 @@ Từ Tắc Đống gặng hỏi lại một câu.
 
 Lương Tuệ Trân bực bội đáp trả một câu.
 
-"Mối quan hệ giữa hai nhà bao nhiêu năm nay gắn bó thế nào bà còn không rõ sao, Dương Thục Mỹ nói trong điện thoại cũng chỉ thiếu nước mở lời trực tiếp nữa thôi."
+"Mối quan hệ giữa hai nhà bao nhiêu năm nay gắn bó thế nào bà còn không rõ sao, Dương Thù Mỹ nói trong điện thoại cũng chỉ thiếu nước mở lời trực tiếp nữa thôi."
 
-Từ Tắc Đống rít một hơi thuốc thật sâu: "Bà hiểu tính Dương Thục Mỹ mà, nếu không phải thật sự rơi vào bước đường cùng khó lòng gượng dậy, cô ấy có đi gõ cửa vay mượn khắp nơi thì cũng chẳng bao giờ tìm đến mở lời với nhà mình. Cô ấy bảo đã nộp hồ sơ xin vay vốn ngân hàng rồi."
+Từ Tắc Đống rít một hơi thuốc thật sâu: "Bà hiểu tính Dương Thù Mỹ mà, nếu không phải thật sự rơi vào bước đường cùng khó lòng gượng dậy, cô ấy có đi gõ cửa vay mượn khắp nơi thì cũng chẳng bao giờ tìm đến mở lời với nhà mình. Cô ấy bảo đã nộp hồ sơ xin vay vốn ngân hàng rồi."
 
 "Chỉ là ngân hàng đến giờ vẫn chưa phê duyệt giải ngân."
 
@@ -32,15 +30,15 @@ Dù sau này về hưu có lương hưu bảo đảm, nhưng chẳng có ai lạ
 
 "Khoản vay ngân hàng lúc này e là không dễ giải ngân đâu. Giữa thời buổi kinh tế suy thoái ảm đạm thế này, ngành nghề nào cũng lao đao khốn đốn, phải chờ xem chính sách của trung ương và địa phương sắp tới có cơ chế nào tháo gỡ hay không đã."
 
-Từ Tắc Đống buông một tiếng thở dài đầy cảm thán: "Thị trường trong nước còn đỡ, bà xem thời sự quốc tế mà xem, cả bốn xưởng sản xuất của Dương Thục Mỹ đều chuyên nhận đơn hàng gia công xuất khẩu đi nước ngoài..."
+Từ Tắc Đống buông một tiếng thở dài đầy cảm thán: "Thị trường trong nước còn đỡ, bà xem thời sự quốc tế mà xem, cả bốn xưởng sản xuất của Dương Thù Mỹ đều chuyên nhận đơn hàng gia công xuất khẩu đi nước ngoài..."
 
 "Thế thì ngần này tiền còm của nhà mình gom lại liệu có giải quyết được tích sự gì không?"
 
-Lương Tuệ Trân trong lòng cũng hiểu rõ, một khi Dương Thục Mỹ đã cất lời thì nhà mình không thể nào khoanh tay đứng nhìn. Cho dù là bà con họ hàng bình thường mở miệng vay mượn dăm ba ngàn hay vài vạn tệ thì cũng phải bấm bụng cho vay, huống chi ai nấy đều biết rõ vợ chồng bà có của ăn của để.
+Lương Tuệ Trân trong lòng cũng hiểu rõ, một khi Dương Thù Mỹ đã cất lời thì nhà mình không thể nào khoanh tay đứng nhìn. Cho dù là bà con họ hàng bình thường mở miệng vay mượn dăm ba ngàn hay vài vạn tệ thì cũng phải bấm bụng cho vay, huống chi ai nấy đều biết rõ vợ chồng bà có của ăn của để.
 
 "Cứu ngặt chứ ai cứu nghèo bao giờ!"
 
-Từ Tắc Đống trầm ngâm suy tính: "Dương Thục Mỹ dẫu sao cũng là người có thực lực và bản lĩnh. Nếu không có tài cán thì làm sao một tay gây dựng nên cơ nghiệp lớn đến nhường ấy được. Chỉ mong tình hình kinh tế sớm ngày khởi sắc trở lại, giúp cô ấy gượng dậy vượt qua cơn bĩ cực này."
+Từ Tắc Đống trầm ngâm suy tính: "Dương Thù Mỹ dẫu sao cũng là người có thực lực và bản lĩnh. Nếu không có tài cán thì làm sao một tay gây dựng nên cơ nghiệp lớn đến nhường ấy được. Chỉ mong tình hình kinh tế sớm ngày khởi sắc trở lại, giúp cô ấy gượng dậy vượt qua cơn bĩ cực này."
 
 "Dù sao hai nhà chúng ta cũng có mối thâm tình bao nhiêu năm nay rồi."
 
@@ -52,9 +50,9 @@ Lương Tuệ Trân im lặng, không thốt nên lời.
 
 Từ Tắc Đống ngẫm nghĩ một lát, rồi thở dài một tiếng: "Bảo bốn mươi vạn đi."
 
-"Yên tâm đi, một khi Dương Thục Mỹ xoay xở có tiền, cô ấy nhất định sẽ trả lại sòng phẳng cho chúng ta."
+"Yên tâm đi, một khi Dương Thù Mỹ xoay xở có tiền, cô ấy nhất định sẽ trả lại sòng phẳng cho chúng ta."
 
-Về điểm này thì Lương Tuệ Trân hoàn toàn tin tưởng vào nhân cách của Dương Thục Mỹ. Dương Thục Mỹ xưa nay tuyệt đối không phải hạng người quỵt nợ.
+Về điểm này thì Lương Tuệ Trân hoàn toàn tin tưởng vào nhân cách của Dương Thù Mỹ. Dương Thù Mỹ xưa nay tuyệt đối không phải hạng người quỵt nợ.
 
 Tâm lý của Từ Tắc Đống lúc này rất dễ hiểu: bản thân dốc hết bốn mươi vạn tệ giúp nhà họ Trần vượt qua hoạn nạn, chẳng rõ kiếp trước Từ Tắc Đống có bỏ tiền túi ra giúp hay không, nhưng khả năng cao là cũng đã ra tay tương trợ.
 
@@ -66,11 +64,11 @@ Sau đó sẽ còn là chuyện đi vay mượn khắp nơi, thế chấp tài s
 
 "À phải rồi, còn con bé Mạn Mạn thì sao, dạo này nó có gọi điện về cho bà không?"
 
-Mãi một lúc lâu sau, Từ Tắc Đống mới sực nhớ ra đứa con gái: "Dương Thục Mỹ bảo con bé Mạn Mạn với thằng Trần Trạch vẫn đang giận hờn cãi vã, con bé không chịu sang xưởng bên Tinh Sa giúp đỡ công việc."
+Mãi một lúc lâu sau, Từ Tắc Đống mới sực nhớ ra đứa con gái: "Dương Thù Mỹ bảo con bé Mạn Mạn với thằng Trần Trạch vẫn đang giận hờn cãi vã, con bé không chịu sang xưởng bên Tinh Sa giúp đỡ công việc."
 
 "Thằng Trần Trạch làm ra cái trò đốn mạt như thế, con Mạn Mạn nó nổi giận đùng đùng cũng là lẽ thường tình thôi."
 
-Lương Tuệ Trân hiếm hoi lắm mới buốt miệng nói một câu công đạo cho con gái. Có lẽ một phần cũng vì chuyện Dương Thục Mỹ sắp sửa mượn sạch sành sanh vốn liếng của gia đình, khiến bà nảy sinh đôi chút ấm ức và thành kiến với nhà họ Trần. Rơi vào hoàn cảnh của bất kỳ người mẹ nào thì cũng sẽ phản ứng như vậy mà thôi.
+Lương Tuệ Trân hiếm hoi lắm mới buốt miệng nói một câu công đạo cho con gái. Có lẽ một phần cũng vì chuyện Dương Thù Mỹ sắp sửa mượn sạch sành sanh vốn liếng của gia đình, khiến bà nảy sinh đôi chút ấm ức và thành kiến với nhà họ Trần. Rơi vào hoàn cảnh của bất kỳ người mẹ nào thì cũng sẽ phản ứng như vậy mà thôi.
 
 "Sắp bước vào năm học mới rồi, con bé không gọi điện về xin tiền đóng học phí à?"
 
@@ -112,11 +110,11 @@ Vậy mà bố mẹ của Tổng Giám đốc Từ tuyệt nhiên chưa từng m
 
 "Chẳng lẽ bố mẹ của Tổng Giám đốc Từ lại là những bậc trí thức hiểu lý lẽ đến mức sợ đến công ty sẽ làm ảnh hưởng tới công việc của con gái hay sao?"
 
-Dương Thục Mỹ bắt đầu ráo riết đi tìm Từ Mạn Mạn, bà đang vô cùng cần đến sự trợ giúp đắc lực của cô.
+Dương Thù Mỹ bắt đầu ráo riết đi tìm Từ Mạn Mạn, bà đang vô cùng cần đến sự trợ giúp đắc lực của cô.
 
 Thằng con trai Trần Trạch thì hoàn toàn là đồ vô tích sự, chẳng thể trông mong được gì.
 
-Vợ chồng Từ Tắc Đống và Lương Tuệ Trân cũng bắt đầu sốt sắng đi tìm con gái. Trong mắt họ, Từ Mạn Mạn dỗi hờn làm mình làm mẩy ngần ấy thời gian cũng đã là quá đủ rồi. Dù trong lòng còn ấm ức bực bội thì lúc này cũng phải gác lại một bên để chung tay giúp đỡ Dương Thục Mỹ vượt qua cơn hoạn nạn trước mắt đã.
+Vợ chồng Từ Tắc Đống và Lương Tuệ Trân cũng bắt đầu sốt sắng đi tìm con gái. Trong mắt họ, Từ Mạn Mạn dỗi hờn làm mình làm mẩy ngần ấy thời gian cũng đã là quá đủ rồi. Dù trong lòng còn ấm ức bực bội thì lúc này cũng phải gác lại một bên để chung tay giúp đỡ Dương Thù Mỹ vượt qua cơn hoạn nạn trước mắt đã.
 
 Sau này hai đứa trẻ có hờn giận cãi vã nhau thì cũng chỉ là chuyện nhỏ nhặt của lứa đôi.
 
@@ -126,7 +124,7 @@ Thế nhưng kể từ ngày Trăn Hối Tuyển chính thức khai trương đi
 
 Từng ấy con người.
 
-Từ Dương Thục Mỹ, vợ chồng Từ Tắc Đống - Lương Tuệ Trân, cho đến cả bản thân Trần Trạch, chưa một ai từng mảy may nghĩ đến chuyện Từ Mạn Mạn trong suốt học kỳ vừa qua suýt chút nữa đã bị nhà trường đuổi học, vậy mà chưa từng được nhận lấy một đồng tiền lương nào từ công ty nhà họ Trần.
+Từ Dương Thù Mỹ, vợ chồng Từ Tắc Đống - Lương Tuệ Trân, cho đến cả bản thân Trần Trạch, chưa một ai từng mảy may nghĩ đến chuyện Từ Mạn Mạn trong suốt học kỳ vừa qua suýt chút nữa đã bị nhà trường đuổi học, vậy mà chưa từng được nhận lấy một đồng tiền lương nào từ công ty nhà họ Trần.
 
 Thậm chí đêm hôm ấy khi Trần Trạch kéo Triệu Kim An ra một góc dò hỏi, hắn cũng chẳng buồn mở miệng hỏi han xem Từ Mạn Mạn sang Trăn Nhiên làm việc được trả lương bổng ra sao.
 
@@ -134,7 +132,7 @@ Người mở miệng hỏi chuyện đó rốt cuộc lại là Lâm Thanh Tuy�
 
 Có lẽ trong tiềm thức thâm căn cố đế của bọn họ, một người như Từ Mạn Mạn vốn dĩ không cần phải trả lương.
 
-Đến cả trong tiềm thức của bậc làm cha làm mẹ như Từ Tắc Đống và Lương Tuệ Trân, việc con gái mình sang công ty của Dương Thục Mỹ làm việc quần quật suốt ngày đêm cũng chỉ là chuyện giúp đỡ người nhà, mở miệng đòi tiền lương thì lại thành ra khách sáo, xa cách quá.
+Đến cả trong tiềm thức của bậc làm cha làm mẹ như Từ Tắc Đống và Lương Tuệ Trân, việc con gái mình sang công ty của Dương Thù Mỹ làm việc quần quật suốt ngày đêm cũng chỉ là chuyện giúp đỡ người nhà, mở miệng đòi tiền lương thì lại thành ra khách sáo, xa cách quá.
 
 Trần Trạch thì câm như hến, không dám hé răng nửa lời.
 

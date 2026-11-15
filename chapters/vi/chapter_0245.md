@@ -1,7 +1,5 @@
 # Chương 245: Thế này cũng được ư?
 
-> **Tiêu đề gốc**: 第245章 这样也行？
-
 Sau hai ngày ròng rã nằm vùi mình ngủ li bì trên giường, Mộc Dao bỗng nhiên vùng dậy chạy sang tìm Du Phi.
 
 “Du Phi ơi, cậu đi cùng tớ về thôn Triệu Gia một chuyến được không?”
@@ -16,7 +14,7 @@ Ngải Manh Manh ngồi một bên vừa mút que kem mát lạnh vừa vô tư 
 
 “Thế thì chúng mình bắt xe lên Sâm Châu đi!”
 
-Mộc Dao vội vã nắm chặt lấy tay Du Phi. Du Phi vốn thông minh lanh lợi nên vừa nghe qua đã hiểu ngay ngọn ngành: Bác gái Đoàn Thu Bình hiện đang làm việc ở thành phố Sâm Châu!
+Mộc Dao vội vã nắm chặt lấy tay Du Phi. Du Phi vốn thông minh lanh lợi nên vừa nghe qua đã hiểu ngay ngọn ngành: Bác gái Đoạn Thu Bình hiện đang làm việc ở thành phố Sâm Châu!
 
 Dao Dao đây là đang tính kế “đường vòng cứu nước”, muốn tiếp cận mẹ chồng tương lai để tìm kiếm cơ hội đây mà?
 

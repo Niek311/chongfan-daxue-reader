@@ -1,7 +1,5 @@
 # Chương 66: Tôi xin rút!
 
-> **Tiêu đề gốc**: 第66章 我放弃！
-
 Sáng hôm sau, Đan Vĩ lái xe tới đón người.
 
 Bà nội chuẩn bị sẵn một chiếc bao tải dứa, bên trong đựng đầy củ đậu và hạt dẻ quê.
@@ -46,7 +44,7 @@ Có điều chuyện này chưa cần gấp gáp ngay. Triệu Kim An đang cân
 
 Kể từ ngày quay lại Quận Sa, Triệu Kim An đi sớm về muộn. Lưu Sấm Phong và Cốc Siêu Thừa mấy lần muốn hỏi thăm nhưng lại ngại ngùng không dám mở lời.
 
-Trần Trạch nhắn một tin cho Hứa Mạn Mạn, báo rằng Triệu Kim An đã về lại trường rồi.
+Trần Trạch nhắn một tin cho Từ Mạn Mạn, báo rằng Triệu Kim An đã về lại trường rồi.
 
 Thẩm Tử Ngôn ở bên kia cũng thở phào nhẹ nhõm một cách khó hiểu. Một bữa ăn mất toi hai trăm tệ, sau đó Triệu Kim An bặt vô âm tín suốt hai ngày liền, hai đêm không về ký túc xá, nghe đâu ban ngày cũng chẳng thấy bóng dáng trên lớp.
 
@@ -114,7 +112,7 @@ Hoàn cảnh gia đình như thế mà lại không lo chăm chỉ học hành?
 
 Ngoài hành lang.
 
-Trần Trạch đang cầm điện thoại bấm phím "tách tách tách" nhắn tin lia lịa, chắc hẳn đang kể cho Hứa Mạn Mạn nghe chuyện Triệu Kim An thực sự bị giữ lại xét diện hộ nghèo.
+Trần Trạch đang cầm điện thoại bấm phím "tách tách tách" nhắn tin lia lịa, chắc hẳn đang kể cho Từ Mạn Mạn nghe chuyện Triệu Kim An thực sự bị giữ lại xét diện hộ nghèo.
 
 Vương Vĩ Đào và Cốc Siêu Thừa đứng dựa lan can chờ Triệu Kim An và Lưu Sấm Phong.
 

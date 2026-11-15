@@ -1,7 +1,5 @@
 # Chương 318: Những chuyển biến tiếp theo
 
-> **Tiêu đề gốc**: 第318章 后续。
-
 "Lão Cốc này, không phải tao muốn đả kích mày đâu, nhưng mày cứ học theo kiểu này thì không thể nào thi đỗ công chức nổi đâu. Tỷ lệ chọi của kỳ thi công chức còn khốc liệt và tàn nhẫn hơn cả thi đại học gấp vạn lần đấy."
 
 Lưu Sấm Phong dịu bớt giọng điệu xuống, rút một điếu thuốc đưa cho Cốc Siêu Thừa: "Học theo tao này, mở một gian hàng Taobao trên mạng đi. Toàn bộ quy trình tao sẽ đích thân chỉ dạy cho mày từ A đến Z, cái này thực sự chẳng có gì khó khăn cả."
@@ -30,13 +28,13 @@ Có thể xây dựng được mối quan hệ thân thiết với nhân vật �
 
 Lạc Cẩn Chi được giữ lại túc trực tại Quận Sa, bởi vì Triệu Kim An sắp sửa phải lên đường bay sang cảng Piraeus bên Hy Lạp.
 
-Đoàn Thu Bình và bé Tống Gia Nguyệt cũng chuẩn bị thu xếp đồ đạc để trở về Sâm Thành. Triệu Kim An liền dặn Đan Vĩ đích thân lái chiếc xe thương vụ Mercedes đưa hai mẹ con về tận nhà.
+Đoạn Thu Bình và bé Tống Gia Nguyệt cũng chuẩn bị thu xếp đồ đạc để trở về Sâm Thành. Triệu Kim An liền dặn Đan Vĩ đích thân lái chiếc xe thương vụ Mercedes đưa hai mẹ con về tận nhà.
 
 Tính ra hai mẹ con họ đã ở lại đây được ngót nghét một tháng trời. Ban ngày Triệu Kim An hầu như không có mặt ở nhà, thường phải đến tận đêm muộn mới về tới nơi. Cậu chưa từng một lần ôm ấp hay tỏ ra thân mật, âu yếm với đứa em gái cùng mẹ khác cha Tống Gia Nguyệt này.
 
 Thế nhưng, cậu cũng chưa từng buông một lời nặng nề, quát mắng hay ném cho con bé một ánh mắt khó chịu nào.
 
-Bà nội trước đó có gọi điện thoại lên hỏi thăm tình hình, khi nghe thấy chuyến đi này chỉ có mỗi hai mẹ con Đoàn Thu Bình và Tống Gia Nguyệt thì bà cụ không nói thêm bất cứ lời nào nữa.
+Bà nội trước đó có gọi điện thoại lên hỏi thăm tình hình, khi nghe thấy chuyến đi này chỉ có mỗi hai mẹ con Đoạn Thu Bình và Tống Gia Nguyệt thì bà cụ không nói thêm bất cứ lời nào nữa.
 
 Có lẽ nếu như cả Tống Siêu Văn lẫn Tống Uyển Hòa mà cũng kéo nhau lên Quận Sa ăn chực nằm chờ, thì trong lòng bà nội chắc chắn sẽ cảm thấy vô cùng khó chịu và bức bối. Thậm chí có khi thím Vương Kim Như đã lập tức đùng đùng xách giỏ bay thẳng lên Quận Sa để làm cho ra ngô ra khoai rồi cũng nên.
 
@@ -52,35 +50,35 @@ Tống Gia Nguyệt vừa muốn về nhà lại vừa không nỡ rời đi, đ
 
 Đây là lần đầu tiên trong cuộc đời con bé được đi "thăm người thân" đúng nghĩa!
 
-Trước đây, cùng lắm con bé chỉ được đi theo Tống Siêu Văn và Đoàn Thu Bình đi chúc tết vài nhà họ hàng bên nội. Một đứa con gái sinh ra từ cuộc hôn nhân thứ hai như con bé vốn chẳng mấy khi nhận được sự chào đón hay yêu thương từ phía nhà nội bên kia, làm sao có thể được cưng chiều và yêu mến như cô chị Tống Uyển Hòa cho được.
+Trước đây, cùng lắm con bé chỉ được đi theo Tống Siêu Văn và Đoạn Thu Bình đi chúc tết vài nhà họ hàng bên nội. Một đứa con gái sinh ra từ cuộc hôn nhân thứ hai như con bé vốn chẳng mấy khi nhận được sự chào đón hay yêu thương từ phía nhà nội bên kia, làm sao có thể được cưng chiều và yêu mến như cô chị Tống Uyển Hòa cho được.
 
-Những người họ hàng bên đó lúc nào cũng nơm nớp lo sợ Đoàn Thu Bình mang tiếng mẹ kế sẽ đối xử tệ bạc, khắt khe với Tống Uyển Hòa.
+Những người họ hàng bên đó lúc nào cũng nơm nớp lo sợ Đoạn Thu Bình mang tiếng mẹ kế sẽ đối xử tệ bạc, khắt khe với Tống Uyển Hòa.
 
-Triệu Kim An không nói những lời khách sáo sáo rỗng kiểu như "lần sau lại lên chơi nhé". Cậu đã âm thầm chuyển thẳng vào tài khoản của Đoàn Thu Bình mười vạn tệ, những điều cần nhắc nhở và phân tích cậu cũng đã nói hết nước hết cái rồi. Nếu như bản thân Đoàn Thu Bình vẫn cứ u mê, dại dột...
+Triệu Kim An không nói những lời khách sáo sáo rỗng kiểu như "lần sau lại lên chơi nhé". Cậu đã âm thầm chuyển thẳng vào tài khoản của Đoạn Thu Bình mười vạn tệ, những điều cần nhắc nhở và phân tích cậu cũng đã nói hết nước hết cái rồi. Nếu như bản thân Đoạn Thu Bình vẫn cứ u mê, dại dột...
 
 Nếu bà vẫn không biết trân trọng, không dành thời gian bên cạnh để nuôi dạy, bảo ban đứa con gái ruột của mình cho nên người...
 
-Nếu bà vẫn cứ tiếp tục ban ngày cắm mặt đi xỏ xiên thịt nướng, đêm đến lại kéo nhau đi phụ Tống Siêu Văn dọn quầy hàng rong đến tận mười hai giờ đêm mới lếch thếch dắt con bé Gia Nguyệt về nhà ngủ, để rồi tạo nên tính cách tự ti, lầm lì và bất hạnh của Tống Gia Nguyệt như ở kiếp trước, thì đó hoàn toàn là lỗi lầm và trách nhiệm của chính bản thân Đoàn Thu Bình.
+Nếu bà vẫn cứ tiếp tục ban ngày cắm mặt đi xỏ xiên thịt nướng, đêm đến lại kéo nhau đi phụ Tống Siêu Văn dọn quầy hàng rong đến tận mười hai giờ đêm mới lếch thếch dắt con bé Gia Nguyệt về nhà ngủ, để rồi tạo nên tính cách tự ti, lầm lì và bất hạnh của Tống Gia Nguyệt như ở kiếp trước, thì đó hoàn toàn là lỗi lầm và trách nhiệm của chính bản thân Đoạn Thu Bình.
 
-Mười vạn tệ này là một số tiền quá đủ để Đoàn Thu Bình ở Sâm Thành có thể toàn tâm toàn ý chăm lo học hành, bồi dưỡng cho Tống Gia Nguyệt, bất kỳ lớp học năng khiếu hay lớp bồi dưỡng văn hóa nào bà cũng đều có đủ khả năng tài chính để đăng ký cho con gái.
+Mười vạn tệ này là một số tiền quá đủ để Đoạn Thu Bình ở Sâm Thành có thể toàn tâm toàn ý chăm lo học hành, bồi dưỡng cho Tống Gia Nguyệt, bất kỳ lớp học năng khiếu hay lớp bồi dưỡng văn hóa nào bà cũng đều có đủ khả năng tài chính để đăng ký cho con gái.
 
 "Anh hai... Tiểu Nguyệt về đây ạ."
 
-Trước lúc bước chân ra khỏi cửa, Tống Gia Nguyệt dường như đã lấy hết dũng khí và sự can đảm tích tụ bấy lâu, con bé rụt rè đưa ngón tay nhỏ xíu chạm nhẹ vào mu bàn tay của Triệu Kim An một cái, rồi lập tức rụt tay lại thật nhanh, nép sát vào người mẹ. Bàn tay còn lại của con bé đang được Đoàn Thu Bình nắm chặt lấy.
+Trước lúc bước chân ra khỏi cửa, Tống Gia Nguyệt dường như đã lấy hết dũng khí và sự can đảm tích tụ bấy lâu, con bé rụt rè đưa ngón tay nhỏ xíu chạm nhẹ vào mu bàn tay của Triệu Kim An một cái, rồi lập tức rụt tay lại thật nhanh, nép sát vào người mẹ. Bàn tay còn lại của con bé đang được Đoạn Thu Bình nắm chặt lấy.
 
-Triệu Kim An không có quá nhiều ký ức sâu đậm về đứa em gái này. Nhìn bàn tay Đoàn Thu Bình đang dắt chặt lấy Tống Gia Nguyệt lúc này, trong tâm trí cậu chỉ bất giác hiện về hình ảnh năm cậu còn học cấp hai, khi ấy cậu phải tự mình bắt chuyến xe khách cọc cạch chạy từ quê lên Sâm Thành để tìm mẹ xin một trăm hai mươi tệ tiền may đồng phục học sinh. Khi bước vào nhà, cậu chỉ thấy Đoàn Thu Bình đang ôm ấp con bé Gia Nguyệt trong lòng... Cậu cũng nhớ lại sau này khi con bé lớn lên, mỗi dịp lễ tết Gia Nguyệt đều nhắn tin chúc mừng anh trai, thậm chí còn từng chuyển khoản mừng tuổi cho cậu một phong bao lì xì hai trăm tệ qua WeChat.
+Triệu Kim An không có quá nhiều ký ức sâu đậm về đứa em gái này. Nhìn bàn tay Đoạn Thu Bình đang dắt chặt lấy Tống Gia Nguyệt lúc này, trong tâm trí cậu chỉ bất giác hiện về hình ảnh năm cậu còn học cấp hai, khi ấy cậu phải tự mình bắt chuyến xe khách cọc cạch chạy từ quê lên Sâm Thành để tìm mẹ xin một trăm hai mươi tệ tiền may đồng phục học sinh. Khi bước vào nhà, cậu chỉ thấy Đoạn Thu Bình đang ôm ấp con bé Gia Nguyệt trong lòng... Cậu cũng nhớ lại sau này khi con bé lớn lên, mỗi dịp lễ tết Gia Nguyệt đều nhắn tin chúc mừng anh trai, thậm chí còn từng chuyển khoản mừng tuổi cho cậu một phong bao lì xì hai trăm tệ qua WeChat.
 
 Người ngoài nhìn vào thường bảo Triệu Kim An là kẻ vô cảm, chẳng bao giờ để lộ bất kỳ suy nghĩ hay hoạt động nội tâm nào ra ngoài mặt.
 
 Thế nhưng, đây chính là toàn bộ những hoạt động nội tâm sâu kín nhất của cậu.
 
-Cứ như thế, Đoàn Thu Bình và bé Tống Gia Nguyệt đã lên xe trở về Sâm Thành.
+Cứ như thế, Đoạn Thu Bình và bé Tống Gia Nguyệt đã lên xe trở về Sâm Thành.
 
 Người cảm thấy lưu luyến và hụt hẫng nhất trong căn nhà này lúc này lại chính là bà dì giúp việc Lưu Mỹ Nga.
 
-Hai mẹ con Đoàn Thu Bình vừa rời đi, căn nhà rộng thênh thang này lại trở về trạng thái không có "nữ chủ nhân".
+Hai mẹ con Đoạn Thu Bình vừa rời đi, căn nhà rộng thênh thang này lại trở về trạng thái không có "nữ chủ nhân".
 
-Mặc dù Đoàn Thu Bình chưa từng được xem là nữ chủ nhân thực sự của nơi này, nhưng ít ra có phụ nữ ở lại thì dì Lưu Mỹ Nga cũng có thể an tâm ngủ lại qua đêm để tiện chăm sóc nhà cửa. Giờ họ đã đi rồi, dì Lưu cũng không tiện ở lại ngủ qua đêm một mình cùng cậu chủ trẻ tuổi nữa.
+Mặc dù Đoạn Thu Bình chưa từng được xem là nữ chủ nhân thực sự của nơi này, nhưng ít ra có phụ nữ ở lại thì dì Lưu Mỹ Nga cũng có thể an tâm ngủ lại qua đêm để tiện chăm sóc nhà cửa. Giờ họ đã đi rồi, dì Lưu cũng không tiện ở lại ngủ qua đêm một mình cùng cậu chủ trẻ tuổi nữa.
 
 Dù dì Lưu và Triệu Kim An chênh lệch nhau tới hơn hai mươi tuổi, nhưng dì vẫn luôn nơm nớp lo sợ những lời đàm tiếu, gièm pha dị nghị không hay từ những người xung quanh.
 

@@ -1,8 +1,6 @@
 # Chương 193: Triệu Kim An "phản bội" rồi.
 
-> **Tiêu đề gốc**: 第193章 赵今安叛变了。
-
-Trần Trạch vốn là người coi trọng thể diện đến nhường nào, vừa bước chân về đến nhà đã nổi trận lôi đình trút giận lên đầu Dương Thục Mỹ.
+Trần Trạch vốn là người coi trọng thể diện đến nhường nào, vừa bước chân về đến nhà đã nổi trận lôi đình trút giận lên đầu Dương Thù Mỹ.
 
 "Mẹ ơi, cứ tiếp tục thế này thì con còn mặt mũi nào mà đến trường học nữa đây!!"
 
@@ -12,7 +10,7 @@ Trần Trạch vốn là người coi trọng thể diện đến nhường nào
 
 "Mày không biết mò đến tận cổng ký túc xá nữ mà đứng chờ à?"
 
-Dương Thục Mỹ thực sự không ngờ đứa con trai của mình lại đần độn, thiếu nhạy bén đến mức ấy. Biết rõ ký túc xá nữ nằm ở đâu mà lại bảo không gặp được người?
+Dương Thù Mỹ thực sự không ngờ đứa con trai của mình lại đần độn, thiếu nhạy bén đến mức ấy. Biết rõ ký túc xá nữ nằm ở đâu mà lại bảo không gặp được người?
 
 "Mẹ, là Mạn Mạn cố tình trốn tránh không muốn gặp con."
 
@@ -24,15 +22,15 @@ Dương Thục Mỹ thực sự không ngờ đứa con trai của mình lại �
 
 "Còn con bé kia, mày cứ sang tên luôn phòng bi-a cho nó, rồi đưa thêm cho nó một khoản tiền đền bù cho xong chuyện."
 
-Dương Thục Mỹ thực sự bận tối mắt tối mũi. Ở Dương Thành có ba nhà máy, Tinh Sa một nhà máy, lần này tranh thủ quay về Quận Sa cũng phải xử lý cả núi công việc tồn đọng. Từ Tắc Đống dạy dỗ con gái xưa nay cực kỳ nghiêm khắc.
+Dương Thù Mỹ thực sự bận tối mắt tối mũi. Ở Dương Thành có ba nhà máy, Tinh Sa một nhà máy, lần này tranh thủ quay về Quận Sa cũng phải xử lý cả núi công việc tồn đọng. Từ Tắc Đống dạy dỗ con gái xưa nay cực kỳ nghiêm khắc.
 
 Bà ta chỉ mong sao nhanh chóng nhận được sự tha thứ, lượng thứ của vợ chồng Từ Tắc Đống và Lương Tuệ Trân là xem như êm thấm.
 
-Triệu Kim An nhận được một tin nhắn từ Dương Thục Mỹ.
+Triệu Kim An nhận được một tin nhắn từ Dương Thù Mỹ.
 
-Dương Thục Mỹ lại nhắc lại chuyện cũ, tha thiết hy vọng Triệu Kim An đến năm tư đại học sẽ sang Dương Thành thực tập trong công ty của bà.
+Dương Thù Mỹ lại nhắc lại chuyện cũ, tha thiết hy vọng Triệu Kim An đến năm tư đại học sẽ sang Dương Thành thực tập trong công ty của bà.
 
-Triệu Kim An ngẫm nghĩ một hồi, vẫn quyết định "lần thứ hai" khuyên Dương Thục Mỹ nên cẩn trọng, biết điểm dừng... Không còn Từ Mạn Mạn ở bên... Ờ thì, dẫu có Từ Mạn Mạn ở đó, Dương Thục Mỹ cũng có thèm nghe lời cô đâu.
+Triệu Kim An ngẫm nghĩ một hồi, vẫn quyết định "lần thứ hai" khuyên Dương Thù Mỹ nên cẩn trọng, biết điểm dừng... Không còn Từ Mạn Mạn ở bên... Ờ thì, dẫu có Từ Mạn Mạn ở đó, Dương Thù Mỹ cũng có thèm nghe lời cô đâu.
 
 "Kim An, cậu định mở một siêu thị lớn thật đấy à?"
 

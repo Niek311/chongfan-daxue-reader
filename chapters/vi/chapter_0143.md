@@ -1,7 +1,5 @@
 # Chương 143: Điểm tựa tinh thần
 
-> **Tiêu đề gốc**: 第143章 主心骨。
-
 Lái xe từ khu Đại học Thành Quận Sa xuống tận Tinh Sa vào đúng giờ cao điểm buổi sáng mất ròng rã bảy mươi phút đồng hồ. Suốt dọc đường, Trần Trạch cứ bấm còi inh ỏi không ngớt, tâm trạng bực bội bức bối chẳng khác nào người mắc hội chứng cuồng nộ sau tay lái.
 
 Từ Mạn Mạn chọn cách im lặng.
@@ -16,13 +14,13 @@ Vị quản đốc có phần ngơ ngác, thầm nghĩ vị thiếu gia này sá
 
 Rốt cuộc là có chuyện gì xảy ra cơ chứ?
 
-Ông ta đâu biết được rằng Dương Thục Mỹ đã đem toàn bộ số tiền vốn lưu động của công ty đổ hết vào thị trường chứng khoán.
+Ông ta đâu biết được rằng Dương Thù Mỹ đã đem toàn bộ số tiền vốn lưu động của công ty đổ hết vào thị trường chứng khoán.
 
-Cơ sở sản xuất tư nhân của cá nhân là thế, tài chính công ty không có ai kiểm soát giám sát, mọi việc đều do một mình Dương Thục Mỹ tự tung tự tác quyết định.
+Cơ sở sản xuất tư nhân của cá nhân là thế, tài chính công ty không có ai kiểm soát giám sát, mọi việc đều do một mình Dương Thù Mỹ tự tung tự tác quyết định.
 
 Trần Trạch hỏi chẳng trúng trọng tâm, Từ Mạn Mạn liền lên tiếng hỏi thăm về tình hình bán hàng và tiêu thụ của xưởng.
 
-Có điều lúc này thị trường bên ngoài vẫn chưa có dấu hiệu phản ứng rõ rệt, tảng đá đè nặng trong lòng Trần Trạch mới hơi hé mở được đôi chút. Từ Mạn Mạn bảo anh ta vào phòng làm việc ngồi nghỉ ngơi, chuyện cấp bách nhất bây giờ là phải giục Dương Thục Mỹ bán sạch số cổ phiếu kia đi.
+Có điều lúc này thị trường bên ngoài vẫn chưa có dấu hiệu phản ứng rõ rệt, tảng đá đè nặng trong lòng Trần Trạch mới hơi hé mở được đôi chút. Từ Mạn Mạn bảo anh ta vào phòng làm việc ngồi nghỉ ngơi, chuyện cấp bách nhất bây giờ là phải giục Dương Thù Mỹ bán sạch số cổ phiếu kia đi.
 
 "Anh đừng đem vẻ sốt ruột, bực dọc này viết hết lên mặt như thế, anh làm vậy thì người khác làm sao yên tâm làm việc được?"
 

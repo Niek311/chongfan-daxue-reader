@@ -1,7 +1,5 @@
 # Chương 88: Làng họ Triệu, ngóng chờ diện kiến (1)
 
-> **Tiêu đề gốc**: 第88章 赵家村，等着见人1
-
 Tết nhất đã cận kề trước mắt.
 
 Vậy mà Tô Miến lại ngồi trơ trọi một mình bên vệ đường quốc lộ, giữa nơi đất khách quê người xa lạ này.

@@ -1,7 +1,5 @@
 # Chương 222: Cuộc sống khá giả
 
-> **Tiêu đề gốc**: 第222章 小康生活。
-
 Lái xe từ Quận Sa đến Hứa Xương mất chừng mười tiếng đồng hồ.
 
 Triệu Kim An đi dạo một vòng kiểm tra tình hình thi công ở tầng ba.

@@ -1,7 +1,5 @@
 # Chương 136: Có chút ghen tuông
 
-> **Tiêu đề gốc**: 第136章 有点吃醋。
-
 "Mau ăn cơm đi, gắp nhiều thức ăn vào."
 
 Bà nội giục giã.

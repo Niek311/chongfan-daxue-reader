@@ -1,7 +1,5 @@
 # Chương 43: Những dòng tin nhắn đêm đầu tiên
 
-> **Tiêu đề gốc**: 第43章 第一晚的信息。
-
 Mãi về sau này Triệu Kim An mới nhớ ra, kiếp trước Lưu Sấm Phong từng có một thời gian buôn bán mì ăn liền, thuốc lá, bia và đồ nhắm ngay trong phòng ký túc xá.
 
 Ở các trường đại học thường có những người như vậy. Họ gom hàng từ các tiệm tạp hóa ngoài cổng trường với giá sỉ, sau đó đội giá thêm năm hào mỗi món bán lại cho sinh viên cùng tòa nhà. Đến khi ký túc xá đóng cửa đóng cổng vào ban đêm, đó chính là mảnh đất màu mỡ để họ hốt bạc.
@@ -52,11 +50,11 @@ Doãn Hiểu Lan: *Đã lên đại học rồi thì cố gắng chăm chỉ h�
 
 Dòng tin nhắn này gửi đến hơi chậm một chút, có lẽ Doãn Hiểu Lan đã phải đắn đo cân nhắc từng câu chữ khá lâu.
 
-Bản thân chị vốn chẳng có nguồn thu nhập nào ổn định. Vả lại, cho dù Triệu Kim An có muốn xin tiền sinh hoạt phí đi chăng nữa thì cũng "chưa đến lượt" hỏi tới Doãn Hiểu Lan. Phía trước anh còn có bà nội, có mẹ ruột Đoàn Thu Bình, rồi đến dì Vương Kim Như.
+Bản thân chị vốn chẳng có nguồn thu nhập nào ổn định. Vả lại, cho dù Triệu Kim An có muốn xin tiền sinh hoạt phí đi chăng nữa thì cũng "chưa đến lượt" hỏi tới Doãn Hiểu Lan. Phía trước anh còn có bà nội, có mẹ ruột Đoạn Thu Bình, rồi đến dì Vương Kim Như.
 
 Thân phận của những người đó đều danh chính ngôn thuận hơn Doãn Hiểu Lan rất nhiều.
 
-Đúng vậy, xét theo lẽ thường, vị trí của Đoàn Thu Bình còn phải xếp trước cả Vương Kim Như.
+Đúng vậy, xét theo lẽ thường, vị trí của Đoạn Thu Bình còn phải xếp trước cả Vương Kim Như.
 
 Triệu Kim An: *Dạ, em biết rồi.*
 

@@ -1,7 +1,5 @@
 # Chương 290: Không tìm thấy người
 
-> **Tiêu đề gốc**: 第290章 找不到人。
-
 Vương Duy Đào và Lý Ngải Lan là hai người thật lòng cảm thấy vui mừng nhất cho Triệu Kim An, niềm vui của họ hoàn toàn chân thành và thuần khiết. Cả hai người liên tục bấm số gọi vào máy Triệu Kim An, nhưng kết quả vẫn y như cũ: không thể nào kết nối được.
 
 Cô nàng Lý Ngải Lan chẳng có chút tiền đồ nào liền toe toét cười nói: "Vương Duy Đào này, Triệu Kim An giờ giàu nứt đố đổ vách thế rồi, có phải chín trăm tệ tớ mượn cậu ấy không cần phải trả nữa đúng không?"
@@ -220,30 +218,30 @@ Tại phòng Hiệu trưởng, Hiệu trưởng Cung lúc này vẫn đang ngồ
 
 Tất cả bọn họ đều đang ráo riết "tìm kiếm" Triệu Kim An. Trong trường xuất hiện một nhân vật tầm cỡ chấn động như thế này, ít nhất cũng phải gọi được một cuộc điện thoại để trao đổi trực tiếp chứ, ai mà ngờ được số máy của cậu ấy lại liên tục không thể kết nối.
 
-Tập hồ sơ lý lịch học sinh của Triệu Kim An được đặt ngay ngắn trên bàn làm việc của Hiệu trưởng, nhìn vào cột thông tin người cha bị bỏ trống, phía nhà trường bèn nhanh chóng dò la tìm được số điện thoại của mẹ anh — bà Đoàn Thu Bình.
+Tập hồ sơ lý lịch học sinh của Triệu Kim An được đặt ngay ngắn trên bàn làm việc của Hiệu trưởng, nhìn vào cột thông tin người cha bị bỏ trống, phía nhà trường bèn nhanh chóng dò la tìm được số điện thoại của mẹ anh — bà Đoạn Thu Bình.
 
 Tại thành phố Sâm Châu.
 
-Đoàn Thu Bình lúc này vẫn đang cặm cụi phụ giúp Tống Siêu Văn dọn hàng thịt nướng vỉa hè. Bé Tống Gia Nguyệt ngoan ngoãn ngồi ngay ngắn trên chiếc ghế đẩu nhỏ bằng nhựa, hai tay cầm chặt một xiên thịt nướng thơm lừng.
+Đoạn Thu Bình lúc này vẫn đang cặm cụi phụ giúp Tống Siêu Văn dọn hàng thịt nướng vỉa hè. Bé Tống Gia Nguyệt ngoan ngoãn ngồi ngay ngắn trên chiếc ghế đẩu nhỏ bằng nhựa, hai tay cầm chặt một xiên thịt nướng thơm lừng.
 
 Tống Uyển Hòa hôm nay phải làm ca tối, hiệu thuốc tây nơi cô làm việc phải đến mười giờ đêm mới đóng cửa nghỉ bán.
 
 "Reng... reng... reng!"
 
-Đoàn Thu Bình vội lấy chiếc khăn lau qua đôi bàn tay dính dầu mỡ, rút chiếc điện thoại ra nhìn thấy một dãy số lạ hiển thị trên màn hình: "Alo, xin hỏi ai đấy ạ?"
+Đoạn Thu Bình vội lấy chiếc khăn lau qua đôi bàn tay dính dầu mỡ, rút chiếc điện thoại ra nhìn thấy một dãy số lạ hiển thị trên màn hình: "Alo, xin hỏi ai đấy ạ?"
 
 "Xin chào bà Đoàn..."
 
-Chỉ thấy Đoàn Thu Bình cầm chặt chiếc điện thoại đứng chết lặng tại chỗ, toàn bộ cơ mặt bỗng chốc cứng đờ lại.
+Chỉ thấy Đoạn Thu Bình cầm chặt chiếc điện thoại đứng chết lặng tại chỗ, toàn bộ cơ mặt bỗng chốc cứng đờ lại.
 
 "Ông chủ ơi, dọn giúp cái bàn với!" Có mấy vị khách vừa ghé vào quán gọi đồ nướng.
 
-Tống Siêu Văn vừa thoăn thoắt lật các xiên nướng trên bếp than hồng vừa ngoái đầu nhìn sang Đoàn Thu Bình, sốt ruột thúc giục: "Làm sao thế? Điện thoại của ai gọi vậy? Mau ra dọn bàn cho khách đi kìa, không người ta lại bỏ sang quán bên cạnh ăn bây giờ!"
+Tống Siêu Văn vừa thoăn thoắt lật các xiên nướng trên bếp than hồng vừa ngoái đầu nhìn sang Đoạn Thu Bình, sốt ruột thúc giục: "Làm sao thế? Điện thoại của ai gọi vậy? Mau ra dọn bàn cho khách đi kìa, không người ta lại bỏ sang quán bên cạnh ăn bây giờ!"
 
 "Lão Tống ơi, quán ông khách đông làm không hết việc thì chia bớt sang bên tôi một hai bàn thì có sao đâu nào!"
 
 Lão Lý chủ quán nướng kế bên cất tiếng cười khà khà trêu chọc.
 
-Đoàn Thu Bình ngước mắt nhìn đứa con gái nhỏ tối nào cũng ngoan ngoãn ngồi trên chiếc ghế đẩu đợi mẹ dọn hàng về nhà, rồi lại nhìn sang người chồng Tống Siêu Văn, giọng bà run rẩy cất lên:
+Đoạn Thu Bình ngước mắt nhìn đứa con gái nhỏ tối nào cũng ngoan ngoãn ngồi trên chiếc ghế đẩu đợi mẹ dọn hàng về nhà, rồi lại nhìn sang người chồng Tống Siêu Văn, giọng bà run rẩy cất lên:
 
 "Điện thoại từ trường đại học của Kim An gọi tới... Bọn họ bảo Kim An chính là ông chủ của tập đoàn Trăn Nhiên..."

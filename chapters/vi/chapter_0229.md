@@ -1,7 +1,5 @@
 # Chương 229: Chúng mình thực sự không còn cơ hội nào sao?
 
-> **Tiêu đề gốc**: 第229章 我们真的没可能了吗？
-
 Khu làng đại học Quận Sa.
 
 Từ Mạn Mạn và Đường Hiểu Tình đã kết thúc chuyến công tác từ Hứa Đô trở về, thế nhưng Triệu Kim An vẫn bặt vô âm tín.

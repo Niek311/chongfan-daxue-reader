@@ -1,7 +1,5 @@
 # Chương 107: Cậu đã chọn con đường chông gai nhất
 
-> **Tiêu đề gốc**: 第107章 你挑了条最难的路。
-
 Lưu Huy nhận ra sự việc có phần muộn màng, bèn cất tiếng hỏi Triệu Kim An rằng giải đấu Cúp Trăn Nhiên đang rầm rộ khắp khu Đại học Thành kia có phải do cậu phụ trách hay không.
 
 Thầy cũng chẳng nói thêm điều gì đao to búa lớn, chỉ lộ rõ vẻ ngỡ ngàng, kinh ngạc.

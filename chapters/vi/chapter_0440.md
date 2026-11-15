@@ -1,7 +1,5 @@
 # Chương 440: Lên mặt báo
 
-> **Tiêu đề gốc**: 第440章 登报。
-
 Đội ngũ giáo sư và sinh viên được mời từ các trường đại học xuống quả nhiên làm việc vô cùng đâu ra đấy, tác phong vững vàng, chắc chắn.
 
 Điều này phần nhiều có lẽ xuất phát từ uy tín và sự sàng lọc của cô giáo Dư Tĩnh. Đại học Trung Nam, Đại học Hồ Nam và Đại học Sư phạm vốn cùng nằm chung trong một khu đô thị đại học dưới chân núi Nhạc Lộc. Dư Tĩnh đã đích thân liên hệ, chọn lựa những vị giáo sư đầu ngành có tính cách cẩn trọng, làm việc thực tế nhất để ngỏ lời mời về Phụ Bình hỗ trợ.

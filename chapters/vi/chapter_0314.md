@@ -1,7 +1,5 @@
 # Chương 314: Lột xác
 
-> **Tiêu đề gốc**: 第314章 蜕变。
-
 "Mọi người còn chưa biết sao?"
 
 Đúng lúc này Vương Duy Đào lên tiếng: "Hồi đầu năm học Trăn Nhiên tổ chức sự kiện, cái túi xách trên tay Đường Hiểu Tình là của Chanel, hàng chính hãng hẳn hoi đấy! Này lão Lưu, không phải ba cái đồ giả mua trên mạng của các cậu đâu. Một bộ đồng phục công sở thì có gì mà phải làm ầm ĩ lên thế?"
@@ -76,7 +74,7 @@ Chiếc Rolls-Royce rốt cuộc phải dừng bánh lại, người vây quanh 
 
 Lý Ngải Lan hưng phấn như muốn nhào thẳng vào thân xe. Đúng lúc ấy, từ chiếc xe thương vụ phía sau, hai người đàn ông vạm vỡ nhanh chóng bước xuống.
 
-Đó là Quan Văn Bách và Chu Phong Hoa — hai đồng đội xuất ngũ của Đơn Vĩ, ngoài ra còn hai người nữa đang ngồi ở vị trí tài xế.
+Đó là Quan Văn Bách và Chu Phong Hoa — hai đồng đội xuất ngũ của Đan Vĩ, ngoài ra còn hai người nữa đang ngồi ở vị trí tài xế.
 
 Quan Văn Bách và Chu Phong Hoa đều khoác lên mình bộ vest đen chỉnh tề thắt cà vạt, phong thái và dáng đi toát lên vẻ can trường, dứt khoát chuẩn tác phong quân ngũ.
 
@@ -86,7 +84,7 @@ Tuy nhiên đây là môi trường giảng đường đại học, họ cũng c
 
 Các nam sinh lớp Kế toán 1 và Kế toán 2 sững sờ chết lặng. Triệu Kim An bây giờ ra ngoài đã có cả dàn vệ sĩ hộ tống rồi sao? Bối cảnh phô trương nhường này dường như chỉ thấy trên ti vi mỗi khi các đại tài phiệt hay siêu sao quốc tế xuất hiện mà thôi!
 
-Quan Văn Bách bị cụt mất hai ngón tay, anh đưa mắt quan sát tình hình phía trước rồi khẽ gõ gõ vào cửa kính bên ghế lái: "Đơn Vĩ, tắc cứng rồi, xe không nhích lên nổi nữa đâu."
+Quan Văn Bách bị cụt mất hai ngón tay, anh đưa mắt quan sát tình hình phía trước rồi khẽ gõ gõ vào cửa kính bên ghế lái: "Đan Vĩ, tắc cứng rồi, xe không nhích lên nổi nữa đâu."
 
 Họ biết rõ nhiệm vụ chính của mình là theo chân Triệu Kim An xuất ngoại, việc hộ tống đến trường hôm nay chỉ là tiện đường đi cùng. Ở trong khuôn viên trường học thì có ai dám làm hại ông chủ cơ chứ? An ninh trật tự trong nước xưa nay chẳng có gì đáng phải lo ngại.
 
@@ -138,7 +136,7 @@ Họ đều nắm rõ chức vụ của Thẩm Tử Ngôn và Từ Mạn Mạn: 
 
 Lâm Thanh Tuyết rơi vào trầm tư, ánh mắt dán chặt vào Từ Mạn Mạn mà lòng trĩu nặng.
 
-Những lời Diêu Tân từng nói với cô hôm ấy dường như vẫn còn văng vẳng bên tai: Từ Mạn Mạn từng là người "cứu vớt" cả gia đình Trần Trạch thoát khỏi vực thẳm phá sản. Khi ấy cô còn không phục, còn bây giờ nhìn lại, bản thân cô chỉ biết ngày ngày chôn chân trông coi cái quán bi-a xập xệ.
+Những lời Diêu Sân từng nói với cô hôm ấy dường như vẫn còn văng vẳng bên tai: Từ Mạn Mạn từng là người "cứu vớt" cả gia đình Trần Trạch thoát khỏi vực thẳm phá sản. Khi ấy cô còn không phục, còn bây giờ nhìn lại, bản thân cô chỉ biết ngày ngày chôn chân trông coi cái quán bi-a xập xệ.
 
 "Mẹ kiếp, thường ngày bên cạnh Triệu Kim An toàn những đại mỹ nhân đỉnh chóp thế này sao? Nếu được thế này thì bảo tao đi làm hai mươi tư trên hai mươi tư giờ tao cũng cam lòng!"
 
@@ -200,7 +198,7 @@ Chu Sở Hân quay sang nhìn Triệu Bác Lan, mấp máy môi thì thầm: "Gh
 
 Triệu Bác Lan ném cho cô nàng một ánh mắt cảnh cáo: Đã bảo chị tốt nhất đừng có dại mà chen chân vào mớ bòng bong này rồi, em ở quê còn có một bà thím tương lai nữa kìa.
 
-Đơn Vĩ đưa tay kéo rộng cánh cửa xe Rolls-Royce.
+Đan Vĩ đưa tay kéo rộng cánh cửa xe Rolls-Royce.
 
 Cả phòng ký túc xá của Trần Thanh Trĩ đều kiễng chân, nín thở hồi hộp chờ đợi. Nào ngờ người bước xuống xe đầu tiên lại là cô thư ký Du Phi với diện mạo "hết sức bình thường".
 

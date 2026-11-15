@@ -1,7 +1,5 @@
 # Chương 42: Mẹ của bạn học
 
-> **Tiêu đề gốc**: 第42章 同学的妈妈。
-
 Ở một diễn biến khác, sau khi dẫn Mộc Dao đi ăn tối bên ngoài, mãi đến mười giờ đêm Trương Tuệ và Trương Vân Thiến mới lái xe quay trở lại ký túc xá trường.
 
 Lúc chiều đến làm thủ tục nhập học vẫn chưa gặp đủ các bạn cùng phòng của con gái, nên Trương Tuệ mới cố ý quay lại một chuyến.

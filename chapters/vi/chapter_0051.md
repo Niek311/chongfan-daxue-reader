@@ -1,20 +1,18 @@
 # Chương 51: Không sao đâu, anh ấy say rồi
 
-> **Tiêu đề gốc**: 第51章 没关系，他喝醉了。
-
 Đợi đến khi ba người nhóm Từ Mạn Mạn bước xuống lầu, Trần Trạch đã lái chiếc BMW đỗ ngay dưới chân khu ký túc xá nữ.
 
 "Mạn Mạn, Trần Trạch ngoan ghê nha."
 
-Diêu Tân ghé sát tai cô bạn, khẽ khàng trêu chọc.
+Diêu Sân ghé sát tai cô bạn, khẽ khàng trêu chọc.
 
 Từ Mạn Mạn diện một chiếc quần bò đơn giản kết hợp cùng áo phông năng động. Nghe bạn nói, cô chỉ khẽ mỉm cười, không đáp lời.
 
 Thẩm Tử Ngôn đã sớm nhận ra điều này. Trong cách ứng xử giữa Từ Mạn Mạn và Trần Trạch, Mạn Mạn luôn mang phong thái của một người chị lớn; Trần Trạch ở trước mặt người khác thì lông bông, ngông nghênh là thế, nhưng lại răm rắp nghe lời Từ Mạn Mạn.
 
-Ở phòng 406, chỉ có Mộc Dao và Diêu Tân là giống mấy cô nữ sinh mới lớn nhất.
+Ở phòng 406, chỉ có Mộc Dao và Diêu Sân là giống mấy cô nữ sinh mới lớn nhất.
 
-Thẩm Tử Ngôn và Diêu Tân tự nhiên ngồi vào hàng ghế sau. Diêu Tân vừa sờ tay lên lớp nội thất da sang trọng của chiếc BMW, vừa ngước nhìn Từ Mạn Mạn ngồi đoan trang, nhã nhặn ở ghế phụ, trong lòng lại càng thêm ngưỡng mộ cặp đôi này.
+Thẩm Tử Ngôn và Diêu Sân tự nhiên ngồi vào hàng ghế sau. Diêu Sân vừa sờ tay lên lớp nội thất da sang trọng của chiếc BMW, vừa ngước nhìn Từ Mạn Mạn ngồi đoan trang, nhã nhặn ở ghế phụ, trong lòng lại càng thêm ngưỡng mộ cặp đôi này.
 
 Đúng như những gì Mộc Dao từng nghĩ, Từ Mạn Mạn dường như có được tất cả mọi điều hoàn hảo nhất: được mẹ chồng tương lai hết mực yêu quý, nhà mẹ chồng lại giàu nứt đố đổ vách, bạn trai thì phục tùng nghe lời. Mà ngược lại, Từ Mạn Mạn xinh đẹp, dịu dàng, đoan trang cũng hoàn toàn xứng đôi vừa lứa với Trần Trạch.
 
@@ -48,7 +46,7 @@ Mãi sau này, khi giá vọt lên năm mươi, một trăm tệ một gói, nó
 
 Trước cửa nhà ăn.
 
-Diêu Tân chỉ tay về phía Triệu Kim An đang đi tụt lại vài bước phía sau, tò mò hỏi: "Ai thế? Là cậu ấy hả? Trần Trạch, ý cậu bảo cậu ta là người có cả con trai theo đuổi đó sao?"
+Diêu Sân chỉ tay về phía Triệu Kim An đang đi tụt lại vài bước phía sau, tò mò hỏi: "Ai thế? Là cậu ấy hả? Trần Trạch, ý cậu bảo cậu ta là người có cả con trai theo đuổi đó sao?"
 
 Trần Trạch mỉm cười gật đầu.
 
@@ -56,9 +54,9 @@ Từ Mạn Mạn vừa nhìn đã nhận ra ngay Triệu Kim An.
 
 Tấm ảnh mà Trần Trạch gửi cho cô dạo nọ, cô đã cất kỹ vào mấy tầng thư mục ẩn trong máy tính.
 
-Thẩm Tử Ngôn cũng vô cùng hiếu kỳ, rốt cuộc là kiểu con trai thế nào mà đến cả bạn cùng giới cũng phải động lòng? Dù biết phần nhiều chỉ là chuyện đùa vui, nhưng Thẩm Tử Ngôn quả thực thấy tò mò. Từ Mạn Mạn rất hiểu tâm lý người khác, thế nên khi Mạn Mạn rủ đi, cả Thẩm Tử Ngôn lẫn Diêu Tân đều chẳng mảy may do dự mà đi theo liền.
+Thẩm Tử Ngôn cũng vô cùng hiếu kỳ, rốt cuộc là kiểu con trai thế nào mà đến cả bạn cùng giới cũng phải động lòng? Dù biết phần nhiều chỉ là chuyện đùa vui, nhưng Thẩm Tử Ngôn quả thực thấy tò mò. Từ Mạn Mạn rất hiểu tâm lý người khác, thế nên khi Mạn Mạn rủ đi, cả Thẩm Tử Ngôn lẫn Diêu Sân đều chẳng mảy may do dự mà đi theo liền.
 
-Đợi khi bước lại gần hơn một chút, hai mắt Diêu Tân chợt sáng rực lên: "Đẹp trai thật đấy chứ!"
+Đợi khi bước lại gần hơn một chút, hai mắt Diêu Sân chợt sáng rực lên: "Đẹp trai thật đấy chứ!"
 
 Thẩm Tử Ngôn liếc nhìn cô bạn một cái, trêu: "Lại mê trai rồi đấy à?"
 
@@ -128,11 +126,11 @@ Cách chào hỏi có phần chững chạc này khiến đám sinh viên năm n
 
 Triệu Kim An lại khẽ mỉm cười với hai người họ.
 
-Diêu Tân túm chặt lấy tay áo Từ Mạn Mạn, thì thầm to nhỏ: "Cậu ấy cười lên trông cuốn hút dã man, cả cái dáng vẻ kẹp điếu thuốc kia nữa chứ..."
+Diêu Sân túm chặt lấy tay áo Từ Mạn Mạn, thì thầm to nhỏ: "Cậu ấy cười lên trông cuốn hút dã man, cả cái dáng vẻ kẹp điếu thuốc kia nữa chứ..."
 
 "Hẳn nào mà có cả con trai thích..."
 
-Từ Mạn Mạn khẽ vỗ nhẹ lên mu bàn tay Diêu Tân, cười nói: "Thôi, chúng ta vào trong trước đã."
+Từ Mạn Mạn khẽ vỗ nhẹ lên mu bàn tay Diêu Sân, cười nói: "Thôi, chúng ta vào trong trước đã."
 
 Đồ ăn trong nhà ăn sinh viên không đắt, Trần Trạch gọi hơn mười món mà tính ra chưa tới một trăm tệ. Triệu Kim An vốn không thích nợ nần ân tình của ai, liền chủ động đi sang quầy bách hóa nhỏ bên cạnh để mua đồ uống.
 
@@ -168,7 +166,7 @@ Trần Trạch ngoan ngoãn ngồi thụp xuống ghế, bộ dạng hệt như 
 
 Hắn vừa nói vừa nháy mắt ra hiệu với Trần Trạch, ý tứ trêu chọc rõ mười mươi.
 
-Diêu Tân tiếp lời: "Sợ vợ thì có gì không tốt đâu chứ?"
+Diêu Sân tiếp lời: "Sợ vợ thì có gì không tốt đâu chứ?"
 
 Cặp đôi Trần Trạch và Từ Mạn Mạn này, nếu không có biến cố gì quá lớn thì khả năng cao tốt nghiệp đại học xong là cưới liền. Cả phòng 303 lẫn 406 từ lâu đã ngầm coi hai người như vợ chồng son.
 
@@ -176,7 +174,7 @@ Cặp đôi Trần Trạch và Từ Mạn Mạn này, nếu không có biến c�
 
 Triệu Kim An liếc nhìn Từ Mạn Mạn, trong lòng có chút ngạc nhiên. Không cho Trần Trạch uống rượu, chẳng lẽ là vì cô nàng vẫn chưa thi lấy bằng lái xe sao?
 
-Từ Mạn Mạn ngồi cạnh Trần Trạch, Diêu Tân lại chớp chớp mắt quay sang hỏi Triệu Kim An: "Triệu Kim An, cậu cũng nghĩ sợ vợ là chuyện không tốt à?"
+Từ Mạn Mạn ngồi cạnh Trần Trạch, Diêu Sân lại chớp chớp mắt quay sang hỏi Triệu Kim An: "Triệu Kim An, cậu cũng nghĩ sợ vợ là chuyện không tốt à?"
 
 Triệu Kim An thong thả đáp: "Bây giờ bàn chuyện này có phải là hơi sớm quá rồi không?"
 
@@ -190,7 +188,7 @@ Suốt bữa ăn, anh chưa từng xoay đĩa thức ăn, tay luôn bưng bát c
 
 Đây là phép tắc mà bà nội đã dạy anh từ thuở bé. Bà bảo khi đi làm khách nhà người khác, không được dùng đũa gõ vào bát, không được cắm thẳng đũa vào bát cơm trắng, và càng không được bới móc đồ ăn.
 
-Trước ánh mắt chăm chú của Thẩm Tử Ngôn và Diêu Tân, Từ Mạn Mạn cũng khẽ quay đầu sang nhìn Triệu Kim An. Triệu Kim An ngẫm nghĩ một thoáng rồi nói: "Sợ vợ thật ra chẳng có gì là xấu cả, miễn là người vợ đó biết thấu tình đạt lý, khéo léo lo toan việc nhà..."
+Trước ánh mắt chăm chú của Thẩm Tử Ngôn và Diêu Sân, Từ Mạn Mạn cũng khẽ quay đầu sang nhìn Triệu Kim An. Triệu Kim An ngẫm nghĩ một thoáng rồi nói: "Sợ vợ thật ra chẳng có gì là xấu cả, miễn là người vợ đó biết thấu tình đạt lý, khéo léo lo toan việc nhà..."
 
 Trần Trạch nghe thế liền nâng lon nước ngọt lên: "Kim An, cụng ly cái nào!"
 
@@ -202,7 +200,7 @@ Thẩm Tử Ngôn cũng khẽ gật đầu, bày tỏ sự đồng tình với q
 
 Lưu Sấm Phong thấy tình thế có vẻ không ổn, liền đột ngột cười ha hả chen vào: "Kim An, hèn gì Lý Lộ với Đường Hiểu Tình lớp mình lại mê cậu như điếu đổ."
 
-"Lý Lộ với Đường Hiểu Tình là ai thế?" Diêu Tân tò mò hỏi.
+"Lý Lộ với Đường Hiểu Tình là ai thế?" Diêu Sân tò mò hỏi.
 
 Lưu Sấm Phong như vớ được cờ, lập tức thao thao bất tuyệt, kể lể hai cô bạn kia tốt đẹp nhường nào, lại còn khoe hôm tổng kết quân sự hai cô ấy đã chủ động chụp ảnh chung với Kim An ra sao, trong lúc nói mắt cứ liếc trộm sang Thẩm Tử Ngôn.
 

@@ -1,7 +1,5 @@
 # Chương 508: Lặng ngắm bên đường
 
-> **Tiêu đề gốc**: 第508章 马路边，眺望。
-
 Cùng lúc trung tâm thương mại khai trương, tòa cao ốc văn phòng mới của tập đoàn cũng chính thức đi vào hoạt động.
 
 Tuyệt nhiên không có bất kỳ nghi thức ăn mừng nào.
@@ -14,7 +12,7 @@ Tầng năm mươi là không gian sinh hoạt cá nhân của riêng Triệu Ki
 
 Lưu Hiểu Tĩnh từng gặng hỏi Từ Mạn Mạn liệu có dọn lên ở tầng năm mươi của Triệu Kim An hay không, Từ Mạn Mạn chỉ khẽ lắc đầu bảo chuyện đó để sau này hãy tính.
 
-Du Phỉ từ trước đã ngầm thu xếp mua sẵn một căn biệt thự cho hai mẹ con cô, thế nhưng bé Triệu Tri Nặc còn quá nhỏ, căn biệt thự sau khi sửa sang hoàn thiện xong xuôi đến nay vẫn chưa một lần dọn về ở.
+Du Phi từ trước đã ngầm thu xếp mua sẵn một căn biệt thự cho hai mẹ con cô, thế nhưng bé Triệu Tri Nặc còn quá nhỏ, căn biệt thự sau khi sửa sang hoàn thiện xong xuôi đến nay vẫn chưa một lần dọn về ở.
 
 Chi phí vận hành bộ máy của công ty lại phình to thêm một bậc.
 

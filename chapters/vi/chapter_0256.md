@@ -1,8 +1,6 @@
 # Chương 256: Ừ, tôi đang xem trực tiếp tại hiện trường
 
-> **Tiêu đề gốc**: 第256章 嗯，我在现场看。
-
-"Khụ, Tô Miễn... Hai đứa chúng mày... Chị dâu cả vẫn còn đứng lù lù ở đây đấy nhé!"
+"Khụ, Tô Miến... Hai đứa chúng mày... Chị dâu cả vẫn còn đứng lù lù ở đây đấy nhé!"
 
 Khương Phức Hàm rốt cuộc nghe không lọt tai nổi nữa, trợn trắng mắt bực dọc: "Hai đứa tưởng mình nói thầm thì kín kẽ lắm chắc?"
 
@@ -12,9 +10,9 @@ Có điều, khi nghe thấy con số "năm lần", trong lòng bà vẫn dấy 
 
 "..."
 
-Triệu Kim An lập tức ngậm miệng không nói thêm lời nào, cứ thế ôm chặt lấy Tô Miễn sải bước về phía trước.
+Triệu Kim An lập tức ngậm miệng không nói thêm lời nào, cứ thế ôm chặt lấy Tô Miến sải bước về phía trước.
 
-Tô Miễn nằm trong lòng hắn vẫn tủm tỉm cười không ngớt.
+Tô Miến nằm trong lòng hắn vẫn tủm tỉm cười không ngớt.
 
 Khương Phức Hàm và Quách Uyển Thanh theo sát phía sau, còn Tô Mặc thì vẫn cẩn thận đẩy chiếc xe lăn đi cùng.
 
@@ -24,7 +22,7 @@ Khương Phức Hàm chủ động dặn dò trước.
 
 "Vâng, chị dâu."
 
-Triệu Kim An trong lòng hiểu rõ, những vị "nữ quyến" sắp gặp mặt này có lẽ đều có địa vị và bối cảnh gia thế tương đương cỡ như Tô Miễn hay Khương Phức Hàm.
+Triệu Kim An trong lòng hiểu rõ, những vị "nữ quyến" sắp gặp mặt này có lẽ đều có địa vị và bối cảnh gia thế tương đương cỡ như Tô Miến hay Khương Phức Hàm.
 
 "Reng reng reng..."
 
@@ -228,7 +226,7 @@ Riêng những vị phu nhân trạc tuổi Quách Uyển Thanh thì hiển nhi�
 
 Ngược lại, mấy cô tiểu thư trẻ tuổi đứng bên cạnh thì cứ đưa mắt đăm đăm ngắm nhìn Triệu Kim An không rời!
 
-Đứng trước mặt một người phụ nữ cao quý trạc chừng sáu mươi tuổi, Khương Phức Hàm tỏ ra vô cùng nhiệt tình và kính cẩn. Người phụ nữ ấy đưa mắt ngắm nghía Triệu Kim An từ trên xuống dưới một lượt, rồi cười tủm tỉm cất giọng đôn hậu: "Con bé Tô Miễn này rốt cuộc cũng đến ngày gả đi lấy chồng rồi đấy nhỉ."
+Đứng trước mặt một người phụ nữ cao quý trạc chừng sáu mươi tuổi, Khương Phức Hàm tỏ ra vô cùng nhiệt tình và kính cẩn. Người phụ nữ ấy đưa mắt ngắm nghía Triệu Kim An từ trên xuống dưới một lượt, rồi cười tủm tỉm cất giọng đôn hậu: "Con bé Tô Miến này rốt cuộc cũng đến ngày gả đi lấy chồng rồi đấy nhỉ."
 
 Triệu Kim An không rõ đối phương có biết mình là ông chủ sáng lập của Trăn Nhiên hay không, nhưng đối với những nhân vật tầm cỡ chóp bu thế này, chút sản nghiệp ấy có lẽ cũng chẳng đáng để họ bận tâm để mắt tới.
 

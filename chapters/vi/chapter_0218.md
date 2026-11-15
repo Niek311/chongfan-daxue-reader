@@ -1,7 +1,5 @@
 # Chương 218: Có lý có tình, rất hợp lý
 
-> **Tiêu đề gốc**: 第218章 讲道理，很合理。
-
 “Thay anh ấy hoàn thành tâm nguyện cuối cùng.”
 
 Đọc dòng tin nhắn trên màn hình, Triệu Kim An bỗng thấy vừa buồn cười vừa có chút mỉa mai. Cậu xưa nay vốn là người nói lý lẽ, bèn bấm phím nhắn lại một câu:
@@ -130,7 +128,7 @@ Uổng công đợt nghỉ Tết ở quê rảnh rỗi sinh nông nổi, từ ph
 
 Mấy cô nàng đó thì chẳng cần phải nhọc công chia phòng làm gì, chỉ cần bạn có đủ tiền, các nàng ta thậm chí có thể “chị chị em em” đại lượng đến mức mấy người ngủ chung một phòng cũng chẳng thành vấn đề. Người duy nhất khiến Triệu Kim An chưa nhìn thấu được chính là Phương Khiết.
 
-Tô Miễn thì khỏi phải bàn; còn mẫu con gái như Thẩm Tử Ngôn và Từ Mạn Mạn thì tốt nhất đừng bao giờ mơ tưởng tới chuyện đó.
+Tô Miến thì khỏi phải bàn; còn mẫu con gái như Thẩm Tử Ngôn và Từ Mạn Mạn thì tốt nhất đừng bao giờ mơ tưởng tới chuyện đó.
 
 Có chăng Đường Hiểu Tình sẽ cảm thấy tủi thân ấm ức vô cùng, nhưng rồi cũng chỉ biết trùm kín chăn làm chú đà điểu giấu đầu hở đuôi mà thôi.
 

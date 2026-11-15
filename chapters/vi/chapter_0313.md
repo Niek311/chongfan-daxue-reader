@@ -1,7 +1,5 @@
 # Chương 313: Tôi đã gặp qua rồi
 
-> **Tiêu đề gốc**: 第313章 我见过了。
-
 Trong mắt Triệu Bác Lan, Chu Sở Hân hoàn toàn không phải là đối thủ xứng tầm của Thẩm Tử Ngôn và Từ Mạn Mạn.
 
 Nào ngờ chưa đợi được Thẩm Tử Ngôn và Từ Mạn Mạn xuất hiện, một chiếc Land Rover Range Rover hầm hố đã vững vàng rẽ vào khoảng sân nhỏ.
@@ -174,7 +172,7 @@ Lạc Cẩn Chi nói xong liền xoay người đi thẳng lên văn phòng tầ
 
 Có lẽ chính bản thân Đường Hiểu Tình cũng chưa quen với phong cách này, cả buổi sáng nay ở nhà cô cứ đứng trước gương ngắm nghía mãi không thôi.
 
-Đơn Vĩ đứng bên chiếc Rolls-Royce mở sẵn cửa xe, mắt nhìn thẳng không chớp.
+Đan Vĩ đứng bên chiếc Rolls-Royce mở sẵn cửa xe, mắt nhìn thẳng không chớp.
 
 Anh ta không rõ ai sẽ là người bước lên chiếc xe này, Thẩm tổng hay Từ tổng? Liệu hai vị tiểu thư này có cãi vã tranh giành nhau không?
 

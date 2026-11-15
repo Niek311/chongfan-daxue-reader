@@ -1,7 +1,5 @@
 # Chương 312: Linh Linh lại "phát sốt" rồi
 
-> **Tiêu đề gốc**: 第312章 玲玲又“发烧”了。
-
 Vương Duy Đào vừa quay về lớp học đã lập tức bị đám bạn học vây quanh "tra khảo dã man", nhưng duy chỉ có Lý Ngải Lan là mặt dày ép cậu phải khai ra bằng được địa chỉ nhà của Triệu Kim An.
 
 Những bạn học khác dẫu trong lòng rất muốn gặp Triệu Kim An, song cũng ngại ngùng chẳng tiện mở lời gặng hỏi.
@@ -200,7 +198,7 @@ Triệu Bác Lan: "..."
 
 Đường Hiểu Tình nghẹn lời: "..."
 
-Đơn Vĩ đứng cách đó một quãng khẽ mỉm cười, lẳng lặng lùi xa đám con gái một chút rồi châm một điếu thuốc lá.
+Đan Vĩ đứng cách đó một quãng khẽ mỉm cười, lẳng lặng lùi xa đám con gái một chút rồi châm một điếu thuốc lá.
 
 Trên hành lang tầng hai, cô thư ký mới nhậm chức Du Phi đang cầm mấy chiếc cà vạt trên tay. Dạo gần đây cô đang điên cuồng học bổ túc kiến thức nghiệp vụ thư ký văn phòng, mấy chiếc cà vạt này là vừa nãy cô nhờ bà Lưu Mỹ Nga tìm giúp trong tủ của Kim An ra.
 

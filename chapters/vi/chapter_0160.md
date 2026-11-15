@@ -1,7 +1,5 @@
 # Chương 160: Chẳng phải là xe bánh mì sao? Sao lại biến thành Audi rồi?
 
-> **Tiêu đề gốc**: 第160章 不是面包车吗？怎么成奥迪了？
-
 Lý Ngải Lan nói chuyện giọng điệu nũng nịu ngọt xớt, mặt trang điểm nhẹ, tính tình rất thích điệu đà làm dáng.
 
 Tiệc buffet ở phố đi bộ Quận Sa có giá từ năm mươi đến tám mươi tệ một người, Lý Ngải Lan thuộc diện nộp đơn xin trợ cấp sinh viên nghèo, xem ra hoàn cảnh gia đình thực sự khó khăn, nên cô nàng xót tiền cũng là lẽ thường tình.

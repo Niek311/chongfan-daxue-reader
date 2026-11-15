@@ -1,7 +1,5 @@
 # Chương 72: Triệu Kim An, cậu từng sấy tóc cho phụ nữ chưa?
 
-> **Tiêu đề gốc**: 第72章 赵今安，你给女人吹过头发
-
 Căn phòng nhà trường sắp xếp cho Tô Miến là một phòng suite hạng sang. Một người bảo mẫu sau khi cúp điện thoại liền rụt rè bước vào cẩn thận hỏi: "Tô tiểu thư... Phùng phu nhân hỏi mấy giờ cô về nhà ạ."
 
 "Tôi về đây."

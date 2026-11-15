@@ -1,7 +1,5 @@
 # Chương 23: Món nợ ân tình
 
-> **Tiêu đề gốc**: 第23章 欠的...
-
 Triệu Kim An tìm đường đến một công ty chứng khoán.
 
 Bên trong sảnh giao dịch la liệt các bà thím trung niên, cùng những cụ ông đeo kính lão chăm chú nhìn bảng điện tử.
@@ -154,7 +152,7 @@ Doãn Hiểu Lan khẽ liếc nhìn vẻ mặt của thím Như, trong lòng cũ
 
 Không phải là Vương Kim Như quá đỗi cay nghiệt, khắt khe gì với Triệu Kim An, nhưng thử tưởng tượng xem, nếu như trong chiếc túi đó chỉ toàn là quần áo Triệu Kim An tự mua sắm cho bản thân mình, thì sắc mặt của thím lúc này chắc chắn sẽ khó coi biết chừng nào.
 
-Doãn Hiểu Lan còn hiểu rất rõ một điều, dẫu cho cô Đoàn Thu Bình có về thăm con trai mình đi chăng nữa, thì bao giờ cô ấy cũng sẽ mua kèm một phần quà cho bé Triệu Duyệt Thiên.
+Doãn Hiểu Lan còn hiểu rất rõ một điều, dẫu cho cô Đoạn Thu Bình có về thăm con trai mình đi chăng nữa, thì bao giờ cô ấy cũng sẽ mua kèm một phần quà cho bé Triệu Duyệt Thiên.
 
 Đó là món nợ ân tình mà gia đình họ phải gánh vác trước gia đình người chú Triệu Quốc Hoa.
 

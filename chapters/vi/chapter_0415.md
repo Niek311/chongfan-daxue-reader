@@ -1,7 +1,5 @@
 # Chương 415: Chọn phe
 
-> **Tiêu đề gốc**: 第415章 站队。
-
 Trạm dừng nghỉ trên tuyến đường cao tốc xuôi về phương Nam.
 
 Mộc Dao đánh mạnh tay lái rẽ vào trạm, đạp mạnh chân phanh, hai bàn tay siết chặt lấy vô-lăng không buông.
@@ -120,7 +118,7 @@ Trên tuyến đường cao tốc hướng về phía Đông.
 
 Một chiếc Toyota Prado gầm cao cùng một chiếc Audi A6 màu đen đang xé gió lao đi vun vút.
 
-Đã hơn một tiếng đồng hồ trôi qua mà vẫn chưa thấy tăm hơi chiếc Mercedes của Thẩm tổng đâu. Cả Đơn Vĩ lẫn Quan Văn Bách đều thầm nghi hoặc không biết có phải Thẩm Tử Ngôn đã lái xe chạy thẳng một mạch về Tô Thành rồi hay không. Nhìn xuống kim đồng hồ tốc độ: 145km/h! Họ đã đạp ga chạy cực kỳ nhanh rồi.
+Đã hơn một tiếng đồng hồ trôi qua mà vẫn chưa thấy tăm hơi chiếc Mercedes của Thẩm tổng đâu. Cả Đan Vĩ lẫn Quan Văn Bách đều thầm nghi hoặc không biết có phải Thẩm Tử Ngôn đã lái xe chạy thẳng một mạch về Tô Thành rồi hay không. Nhìn xuống kim đồng hồ tốc độ: 145km/h! Họ đã đạp ga chạy cực kỳ nhanh rồi.
 
 Triệu Kim An ngồi trầm mặc ở hàng ghế sau của chiếc Toyota Prado.
 
@@ -188,14 +186,14 @@ Từ Mạn Mạn một tay khẽ đỡ lấy bụng bầu, tay kia chậm rãi v
 
 Trên đường cao tốc.
 
-Lại thêm một tiếng đồng hồ trôi qua trong căng thẳng tột độ, hai mắt Đơn Vĩ bỗng sáng bừng lên: "Ông chủ! Phía trước... xe của Thẩm tổng kia rồi!!"
+Lại thêm một tiếng đồng hồ trôi qua trong căng thẳng tột độ, hai mắt Đan Vĩ bỗng sáng bừng lên: "Ông chủ! Phía trước... xe của Thẩm tổng kia rồi!!"
 
 Đúng lúc này, điện thoại trong xe cũng đổ chuông, là cuộc gọi từ Quan Văn Bách đang cầm lái chiếc Audi A6 chạy sau.
 
-Đơn Vĩ bấm loa ngoài: "Bên tôi nhìn thấy rồi!"
+Đan Vĩ bấm loa ngoài: "Bên tôi nhìn thấy rồi!"
 
 Chiếc xe Mercedes của Thẩm Tử Ngôn đang chạy với tốc độ kinh hồn bạt vía, ước chừng phải lên tới 135km/h, bám chặt lấy làn đường vượt bên trái điên cuồng lao vun vút trong màn đêm.
 
 "Ông chủ, đường cận Tết xe cộ đông đúc lắm..."
 
-Đơn Vĩ tập trung cao độ ghì chặt tay lái, trong lòng không khỏi nơm nớp lo âu. Thẩm tổng đang trong cơn kích động tâm lý dữ dội mà lại đạp ga phóng bạt mạng thế này, thực sự là quá đỗi nguy hiểm!
+Đan Vĩ tập trung cao độ ghì chặt tay lái, trong lòng không khỏi nơm nớp lo âu. Thẩm tổng đang trong cơn kích động tâm lý dữ dội mà lại đạp ga phóng bạt mạng thế này, thực sự là quá đỗi nguy hiểm!

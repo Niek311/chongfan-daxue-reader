@@ -1,7 +1,5 @@
 # Chương 44: Cậu đừng nói nữa
 
-> **Tiêu đề gốc**: 第44章 你不要说了。
-
 Chẳng mấy chốc sau Mộc Dao đã quay trở lại phòng, hai tay nắm chặt chiếc điện thoại. Cô vừa mới thử gọi lại và xác nhận chắc chắn một điều: Triệu Kim An lại tàn nhẫn đưa số của cô vào danh sách chặn.
 
 "Mộc Dao, cậu sao thế?" Từ Mạn Mạn quan tâm hỏi han.

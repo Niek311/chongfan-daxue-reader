@@ -1,7 +1,5 @@
 # Chương 167: Lòng tham trỗi dậy
 
-> **Tiêu đề gốc**: 第167章 贪婪了。
-
 Hôm sau.
 
 Sáng sớm tinh mơ, Triệu Quốc Hoa đã lên đường trở về Sâm Thành. Ban ngày Triệu Kim An ở lại xưởng, Bành Trung Ngạn phải bận rộn tới tận cận Tết mới về quê, còn Lư Kiều Vĩ đành phải cắm chốt ở Tưởng Gia Cảo đón Tết một mình.
@@ -60,7 +58,7 @@ Triệu Kim An nghẹn lời một lúc lâu mới thốt ra được một câu
 
 Tưởng Chỉ Tình khoác trên mình chiếc áo dạ màu đen, khẽ nghiêng người mím môi cười thầm.
 
-Đơn Vĩ đi phía sau thì đảo mắt nhìn quanh, dứt khoát không hé răng nửa lời.
+Đan Vĩ đi phía sau thì đảo mắt nhìn quanh, dứt khoát không hé răng nửa lời.
 
 Chuyện này mà cũng cần người làm mối sao?
 
@@ -114,15 +112,15 @@ Triệu Kim An chân thành khen ngợi một câu: "Trưởng phòng đỉnh th
 
 Đầu dây bên kia, Lưu Sảng Phong vô cùng nở mày nở mặt, dường như chỉ chờ đúng câu nói này của anh.
 
-Mộc Dao và Du Phỉ nhắn tin hỏi khi nào anh mới về Tư Tinh.
+Mộc Dao và Du Phi nhắn tin hỏi khi nào anh mới về Tư Tinh.
 
 Triệu Kim An bảo chưa biết chừng, chắc sẽ khá muộn.
 
-Du Phỉ kể lớp Kế toán 209 vừa tổ chức họp lớp tụ tập một bữa, lại vắng mặt mỗi mình anh.
+Du Phi kể lớp Kế toán 209 vừa tổ chức họp lớp tụ tập một bữa, lại vắng mặt mỗi mình anh.
 
 Thẩm Tử Ngôn gọi tới hai cuộc, chỉ trao đổi ngắn gọn vài câu về công việc.
 
-Không có Tô Miến, càng không có bóng dáng Hứa Mạn Mạn.
+Không có Tô Miến, càng không có bóng dáng Từ Mạn Mạn.
 
 Lý Ngải Lan thì ngày nào cũng gửi tin nhắn tới, dường như cô nàng đã trở thành người nhớ nhung Triệu Kim An nhất trần đời. Thỉnh thoảng Triệu Kim An chỉ đáp lại cộc lốc một câu, trong lòng thầm nghĩ một trăm tệ tiền boa hôm nọ quả không uổng phí chút nào.
 
@@ -140,7 +138,7 @@ Rảo bước vài bước đã tới xưởng đồ hộp, cô đưa tay bật 
 
 Triệu Kim An phẩy tay ra hiệu.
 
-Đơn Vĩ hiểu ý lùi ra ngoài, đứng canh gác bên ngoài cổng.
+Đan Vĩ hiểu ý lùi ra ngoài, đứng canh gác bên ngoài cổng.
 
 Tưởng Chỉ Tình chầm chậm bước đi, khẽ chạm tay vào từng vị trí làm việc và dây chuyền sản xuất đã nhuốm màu thời gian như đang tìm lại những mảnh ký ức. Cô không ngoái đầu lại, chỉ cất giọng khe khẽ: "Triệu tổng, cậu có biết việc đổi sang tên Trăn Nhiên đối với tôi có ý nghĩa thế nào không?"
 
@@ -182,31 +180,31 @@ Rất lâu, rất lâu sau...
 
 Triệu Kim An đã tham lam rồi. Phải, chính là lòng tham đã trỗi dậy.
 
-Bên ngoài, Đơn Vĩ vừa xoay người lại bỗng phát hiện ánh đèn trên tầng hai đã bật sáng.
+Bên ngoài, Đan Vĩ vừa xoay người lại bỗng phát hiện ánh đèn trên tầng hai đã bật sáng.
 
 Có hai bóng người in trên hành lang lướt qua.
 
 "...Cái này."
 
-Đơn Vĩ run rẩy đưa tay châm một điếu thuốc. Ngoài trời quả thực rét buốt thấu xương, anh bỗng thấy nhớ Triệu Quốc Hoa da diết, có thêm một người đứng canh bên ngoài thế này thì đỡ quạnh quẽ biết bao.
+Đan Vĩ run rẩy đưa tay châm một điếu thuốc. Ngoài trời quả thực rét buốt thấu xương, anh bỗng thấy nhớ Triệu Quốc Hoa da diết, có thêm một người đứng canh bên ngoài thế này thì đỡ quạnh quẽ biết bao.
 
 Đèn tầng hai vụt tắt.
 
 Nửa tiếng sau lại bật sáng, sáng được một lúc rồi lại tắt lịm.
 
-Đơn Vĩ: "..."
+Đan Vĩ: "..."
 
 "Tuổi trẻ đúng là tốt thật đấy."
 
 Anh tìm một góc khuất gió, ngước nhìn lên tầng hai lẩm bẩm một mình: "Tưởng xưởng trưởng vừa xinh đẹp vừa dịu dàng, lại còn giữ trọn tấm lòng thủy chung son sắt bấy lâu, là đàn ông thì ai mà chẳng có dục vọng chinh phục..."
 
-Phải, trong thâm tâm Đơn Vĩ, vẻ đẹp đoan trang dịu dàng của Tưởng Chỉ Tình chỉ là yếu tố phụ. Phụ nữ đẹp trên đời này không thiếu, điều đáng quý và hiếm hoi nhất chính là sự kiên trì giữ gìn và lòng chung thủy của cô.
+Phải, trong thâm tâm Đan Vĩ, vẻ đẹp đoan trang dịu dàng của Tưởng Chỉ Tình chỉ là yếu tố phụ. Phụ nữ đẹp trên đời này không thiếu, điều đáng quý và hiếm hoi nhất chính là sự kiên trì giữ gìn và lòng chung thủy của cô.
 
-Đơn Vĩ đã ngoài bốn mươi tuổi, nhìn nhận phụ nữ đương nhiên không chỉ chăm chăm vào mỗi nhan sắc.
+Đan Vĩ đã ngoài bốn mươi tuổi, nhìn nhận phụ nữ đương nhiên không chỉ chăm chăm vào mỗi nhan sắc.
 
 "Ông chủ à, cậu cũng phải biết giữ gìn sức khỏe đấy nhé."
 
-Ngọn đèn trên tầng hai cứ chốc chốc lại sáng rồi tắt, Đơn Vĩ đành ngậm ngùi rời đi.
+Ngọn đèn trên tầng hai cứ chốc chốc lại sáng rồi tắt, Đan Vĩ đành ngậm ngùi rời đi.
 
 Anh chỉ đoán Tưởng Chỉ Tình ít nhất cũng đã sáu bảy năm... thật không dám tin Triệu Kim An lại dũng mãnh và chẳng chịu an phận đến thế.
 

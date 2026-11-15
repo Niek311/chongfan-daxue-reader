@@ -1,7 +1,5 @@
 # Chương 345: Khai hoang.
 
-> **Tiêu đề gốc**: 第345章 开荒。
-
 Đậu phộng rang trên đĩa là do nhà tự trồng, đích thân Doãn Hiểu Lan và bà nội tỉ mẩn rang trên bếp củi.
 
 Triệu Kim An bốc một nắm, vừa mới cắn vỏ được hai hạt.
@@ -128,7 +126,7 @@ Triệu Bác Lan lúc này liền đứng dậy bước vào nhà rửa thêm r�
 
 Cô nắm rất rõ tình hình tài chính của tập đoàn, mấy thứ hoa quả bánh kẹo này có ăn ròng rã ngày này qua tháng khác cũng chẳng hề hấn gì, số tiền đó còn chưa bằng một phần tiền lãi lẻ phát sinh trong ngân hàng.
 
-Thư ký Du Phỉ không có mặt ở đây, thì vị Giám đốc Tài chính đích thân xắn tay vào việc.
+Thư ký Du Phi không có mặt ở đây, thì vị Giám đốc Tài chính đích thân xắn tay vào việc.
 
 "Ngọc Ny, em vào bưng mấy thùng nước ngọt ra ngoài này đi."
 

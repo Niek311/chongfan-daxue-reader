@@ -1,7 +1,5 @@
 # Chương 250: Chắc là thấy rồi
 
-> **Tiêu đề gốc**: 第250章 应该看到了。
-
 "Hiểu Lan ơi, sao mày còn chưa chịu ra nữa hả? Tao báo cáo lên tổng bộ công ty trừ sạch lương mày bây giờ đấy nhé!"
 
 Vương Kim Như vừa mở mồm là đã lôi "tổng bộ công ty" ra để thị uy, giọng điệu hùng hồn, đanh thép đâu ra đấy.
@@ -162,7 +160,7 @@ Doãn Hiểu Lan hai tay đón lấy chiếc phích giữ nhiệt nặng trĩu, 
 
 Bà nội không nán lại lâu, đợi sau khi Vương Kim Như và Doãn Hiểu Lan ăn xong bữa cơm trưa tươm tất, bà liền xách chiếc phích không, dắt tay Triệu Duyệt Thiên thong thả rảo bước trở về nhà.
 
-Bà con nhìn theo bóng lưng bà cụ mà bất giác nhớ tới Tô Miến, ngày trước bà nội đối xử với Tô Miến cũng chu đáo và yêu thương như thế. Những bậc cao niên trong làng thì lại bồi hồi nhớ về Đoàn Thu Bình năm xưa, người phụ nữ hiền lành ấy cũng từng được bà cụ hết lòng chở che, cưng chiều.
+Bà con nhìn theo bóng lưng bà cụ mà bất giác nhớ tới Tô Miến, ngày trước bà nội đối xử với Tô Miến cũng chu đáo và yêu thương như thế. Những bậc cao niên trong làng thì lại bồi hồi nhớ về Đoạn Thu Bình năm xưa, người phụ nữ hiền lành ấy cũng từng được bà cụ hết lòng chở che, cưng chiều.
 
 Quy mô thu mua tuy không quá lớn, số tiền chi ra cũng chẳng phải con số khổng lồ, nhưng Vương Kim Như và Doãn Hiểu Lan đã phải tất bật làm việc liên tục cho tới tận sập tối.
 

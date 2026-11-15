@@ -1,12 +1,10 @@
 # Chương 286: Bắt tay liên minh?
 
-> **Tiêu đề gốc**: 第286章 联手？
-
 Không gian bên trong xe bỗng chốc rơi vào một khoảng lặng nghẹt thở.
 
-Đơn Vĩ chăm chú lái xe, không hề hé răng nửa lời.
+Đan Vĩ chăm chú lái xe, không hề hé răng nửa lời.
 
-Một tài xế hưởng mức lương bốn nghìn tệ một tháng như Đơn Vĩ sớm đã đoán ra mọi chuyện. Ông chủ đã đồng ý cho cô gái này lên xe thì chắc chắn sẽ nói thẳng ra. Cả Thẩm tổng lẫn Từ tổng đều đã biết hết rồi, bằng không thì cớ gì Đơn Vĩ lại chủ động ra xách hành lý giúp Trương Tuệ?
+Một tài xế hưởng mức lương bốn nghìn tệ một tháng như Đan Vĩ sớm đã đoán ra mọi chuyện. Ông chủ đã đồng ý cho cô gái này lên xe thì chắc chắn sẽ nói thẳng ra. Cả Thẩm tổng lẫn Từ tổng đều đã biết hết rồi, bằng không thì cớ gì Đan Vĩ lại chủ động ra xách hành lý giúp Trương Tuệ?
 
 "Kim An! Là ai cơ!? Có phải Thẩm Tử Ngôn không hả!!?"
 
@@ -26,7 +24,7 @@ Mặc cho Mộc Dao ra sức lay giật cánh tay mình, khuôn mặt đẫm l�
 
 "..."
 
-Đơn Vĩ liếc nhìn gương chiếu hậu, bỗng nhiên nhớ tới Từ tổng của Trăn Hối Tuyển. Nhớ lại cái cảnh khóe miệng Từ tổng rớm máu nhìn cha mẹ mình... dường như cũng bình thản như thế, chẳng hề có chút gợn sóng cảm xúc nào.
+Đan Vĩ liếc nhìn gương chiếu hậu, bỗng nhiên nhớ tới Từ tổng của Trăn Hối Tuyển. Nhớ lại cái cảnh khóe miệng Từ tổng rớm máu nhìn cha mẹ mình... dường như cũng bình thản như thế, chẳng hề có chút gợn sóng cảm xúc nào.
 
 Chỉ lặng lẽ nhìn.
 

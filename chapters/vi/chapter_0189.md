@@ -1,7 +1,5 @@
 # Chương 189: Lòng nguội tro tàn
 
-> **Tiêu đề gốc**: 第189章 心灰意冷。
-
 Sau khi Giang Công Kỳ rời đi, Triệu Bác Lan cầm tập báo cáo tài chính trên tay nói: "Kim An, chú bảo cháu giữ lại một khoản tiền để đổ vào quảng cáo truyền hình, có phải là kênh truyền hình tỉnh Thiểm Tây và tỉnh Giang Tô không?"
 
 "Quảng cáo tuyệt đối không thể gián đoạn được, nếu chỉ bó hẹp trong phạm vi tỉnh Tương Nam thì quá mức hạn hẹp."

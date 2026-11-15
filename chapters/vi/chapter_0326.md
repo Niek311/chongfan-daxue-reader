@@ -1,7 +1,5 @@
 # Chương 326: Kiếm đậm vậy sao?
 
-> **Tiêu đề gốc**: 第326章 很赚？
-
 "..."
 
 Thẩm Vĩnh Đàm trợn tròn hai mắt: "Cháu... cháu đi mua cả bến cảng cơ á?!"

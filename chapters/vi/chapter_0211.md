@@ -1,7 +1,5 @@
 # Chương 211: Đều chẳng đơn giản chút nào
 
-> **Tiêu đề gốc**: 第211章 都不简单。
-
 "Lão Cốc, tôi đã trả đủ phần của mình rồi đấy nhé."
 
 Lưu Sấm Phong có chút ngượng ngùng, vội vàng phân bua.
@@ -224,6 +222,6 @@ Dòng sữa Dinh Dưỡng Khoái Tuyến và Sữa Chua AD Canxi bán chạy đ�
 
 Lần này Triệu Kim An không nghĩ ngợi nhiều. Mở lời nhờ vả một lần cũng là nhờ, hai lần cũng là nhờ, đã mở miệng lần đầu tiên rồi thì hà tất phải câu nệ e dè nữa, huống hồ cơ quan ban ngành liên quan kia chẳng phải đúng chuyên môn quản lý hay sao.
 
-Cậu lập tức bấm số gọi thẳng cho Tô Miện.
+Cậu lập tức bấm số gọi thẳng cho Tô Miến.
 
-Đầu dây bên kia, Tô Miện chỉ khẽ đáp một câu: "Kim An, em biết rồi."
+Đầu dây bên kia, Tô Miến chỉ khẽ đáp một câu: "Kim An, em biết rồi."

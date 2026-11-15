@@ -1,7 +1,5 @@
 # Chương 542: Simandou
 
-> **Tiêu đề gốc**: 第542章 西芒杜。
-
 Đàm Tử Kiều trầm ngâm suy nghĩ một lát rồi lắc đầu: "Người mà anh quen... là nhân vật máu mặt cỡ nào thế? Chắc do em kiến thức nông cạn rồi."
 
 "Thế còn Bao Uyển Yên thì sao?"

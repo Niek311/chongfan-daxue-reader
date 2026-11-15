@@ -1,7 +1,5 @@
 # Chương 139: Chào dì
 
-> **Tiêu đề gốc**: 第139章 阿姨，你好。
-
 Sáng hôm sau.
 
 Đoạn Thu Bình cùng Tống Uyển Hòa bắt chuyến xe khách liên tỉnh về đến Triệu gia thôn.

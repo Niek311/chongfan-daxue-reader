@@ -1,7 +1,5 @@
 # Chương 180: Mẹ này, chẳng lẽ không có đứa nào giống nét con à?
 
-> **Tiêu đề gốc**: 第180章 妈，就没一个长相随我的吗？
-
 Cứ cách mười phút, bà Lục Mai Tiêu lại sốt ruột gọi điện thoại hỏi xem Thẩm Tử Ngôn cùng Triệu Kim An đã đi tới đâu rồi.
 
 Hai người giúp việc trong căn biệt thự đã tất bật chuẩn bị cỗ bàn, sơ chế thực phẩm từ sáng sớm tinh mơ.

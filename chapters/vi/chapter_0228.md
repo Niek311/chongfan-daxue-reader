@@ -1,14 +1,12 @@
 # Chương 228: Người trẻ tuổi đúng là dồi dào sức lực
 
-> **Tiêu đề gốc**: 第228章 年轻人是力气大
-
-Mái tóc của Tô Miện có phần rối bời, đôi gò má ửng hồng kiều diễm.
+Mái tóc của Tô Miến có phần rối bời, đôi gò má ửng hồng kiều diễm.
 
 Nghe thấy bên trong có tiếng lục đục trở mình, Tô Mặc gõ nhẹ rồi hé cửa nhìn vào, thấy Triệu Kim An đã mặc quần áo chỉnh tề cô mới dám đẩy cửa bước hẳn vào phòng.
 
-"Tô Miện, em định mặc nguyên bộ đồ ngủ này ra ngoài à?"
+"Tô Miến, em định mặc nguyên bộ đồ ngủ này ra ngoài à?"
 
-Là người từng trải, Tô Mặc chỉ cần ngửi qua mùi hương thoang thoảng còn vương lại trong phòng là thừa hiểu đôi trẻ vừa làm cái chuyện gì. Nhìn dáng vẻ mềm nhũn như cọng bún của Tô Miện, trong lòng cô không khỏi thầm cảm thán: đám thanh niên trẻ tuổi đúng là sung sức thật đấy!
+Là người từng trải, Tô Mặc chỉ cần ngửi qua mùi hương thoang thoảng còn vương lại trong phòng là thừa hiểu đôi trẻ vừa làm cái chuyện gì. Nhìn dáng vẻ mềm nhũn như cọng bún của Tô Miến, trong lòng cô không khỏi thầm cảm thán: đám thanh niên trẻ tuổi đúng là sung sức thật đấy!
 
 Xem kìa, đem con gái nhà người ta "giày vò" đến nông nỗi này cơ chứ!?
 
@@ -22,13 +20,13 @@ Về khoản này thì Triệu Kim An có lý lẽ riêng của mình: rõ ràng
 
 "Để tôi làm cho."
 
-Thấy Tô Mặc lật chăn, Triệu Kim An mới sực nhớ ra tình cảnh trớ trêu. Anh vội vòng tay bế Tô Miện nép vào lòng mình rồi mới đón lấy chiếc quần nhỏ từ tay Tô Mặc. Dẫu biết Tô Mặc cũng là phụ nữ, nhưng việc có người đứng sát sàn sạt giương mắt nhìn thế này vẫn khiến Triệu Kim An cảm thấy ngượng ngùng, lúng túng.
+Thấy Tô Mặc lật chăn, Triệu Kim An mới sực nhớ ra tình cảnh trớ trêu. Anh vội vòng tay bế Tô Miến nép vào lòng mình rồi mới đón lấy chiếc quần nhỏ từ tay Tô Mặc. Dẫu biết Tô Mặc cũng là phụ nữ, nhưng việc có người đứng sát sàn sạt giương mắt nhìn thế này vẫn khiến Triệu Kim An cảm thấy ngượng ngùng, lúng túng.
 
-"Tô Miện, chị dâu cả vừa mới về tới nơi đấy."
+"Tô Miến, chị dâu cả vừa mới về tới nơi đấy."
 
 "Vâng ạ."
 
-Tô Miện quàng một tay qua cổ Triệu Kim An, toàn bộ cơ thể ngọc ngà chẳng còn chút bí mật nào cứ thế phơi bày trọn vẹn dưới ánh mắt của Triệu Kim An và Tô Mặc.
+Tô Miến quàng một tay qua cổ Triệu Kim An, toàn bộ cơ thể ngọc ngà chẳng còn chút bí mật nào cứ thế phơi bày trọn vẹn dưới ánh mắt của Triệu Kim An và Tô Mặc.
 
 "Kim An, không phải mặc kiểu đó đâu..."
 
@@ -36,15 +34,15 @@ Tô Miện quàng một tay qua cổ Triệu Kim An, toàn bộ cơ thể ngọc
 
 "Có làm em bị đau không?"
 
-Nhìn Triệu Kim An ở khoảng cách gần gang tấc ân cần hỏi han, Tô Miện mỉm cười lắc đầu: "Không đau chút nào đâu anh."
+Nhìn Triệu Kim An ở khoảng cách gần gang tấc ân cần hỏi han, Tô Miến mỉm cười lắc đầu: "Không đau chút nào đâu anh."
 
 Tô Mặc vừa giúp chỉnh trang vừa bĩu môi thầm nghĩ trong bụng: nếu cánh giúp việc chúng tôi mà lỡ tay làm cô đau dù chỉ một sợi tóc, thì cả ngày hôm đó đố ai dám thở mạnh một hơi.
 
-Gương mặt của Tô Miện quả thực vô cùng thanh tú khả ái. Triệu Kim An vừa ôm cô vào lòng cài từng chiếc cúc áo ngủ, không kìm nén được lòng mình liền cúi xuống thơm nhẹ lên môi cô một cái.
+Gương mặt của Tô Miến quả thực vô cùng thanh tú khả ái. Triệu Kim An vừa ôm cô vào lòng cài từng chiếc cúc áo ngủ, không kìm nén được lòng mình liền cúi xuống thơm nhẹ lên môi cô một cái.
 
-Tô Miện ngước nhìn Triệu Kim An, trong đáy mắt anh tràn ngập sự si mê, đắm đuối không hề che giấu.
+Tô Miến ngước nhìn Triệu Kim An, trong đáy mắt anh tràn ngập sự si mê, đắm đuối không hề che giấu.
 
-Tô Miện khẽ mỉm cười hạnh phúc.
+Tô Miến khẽ mỉm cười hạnh phúc.
 
 "..."
 
@@ -56,19 +54,19 @@ Tô Mặc đứng phía sau chải tóc cho cô mà cảm thấy công việc n�
 
 Cài mãi cho tới tận chiếc cúc dưới cùng, Triệu Kim An bỗng buột miệng kêu lên một tiếng, rồi lại kiên nhẫn cởi từng nút ra cài lại từ đầu.
 
-Tô Miện bật cười thành tiếng.
+Tô Miến bật cười thành tiếng.
 
 "..."
 
-Tô Mặc cũng hiếm hoi phì cười một cái. Cô thầm nghi ngờ tên nhóc này cố tình giở trò sàm sỡ, mượn cớ cài cúc áo để tha hồ sờ soạng lung tung. Tay chân Tô Miện vẫn cử động bình thường chứ có liệt đâu mà cần người cài hộ từng nút một?
+Tô Mặc cũng hiếm hoi phì cười một cái. Cô thầm nghi ngờ tên nhóc này cố tình giở trò sàm sỡ, mượn cớ cài cúc áo để tha hồ sờ soạng lung tung. Tay chân Tô Miến vẫn cử động bình thường chứ có liệt đâu mà cần người cài hộ từng nút một?
 
 "Được rồi đấy."
 
-Tô Mặc thoăn thoắt búi gọn mái tóc Tô Miện thành kiểu búi củ tỏi gọn gàng, thầm tính lát nữa hai đứa này có đè nhau ra làm thêm trận nữa thì đầu tóc cũng chẳng sợ bị rối bù xù.
+Tô Mặc thoăn thoắt búi gọn mái tóc Tô Miến thành kiểu búi củ tỏi gọn gàng, thầm tính lát nữa hai đứa này có đè nhau ra làm thêm trận nữa thì đầu tóc cũng chẳng sợ bị rối bù xù.
 
 Trước khi bước ra khỏi cửa, Tô Mặc còn tiện tay nhặt chiếc gối rơi dưới sàn lên rồi giũ phẳng lại góc chăn.
 
-Triệu Kim An đẩy chiếc xe lăn đưa Tô Miện ra phòng khách.
+Triệu Kim An đẩy chiếc xe lăn đưa Tô Miến ra phòng khách.
 
 Tại đây, anh diện kiến người vợ của Tô Cảnh Ngôn — Khương Phức Hàm.
 
@@ -82,7 +80,7 @@ Khương Phức Hàm thoáng ngẩn ngơ mất một nhịp. Mặc dù trước 
 
 Triệu Kim An chỉ mỉm cười khiêm tốn, không đáp lời.
 
-Tô Miện thì chẳng thèm rào trước đón sau, thẳng thắn cất giọng: "Chị dâu, chị không nhìn xem bây giờ là mấy giờ rồi à?"
+Tô Miến thì chẳng thèm rào trước đón sau, thẳng thắn cất giọng: "Chị dâu, chị không nhìn xem bây giờ là mấy giờ rồi à?"
 
 "Tiểu muội này, chẳng phải trong nhà chỉ còn mỗi chị với anh cả em là chưa được diện kiến Kim An thôi sao?"
 
@@ -118,11 +116,11 @@ Quách Uyển Thanh mỉm cười: "Thế mẹ nói cho con hay, Kim An uống l
 
 Khương Phức Hàm cạn lời: "Mẹ, thôi con về phòng đây, bố thiên vị quá mức rồi."
 
-Quách Uyển Thanh ghé sát tai con dâu rỉ tai: "Tô Miện nó không cho Kim An uống giọt rượu nào..."
+Quách Uyển Thanh ghé sát tai con dâu rỉ tai: "Tô Miến nó không cho Kim An uống giọt rượu nào..."
 
 "..."
 
-Khương Phức Hàm trố tròn hai mắt kinh ngạc. Cô không ngờ Tô Miện đã tính đến nước muốn sinh con đẻ cái cho Triệu Kim An rồi, mà điều kỳ lạ là cả bố chồng lẫn mẹ chồng lại đều một mực chiều chuộng, dung túng hết lòng như thế.
+Khương Phức Hàm trố tròn hai mắt kinh ngạc. Cô không ngờ Tô Miến đã tính đến nước muốn sinh con đẻ cái cho Triệu Kim An rồi, mà điều kỳ lạ là cả bố chồng lẫn mẹ chồng lại đều một mực chiều chuộng, dung túng hết lòng như thế.
 
 Rất nhanh sau đó, người giúp việc đã bưng mấy bát canh nóng hổi từ trong bếp ra.
 
@@ -134,17 +132,17 @@ Khương Phức Hàm vặn nắp một chai trà sữa Ngu Quang nhấp thử m�
 
 "Người một nhà cả, sao lại nói chuyện khách sáo như người ngoài thế?"
 
-Khương Phức Hàm kéo ghế ngồi vào bàn ăn. Triệu Kim An không bế Tô Miện ngồi lên ghế mà cứ để cô ngồi trên xe lăn, tự tay cuốn từng miếng thịt vịt quay béo ngậy đưa tận miệng cho Tô Miện, động tác vô cùng tự nhiên và thuần thục.
+Khương Phức Hàm kéo ghế ngồi vào bàn ăn. Triệu Kim An không bế Tô Miến ngồi lên ghế mà cứ để cô ngồi trên xe lăn, tự tay cuốn từng miếng thịt vịt quay béo ngậy đưa tận miệng cho Tô Miến, động tác vô cùng tự nhiên và thuần thục.
 
 Quách Uyển Thanh đứng một bên lặng lẽ quan sát.
 
-Triệu Kim An lại cẩn thận múc một bát canh nóng, thổi nguội bớt rồi đưa cho Tô Miện.
+Triệu Kim An lại cẩn thận múc một bát canh nóng, thổi nguội bớt rồi đưa cho Tô Miến.
 
 Khương Phức Hàm đưa mắt nhìn mẹ chồng, Quách Uyển Thanh khẽ mỉm cười gật đầu.
 
-Điều khiến mọi người ngạc nhiên là Tô Miện không những húp cạn bát canh mà còn ăn liền tù tì mấy cuốn thịt vịt. Triệu Kim An cưng chiều ghé đầu hỏi: "Em ăn thêm nữa không?"
+Điều khiến mọi người ngạc nhiên là Tô Miến không những húp cạn bát canh mà còn ăn liền tù tì mấy cuốn thịt vịt. Triệu Kim An cưng chiều ghé đầu hỏi: "Em ăn thêm nữa không?"
 
-Tô Miện gật đầu ngoan ngoãn: "Em muốn ăn nữa."
+Tô Miến gật đầu ngoan ngoãn: "Em muốn ăn nữa."
 
 Bản thân Triệu Kim An cũng đánh chén không ít. Ban đầu Khương Phức Hàm chỉ có ý mời lót dạ cho vui miệng, thấy cảnh này không khỏi thắc mắc: Hai đứa này chưa ăn cơm tối à? Không phải mười giờ rưỡi đêm đã ăn một bữa rồi sao?
 
@@ -156,7 +154,7 @@ Khương Phức Hàm chớp chớp mắt, lập tức hiểu ra cơ sự, cườ
 
 Quách Uyển Thanh: "..."
 
-Triệu Kim An và Tô Miện quả thực đói cồn cào ruột gan. Hùng hục vận động suốt ba hiệp liền, ai bảo là không tiêu hao năng lượng cơ chứ? Chẳng những người phát lực như Triệu Kim An mệt lử, mà ngay cả người thụ hưởng như Tô Miện cũng tiêu tốn không ít thể lực.
+Triệu Kim An và Tô Miến quả thực đói cồn cào ruột gan. Hùng hục vận động suốt ba hiệp liền, ai bảo là không tiêu hao năng lượng cơ chứ? Chẳng những người phát lực như Triệu Kim An mệt lử, mà ngay cả người thụ hưởng như Tô Miến cũng tiêu tốn không ít thể lực.
 
 "Không sao đâu, em uống thêm bát canh nữa cho ấm bụng."
 
@@ -164,13 +162,13 @@ Triệu Kim An cũng không quên người chị dâu: "Chị dâu, để em mú
 
 "Thôi thôi, chị ăn no rồi, hai đứa cứ ăn tự nhiên đi."
 
-Khương Phức Hàm đưa tay vuốt lại lọn tóc mai cho Tô Miện, nhìn cô em chồng mỉm cười đầy thấu hiểu.
+Khương Phức Hàm đưa tay vuốt lại lọn tóc mai cho Tô Miến, nhìn cô em chồng mỉm cười đầy thấu hiểu.
 
-Tô Miện chẳng hề tỏ ra ngượng ngùng chút nào, trong đầu chỉ thầm nhủ ngày mai phải cắt móng tay cho thật gọn gàng, kẻo lại cào nát cả lưng Triệu Kim An. Nhưng mà chuyện này cũng đâu thể trách cô được, ai bảo anh "khỏe sức" đến thế làm chi?
+Tô Miến chẳng hề tỏ ra ngượng ngùng chút nào, trong đầu chỉ thầm nhủ ngày mai phải cắt móng tay cho thật gọn gàng, kẻo lại cào nát cả lưng Triệu Kim An. Nhưng mà chuyện này cũng đâu thể trách cô được, ai bảo anh "khỏe sức" đến thế làm chi?
 
 Lúc ấy cô hoàn toàn mất kiểm soát, chỉ muốn bấu chặt lấy một điểm tựa mà thôi.
 
-Tô Miện cảm thấy vô cùng mãn nguyện.
+Tô Miến cảm thấy vô cùng mãn nguyện.
 
 Chẳng biết từ lúc nào, ông Tô Minh Tùng đã thức dậy bước ra. Khương Phức Hàm vội vàng đứng lên chào: "Bố ạ!"
 
@@ -202,7 +200,7 @@ Nói một cách ngược lại, nếu như Tô Minh Tùng một ngày nào đó
 
 Có Tô Minh Tùng che chở, Triệu Kim An thậm chí đến cả những nhân vật cỡ như Tô Cảnh Hành cũng chẳng cần phải nhọc công bợ đỡ, lấy lòng.
 
-Quách Uyển Thanh thầm nghĩ thế này cũng tốt, Triệu Kim An hiếm hoi lắm mới ra Kinh đô một chuyến, cứ để nó ở nhà bầu bạn với Tô Miện cho nhiều.
+Quách Uyển Thanh thầm nghĩ thế này cũng tốt, Triệu Kim An hiếm hoi lắm mới ra Kinh đô một chuyến, cứ để nó ở nhà bầu bạn với Tô Miến cho nhiều.
 
 Ai ngờ Tô Minh Tùng bỗng dưng ngồi phắt dậy, bực bội cằn nhằn: "Dắt nó đi gặp người ta thì có ích tích sự gì? Đến nước nịnh nọt tôi mà nó còn chẳng thèm biết đường nịnh! Đừng nói đến chuyện vuốt ve tâng bốc người ta một cách khéo léo êm tai."
 

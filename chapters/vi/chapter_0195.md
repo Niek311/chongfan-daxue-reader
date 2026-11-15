@@ -1,7 +1,5 @@
 # Chương 195: Xin lỗi.
 
-> **Tiêu đề gốc**: 第195章 对不起。
-
 "Con năm nay mới bao nhiêu tuổi chứ? Con mới chỉ đang học năm hai đại học mà thôi."
 
 "Bố mẹ đối với Trần Trạch thì bao dung, rộng lượng đến thế, nhưng đối với con lại khắt khe, nghiệt ngã đến tàn nhẫn. Ở trong chính ngôi nhà của mình mà con chẳng dám thả lỏng dù chỉ trong giây lát, không dám ngả lưng nằm dài trên ghế sô pha vừa nhâm nhi đồ ăn vừa xem ti vi."
@@ -74,7 +72,7 @@ Từ Mạn Mạn lại đổi sang một góc nhìn khác: "Bố à, con với T
 
 "Càng nói càng hồ đồ vớ vẩn hết sức!!"
 
-Từ Tắc Đống tuyệt đối không tin những chuyện đó. Ông cùng Lương Tuệ Trân tận mắt nhìn Trần Trạch lớn lên, lại là đồng nghiệp thâm niên với Dương Thục Mỹ: "Thằng Trần Trạch đã giải thích rồi, là do con bé kia cố tình bày trò gài bẫy..."
+Từ Tắc Đống tuyệt đối không tin những chuyện đó. Ông cùng Lương Tuệ Trân tận mắt nhìn Trần Trạch lớn lên, lại là đồng nghiệp thâm niên với Dương Thù Mỹ: "Thằng Trần Trạch đã giải thích rồi, là do con bé kia cố tình bày trò gài bẫy..."
 
 "Nó cố tình thì thằng Trần Trạch cũng ngoan ngoãn đồng ý cắn câu à?"
 

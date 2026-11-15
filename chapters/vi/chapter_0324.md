@@ -1,12 +1,10 @@
 # Chương 324: Lại đến cuối năm
 
-> **Tiêu đề gốc**: 第324章 又到年底了。
-
 Những mẩu tin tức nóng hổi ấy chẳng sót một mẩu nào, lũ lượt truyền tới tận vùng đất Attica xa xôi. Triệu Kim An không ngờ ở Quận Sa lại náo nhiệt đến thế. Anh liếc nhìn màn hình điện thoại, không thấy có tin nhắn nào từ Từ Mạn Mạn gửi tới.
 
 Cả Triệu Bác Lan lẫn Lưu Hiểu Tĩnh đều đã lần lượt gọi điện báo cáo tình hình cho Triệu Kim An.
 
-"Dương Thục Mỹ không dễ dàng sụp đổ đến thế đâu, Lưu Sấm Phong ăn mừng hơi sớm rồi đấy. Cậu ta thực sự có đủ vốn liếng để cùng Phương Khiết mở xưởng riêng sao?"
+"Dương Thù Mỹ không dễ dàng sụp đổ đến thế đâu, Lưu Sấm Phong ăn mừng hơi sớm rồi đấy. Cậu ta thực sự có đủ vốn liếng để cùng Phương Khiết mở xưởng riêng sao?"
 
 Triệu Kim An mang theo chút hoài nghi mở gian hàng Taobao của Phương Khiết lên xem thử. Nhìn vào số lượng tiêu thụ thực tế, anh khẽ lắc đầu: đúng là chỉ giỏi khoác lác.
 

@@ -1,7 +1,5 @@
 # Chương 446: Chị à, miệng chị độc thật đấy!
 
-> **Tiêu đề gốc**: 第446章 姐，你嘴真毒。
-
 Diêu Sân chẳng biết phải nói gì, Thẩm Tử Ngôn đã hoàn toàn cắt đứt liên lạc.
 
 Dạo Triệu Kim An gặp nạn ở Phụ Bình, Thẩm Tử Ngôn không hề gọi cho Diêu Sân, mà bấm máy dò hỏi Du Phi.

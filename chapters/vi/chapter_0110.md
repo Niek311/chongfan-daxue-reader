@@ -1,7 +1,5 @@
 # Chương 110: Giai đoạn khó khăn nhất đã qua rồi
 
-> **Tiêu đề gốc**: 第110章 最困难的时期过去了。
-
 Ở một diễn biến khác.
 
 Điền Vũ Hạo sau khi nhận thất bại ở trận đấu bóng rổ, liền rút điện thoại gọi điện cho Âu Cường đang theo học đại học tận Thượng Hải xa xôi.

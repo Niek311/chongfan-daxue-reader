@@ -1,10 +1,8 @@
 # Chương 240: Thích thành phố Sa Quận
 
-> **Tiêu đề gốc**: 第240章 喜欢省会郡沙。
-
 Chiều tà bảng lảng, dưới tán cây râm mát.
 
-Nồi lẩu bốc khói nghi ngút, Đơn Vĩ đứng một bên thuần thục nướng thịt trên bếp than hoa, phía dưới chân đồi là dòng nước cuồn cuộn chảy xiết.
+Nồi lẩu bốc khói nghi ngút, Đan Vĩ đứng một bên thuần thục nướng thịt trên bếp than hoa, phía dưới chân đồi là dòng nước cuồn cuộn chảy xiết.
 
 Triệu Kim An, Lạc Cẩn Chi, Thẩm Tử Ngôn và Bành Trung Ngạn — bốn nhân vật giữ cương vị cao nhất của Trăn Nhiên — hiếm hoi lắm mới có dịp quây quần đông đủ bên nhau để vừa ăn uống vừa bàn chuyện công việc. Giám đốc xưởng Trương Kim Phi ngồi bên cạnh làm chân rót rượu và phụ trách nhúng đồ ăn vào nồi lẩu.
 
@@ -72,7 +70,7 @@ Mọi người không để sự xuất hiện của Tông Phó Lợi làm gián
 
 "Reng reng reng."
 
-Đúng lúc này điện thoại của Triệu Kim An rung lên, màn hình báo cuộc gọi đến từ Hứa Mạn Mạn.
+Đúng lúc này điện thoại của Triệu Kim An rung lên, màn hình báo cuộc gọi đến từ Từ Mạn Mạn.
 
 Tại Sa Quận.
 
@@ -80,19 +78,19 @@ Tôn Dũng — Trưởng phòng Thu mua của siêu thị Trăn Hối Tuyển �
 
 "Cốc, cốc."
 
-"Hứa tổng, đây là danh sách toàn bộ các nhà cung cấp ngành hàng hóa mỹ phẩm, hồ sơ năng lực của họ đều ở trong này cả."
+"Từ tổng, đây là danh sách toàn bộ các nhà cung cấp ngành hàng hóa mỹ phẩm, hồ sơ năng lực của họ đều ở trong này cả."
 
-Tôn Dũng ôm xấp tài liệu dày cộp đặt ngay ngắn lên bàn làm việc của Hứa Mạn Mạn.
+Tôn Dũng ôm xấp tài liệu dày cộp đặt ngay ngắn lên bàn làm việc của Từ Mạn Mạn.
 
-Lúc này Hứa Mạn Mạn đang ngồi trao đổi công việc cùng Liễu Ôn Ninh và Đường Hiểu Tình.
+Lúc này Từ Mạn Mạn đang ngồi trao đổi công việc cùng Liễu Ôn Ninh và Đường Hiểu Tình.
 
-Liễu Ôn Ninh và Đường Hiểu Tình ngồi ở bộ ghế sofa tiếp khách, còn Hứa Mạn Mạn ngồi phía sau chiếc bàn làm việc giám đốc bận rộn gõ phím máy tính. Người đàn ông ngoài bốn mươi tuổi như Tôn Dũng đứng nép một bên, trong lòng không khỏi thầm cảm thán:
+Liễu Ôn Ninh và Đường Hiểu Tình ngồi ở bộ ghế sofa tiếp khách, còn Từ Mạn Mạn ngồi phía sau chiếc bàn làm việc giám đốc bận rộn gõ phím máy tính. Người đàn ông ngoài bốn mươi tuổi như Tôn Dũng đứng nép một bên, trong lòng không khỏi thầm cảm thán:
 
 "Triệu tổng... đúng thật là một nhân tài dị biệt!"
 
 Đây không hẳn là lời khen ngợi thuần túy, mà phảng phất chút dở khóc dở cười.
 
-Triệu Kim An quả thực chẳng buồn nhúng tay vào việc quản lý vận hành Trăn Hối Tuyển. Anh chỉ đứng ra mua đứt trọn vẹn ba tầng mặt bằng thương mại đắt giá này, rồi dắt Hứa Mạn Mạn đi một chuyến sang Hứa Đô khảo sát học hỏi mô hình Bàn Đông Lai.
+Triệu Kim An quả thực chẳng buồn nhúng tay vào việc quản lý vận hành Trăn Hối Tuyển. Anh chỉ đứng ra mua đứt trọn vẹn ba tầng mặt bằng thương mại đắt giá này, rồi dắt Từ Mạn Mạn đi một chuyến sang Hứa Đô khảo sát học hỏi mô hình Bàn Đông Lai.
 
 Một siêu thị có quy mô lớn nhất toàn thành phố Sa Quận, vậy mà cứ thế giao trọn quyền sinh quyền sát vào tay một cô nữ sinh vừa học xong năm thứ hai đại học?
 
@@ -116,23 +114,23 @@ Nếu cấp dưới không chịu báo cáo xin ý kiến...
 
 Khoan hãy nói đến chuyện công việc có xảy ra sai sót hay không, trước hết thái độ làm việc như vậy đã là không thể chấp nhận được rồi.
 
-Nào ngờ Triệu Kim An lại làm chân "chủ tiệm vung tay", hễ hỏi tới là anh lại buông đúng một câu: Các anh chị cứ sang tìm Hứa Mạn Mạn mà giải quyết.
+Nào ngờ Triệu Kim An lại làm chân "chủ tiệm vung tay", hễ hỏi tới là anh lại buông đúng một câu: Các anh chị cứ sang tìm Từ Mạn Mạn mà giải quyết.
 
-Trong mắt Tôn Dũng và Liễu Ôn Ninh, Hứa Mạn Mạn cũng là một trường hợp kỳ lạ hiếm thấy. Cô gái này quả thực dám nghĩ dám làm, việc gì cũng tự mình đứng ra gánh vác, tự tay quyết đoán mọi sự.
+Trong mắt Tôn Dũng và Liễu Ôn Ninh, Từ Mạn Mạn cũng là một trường hợp kỳ lạ hiếm thấy. Cô gái này quả thực dám nghĩ dám làm, việc gì cũng tự mình đứng ra gánh vác, tự tay quyết đoán mọi sự.
 
-Cả Liễu Ôn Ninh lẫn Tôn Dũng lúc này đều cung kính gọi cô một tiếng "Hứa tổng". Hứa Mạn Mạn tiện tay lật mở xấp tài liệu ra xem.
+Cả Liễu Ôn Ninh lẫn Tôn Dũng lúc này đều cung kính gọi cô một tiếng "Từ tổng". Từ Mạn Mạn tiện tay lật mở xấp tài liệu ra xem.
 
 "Đường Hiểu Tình, cậu cầm trước một số mẫu sản phẩm đem sang phòng thí nghiệm của trường đại học chúng mình làm xét nghiệm kiểm tra chất lượng nhé."
 
 "Được rồi."
 
-Trăn Hối Tuyển áp dụng nguyên vẹn danh sách các nhà cung ứng đạt chuẩn của chuỗi siêu thị Bàn Đông Lai, đồng thời cũng đặt ra những yêu cầu tiêu chuẩn kỹ thuật nghiêm ngặt tương tự đối với các đối tác. Hiện tại Trăn Hối Tuyển chưa kịp xây dựng xong trung tâm kiểm nghiệm hóa sinh nội bộ, thế nên Hứa Mạn Mạn liền tận dụng ngay nguồn lực từ trường đại học của mình.
+Trăn Hối Tuyển áp dụng nguyên vẹn danh sách các nhà cung ứng đạt chuẩn của chuỗi siêu thị Bàn Đông Lai, đồng thời cũng đặt ra những yêu cầu tiêu chuẩn kỹ thuật nghiêm ngặt tương tự đối với các đối tác. Hiện tại Trăn Hối Tuyển chưa kịp xây dựng xong trung tâm kiểm nghiệm hóa sinh nội bộ, thế nên Từ Mạn Mạn liền tận dụng ngay nguồn lực từ trường đại học của mình.
 
 Vốn dĩ rất nhiều giảng viên hướng dẫn nghiên cứu sinh trong trường đều sẵn sàng nhận các dự án kiểm nghiệm bên ngoài để kiếm thêm thu nhập cho phòng lab.
 
-Trăn Hối Tuyển dự kiến sẽ chính thức khai trương vào cuối tháng tám, canh đúng vào thời điểm trước ngày tựu trường của sinh viên. Về mốc thời gian này, Hứa Mạn Mạn đã xin ý kiến của Triệu Kim An, bản thân cô rất mong muốn siêu thị có thể đi vào vận hành trước ngày 1 tháng 9.
+Trăn Hối Tuyển dự kiến sẽ chính thức khai trương vào cuối tháng tám, canh đúng vào thời điểm trước ngày tựu trường của sinh viên. Về mốc thời gian này, Từ Mạn Mạn đã xin ý kiến của Triệu Kim An, bản thân cô rất mong muốn siêu thị có thể đi vào vận hành trước ngày 1 tháng 9.
 
-Hứa Mạn Mạn chưa có thời gian đọc hết toàn bộ xấp tài liệu dày cộp. Hàng ngàn, hàng vạn mặt hàng khác nhau, chỉ khi chuẩn bị đặt bút ký hợp đồng chính thức thì cô mới rà soát kỹ lưỡng từng điều khoản.
+Từ Mạn Mạn chưa có thời gian đọc hết toàn bộ xấp tài liệu dày cộp. Hàng ngàn, hàng vạn mặt hàng khác nhau, chỉ khi chuẩn bị đặt bút ký hợp đồng chính thức thì cô mới rà soát kỹ lưỡng từng điều khoản.
 
 Hồ sơ năng lực của Trương Vân Thiến cũng nằm lẫn trong số đó.
 
@@ -144,19 +142,19 @@ Tại phòng họp lớn, mặt bàn hội nghị dài dằng dặc chất đầ
 
 Chai lọ mỹ phẩm dĩ nhiên đều được thiết kế vô cùng tinh xảo, màu sắc bắt mắt, toát lên vẻ sang trọng cao cấp, bởi lẽ ngành hàng này kiếm tiền chủ yếu dựa vào hình thức và cảm xúc của khách hàng.
 
-Đơn Na Tề cùng toàn bộ nhân viên phòng Thu mua đều đang có mặt bên trong để phân loại.
+Đan Na Tề cùng toàn bộ nhân viên phòng Thu mua đều đang có mặt bên trong để phân loại.
 
-Hứa Mạn Mạn đi một vòng quanh bàn họp, bỗng nhiên nhìn thấy một chai sữa rửa mặt quen thuộc, hình như trước đây Mộc Dao cũng từng dùng nhãn hiệu này.
+Từ Mạn Mạn đi một vòng quanh bàn họp, bỗng nhiên nhìn thấy một chai sữa rửa mặt quen thuộc, hình như trước đây Mộc Dao cũng từng dùng nhãn hiệu này.
 
-"Hứa tổng, em xem có món nào ưng ý cần dùng không?"
+"Từ tổng, em xem có món nào ưng ý cần dùng không?"
 
 Liễu Ôn Ninh mỉm cười ân cần hỏi.
 
-Các nhà cung cấp khi gửi hàng mẫu chào hàng thường tặng kèm cả sản phẩm dùng thử lẫn sản phẩm nguyên seal hoàn chỉnh. Hứa Mạn Mạn chỉ cầm chai sữa rửa mặt kia lên ngắm nghía một chút rồi cười lắc đầu: "Chị Liễu cứ chọn trước đi ạ, em chẳng bao giờ dùng đến mấy thứ này."
+Các nhà cung cấp khi gửi hàng mẫu chào hàng thường tặng kèm cả sản phẩm dùng thử lẫn sản phẩm nguyên seal hoàn chỉnh. Từ Mạn Mạn chỉ cầm chai sữa rửa mặt kia lên ngắm nghía một chút rồi cười lắc đầu: "Chị Liễu cứ chọn trước đi ạ, em chẳng bao giờ dùng đến mấy thứ này."
 
 "..."
 
-Liễu Ôn Ninh mở to mắt nhìn Hứa Mạn Mạn, rồi lại đưa mắt nhìn sang Đường Hiểu Tình đang đứng cạnh.
+Liễu Ôn Ninh mở to mắt nhìn Từ Mạn Mạn, rồi lại đưa mắt nhìn sang Đường Hiểu Tình đang đứng cạnh.
 
 Được rồi, mấy cô gái mơn mởn tuổi đôi mươi tràn trề collagen này quả thực chẳng cần đến phấn son mỹ phẩm làm gì.
 
@@ -172,7 +170,7 @@ Ngược lại, Đường Hiểu Tình ở cả hai bên Trăn Nhiên và Trăn 
 
 "Đường Hiểu Tình, cậu có muốn chọn vài lọ mỹ phẩm hay dưỡng da mang về biếu mẹ cậu không?"
 
-Hứa Mạn Mạn vừa nói vừa lật giở xấp hồ sơ đối chiếu danh sách, lướt qua vài trang quả nhiên nhìn thấy cái tên Trương Vân Thiến.
+Từ Mạn Mạn vừa nói vừa lật giở xấp hồ sơ đối chiếu danh sách, lướt qua vài trang quả nhiên nhìn thấy cái tên Trương Vân Thiến.
 
 "Mạn Mạn à, mẹ tớ cả đời chưa từng biết trang điểm là gì đâu."
 
@@ -180,15 +178,15 @@ Hứa Mạn Mạn vừa nói vừa lật giở xấp hồ sơ đối chiếu dan
 
 Liễu Ôn Ninh cười bảo: "Vậy thì lấy các dòng kem dưỡng ẩm phục hồi da đi. Các em còn trẻ thì chưa cần, nhưng phụ nữ ở tầm tuổi mẹ em thì rất cần chăm sóc rồi đấy, mẹ em nhận được chắc chắn sẽ thích mê cho mà xem."
 
-Liễu Ôn Ninh ngập ngừng định mở miệng hỏi thăm về mẹ của Hứa Mạn Mạn, nhưng ngẫm nghĩ một lát lại thôi.
+Liễu Ôn Ninh ngập ngừng định mở miệng hỏi thăm về mẹ của Từ Mạn Mạn, nhưng ngẫm nghĩ một lát lại thôi.
 
-Vị Hứa tổng trẻ tuổi này ngoại trừ việc thỉnh thoảng tự ăn chút đồ ăn vặt ra, tuyệt nhiên chưa từng mang bất kỳ thứ gì của công ty về nhà riêng.
+Vị Từ tổng trẻ tuổi này ngoại trừ việc thỉnh thoảng tự ăn chút đồ ăn vặt ra, tuyệt nhiên chưa từng mang bất kỳ thứ gì của công ty về nhà riêng.
 
 "Na Tề, mọi người ai thích món nào thì cứ tự chọn lấy một hai món mang về dùng nhé."
 
-Hứa Mạn Mạn vừa dặn dò nhân viên vừa cầm xấp tài liệu dò theo hàng mục sản phẩm của Trương Vân Thiến. Trương Vân Thiến gửi tới tổng cộng 9 dòng sản phẩm, Hứa Mạn Mạn lần lượt nhặt đủ cả 9 mẫu thử nhỏ ra khỏi đống hàng hóa.
+Từ Mạn Mạn vừa dặn dò nhân viên vừa cầm xấp tài liệu dò theo hàng mục sản phẩm của Trương Vân Thiến. Trương Vân Thiến gửi tới tổng cộng 9 dòng sản phẩm, Từ Mạn Mạn lần lượt nhặt đủ cả 9 mẫu thử nhỏ ra khỏi đống hàng hóa.
 
-"Hứa tổng, ngành hàng hóa mỹ phẩm này biên lợi nhuận khủng khiếp lắm đấy."
+"Từ tổng, ngành hàng hóa mỹ phẩm này biên lợi nhuận khủng khiếp lắm đấy."
 
 Tôn Dũng đứng bên cạnh cười xởi lởi góp chuyện.
 
@@ -198,33 +196,33 @@ Có điều toàn bộ dòng tiền thanh toán đều phải chảy qua hệ th
 
 "Hiểu Tình này."
 
-Hứa Mạn Mạn gom 9 lọ mẫu thử nhỏ kia dúi vào tay Đường Hiểu Tình, nghiêm túc dặn dò: "Cậu mang 9 mẫu sản phẩm này đi kiểm nghiệm trước nhé, nhớ dặn các thầy bên phòng thí nghiệm kiểm tra thật kỹ lưỡng từng chỉ số đấy."
+Từ Mạn Mạn gom 9 lọ mẫu thử nhỏ kia dúi vào tay Đường Hiểu Tình, nghiêm túc dặn dò: "Cậu mang 9 mẫu sản phẩm này đi kiểm nghiệm trước nhé, nhớ dặn các thầy bên phòng thí nghiệm kiểm tra thật kỹ lưỡng từng chỉ số đấy."
 
 "Có chuyện gì thế Mạn Mạn?"
 
-Đường Hiểu Tình và Hứa Mạn Mạn bây giờ quan hệ đã vô cùng thân thiết, những lúc không có người ngoài hay nói chuyện riêng tư hai người đều không câu nệ chức danh cấp bậc.
+Đường Hiểu Tình và Từ Mạn Mạn bây giờ quan hệ đã vô cùng thân thiết, những lúc không có người ngoài hay nói chuyện riêng tư hai người đều không câu nệ chức danh cấp bậc.
 
 "Của dì út nhà Dao Dao đấy."
 
 Đường Hiểu Tình ngớ người ra một thoáng, rồi lập tức gật đầu: "Được, tớ hiểu rồi."
 
-Hứa Mạn Mạn thực lòng không mấy mặn mà với những mối quan hệ dây mơ rễ má kiểu người quen như thế này. Với Thẩm Tử Ngôn thì rất dễ xử lý, chuyện gì hai bên cũng có thể sòng phẳng thẳng thắn trao đổi trên bàn đàm phán.
+Từ Mạn Mạn thực lòng không mấy mặn mà với những mối quan hệ dây mơ rễ má kiểu người quen như thế này. Với Thẩm Tử Ngôn thì rất dễ xử lý, chuyện gì hai bên cũng có thể sòng phẳng thẳng thắn trao đổi trên bàn đàm phán.
 
 Nếu sản phẩm của gia đình Thẩm Tử Ngôn không đạt chuẩn chất lượng của Trăn Hối Tuyển, Thẩm Tử Ngôn hoàn toàn có thể hiểu và thông cảm được, chẳng cần ai phải nhắc nhở, tự cô nàng sẽ biết cách giải quyết ổn thỏa êm đẹp.
 
-Hứa Mạn Mạn từng có vài lần tiếp xúc với Trương Vân Thiến, người phụ nữ này... Đến cả Triệu Kim An còn luôn e dè, né tránh việc dính líu quan hệ với hai chị em Trương Huệ và Trương Vân Thiến cơ mà.
+Từ Mạn Mạn từng có vài lần tiếp xúc với Trương Vân Thiến, người phụ nữ này... Đến cả Triệu Kim An còn luôn e dè, né tránh việc dính líu quan hệ với hai chị em Trương Tuệ và Trương Vân Thiến cơ mà.
 
 Huống chi còn vướng bận cả Mộc Dao ở giữa.
 
 Liệu Mộc Dao có thể thấu hiểu và hành xử chuyên nghiệp được như Thẩm Tử Ngôn hay không, điều đó vẫn là một dấu hỏi lớn.
 
-Hứa Mạn Mạn dự định lát nữa sẽ gọi điện thông báo trước cho Triệu Kim An biết một tiếng về chuyện này, dẫu sao việc này cũng trực tiếp liên quan đến Mộc Dao.
+Từ Mạn Mạn dự định lát nữa sẽ gọi điện thông báo trước cho Triệu Kim An biết một tiếng về chuyện này, dẫu sao việc này cũng trực tiếp liên quan đến Mộc Dao.
 
-Đêm hôm đó Mộc Dao đột ngột chạy đi tìm Triệu Kim An khóc lóc, cả Thẩm Tử Ngôn lẫn Hứa Mạn Mạn đều không rõ đầu đuôi câu chuyện đã xảy ra những gì. Họ chỉ nghe Diêu Sân kể lại đôi ba câu, chẳng ai hiểu nổi tại sao mãi đến tận thời điểm này Mộc Dao mới ở trong phòng ký túc xá đau khổ, dằn vặt đến mức độ ấy.
+Đêm hôm đó Mộc Dao đột ngột chạy đi tìm Triệu Kim An khóc lóc, cả Thẩm Tử Ngôn lẫn Từ Mạn Mạn đều không rõ đầu đuôi câu chuyện đã xảy ra những gì. Họ chỉ nghe Diêu Sân kể lại đôi ba câu, chẳng ai hiểu nổi tại sao mãi đến tận thời điểm này Mộc Dao mới ở trong phòng ký túc xá đau khổ, dằn vặt đến mức độ ấy.
 
 Sau khi trở về phòng, suốt ba ngày liền Mộc Dao không thèm mở miệng nói với Thẩm Tử Ngôn lấy nửa lời.
 
-Trương Huệ nán lại Sa Quận suốt hai ngày, Mộc Dao cũng trốn trong phòng ngủ ở nhà dì ruột ngủ li bì suốt hai ngày trời, mãi mới nhắc Trương Vân Thiến lái xe quay lại trường đón thêm cả Du Phi.
+Trương Tuệ nán lại Sa Quận suốt hai ngày, Mộc Dao cũng trốn trong phòng ngủ ở nhà dì ruột ngủ li bì suốt hai ngày trời, mãi mới nhắc Trương Vân Thiến lái xe quay lại trường đón thêm cả Du Phi.
 
 Mộc Dao và Du Phi mua vé tàu hỏa cùng một ngày. Trương Vân Thiến mang theo đầy đủ xấp tài liệu hợp đồng, đích thân lái xe đưa hai cô cháu gái ra ga tàu. Khi chiếc xe chạy ngang qua tòa nhà của siêu thị Trăn Hối Tuyển, bà ta đưa tay chỉ ra ngoài cửa kính khoe:
 
@@ -236,7 +234,7 @@ Mộc Dao ngồi ở hàng ghế sau chỉ hờ hững liếc mắt nhìn qua m�
 
 Lúc này tâm trí cô dường như đã chết lặng, chẳng còn thiết tha với bất kỳ điều gì trên đời nữa.
 
-Ngược lại, Trương Huệ ngồi ở ghế phụ thì không rời mắt ngắm nhìn tòa nhà bề thế. Bà vô cùng say đắm vẻ phồn hoa, tráng lệ của thành phố Sa Quận này, mảnh đất Tư Tinh nhỏ bé quả thực quá đỗi chật chội và tù túng.
+Ngược lại, Trương Tuệ ngồi ở ghế phụ thì không rời mắt ngắm nhìn tòa nhà bề thế. Bà vô cùng say đắm vẻ phồn hoa, tráng lệ của thành phố Sa Quận này, mảnh đất Tư Tinh nhỏ bé quả thực quá đỗi chật chội và tù túng.
 
 "Dì có vào bên trong xem thử rồi, sảnh vào được thiết kế và bài trí rất đẹp mắt, nói thế nào nhỉ, trông vô cùng sang trọng đẳng cấp! Nói chung là mang lại cảm giác hoàn toàn khác biệt so với những siêu thị thông thường."
 
@@ -260,8 +258,8 @@ Người dì út Trương Vân Thiến này đối xử với Mộc Dao quả th
 
 "Sau này tốt nghiệp đại học xong thì cứ về đây làm việc phụ giúp dì, dì sẽ chia cổ phần công ty cho cháu, đằng nào thì dì cũng chẳng có con cái gì."
 
-Trương Huệ nghe vậy liền bực bội gắt: "Thế em không tính tìm lấy một người đàn ông tử tế mà kết hôn à? Ly hôn cũng ngót nghét mấy năm trời rồi chứ ít ỏi gì nữa?"
+Trương Tuệ nghe vậy liền bực bội gắt: "Thế em không tính tìm lấy một người đàn ông tử tế mà kết hôn à? Ly hôn cũng ngót nghét mấy năm trời rồi chứ ít ỏi gì nữa?"
 
 Trương Vân Thiến chỉ cười nhạt: "Em chẳng muốn chuốc thêm phiền phức vào người nữa làm gì..."
 
-Trương Huệ ngẫm nghĩ một thoáng rồi nghiêm giọng nhắc nhở: "Em đấy, liệu mà giữ mình, đừng có dạy hư con bé Dao Dao."
+Trương Tuệ ngẫm nghĩ một thoáng rồi nghiêm giọng nhắc nhở: "Em đấy, liệu mà giữ mình, đừng có dạy hư con bé Dao Dao."

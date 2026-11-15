@@ -1,18 +1,16 @@
 # Chương 194: Thế mà lại không khóc?
 
-> **Tiêu đề gốc**: 第194章 居然没有哭？
-
 Cúp điện thoại, Từ Mạn Mạn từ ngoài ban công quay trở vào phòng ngủ ký túc xá.
 
 Ba cô bạn cùng phòng đưa mắt nhìn cô đầy vẻ tò mò.
 
-Họ không biết Dương Thục Mỹ, cũng không hiểu rõ về hoàn cảnh gia đình của Từ Mạn Mạn.
+Họ không biết Dương Thù Mỹ, cũng không hiểu rõ về hoàn cảnh gia đình của Từ Mạn Mạn.
 
 Ngay cả Triệu Kim An cũng chưa từng thực sự thấu hiểu nội tình gia đình cô.
 
 Cả ba cô gái đều đoán rằng cuộc gọi ban nãy là từ mẹ của Trần Trạch gọi tới.
 
-Ngay từ hồi năm nhất nhập học, Trần Trạch và Từ Mạn Mạn đã hé lộ đôi điều về mối quan hệ giữa hai nhà. Dương Thục Mỹ rất mực quý mến Từ Mạn Mạn, thậm chí khi cô vừa chân ướt chân ráo bước vào cánh cổng đại học đã hào phóng tặng cho cô một chiếc túi xách Chanel hàng hiệu đắt tiền.
+Ngay từ hồi năm nhất nhập học, Trần Trạch và Từ Mạn Mạn đã hé lộ đôi điều về mối quan hệ giữa hai nhà. Dương Thù Mỹ rất mực quý mến Từ Mạn Mạn, thậm chí khi cô vừa chân ướt chân ráo bước vào cánh cổng đại học đã hào phóng tặng cho cô một chiếc túi xách Chanel hàng hiệu đắt tiền.
 
 Bởi vậy thời gian đầu, Mộc Dao và Diêu Sân từng rất ngưỡng mộ, ghen tị với Từ Mạn Mạn.
 
@@ -44,7 +42,7 @@ Không phải vì e ngại bốn xưởng sản xuất của gia đình Trần T
 
 Nếu chỉ là mới quen biết nhau sau khi lên đại học, thì đúng như Thẩm Tử Ngôn từng nói, ngay hôm xảy ra chuyện bọn họ đã xông thẳng vào phòng bi-a để chỉ mặt chất vấn Trần Trạch rồi.
 
-Họ cứ ngỡ cuộc gọi ban nãy là do Dương Thục Mỹ gọi tới.
+Họ cứ ngỡ cuộc gọi ban nãy là do Dương Thù Mỹ gọi tới.
 
 Không ai dám chắc liệu cuối cùng Từ Mạn Mạn có chọn cách tha thứ cho Trần Trạch hay không, dù sao hai người cũng quen biết nhau suốt bao nhiêu năm ròng. Những gì cần nói, hôm xảy ra chuyện Diêu Sân đã chỉ thẳng mặt Trần Trạch mắng xối xả rồi.
 
@@ -56,7 +54,7 @@ Từ Mạn Mạn vẫn lên lớp học đầy đủ, tuần tự từng tiết 
 
 Chuyện này rốt cuộc vẫn phải có một "kết quả" dứt khoát, không thể cứ mãi trốn tránh.
 
-Hai nhà họ Trần và họ Từ có mối thâm giao suốt hơn hai mươi năm trời. Dương Thục Mỹ và Lương Tuệ Trân trước đây vốn là đồng nghiệp cùng một cơ quan, hai gia đình trước kia lại là hàng xóm sát vách đối diện cửa nhau.
+Hai nhà họ Trần và họ Từ có mối thâm giao suốt hơn hai mươi năm trời. Dương Thù Mỹ và Lương Tuệ Trân trước đây vốn là đồng nghiệp cùng một cơ quan, hai gia đình trước kia lại là hàng xóm sát vách đối diện cửa nhau.
 
 Dây mơ rễ má giữa đôi bên dường như có rất nhiều ràng buộc, nhưng ngẫm kỹ lại dường như cũng chẳng có ràng buộc pháp lý nào.
 
@@ -130,7 +128,7 @@ Từ Tắc Đống quay sang nhìn con gái, trong lòng tự hỏi rốt cuộc
 
 "Vâng."
 
-Từ Mạn Mạn thừa hiểu bố đang cố chứng minh thái độ thành khẩn của Dương Thục Mỹ, đây vốn là phong cách nói chuyện vòng vo quen thuộc của Từ Tắc Đống.
+Từ Mạn Mạn thừa hiểu bố đang cố chứng minh thái độ thành khẩn của Dương Thù Mỹ, đây vốn là phong cách nói chuyện vòng vo quen thuộc của Từ Tắc Đống.
 
 "Hôm sau thằng Trần Trạch cũng gọi điện sang xin lỗi nhận sai."
 

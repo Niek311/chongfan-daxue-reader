@@ -1,279 +1,271 @@
-# Chương 377: Rốt cuộc mình vừa trải qua cái gì thế này?
-
-> **Tiêu đề gốc**: 第377章 我玩了个啥？
+# Chương 377: Mình vừa chơi cái gì thế này?
 
 Mưa.
 
 Đêm.
 
-Bên góc phố, ánh đèn neon rực rỡ phản chiếu xuống mặt đường loang loáng nước.
+Ven đường, ánh đèn neon.
 
-Triệu Kim An ôm chặt lấy cô, dùng hết sức bình sinh để đáp lại.
+Triệu Kim An hôn rất mạnh, dồn hết sức lực.
 
-Hai người cuồng nhiệt hôn nhau dưới màn mưa giăng kín.
+Anh và Từ Mạn Mạn quấn lấy nhau trong nụ hôn sâu.
 
-Như một sự giải tỏa dồn nén suốt bao năm tháng.
+Tựa như một sự giải tỏa.
 
-Trải qua hai kiếp người.
+Hai kiếp người.
 
-Người con gái này...
+Người phụ nữ này...
 
-Bạn có thể bảo Triệu Kim An đã trở nên hư đốn, nhưng câu hỏi "Liệu em có đuổi kịp không?" của anh vốn ẩn chứa một tầng ý nghĩa sâu xa gửi tới chính bản thân mình ở kiếp trước, một điều mà chỉ có duy nhất mình anh hiểu thấu.
+Có thể nói Triệu Kim An đã trở nên xấu xa rồi, câu hỏi "Em có đuổi kịp không?" của anh mang một tầng ý nghĩa nói với chính bản thân mình ở kiếp trước, chỉ có một mình anh hiểu được.
 
-Từ Mạn Mạn tự nhận mình là Mạn Sợ Đau, sợ đau nhất trần đời.
+Từ Mạn Mạn từng nói mình là Mạn Đau Đau, sợ đau nhất trên đời.
 
-Thế nhưng ngay tại khoảnh khắc này, cô dường như chẳng còn cảm giác đau đớn là gì nữa.
+Thế nhưng khoảnh khắc này, cô chẳng hề thấy đau.
 
-Đôi môi bị cắn chặt đến tê dại.
+Môi bị cắn bật máu.
 
-Hơi thở nghẹn lại, ngột ngạt đến mức không thể hít thở.
+Không sao thở nổi.
 
-Từ Mạn Mạn ăn mặc vô cùng phong phanh, chỉ một chiếc quần bò bó sát, một chiếc áo phông trắng cộc tay và đôi dép lê mỏng manh. Cả hai cứ thế ngồi quỳ gối dưới lòng đường, đắm chìm vào nụ hôn quên hết cả đất trời, chiếc máy MP3 rơi lăn lóc trên nền đất ẩm ướt.
+Từ Mạn Mạn ăn mặc rất mỏng manh, một chiếc quần bò bó sát, một chiếc áo phông trắng và đôi dép lê. Hai người ngồi xổm ngay trên mặt đất, quên hết trời đất mà hôn nhau, chiếc MP3 lăn lóc bên cạnh.
 
-Từng hạt mưa buốt lạnh liên hồi rơi xuống, thấm đẫm thân thể của hai người.
+Những hạt mưa rơi xuống, thấm ướt lên người cả hai.
 
-Từ Mạn Mạn chẳng hiểu vì sao bản thân lại có thể thốt ra câu "Kim An, hôn em đi".
+Từ Mạn Mạn không biết vì sao mình lại thốt ra câu "Kim An, hôn em đi."
 
-Cô chỉ biết rằng tận sâu trong đáy lòng mình đang khao khát điều đó.
+Cô chỉ biết mình muốn.
 
-Khao khát đến cháy bỏng được Triệu Kim An ôm chặt và trao cho mình một nụ hôn.
+Rất muốn Triệu Kim An hôn mình.
 
-Cứ như thể cô đã phải chờ đợi khoảnh khắc này suốt một quãng thời gian dài đằng đẵng, chờ đợi đến mức tưởng chừng chẳng bao giờ có được.
+Cảm giác như đã chờ đợi khoảnh khắc này lâu lắm rồi, chờ đợi đến mức vô cùng vất vả.
 
-Như thể giữa hai người luôn tồn tại quá nhiều, quá nhiều những rào cản ngăn cách.
+Như thể giữa hai người từng có quá nhiều, quá nhiều rào cản.
 
-Cô nào hay biết về kiếp trước, cô chỉ nhớ rằng ngay từ lần đầu tiên nhìn thấy tấm ảnh chụp của Triệu Kim An, cô đã tự nhủ với lòng mình rằng điều đó là không thể, và tuyệt đối không được phép. Cô đã có bạn trai, và cả cuộc đời này của cô dường như đã được an bài như thế.
+Cô không hề hay biết rằng ở kiếp trước, ngay từ lần đầu tiên nhìn thấy ảnh Triệu Kim An, anh đã tự nhủ với bản thân là không thể, và cũng không được phép, cô đã có bạn trai rồi, cả đời này số phận mình chỉ đến thế mà thôi.
 
-Lớn lên bên cạnh Trần Trạch từ thuở tấm bé, sự kỳ vọng của cha mẹ, căn phòng mà Dương Thù Mỹ đã sửa sang chu đáo sẵn sàng trong căn biệt thự xa hoa... Quá nhiều những trói buộc, định kiến và ân tình đã biến thành những bức tường vô hình ngăn lối.
+Cùng Trần Trạch lớn lên từ nhỏ, bố mẹ hai bên, thậm chí căn biệt thự của Dương Thù Mỹ cũng đã chuẩn bị sẵn phòng cho cô; quá nhiều sự ràng buộc và dây dưa đã tạo thành bức tường ngăn cách.
 
-Cô không có quyền lựa chọn.
+Cô chẳng có quyền lựa chọn.
 
-Còn Triệu Kim An, để "chờ đợi" được nụ hôn này, anh đã phải đi qua trọn vẹn cả hai kiếp người.
+Còn Triệu Kim An thì đã "chờ" nụ hôn này suốt hai kiếp người.
 
-Nước mưa làm ướt sũng mái tóc của Triệu Kim An.
+Nước mưa lại làm ướt đẫm mái tóc Triệu Kim An.
 
-"Kim An... nụ hôn... nụ hôn đầu của em..."
+"Kim An, nụ hôn đầu... của em..."
 
-Từ Mạn Mạn khó khăn thở dốc, thì thào trong hơi thở gấp gáp.
+Từ Mạn Mạn thở hổn hển nói.
 
-Nước mưa chảy tràn trên gương mặt cô, so với hình ảnh Từ Mạn Mạn trong quán bar đêm hôm ấy, nét mặt lúc này vẫn còn vương vấn đôi phần ngây thơ, mộc mạc của một cô nữ sinh đại học.
+Nước mưa lăn dài trên gương mặt cô; so với Từ Mạn Mạn ở quán bar đêm hôm nào, gương mặt này vẫn còn vương nét ngây ngô của một nữ sinh viên đại học.
 
-"Em... em chưa từng vượt quá giới hạn với Trần Trạch..."
+"Em... em chưa từng làm thế với Trần Trạch..."
 
-Từ Mạn Mạn nhất định phải nói ra điều này, bởi với cô, điều đó vô cùng quan trọng.
+Từ Mạn Mạn vẫn phải nói ra câu này, điều đó rất quan trọng.
 
-Dù rằng đây mới chỉ là "nụ hôn đầu".
+Dẫu chỉ là một "nụ hôn đầu."
 
-Chưa phải là "đêm đầu tiên".
+Chứ không phải "đêm đầu tiên."
 
-Triệu Kim An không nói gì.
+Triệu Kim An không nói lời nào.
 
-Hai người khẽ tựa trán vào nhau, cảm nhận từng nhịp thở ấm nóng phả vào gương mặt đối phương.
+Hai người tựa trán vào nhau, cảm nhận hơi thở của đối phương.
 
-Hàng mi dài cong vút của Từ Mạn Mạn đọng lại những giọt nước mưa li ti, đôi môi đỏ mọng khẽ hé mở, gương mặt nhỏ nhắn trắng bệch vì lạnh, mấy lọn tóc ướt dính chặt vào gò má. Chiếc áo phông trắng mỏng dính vì ngấm nước mưa, chiếc quần bò rách toạc để lộ vết thương trầy da đang rướm máu.
+Hàng mi dài của Từ Mạn Mạn đọng đầy hạt mưa, đôi môi đỏ khẽ hé, gương mặt nhỏ nhắn lạnh đến tái nhợt, vài sợi tóc ướt bết vào gò má, chiếc áo phông trắng thấm đẫm nước mưa, đầu gối quần bò rách toạc rỉ máu.
 
 "..."
 
-Cách đó không xa, Đan Vĩ rít dở nửa điếu thuốc lá, quay sang đưa mắt nhìn Quan Văn Bách cũng đang đứng canh chừng bên cạnh.
+Cách đó không xa, Đan Vĩ đã rít hết nửa điếu thuốc, quay sang nhìn Quan Văn Bách cũng đang đứng gác bên cạnh.
 
-Hai ánh mắt chạm nhau đầy ngụ ý.
+Hai người trao đổi ánh mắt.
 
-"Từ tổng nhìn bề ngoài dịu dàng, trầm tĩnh như thế, vậy mà khi bùng nổ lên..."
+"Tổng giám đốc Từ bình thường trông dịu dàng trầm tĩnh thế mà lúc điên lên..."
 
-Quan Văn Bách khẽ gật đầu tiếp lời:
+Quan Văn Bách khẽ gật đầu.
 
-"Bùng nổ lên còn dữ dội hơn cả Thẩm tổng nhiều."
+"Lúc điên lên còn bạo hơn cả Tổng giám đốc Thẩm nhiều."
 
-Hai người họ hoàn toàn phớt lờ ánh nhìn tò mò của những người đi đường xung quanh.
+Hai người kia chẳng thèm bận tâm đến người qua đường.
 
-Mãi một hồi lâu sau...
+Một lúc lâu sau...
 
-Triệu Kim An mới cởi chiếc áo khoác vest trên người trùm lên thân thể Từ Mạn Mạn. Cô khập khiễng từng bước theo anh, mái tóc cả hai đều ướt sũng nước mưa. Đan Vĩ và Quan Văn Bách ngồi phía trước tuyệt nhiên không dám liếc nhìn gương chiếu hậu lấy một lần.
+Triệu Kim An cởi áo vest khoác lên người Từ Mạn Mạn. Từ Mạn Mạn bước đi khập khiễng, tóc tai cả hai đều ướt sũng nước mưa. Đan Vĩ và Quan Văn Bách chẳng dám liếc nhìn gương chiếu hậu.
 
-Về tới bãi đỗ xe ngầm của khu chung cư, hai người họ rất thức thời, chỉ ngồi yên trong xe không bước xuống.
+Về đến hầm đỗ xe của khu chung cư, hai người biết điều không xuống xe.
 
-Lặng lẽ dõi mắt nhìn hai bóng người cùng nhau bước vào thang máy.
+Đưa mắt nhìn theo hai người kia bước vào thang máy.
 
-"Từ tổng thắng rồi à?"
+"Tổng giám đốc Từ thắng rồi à?"
 
-Đan Vĩ thong thả cất giọng hỏi nhỏ.
+Đan Vĩ buột miệng hỏi nhỏ.
 
-Quan Văn Bách mắt nhìn thẳng phía trước, thản nhiên đáp: "Thắng hay chưa thì tôi không dám chắc, nhưng con gái anh thì còn kém xa lắm."
+Quan Văn Bách nhìn thẳng phía trước đáp: "Thắng hay không thì không biết, chỉ biết con gái anh kém cả tỷ dặm."
 
 Đan Vĩ: "..."
 
-"Con gái anh mà gặp Đường Hiểu Tình có khi còn phải cúi đầu gọi một tiếng Tình tiểu chủ đấy."
+"Con gái anh gặp Đường Hiểu Tình còn phải gọi một tiếng Tiểu chủ Tình đấy."
 
 "..."
 
-Khóe miệng Đan Vĩ giật giật liên hồi, cái thằng cha này mở mồm ra là đâm trúng tim đen người khác, cay nghiệt thật sự.
+Khóe miệng Đan Vĩ giật giật, cái thằng khốn này nói câu nào là đâm tim câu ấy.
 
-...
+Trên lầu.
 
-Trên căn hộ.
-
-Khắp người Từ Mạn Mạn lạnh toát, cơ thể khẽ run lên bần bật vì rét. Triệu Kim An bế bổng cô lên rồi sải bước tiến thẳng vào phòng ngủ chính.
+Toàn thân Từ Mạn Mạn lạnh buốt, run lên cầm cập. Triệu Kim An bế thốc cô bước thẳng vào phòng ngủ chính.
 
 Không bật đèn.
 
-Cũng chẳng kịp tắm rửa.
+Không tắm rửa.
 
-Cả hai chẳng ai nói với ai câu nào.
+Cả hai không nói một lời nào.
 
 Mười phút sau.
 
-Từ Mạn Mạn chính thức biến từ một cô thiếu nữ thành một người đàn bà thực thụ.
+Từ Mạn Mạn từ một cô gái đã trở thành đàn bà.
 
-Triệu Kim An lúc này mới nhận ra vóc dáng của Từ Mạn Mạn đầy đặn và quyến rũ đến nhường nào. Cơ thể cô mát lạnh, làn da trắng ngần như tuyết, nhưng con người thì lại "cứng đờ như khúc gỗ".
+Lúc này Triệu Kim An mới phát hiện ra Từ Mạn Mạn rất có da có thịt, cơ thể thì lạnh lẽo, làn da trắng mịn tựa tuyết, nhưng con người lại cứ "đờ đẫn" ra.
 
-Tô Miến khi làm chuyện ấy thường hay cào cấu, thỉnh thoảng còn giả vờ giận dỗi, thậm chí cãi nhau chí chóe với Triệu Kim An.
+Tô Miến thì biết cào cấu, biết giả vờ giận dỗi, thậm chí còn cãi nhau tay đôi với Triệu Kim An.
 
-Nhưng Từ Mạn Mạn thì hoàn toàn không, cô cắn chặt môi nín thinh, tuyệt nhiên không rên rỉ lấy một tiếng.
+Từ Mạn Mạn thì không, cô chẳng hé răng lấy nửa lời, im thin thít.
 
 Bốn mươi phút sau.
 
 "Kim An."
 
-"Hửm?"
+"Ừm?"
 
-Từ Mạn Mạn khẽ cất giọng: "Em không phải là một người con gái đoan chính."
+Từ Mạn Mạn khẽ nói: "Em không phải người phụ nữ tốt."
 
-Triệu Kim An thoáng ngơ ngác chưa hiểu ý cô.
+Triệu Kim An chưa hiểu ý cô lắm.
 
-Bàn tay cô khẽ sờ xuống mặt đệm: "Phải thay ga trải giường thôi."
+Cô sờ lên ga giường: "Thay ga giường đi anh."
 
-Triệu Kim An đáp: "Anh không biết ga giường cất ở chỗ nào."
+Triệu Kim An đáp: "Anh không biết ga giường để ở đâu."
 
 "Em cũng không biết."
 
-"Em có thấy lạnh không?"
+"Em lạnh không?"
 
 "Hết lạnh rồi."
 
-Từ Mạn Mạn lắc đầu, rồi ngoan ngoãn nằm thẳng đuỗn ngay ngắn trên giường.
+Từ Mạn Mạn lắc đầu, nằm thẳng thớm ngay ngắn.
 
 Triệu Kim An: "..."
 
-Rốt cuộc là mình vừa trải qua cái chuyện quái quỷ gì thế này?
+Mình vừa chơi cái gì thế này?
 
-Không phải anh chê bai gì Từ Mạn Mạn, vóc dáng cô thực sự rất đẹp, chỉ là trong lòng anh không nhịn được mà tự trào một câu như thế.
+Không phải chê Từ Mạn Mạn, vóc dáng Từ Mạn Mạn rất chuẩn, chỉ là trong lòng anh bỗng dâng lên một nỗi cạn lời khó tả.
 
-Cô thậm chí còn cẩn thận kê lại chiếc gối cho ngay ngắn, hai bàn tay đan nhẹ đặt lên vùng bụng phẳng lì.
+Cô còn kê lại gối cho ngay ngắn, hai tay đặt chồng lên phần bụng dưới phẳng lì.
 
 "..."
 
-Trên trán Triệu Kim An hiện lên mấy vạch đen sì. Cái cô Từ Mạn Mạn này dường như quá thiếu tôn trọng đối tác rồi đấy! Suốt bốn mươi phút đồng hồ kịch liệt như thế, em chắc chắn là mình có thể bình thản đến mức này sao? Xem như không có chuyện gì xảy ra luôn à? Này, ít ra em cũng phải cho chút phản ứng chứ!
+Triệu Kim An đen mặt, Từ Mạn Mạn làm thế này hình như hơi thiếu tôn trọng người ta quá rồi đấy, suốt bốn mươi phút đồng hồ cơ mà, em chắc chắn mình bình tĩnh đến thế sao? Coi như chưa có chuyện gì xảy ra à? Này, cho chút phản ứng đi chứ!
 
-Thực ra, Từ Mạn Mạn đang cảm thấy rất đau. Cú ngã lúc nãy khiến đầu gối đau nhức, và cả chỗ kia nữa...
+Kỳ thực Từ Mạn Mạn rất đau, ngã trầy đầu gối cũng đau, và cả chỗ đó nữa...
 
-Một người đến đi tiêm phòng còn sợ đau đến phát khóc.
+Một người đến tiêm phòng còn sợ đau như cô.
 
-Thế nhưng cô đang cố gắng cắn răng chịu đựng, nhất quyết không để lộ tiếng than đau nào.
+Cô đang cắn răng nhịn không dám kêu đau.
 
-Bởi cô nghĩ đây là điều mà một người phụ nữ phải trải qua.
+Đây là điều một người phụ nữ nên làm.
 
-Bản thân không nên kêu ca than vãn.
+Bản thân không được phép kêu đau.
 
-Về điểm này, phải chăng nên khen ngợi sự giáo dục nghiêm khắc từ nhỏ của Từ Tắc Đống?
+Về điểm này chẳng lẽ phải khen Từ Tắc Đống từ nhỏ đã giáo dục quá tốt hay sao?
 
-Đúng là một con người kỳ lạ.
+Đúng là một người kỳ lạ.
 
-Từ Mạn Mạn cứ thế nằm ngay ngắn, bất động trên giường. Đường Hiểu Tình từng bảo tướng ngủ của cô xưa nay chẳng bao giờ cựa quậy lung tung. Từ Mạn Mạn không hề nhắc lại chuyện trên sân thượng hôm đó, và Triệu Kim An cũng tuyệt nhiên không gặng hỏi thêm nửa lời.
+Từ Mạn Mạn cứ thế nằm thẳng tắp ngay ngắn trên giường, Đường Hiểu Tình từng bảo cô ngủ chẳng bao giờ cựa quậy. Từ Mạn Mạn không nhắc đến chuyện trên sân thượng hôm ấy, nên Triệu Kim An cũng chẳng hỏi.
 
 Nửa tiếng sau.
 
-Triệu Kim An lại đòi hỏi thêm một lần nữa.
+Triệu Kim An lại đòi thêm một lần nữa.
 
-Từ Mạn Mạn không hề cự tuyệt, vẫn ngoan ngoãn chiều theo, nhưng vẫn y như cũ, cắn chặt răng nín thinh, không thốt ra một tiếng kêu đau nào.
+Từ Mạn Mạn không từ chối, vẫn y như cũ, không hé răng nửa lời, chẳng kêu một tiếng đau nào.
 
-Xin hỏi: Diện tích bóng ma tâm lý trong lòng Triệu Kim An lúc này lớn đến mức nào?
+Xin hỏi: Diện tích bóng ma tâm lý của Triệu Kim An lúc này là bao nhiêu?
 
-Hỏi: Đàn ông sợ nhất phụ nữ nói điều gì, và câu nói nào làm tổn thương lòng tự trọng của đàn ông sâu sắc nhất?
+Hỏi: Đàn ông sợ nhất phụ nữ nói câu gì, câu nói nào của phụ nữ làm tổn thương lòng tự trọng của đàn ông nhất?
 
-Đây là lần thứ hai Từ Mạn Mạn ngủ trên chiếc giường này. Đêm giao thừa năm ngoái, cô từng ngủ trong phòng ngủ chính, trên chính chiếc giường này.
+Đây là lần thứ hai Từ Mạn Mạn ngủ trên chiếc giường này; đêm giao thừa cô cũng từng ngủ trong phòng ngủ chính, ngay trên chính chiếc giường này.
 
-Thực tế là Lưu Mỹ Nga đã tính toán nhầm.
+Thực ra Lưu Mỹ Nga đã tính nhầm rồi.
 
-Từ Mạn Mạn từ trước tới nay chỉ ngủ ở phòng ngủ chính, ngủ trên giường của Triệu Kim An, còn chiếc giường ở phòng dành cho khách chỉ là do cô cố tình làm xáo trộn chăn gối lên mà thôi.
+Từ Mạn Mạn vẫn luôn ngủ ở phòng ngủ chính, ngủ trên giường của Triệu Kim An, còn phòng dành cho khách là do cô cố tình làm rối tung chăn gối lên mà thôi.
 
-Về điểm này, tâm lý của Từ Mạn Mạn hoàn toàn giống hệt Đường Hiểu Tình: Triệu Kim An là trong sạch, và Tô Miến cũng là trong sạch!
+Ở điểm này, tâm lý của Từ Mạn Mạn và Đường Hiểu Tình giống hệt nhau: Triệu Kim An rất sạch sẽ, Tô Miến cũng rất sạch sẽ!
 
-Từ Mạn Mạn chưa từng can thiệp vào công việc của Trăn Nhiên, cô không hề hay biết sự tồn tại của Tưởng Chỉ Tình.
+Từ Mạn Mạn chưa từng nhúng tay vào chuyện ở Trăn Nhiên nên cô không hề biết đến Tưởng Chỉ Tình.
 
-Và càng không có một ai nói cho cô biết về Quan Linh.
+Càng chẳng có ai nói cho cô biết về Quan Linh.
 
-...
+Ngày hôm sau.
 
-Sáng hôm sau.
+Từ Mạn Mạn dậy từ rất sớm để quay về Thượng Hải. Cô có nói cho Triệu Kim An biết mình đang làm việc ở công ty nào. Từ Mạn Mạn chưa bao giờ vì chức vụ hay tiền lương.
 
-Từ Mạn Mạn thức dậy từ rất sớm để chuẩn bị quay lại Thượng Hải. Cô đã nói cho Triệu Kim An biết tên công ty nơi mình đang làm việc. Từ Mạn Mạn đi làm chưa bao giờ vì chức vị hay vì tiền lương.
+Nếu chỉ vì công việc, vì tiền lương, thì ngày hôm đó cô đã chẳng chạy lên sân thượng để cứu Trần Trạch.
 
-Nếu chỉ vì công việc và thu nhập, ngày hôm đó cô đã chẳng bất chấp nguy hiểm trèo lên sân thượng để cứu Trần Trạch.
+Năm 2009 mà mức lương tháng 6.000 tệ, ngay cả ở Thượng Hải cũng đã là thu nhập cao rồi.
 
-Năm 2009, mức lương sáu nghìn tệ mỗi tháng ngay cả ở đất Thượng Hải hoa lệ cũng đã được xếp vào hàng thu nhập cao rồi.
+"Em sẽ không lấy anh ta."
 
-"Tôi sẽ không lấy anh đâu."
+Câu nói ấy không phải vì Trần Trạch đòi nhảy lầu nên Từ Mạn Mạn mới nói để dỗ dành anh ta.
 
-Câu nói này hoàn toàn không phải vì Trần Trạch đòi nhảy lầu mà Từ Mạn Mạn nói ra để dỗ dành hắn.
+Từ Mạn Mạn rất muốn gả cho Triệu Kim An, dù có gả về Triệu Gia Thôn cô cũng bằng lòng, dù có làm việc ở Tư Tinh rồi ngày ngày tan làm về Triệu Gia Thôn cô cũng cam tâm tình nguyện, thế nhưng còn có Tô Miến nữa cơ mà.
 
-Từ Mạn Mạn rất muốn được gả cho Triệu Kim An, dẫu có phải gả về tận thôn Triệu Gia hẻo lánh cô cũng cam lòng, dẫu có phải làm việc ở Tư Tinh rồi ngày ngày tan sở lặn lội trở về thôn Triệu Gia cô cũng bằng lòng. Nhưng bên cạnh anh đã có Tô Miến rồi.
+Làm sao mà gả được?
 
-Làm sao cô có thể gả cho anh được đây?
+Cô bảo Triệu Kim An rằng ở Thượng Hải vẫn còn công việc, không thể vừa về đã bỏ luôn không quay lại.
 
-Cô khẽ nói với Triệu Kim An rằng công việc ở Thượng Hải vẫn còn đang dang dở, không thể vừa quay về đã vội bỏ bê được.
+Cứ thế, Từ Mạn Mạn dậy từ tinh mơ, lấy đi một chiếc áo khoác của Triệu Kim An, lê tấm thân "đau nhức rã rời" ra ga tàu. Đợi đến khi Lưu Mỹ Nga tới dọn dẹp thì đã không còn thấy bóng dáng Từ Mạn Mạn đâu nữa.
 
-Cứ như thế, Từ Mạn Mạn dậy thật sớm, tiện tay lấy đi một chiếc áo khoác của Triệu Kim An, mang theo tấm thân "đau nhức khắp người" vội vã ra ga bắt chuyến tàu sớm. Khi Lưu Mỹ Nga đến nơi thì chẳng còn thấy bóng dáng Từ Mạn Mạn đâu nữa.
+Nhưng khi bước vào phòng ngủ chính, nhìn thấy chiếc ga giường...
 
-Thế nhưng khi bước vào phòng ngủ chính và nhìn thấy vết tích trên ga trải giường...
+"Trời đất ơi, ai? Là đứa nào!?"
 
-"Trời đất ơi! Ai? Là ai thế này?!"
+Đầu óc Lưu Mỹ Nga quay cuồng không nghĩ thông nổi, chuyện của Quan Linh thì không tính.
 
-Đầu óc Lưu Mỹ Nga như muốn nổ tung, chuyện của Quan Linh lần trước không thể tính là thế này được.
+"Cái này..."
 
-"Chuyện này..."
+Lưu Mỹ Nga sờ lên ga giường. Bà không cảm thán chuyện Triệu Kim An lấy đi "lần đầu tiên" của con gái nhà người ta, chuyện đó quá dễ dàng, ngay cả Lưu Mỹ Nga cũng biết đối với Triệu Kim An thì việc này dễ như trở bàn tay; bà chỉ cảm thán không biết cô gái nào lại tốt số đến vậy.
 
-Lưu Mỹ Nga run run sờ lên vết ố trên ga giường. Bà không hề ngạc nhiên trước việc Triệu Kim An lấy đi "lần đầu tiên" của một cô gái, chuyện đó quá đỗi bình thường, Lưu Mỹ Nga thừa hiểu với vị thế của Triệu Kim An thì việc đó dễ như trở bàn tay. Điều khiến bà thảng thốt là rốt cuộc cô gái may mắn nào lại có được diễm phúc lớn lao đến vậy.
+Lưu Mỹ Nga có vắt óc suy nghĩ nát nước cũng chẳng thể ngờ được người đó lại là Từ Mạn Mạn.
 
-Lưu Mỹ Nga có vắt óc suy nghĩ cả ngày cũng chẳng thể nào ngờ được người đó lại chính là Từ Mạn Mạn.
+Chẳng ai hay biết Từ Mạn Mạn đã từng quay về Quận Sa, ngay cả Diêu Sân cũng không biết.
 
-Không một ai hay biết Từ Mạn Mạn đã từng quay trở lại Quận Sa, ngay cả Diêu Sân cũng hoàn toàn không hay biết.
+Sân bay, phòng chờ.
 
-...
+Thẩm Tử Ngôn đã có mặt ở đó, lần này cô sẽ đi cùng sang Úc.
 
-Tại sân bay, phòng chờ thương gia.
+Tên tra nam Triệu Kim An đến muộn, lần lượt bắt tay chào hỏi mấy vị giáo sư của trường Sư Đại.
 
-Thẩm Tử Ngôn đã có mặt từ sớm, chuyến đi Úc lần này cô sẽ cùng đi với Triệu Kim An.
-
-Tên đàn ông lăng nhăng Triệu Kim An đến muộn nhất, vội vã bước tới bắt tay chào hỏi từng vị giáo sư của trường Đại học Sư phạm.
-
-Các vị giáo sư người thì gọi anh là Triệu tổng, người lại thân mật gọi thẳng tên.
+Các giáo sư người thì gọi Triệu tổng, người thì gọi thẳng họ tên đầy đủ.
 
 "Toàn là tiền cả đấy."
 
-Triệu Kim An khẽ thì thầm bên tai Thẩm Tử Ngôn.
+Triệu Kim An khẽ lẩm bẩm.
 
-Thẩm Tử Ngôn nghe thấy liền không nhịn được mà bật cười: "Những khoản tiền này bắt buộc phải chi mà."
+Thẩm Tử Ngôn nghe thấy liền bật cười: "Những khoản tiền này bắt buộc phải tiêu."
 
-"Em nhìn xem kìa, các giáo sư còn dắt theo cả sinh viên, bọn họ xem chuyến này như đi thực tập miễn phí ấy."
+"Anh tự nhìn xem, các giáo sư còn dẫn theo cả sinh viên, coi như cho tụi nhỏ đi thực tập đấy."
 
-"Mấy bạn sinh viên đó không phải thạc sĩ thì cũng là nghiên cứu sinh tiến sĩ cả đấy."
+"Đám sinh viên này không phải cao học thì cũng là nghiên cứu sinh tiến sĩ."
 
-"Hiệu trưởng Cung tính toán chu đáo thật, vừa giúp các giáo sư kiếm thêm tiền thù lao, lại vừa đào tạo được sinh viên."
+"Hiệu trưởng Cung tính toán khéo thật, giáo sư vừa kiếm được tiền công lại vừa bồi dưỡng được học trò."
 
-"Nói thế cũng chẳng sai."
+"Nói vậy cũng không sai."
 
-Thẩm Tử Ngôn lấy tay che miệng cười khúc khích: "Vé máy bay mua toàn hạng thương gia, những sinh viên này đi theo đều phải tính phụ cấp công tác cả đấy. Thực ra mà nói, các chuyên ngành này bên trường anh không thể nào bằng trường Đại học Trung Nam của bọn em được đâu. Chuyên ngành Kỹ thuật mỏ và Luyện kim của Trung Nam tụi em đứng số một toàn quốc đấy."
+Thẩm Tử Ngôn che miệng cười khúc khích: "Mua vé hạng thương gia hết đấy, mấy sinh viên này cũng phải tính tiền công lao động. Thực ra chuyên ngành này của trường anh không mạnh bằng trường em đâu, chuyên ngành Khai thác mỏ và Kỹ thuật Luyện kim của Đại học Trung Nam bọn em đứng số một toàn quốc đấy."
 
-"Bao gồm cả kỹ thuật khảo sát thăm dò khai thác mỏ, công nghệ luyện kim và chiết xuất các kim loại màu như nhôm, đồng, chì, kẽm..."
+"Bao gồm cả kỹ thuật khảo sát khai thác mỏ, luyện kim và tách chiết các kim loại màu như nhôm, đồng, chì, kẽm..."
 
-"Ngay cả hai trường Thanh Hoa và Bắc Đại cũng không có uy tín và thẩm quyền bằng trường em ở mảng này đâu."
+"Ngay cả hai trường Thanh Hoa, Bắc Đại cũng không có uy tín bằng trường em đâu."
 
-"Chẳng qua là do Hiệu trưởng Cung muốn giúp đỡ anh thôi..."
+"Là Hiệu trưởng Cung bên anh muốn giúp một tay..."
 
-Thẩm Tử Ngôn cười nghiêng ngả, còn Triệu Kim An thì chỉ biết trưng ra bộ mặt dở khóc dở cười đầy bất lực.
+Thẩm Tử Ngôn nhịn cười không nổi, còn Triệu Kim An thì mặt mày ủ rũ.
 
-Các giáo sư trong trường đại học mỗi lần "xuất quân" đi công tác chắc chắn phải có tiền thù lao thỏa đáng, hệt như việc các bác sĩ giỏi "bay sang viện khác mổ dịch vụ", không có vài nghìn tệ lót tay thì đừng hòng mời được họ. Mỗi vị giáo sư ở đây đều có một mức giá riêng cho mình.
+Giáo sư đại học "ra ngoài làm việc" đương nhiên phải trả thù lao, cũng giống như bác sĩ "bay đi mổ thuê", không có vài nghìn tệ thì miễn bàn, vị giáo sư nào cũng có mức giá riêng của mình.
 
-Nói một cách hoa mỹ thì đây gọi là: "Đi khảo sát thực địa".
+Nói cho hoa mỹ thì gọi là: Đi khảo sát thực tế.
 
-Bao ăn, bao ở, bao toàn bộ chi phí đi lại vé máy bay, tính tiền công theo từng ngày. Nhưng nếu không có những con người này hỗ trợ thì...
+Bao ăn, bao ở, bao chi phí đi lại, tính tiền theo ngày, nhưng thiếu những người này lại không được.

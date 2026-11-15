@@ -1,7 +1,5 @@
 # Chương 123: Xóa đi...
 
-> **Tiêu đề gốc**: 第123章 删除。。。
-
 Triệu Kim An đi làm thủ tục xin thị thực.
 
 Anh cần phải sang Hương Cảng một chuyến.
@@ -248,7 +246,7 @@ Lưu Sấm Phong ngạc nhiên hỏi: "Cậu cố tình ở lại trường làm
 
 Cốc Siêu Thừa không dám thú nhận rằng hôm đó mình đã cố tình lẩn tránh vào góc khuất.
 
-Mẫu người như Cốc Siêu Thừa, tâm lý cũng tương tự như hồi cậu ta tự thấy mình không có cửa để theo đuổi Mộc Dao hay Hứa Mạn Mạn vậy. Thấy Đường Hiểu Tình ngày càng trở nên xuất sắc và giỏi giang, cậu ta lại càng đánh mất đi sự tự tin vốn có.
+Mẫu người như Cốc Siêu Thừa, tâm lý cũng tương tự như hồi cậu ta tự thấy mình không có cửa để theo đuổi Mộc Dao hay Từ Mạn Mạn vậy. Thấy Đường Hiểu Tình ngày càng trở nên xuất sắc và giỏi giang, cậu ta lại càng đánh mất đi sự tự tin vốn có.
 
 Cậu ta còn cảm thấy Đường Hiểu Tình dạo này ngày càng xinh đẹp rạng ngời hơn trước.
 
@@ -310,13 +308,13 @@ Cốc Siêu Thừa nhìn bao thuốc trầm trồ: "Trung Hoa bao mềm đấy, 
 
 "......"
 
-Lưu Sấm Phong vội vàng nhét tọt bao thuốc vào sâu trong túi quần, xem chừng phải đợi đến hôm khai giảng đông đủ mới dám lôi ra thể hiện: "À đúng rồi, Trạch ca bảo hè này mẹ cậu ấy giao hẳn một nhà máy cho cậu ấy quản lý, còn khoe là Hứa Mạn Mạn cũng sang bên đó nữa cơ..."
+Lưu Sấm Phong vội vàng nhét tọt bao thuốc vào sâu trong túi quần, xem chừng phải đợi đến hôm khai giảng đông đủ mới dám lôi ra thể hiện: "À đúng rồi, Trạch ca bảo hè này mẹ cậu ấy giao hẳn một nhà máy cho cậu ấy quản lý, còn khoe là Từ Mạn Mạn cũng sang bên đó nữa cơ..."
 
 "Cậu bảo cái tính của Trần Trạch như thế, liệu có quản lý nổi một cái nhà máy không cơ chứ?"
 
 Cốc Siêu Thừa lắc đầu bảo không biết, rồi kể thêm rằng Trần Trạch từng gọi điện rủ cậu ta đi bar chơi, nhưng vì muộn quá nên cậu ta không đi.
 
-"Hứa Mạn Mạn cũng sang đó à?"
+"Từ Mạn Mạn cũng sang đó à?"
 
 Câu nói này đã lọt trọn vào tai Triệu Kim An. Anh bước ra ngoài ban công, động tác châm thuốc bỗng trở nên ngập ngừng, chậm chạp.
 
@@ -332,7 +330,7 @@ Triệu Kim An châm lửa hút thuốc, nhắm mắt cảm nhận từng làn g
 
 Hút xong điếu thuốc.
 
-Phải một hồi lâu sau, anh mới chậm rãi rút chiếc điện thoại trong túi ra, dứt khoát xóa đi dòng tin nhắn của Hứa Mạn Mạn.
+Phải một hồi lâu sau, anh mới chậm rãi rút chiếc điện thoại trong túi ra, dứt khoát xóa đi dòng tin nhắn của Từ Mạn Mạn.
 
 Anh cảm thấy mình nên xóa nó đi.
 

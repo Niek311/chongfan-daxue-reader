@@ -1,7 +1,5 @@
 # Chương 504: Việc làm ăn ai nấy lo
 
-> **Tiêu đề gốc**: 第504章 生意各做各的。
-
 “...”
 
 Từ Mạn Mạn khẽ ngước mắt nhìn Mộc Dao, im lặng không nói nửa lời.

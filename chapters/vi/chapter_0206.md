@@ -1,7 +1,5 @@
 # Chương 206: Thắp lên hy vọng
 
-> **Tiêu đề gốc**: 第206章 有了期待。
-
 "Đường Hiểu Tình, ý em là mua đứt năm nghìn mét vuông chứ không phải thuê?"
 
 Từ Mạn Mạn hỏi lại một câu để xác nhận.

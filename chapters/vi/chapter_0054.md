@@ -1,7 +1,5 @@
 # Chương 54: Một cô gái ngoan
 
-> **Tiêu đề gốc**: 第54章 是个好女孩。
-
 Ở một diễn biến khác, ngay ngày hôm sau Đan Vĩ đã đệ đơn xin nghỉ việc tại xưởng sửa chữa ô tô. Ông chủ xưởng ra sức giữ chân Đan Vĩ bằng cách đề nghị tăng lương, bởi rất nhiều "ca bệnh khó nhằn" của các loại xe chỉ có tay nghề lão luyện của Đan Vĩ mới xử lý dứt điểm được.
 
 Đan Vĩ khéo léo từ chối, đoạn rút điện thoại gọi cho Triệu Kim An: "Ông chủ, xe tôi đã đi khảo sát rồi, bên showroom có sẵn xe giao ngay."

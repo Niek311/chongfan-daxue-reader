@@ -1,7 +1,5 @@
 # Chương 249: Bước qua ngưỡng cửa, một nghi thức?
 
-> **Tiêu đề gốc**: 第249章 进门，仪式？
-
 Trước đây, bà con Triệu Gia Thôn thiếu tiền mặt thì cùng lắm chỉ bấm bụng không dám đi chợ phiên mua thịt cá, chứ rau củ quả tự tay mình vun xới trong vườn nhà thì vẫn hái ăn xả láng không hết. Thế nhưng giờ đây, tất cả những thứ cây nhà lá vườn ấy bỗng chốc đều có thể đổi thành tiền tươi thóc thật.
 
 Vương Kim Như còn quả quyết nói rằng việc thu mua không chỉ diễn ra một lần này, mà sau này xe tải công ty sẽ định kỳ về làng gom hàng thường xuyên.

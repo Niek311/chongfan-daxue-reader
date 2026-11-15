@@ -1,7 +1,5 @@
 # Chương 169: Tương kính như tân...
 
-> **Tiêu đề gốc**: 第169章 相敬如宾....
-
 "Triệu ông chủ!?"
 
 "Bành xưởng trưởng...?"
@@ -172,19 +170,19 @@ Rồi như một thói quen vô thức, cả hai lại cùng lúc xoay người,
 
 Sáng sớm hôm sau, trời vừa hửng sáng.
 
-Đơn Vĩ lái xe tới xưởng đồ hộp đón người, Tưởng Chỉ Tình tiễn Triệu Kim An xuống tận chân cầu thang.
+Đan Vĩ lái xe tới xưởng đồ hộp đón người, Tưởng Chỉ Tình tiễn Triệu Kim An xuống tận chân cầu thang.
 
 Dưới sảnh nhà, Tưởng Chỉ Tình lại một lần nữa đưa tay chỉnh đốn lại vạt áo cho Triệu Kim An, ánh mắt dịu dàng dõi theo chiếc xe chầm chậm lăn bánh rời đi.
 
-Chiếc Audi A6 bon bon rời khỏi Tưởng Gia Cảo, Đơn Vĩ liếc nhìn qua gương chiếu hậu, trong lòng rất muốn cất lời nhắc nhở: Ông chủ à, cậu phải biết giữ gìn long thể đấy nhé.
+Chiếc Audi A6 bon bon rời khỏi Tưởng Gia Cảo, Đan Vĩ liếc nhìn qua gương chiếu hậu, trong lòng rất muốn cất lời nhắc nhở: Ông chủ à, cậu phải biết giữ gìn long thể đấy nhé.
 
 Triệu Kim An tựa lưng vào ghế xe, nhắm nghiền hai mắt dưỡng thần.
 
 Chỉ còn đúng ba ngày nữa là đến đêm Giao thừa, đường cao tốc bắt đầu đông đúc, ùn ứ dần.
 
-Đơn Vĩ xuống xe tại Quận Sa, Triệu Kim An một mình cầm lái chạy thẳng về Sâm Thành.
+Đan Vĩ xuống xe tại Quận Sa, Triệu Kim An một mình cầm lái chạy thẳng về Sâm Thành.
 
-Từ Thiểm Tây lái xe về Sâm Thành mất chừng mười bốn đến mười sáu tiếng đồng hồ, lại thêm cảnh tắc đường dịp cận Tết nên khi xe rẽ xuống trạm thu phí cao tốc thì trời đã điểm mười giờ đêm. Dọc đường đi, anh nhận được điện thoại từ Vương Kim Như và Đoàn Thu Bình.
+Từ Thiểm Tây lái xe về Sâm Thành mất chừng mười bốn đến mười sáu tiếng đồng hồ, lại thêm cảnh tắc đường dịp cận Tết nên khi xe rẽ xuống trạm thu phí cao tốc thì trời đã điểm mười giờ đêm. Dọc đường đi, anh nhận được điện thoại từ Vương Kim Như và Đoạn Thu Bình.
 
 Lại có thêm một tin nhắn ngắn từ Tưởng Chỉ Tình.
 

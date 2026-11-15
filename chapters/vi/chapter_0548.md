@@ -1,7 +1,5 @@
 # Chương 548: Luôn phải có người phá vỡ thế bế tắc
 
-> **Tiêu đề gốc**: 第548章 总要有人来打破僵局。
-
 Bốn ngày sau.
 
 Đan Vĩ rốt cuộc cũng đón được đoàn của giáo sư Lương an toàn rời khỏi dãy núi Simandou trở về.

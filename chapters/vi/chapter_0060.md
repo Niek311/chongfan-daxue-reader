@@ -1,12 +1,10 @@
 # Chương 60: Sự thật phơi bày
 
-> **Tiêu đề gốc**: 第60章 真相了。
-
 Nghe thấy câu hỏi ấy của Trần Trạch, tất cả mọi người có mặt trong phòng bao đồng loạt dồn ánh mắt về phía Triệu Kim An, gương mặt ai nấy đều tràn ngập vẻ tò mò hóng hớt.
 
 Thẩm Tử Ngôn vốn là người vô cùng tinh tế, cô luôn để ý từng cử chỉ nhỏ nhặt nhất: Tác phong ăn uống của Triệu Kim An toát lên vẻ có học thức và gia giáo vô cùng sâu sắc, gu ăn mặc cũng rất đỗi nhã nhặn, chỉn chu. Gia đình cậu ấy mà chỉ làm ăn buôn bán nhỏ lẻ thôi ư? Trong lòng Thẩm Tử Ngôn dấy lên vài phần hoài nghi.
 
-Thấy Triệu Kim An chỉ im lặng không đáp, Diêu Tân liền cười hì hì trêu chọc:
+Thấy Triệu Kim An chỉ im lặng không đáp, Diêu Sân liền cười hì hì trêu chọc:
 
 — Triệu Kim An này, Mộc Dao bảo nhà cậu chỉ làm ăn nhỏ thôi, chẳng lẽ cậu lại là công tử thế gia của một tập đoàn chuỗi bán lẻ toàn quốc nào đó à? Cái kiểu mà học xong đại học một cái là phải về quê kế thừa khối gia sản trăm tỷ ấy hả?
 
@@ -112,7 +110,7 @@ Cốc Siêu Thừa khẽ huých cùi chỏ vào sườn Lưu Sùng Phong, ghé t
 
 — Hũ dưa muối khô...
 
-Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Tân nghe thấy thế đồng loạt quay ngoắt sang nhìn Cốc Siêu Thừa. Lưu Sùng Phong khẽ gật đầu, bồi thêm một câu:
+Thẩm Tử Ngôn, Từ Mạn Mạn và Diêu Sân nghe thấy thế đồng loạt quay ngoắt sang nhìn Cốc Siêu Thừa. Lưu Sùng Phong khẽ gật đầu, bồi thêm một câu:
 
 — Hôm nhập học, trong ba lô của nó có nhét theo một hũ dưa cải muối khô.
 
@@ -120,7 +118,7 @@ Sợ đám con gái không hiểu, Lưu Sùng Phong còn vội giải thích th�
 
 Thẩm Tử Ngôn và Từ Mạn Mạn vẫn chưa thể lập tức hình dung ra được cuộc sống thiếu thốn ấy.
 
-Nhưng Diêu Tân thì nghe hiểu ngay tắp lự.
+Nhưng Diêu Sân thì nghe hiểu ngay tắp lự.
 
 Trần Trạch tròn mắt ngạc nhiên, nói như vậy có nghĩa là... cậu ta hoàn toàn chẳng phải là phú nhị đại giàu có gì sao?
 
@@ -212,6 +210,6 @@ Sau khi bóng lưng Triệu Kim An khuất hẳn sau cánh cửa, nhìn hai tờ
 
 — Chẳng phải bảo tổng cộng hết hơn bốn trăm tệ thôi sao? Cớ sao một mình Kim An lại bỏ ra tận hai trăm tệ thế này?
 
-Diêu Tân từ lúc nào cũng đã lặng lẽ rút từ trong ví ra hai tờ một trăm tệ đặt ngay ngắn dưới đáy chiếc bát của mình. Sau đó, cô nàng đứng dậy, nở một nụ cười gượng gạo nói với mọi người:
+Diêu Sân từ lúc nào cũng đã lặng lẽ rút từ trong ví ra hai tờ một trăm tệ đặt ngay ngắn dưới đáy chiếc bát của mình. Sau đó, cô nàng đứng dậy, nở một nụ cười gượng gạo nói với mọi người:
 
 — Mọi người cứ thong thả dùng bữa tiếp nhé, tớ... tớ cũng xin phép về ký túc xá trước đây.

@@ -1,7 +1,5 @@
 # Chương 183: Đánh nhau to rồi
 
-> **Tiêu đề gốc**: 第183章 打起来了。
-
 Gần 12 giờ đêm, Triệu Kim An nhét một cây thuốc lá Tô Yên vào tay Vương Duy Đào.
 
 Bên phía nhà thầu thi công biếu tặng nhiều quá, Vương Duy Đào vội giấu tọt vào trong áo khoác lông vũ không dám ho he tiếng nào, lẳng lặng ôm một cây thuốc cùng chiếc vỏ hộp rỗng lủi thủi chuồn về phòng.
@@ -130,9 +128,9 @@ Triệu Kim An luôn giữ một khoảng cách chừng mực với Từ Mạn M
 
 Lần anh lái xe chở Từ Mạn Mạn về nhà, cô cũng chỉ ngồi ngay ngắn ở hàng ghế phía sau.
 
-Hơn nữa cả Dương Thục Mỹ lẫn Trần Trạch đều biết rõ chuyện đó.
+Hơn nữa cả Dương Thù Mỹ lẫn Trần Trạch đều biết rõ chuyện đó.
 
-Bởi vì xe của Trần Trạch bị hỏng, Triệu Kim An tiện đường chở Dương Thục Mỹ về nhà nên mới chở luôn Từ Mạn Mạn về cùng.
+Bởi vì xe của Trần Trạch bị hỏng, Triệu Kim An tiện đường chở Dương Thù Mỹ về nhà nên mới chở luôn Từ Mạn Mạn về cùng.
 
 Điều duy nhất Triệu Kim An không hề hay biết, đó là lúc bước chân lên lầu Từ Mạn Mạn đã chạm mặt bố của cô.
 

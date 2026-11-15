@@ -1,7 +1,5 @@
 # Chương 291: Có còn chút lý lẽ nào không?
 
-> **Tiêu đề gốc**: 第291章 讲不讲点道理？
-
 "Chính là cái hãng Trăn Nhiên của chai nước khoáng bán ở tiệm tạp hóa bên cạnh ấy."
 
 Đoạn Thu Bình lại lẩm bẩm bổ sung thêm một câu.
@@ -108,27 +106,27 @@ Vừa bước xuống máy bay, Triệu Kim An đã nhận được tin nhắn c
 
 Tô Miến đang trong giai đoạn chuẩn bị mang thai và tập vật lý trị liệu phục hồi chức năng, nhận được điện thoại của anh dĩ nhiên là muốn theo Triệu Kim An đi Trùng Khánh ngay.
 
-Chuyện đã đến nước này, Thẩm Tử Ngôn và Hứa Mạn Mạn đều đã biết chuyện, Triệu Kim An cũng dứt khoát ngửa bài.
+Chuyện đã đến nước này, Thẩm Tử Ngôn và Từ Mạn Mạn đều đã biết chuyện, Triệu Kim An cũng dứt khoát ngửa bài.
 
 Đây là lần đầu tiên Tô Miến chính thức lộ diện trước mặt nhân viên Trăn Nhiên.
 
 "..."
 
-Đơn Vĩ nét mặt không đổi, nhưng trong lòng lại kinh ngạc không thôi.
+Đan Vĩ nét mặt không đổi, nhưng trong lòng lại kinh ngạc không thôi.
 
 "Sao sếp lại... Xinh đẹp thì đúng là nghiêng nước nghiêng thành thật, nhưng sao lại ngồi xe lăn thế này?"
 
-Tô Miến hôm nay vẫn mặc một chiếc váy Mã Diện thêu chỉ vàng lộng lẫy. Cô đưa mắt nhìn Đơn Vĩ, cất giọng thản nhiên buông một câu: "Trông chừng Kim An cho cẩn thận. Nếu Kim An xảy ra chuyện gì trắc trở, mà cậu vẫn còn sống nhăn răng..."
+Tô Miến hôm nay vẫn mặc một chiếc váy Mã Diện thêu chỉ vàng lộng lẫy. Cô đưa mắt nhìn Đan Vĩ, cất giọng thản nhiên buông một câu: "Trông chừng Kim An cho cẩn thận. Nếu Kim An xảy ra chuyện gì trắc trở, mà cậu vẫn còn sống nhăn răng..."
 
 "... Chết sao?"
 
-Đơn Vĩ bất giác rùng mình ớn lạnh. Mình làm cái chân tài xế kiêm vệ sĩ này lương tháng có bốn ngàn tệ thôi mà, có còn chút lý lẽ nào không hả trời?
+Đan Vĩ bất giác rùng mình ớn lạnh. Mình làm cái chân tài xế kiêm vệ sĩ này lương tháng có bốn ngàn tệ thôi mà, có còn chút lý lẽ nào không hả trời?
 
-Chạm phải ánh mắt sắc lạnh của Tô Miến, Đơn Vĩ hoàn toàn tin rằng cô nói được là làm được. Người phụ nữ tên Tô Miến này quả thực không hề dễ chung đụng chút nào, chẳng thể nào dễ tính, hòa nhã như Thẩm Tử Ngôn hay Hứa Mạn Mạn.
+Chạm phải ánh mắt sắc lạnh của Tô Miến, Đan Vĩ hoàn toàn tin rằng cô nói được là làm được. Người phụ nữ tên Tô Miến này quả thực không hề dễ chung đụng chút nào, chẳng thể nào dễ tính, hòa nhã như Thẩm Tử Ngôn hay Từ Mạn Mạn.
 
-Tô Miến nói xong câu đó liền không buồn để mắt tới Đơn Vĩ nữa.
+Tô Miến nói xong câu đó liền không buồn để mắt tới Đan Vĩ nữa.
 
-Nhìn thấy vẻ mặt méo mó của Đơn Vĩ, Tô Mặc đứng bên cạnh không nhịn được bật cười khẽ một tiếng.
+Nhìn thấy vẻ mặt méo mó của Đan Vĩ, Tô Mặc đứng bên cạnh không nhịn được bật cười khẽ một tiếng.
 
 Cô quá hiểu tính tình của Tô Miến, xưa nay cô út chưa từng bận tâm đến người ngoài, càng chẳng mảy may để ý xem cảm xúc của người khác ra sao.
 

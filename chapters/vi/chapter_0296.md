@@ -1,7 +1,5 @@
 # Chương 296: Ta cũng chưa từng bắt tay với bất kỳ ai
 
-> **Tiêu đề gốc**: 第296章 我也从不和任何人联手。
-
 Từ Mạn Mạn thoáng ngẩn người. Cô bỗng nhận ra Tống Gia Nguyệt nói chuyện rất giống Triệu Kim An. Anh cũng thường hay hỏi cô bằng cái giọng thăm dò êm êm: "Được không?", "Thế có được không em?".
 
 Ngay cả chuyện tăng lương, Triệu Kim An cũng chỉ nhẹ nhàng bảo với Từ Mạn Mạn: "Vậy tăng thêm một nghìn, được không em?"

@@ -1,7 +1,5 @@
 # Chương 131: Dao Dao có vẻ hợp với Trần Trạch hơn Mạn Mạn
 
-> **Tiêu đề gốc**: 第131章 瑶瑶好像比曼曼更适合陈泽。
-
 Triệu Kim An không biết phải giải thích thế nào cho bà hiểu, đành nói: “Hiện tại đang trong giai đoạn quảng bá, mục đích chính là chiếm lĩnh thị trường, tốc độ phủ hàng quá nhanh nên mới vậy...”
 
 Lưu Mỹ Nga nghe chẳng hiểu mô tê gì, chỉ biết ngước nhìn Triệu Kim An với ánh mắt đầy thán phục, cảm thấy cậu thanh niên này sao mà giỏi giang đến thế.
@@ -84,9 +82,9 @@ Làm nhiều việc hơn, gánh vác thêm trách nhiệm, hiển nhiên thu nh�
 
 Đối với sinh viên đại học mà nói, điều này mang lại cảm giác được công nhận và trân trọng nhiều hơn là giá trị vật chất đơn thuần.
 
-Hứa Mạn Mạn không hề ghen tị với số tiền ba trăm mười lăm tệ mà Diêu Sân kiếm được, nhưng cô vô cùng ngưỡng mộ khí thế hừng hực và nhiệt huyết tràn trề ấy. Cô bất giác nhớ lại những ngày đầu học kỳ trước, khi mình còn làm tình nguyện viên, bản thân cũng từng rạng rỡ và tràn đầy năng lượng hệt như Diêu Sân bây giờ.
+Từ Mạn Mạn không hề ghen tị với số tiền ba trăm mười lăm tệ mà Diêu Sân kiếm được, nhưng cô vô cùng ngưỡng mộ khí thế hừng hực và nhiệt huyết tràn trề ấy. Cô bất giác nhớ lại những ngày đầu học kỳ trước, khi mình còn làm tình nguyện viên, bản thân cũng từng rạng rỡ và tràn đầy năng lượng hệt như Diêu Sân bây giờ.
 
-Nhưng người khiến Hứa Mạn Mạn ngưỡng mộ hơn cả lại là Thẩm Tử Ngôn.
+Nhưng người khiến Từ Mạn Mạn ngưỡng mộ hơn cả lại là Thẩm Tử Ngôn.
 
 Không phải vì Thẩm Tử Ngôn được lên truyền hình trả lời phỏng vấn, mà vì Thẩm Tử Ngôn có thể kề vai sát cánh, đồng cam cộng khổ cùng Triệu Kim An trên thương trường.
 
@@ -98,9 +96,9 @@ Dương Thù Mỹ còn sang than thở với Lương Tuệ Trân, chê bai Trầ
 
 Lương Tuệ Trân lại cười xòa phân trần, bảo con trai đứa nào ở tuổi này chẳng thế, trưởng thành muộn một chút, sau này va vấp ắt sẽ biết nghĩ thôi.
 
-Nghe mẹ và dì Dương Thù Mỹ ngồi trò chuyện rôm rả ngoài phòng khách, Hứa Mạn Mạn chỉ ngồi ngay ngắn trên sofa, im lặng không nói một lời.
+Nghe mẹ và dì Dương Thù Mỹ ngồi trò chuyện rôm rả ngoài phòng khách, Từ Mạn Mạn chỉ ngồi ngay ngắn trên sofa, im lặng không nói một lời.
 
-Hai tiếng rưỡi buổi chiều hôm ấy ở trong văn phòng của Triệu Kim An chính là khoảng thời gian nhẹ nhõm, thư thái nhất mà Hứa Mạn Mạn có được suốt bao năm qua.
+Hai tiếng rưỡi buổi chiều hôm ấy ở trong văn phòng của Triệu Kim An chính là khoảng thời gian nhẹ nhõm, thư thái nhất mà Từ Mạn Mạn có được suốt bao năm qua.
 
 Dù chẳng ai nói với ai câu nào, chỉ cần cởi đôi xăng-đan, quỳ gối trên ghế sofa và không nhìn về phía Triệu Kim An, trong lòng cô cũng dâng lên một cảm giác bình yên chưa từng có.
 
@@ -114,15 +112,15 @@ Bước chân Thẩm Tử Ngôn khựng lại một nhịp, nhất thời không
 
 Cô chỉ cảm thấy Mộc Dao căn bản quá đỗi ngây thơ, chẳng hiểu chút gì về con người Triệu Kim An.
 
-Hứa Mạn Mạn cũng ngước mắt nhìn Thẩm Tử Ngôn. Cô không hề nghĩ như Mộc Dao, bởi cô biết rõ Triệu Kim An vốn là người ghét sự ồn ào và chẳng bao giờ thích chơi trội, cô chỉ muốn xem Thẩm Tử Ngôn sẽ ứng đáp ra sao.
+Từ Mạn Mạn cũng ngước mắt nhìn Thẩm Tử Ngôn. Cô không hề nghĩ như Mộc Dao, bởi cô biết rõ Triệu Kim An vốn là người ghét sự ồn ào và chẳng bao giờ thích chơi trội, cô chỉ muốn xem Thẩm Tử Ngôn sẽ ứng đáp ra sao.
 
 Thẩm Tử Ngôn bình thản nói: “Dao Dao, Lưu Sấm Phong cũng lên phỏng vấn mà, chuyện này thực sự chẳng có gì to tát đâu.”
 
-Hứa Mạn Mạn sực nhớ ra, bèn hỏi: “Tử Ngôn, trà sữa Ngung Quang bán chạy không cậu?”
+Từ Mạn Mạn sực nhớ ra, bèn hỏi: “Tử Ngôn, trà sữa Ngung Quang bán chạy không cậu?”
 
 Thẩm Tử Ngôn đáp: “Khá ổn định, tuy không làm chiến dịch quảng cáo riêng nhưng doanh số bán ra rất khả quan.”
 
-Hứa Mạn Mạn khẽ gật đầu, trong lòng dấy lên niềm vui nho nhỏ.
+Từ Mạn Mạn khẽ gật đầu, trong lòng dấy lên niềm vui nho nhỏ.
 
 Cô rất thích cái tên “Ngung Quang”, thích ý nghĩa sâu lắng ẩn sau hai chữ ấy — vạt sáng le lói nơi góc khuất.
 
@@ -134,7 +132,7 @@ Diêu Sân mấp máy môi định nói điều gì đó, nhưng rồi lại ch�
 
 Cô rất muốn khuyên nhủ rằng, mẹ cậu đã như vậy rồi... Thực ra gia cảnh nhà Khổng Triết Vũ cũng rất giàu có, môn đăng hộ đối đấy chứ.
 
-Bàn tay nhỏ nhắn của Hứa Mạn Mạn vô thức siết chặt mép ga trải giường, ánh mắt dán chặt vào Thẩm Tử Ngôn, cõi lòng dâng lên từng đợt thắt lại đầy căng thẳng.
+Bàn tay nhỏ nhắn của Từ Mạn Mạn vô thức siết chặt mép ga trải giường, ánh mắt dán chặt vào Thẩm Tử Ngôn, cõi lòng dâng lên từng đợt thắt lại đầy căng thẳng.
 
 Cô sợ hãi biết bao nếu lỡ nghe thấy Thẩm Tử Ngôn thốt ra những lời như: “Triệu Kim An là bạn trai tớ, tớ với anh ấy đã chính thức ở bên nhau rồi.”
 
@@ -154,21 +152,21 @@ Mộc Dao chắc chắn hiểu được hàm ý trong câu nói ấy, chỉ bi�
 
 Diêu Sân là người có tiếng nói khách quan nhất ở đây, cô dám lấy danh dự ra đảm bảo rằng Thẩm Tử Ngôn thực sự dồn toàn tâm toàn ý vào công việc, tuyệt đối không có thời gian rảnh rỗi để tơ tưởng chuyện tình cảm sướt mướt như mấy cô nữ sinh mới lớn.
 
-Bất giác, Diêu Sân theo bản năng đưa mắt nhìn sang Hứa Mạn Mạn.
+Bất giác, Diêu Sân theo bản năng đưa mắt nhìn sang Từ Mạn Mạn.
 
-Hứa Mạn Mạn lúc này đã nằm ngay ngắn trên giường, không hề phát ra một tiếng động nào.
+Từ Mạn Mạn lúc này đã nằm ngay ngắn trên giường, không hề phát ra một tiếng động nào.
 
-Chẳng một ai mảy may nghi ngờ Hứa Mạn Mạn cả.
+Chẳng một ai mảy may nghi ngờ Từ Mạn Mạn cả.
 
-Diêu Sân chỉ bỗng nhớ lại những lời mình từng nhận xét trước đây, từng bảo rằng Hứa Mạn Mạn và Triệu Kim An là một cặp trời sinh, từ trường và tính cách của hai người họ vô cùng hòa hợp.
+Diêu Sân chỉ bỗng nhớ lại những lời mình từng nhận xét trước đây, từng bảo rằng Từ Mạn Mạn và Triệu Kim An là một cặp trời sinh, từ trường và tính cách của hai người họ vô cùng hòa hợp.
 
-Ngay cả vào lúc này, nhìn Hứa Mạn Mạn nằm yên tĩnh trên giường, Diêu Sân ngắm nhìn một hồi lâu vẫn có chung một cảm giác như thế, chính bản thân cô cũng không tài nào giải thích nổi lý do tại sao.
+Ngay cả vào lúc này, nhìn Từ Mạn Mạn nằm yên tĩnh trên giường, Diêu Sân ngắm nhìn một hồi lâu vẫn có chung một cảm giác như thế, chính bản thân cô cũng không tài nào giải thích nổi lý do tại sao.
 
 Rõ ràng Tử Ngôn rất xứng đôi, thậm chí phải nói là môn đăng hộ đối và phù hợp hơn nhiều.
 
 Tính cách của Triệu Kim An và Thẩm Tử Ngôn có thể nói là bù trừ hoàn hảo cho nhau!
 
-Nhưng đứng ở góc độ người ngoài cuộc, Diêu Sân vẫn cứ đinh ninh cảm thấy Hứa Mạn Mạn và Triệu Kim An mới là mảnh ghép ăn ý nhất.
+Nhưng đứng ở góc độ người ngoài cuộc, Diêu Sân vẫn cứ đinh ninh cảm thấy Từ Mạn Mạn và Triệu Kim An mới là mảnh ghép ăn ý nhất.
 
 “Thế còn Trần Trạch thì sao nhỉ?”
 

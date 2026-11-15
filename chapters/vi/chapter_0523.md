@@ -1,7 +1,5 @@
 # Chương 523: Không có trắc trở nào không thể vượt qua
 
-> **Tiêu đề gốc**: 第523章 没有什么过不去的坎。
-
 Bao Uyển Nhân thừa hiểu La Kiến Thành chẳng phải là sợ sệt gì Triệu Kim An. Giữa hai người họ chỉ là có chút ngượng ngùng khó xử trong cách ứng xử mà thôi, nhưng điều đó cũng gián tiếp chứng minh một sự thật: Triệu Kim An giờ đây đã tích lũy đủ thực lực để ngồi vào vị thế đối thoại hoàn toàn bình đẳng.
 
 Bởi trên cõi đời này, có kẻ quyền thế nào lại đi bận tâm xem một con kiến có đang bất mãn hay ôm ấm ức với mình hay không?
@@ -126,7 +124,7 @@ Cướp biển?
 
 Bao Uyển Nhân khẽ mỉm cười: "Tôi phải xuống tàu dặn dò các thuyền viên một tiếng. Ở trên biển cả tháng trời thì rau xanh còn quý giá hơn cả vàng ngọc, phải gom trữ thật nhiều mới được."
 
-Đường Hiểu Tình vừa nghe ngóng được tin tức liền ba chân bốn cẳng chạy vội về khách sạn thu dọn hành lý. Du Phỉ vừa mới đáp chuyến bay sang tận bên này, vất vả lắm mới tóm được bóng dáng ông chủ, không ngờ chưa kịp thở đã phải lục tục chuẩn bị xuống tàu vượt biển hồi hương.
+Đường Hiểu Tình vừa nghe ngóng được tin tức liền ba chân bốn cẳng chạy vội về khách sạn thu dọn hành lý. Du Phi vừa mới đáp chuyến bay sang tận bên này, vất vả lắm mới tóm được bóng dáng ông chủ, không ngờ chưa kịp thở đã phải lục tục chuẩn bị xuống tàu vượt biển hồi hương.
 
 Triệu Kim An hai tay chống lên thanh lan can, ngực ưỡn thẳng đón lấy những luồng gió biển mặn mòi phần phật thổi tới.
 
@@ -136,7 +134,7 @@ Anh rút điện thoại ra nhìn, vẫn chưa có bất kỳ tia hy vọng nào
 
 Hai ngày sau, con tàu khổng lồ hú còi nhổ neo rời cảng.
 
-Những ngày đầu tiên trên biển sóng yên biển lặng, mặt nước phẳng lặng như gương. Đường Hiểu Tình và Du Phỉ tỏ ra vô cùng phấn khích, hào hứng ríu rít như chim non.
+Những ngày đầu tiên trên biển sóng yên biển lặng, mặt nước phẳng lặng như gương. Đường Hiểu Tình và Du Phi tỏ ra vô cùng phấn khích, hào hứng ríu rít như chim non.
 
 "Kim An ơi, cái 'chuột túi vàng' là cái thứ gì thế hả cậu?"
 
@@ -146,7 +144,7 @@ Triệu Kim An sa sầm nét mặt: "..."
 
 Đứng bên cạnh, Bao Uyển Nhân ôm bụng cười muốn nội thương: "Cái món tinh hoàn chuột túi ấy quả thực công hiệu cực kỳ, nhưng mà mấy cậu bạn nam sinh đang ở cái lứa tuổi hừng hực xuân thì thế này mà đã phải dùng tới..."
 
-Thế nhưng chỉ ba ngày sau, sự phấn khích ban đầu của Đường Hiểu Tình và Du Phỉ đã hoàn toàn tan biến sạch trơn.
+Thế nhưng chỉ ba ngày sau, sự phấn khích ban đầu của Đường Hiểu Tình và Du Phi đã hoàn toàn tan biến sạch trơn.
 
 Con tàu bắt đầu đâm sầm vào vùng nhiễu động sóng to gió lớn. Cảm giác mất trọng lực liên tục ập đến khiến hai cô gái say sóng li bì, nôn thốc nôn tháo mật xanh mật vàng. Đường Hiểu Tình nằm co ro trên chiếc giường đơn chật hẹp, một cú chao đảo cực mạnh hất văng cả người cô bé rơi huỵch xuống sàn cabin.
 
@@ -196,7 +194,7 @@ Từ gian phòng bên cạnh bất ngờ truyền ra tiếng khóc lóc thảm t
 
 Đường Hiểu Tình đang nằm rạp dưới sàn nhà, hai cánh tay bấu chặt lấy chân giường sắt không dám buông lơi, nước mắt đầm đìa nức nở hỏi: "Kim An ơi... có phải... có phải tàu sắp bị lật chìm rồi không?"
 
-Du Phỉ ngồi nép bên cạnh cũng sợ đến mức la hét thất thanh.
+Du Phi ngồi nép bên cạnh cũng sợ đến mức la hét thất thanh.
 
 Triệu Kim An khẽ mỉm cười. Anh rảo bước bước vào phòng, chìa bàn tay rắn rỏi ấm áp về phía cô gái nhỏ.
 

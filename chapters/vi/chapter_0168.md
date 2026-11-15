@@ -1,12 +1,10 @@
 # Chương 168: Phá vỡ sự tốt đẹp...
 
-> **Tiêu đề gốc**: 第168章 毁掉....
-
 Có lẽ là do bốc đồng nhất thời.
 
 Hoặc giả là bầu không khí đã chín muồi, khiến tình cảm không kìm nén nổi.
 
-Mái tóc ướt đẫm làn mưa, hàng mi buốt giá, đôi gò má trắng bợch vì lạnh và bờ môi tái nhợt... Triệu Kim An đã tự tay "phá vỡ" nét đẹp thuần khiết trong lòng mình, cũng phá vỡ luôn biểu tượng thi vị, cao đẹp bấy lâu trong tâm trí của Bành Trung Ngạn, Lư Kiều Vĩ, Đơn Vĩ và những người khác.
+Mái tóc ướt đẫm làn mưa, hàng mi buốt giá, đôi gò má trắng bợch vì lạnh và bờ môi tái nhợt... Triệu Kim An đã tự tay "phá vỡ" nét đẹp thuần khiết trong lòng mình, cũng phá vỡ luôn biểu tượng thi vị, cao đẹp bấy lâu trong tâm trí của Bành Trung Ngạn, Lư Kiều Vĩ, Đan Vĩ và những người khác.
 
 Có lẽ đối với đám người Lư Kiều Vĩ, hành động này chẳng khác nào sự chiếm đoạt!
 
@@ -126,7 +124,7 @@ Tưởng Chỉ Tình bước lại gần, ân cần chỉnh lại cổ áo cho T
 
 Vóc dáng của Tưởng Chỉ Tình không hề đẫy đà phô trương, mà cân đối, tròn trịa vừa vặn đến mức khó có thể tìm ra tì vết.
 
-Triệu Kim An vừa bước chân xuống tầng một đã chạm mặt ngay Đơn Vĩ.
+Triệu Kim An vừa bước chân xuống tầng một đã chạm mặt ngay Đan Vĩ.
 
 "Ông chủ..."
 
@@ -140,9 +138,9 @@ Triệu Kim An có chút cạn lời: "Không phải anh đứng canh ở đây 
 
 "He he."
 
-Đơn Vĩ cười gượng hai tiếng, chỉ biết gật đầu vâng dạ.
+Đan Vĩ cười gượng hai tiếng, chỉ biết gật đầu vâng dạ.
 
-Nếu là hôm ở Hong Kong thì Đơn Vĩ quả thực không yên tâm chút nào, ai mà biết lai lịch người đàn bà kia thế nào.
+Nếu là hôm ở Hong Kong thì Đan Vĩ quả thực không yên tâm chút nào, ai mà biết lai lịch người đàn bà kia thế nào.
 
 Tới công trường, Bành Trung Ngạn và Lư Kiều Vĩ đều lấy làm lạ lẫm.
 
@@ -202,4 +200,4 @@ Mấy người phụ nữ ngập ngừng muốn nói lại thôi, nét mặt đ�
 
 Tưởng Chỉ Tình mỉm cười dịu dàng: "Không sao đâu, xưởng của chúng ta sẽ không đóng cửa đâu mà."
 
-Đang lúc trò chuyện thì Triệu Kim An bước vào, theo sau là Đơn Vĩ và Bành Trung Ngạn.
+Đang lúc trò chuyện thì Triệu Kim An bước vào, theo sau là Đan Vĩ và Bành Trung Ngạn.

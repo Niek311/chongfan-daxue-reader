@@ -1,7 +1,5 @@
 # Chương 350: Song đầu sỏ của công ty
 
-> **Tiêu đề gốc**: 第350章 公司双巨头。
-
 "Gia đình người ta sắp sửa phá sản sạch bách đến nơi rồi, còn tranh giành cái gì nữa chứ?"
 
 "Ý tớ không phải là tranh giành tiền tài, mà là Tiểu Tuyết có làm bất cứ điều gì đi chăng nữa thì cũng hoàn toàn vô nghĩa."
@@ -48,7 +46,7 @@ Phương Khiết cùng Quan Linh và mấy bạn nữ lớp Kế toán 1 vội v
 
 Cảnh tượng này quả thực trớ trêu và châm biếm biết bao, bởi Lâm Thanh Tuyết mới chính là người bạn gái danh chính ngôn thuận của Trần Trạch cơ mà.
 
-Vợ chồng Từ Tắc Đống và Lương Huệ Trân đây là lần đầu tiên được tận mắt nhìn thấy mặt mũi của Lâm Thanh Tuyết, và Trần Cẩm Thu cũng vậy.
+Vợ chồng Từ Tắc Đống và Lương Tuệ Trân đây là lần đầu tiên được tận mắt nhìn thấy mặt mũi của Lâm Thanh Tuyết, và Trần Cẩm Thu cũng vậy.
 
 Các nữ sinh lớp Kế toán 1 vội vây quanh như muốn "che chở" cho Lâm Thanh Tuyết khỏi những ánh nhìn soi mói. Lâm Thanh Tuyết chỉ lặng lẽ liếc nhìn Trần Cẩm Thu một cái rồi thôi.
 
@@ -76,7 +74,7 @@ Triệu Kim An châm một điếu thuốc lá, khóe môi khẽ nhếch lên m�
 
 "..."
 
-Đơn Vĩ hai tay nắm chặt vô lăng, im thin thít không dám thở mạnh nửa lời.
+Đan Vĩ hai tay nắm chặt vô lăng, im thin thít không dám thở mạnh nửa lời.
 
 Quan Văn Bách — người đàn ông từng bị chặt đứt hai ngón tay — ngồi ở ghế phụ lái cũng giữ nguyên tư thế mắt nhìn thẳng, mặt không biến sắc.
 
@@ -190,7 +188,7 @@ Cách đó không xa.
 
 Triệu Kim An lại thong thả châm thêm một điếu thuốc lá mới. Đây đã là điếu thứ ba liên tiếp rồi.
 
-Ánh mắt sâu thẳm của cậu khóa chặt vào đám đông hỗn loạn phía trước, nơi Lương Huệ Trân vừa mới thất thanh hét lên vì sợ hãi.
+Ánh mắt sâu thẳm của cậu khóa chặt vào đám đông hỗn loạn phía trước, nơi Lương Tuệ Trân vừa mới thất thanh hét lên vì sợ hãi.
 
 Vương Duy Đào đứng bên cạnh chợt rùng mình nhận ra nụ cười ôn hòa, nhàn nhạt quen thuộc trên gương mặt Triệu Kim An đã hoàn toàn biến mất không còn một dấu vết. Chỉ trong một khoảng thời gian ngắn ngủi, cậu ta đã liên tục rít hết ba điếu thuốc lá.
 
@@ -204,7 +202,7 @@ Lực lượng an ninh bảo vệ bắt đầu tiến hành giải tán đám đ
 
 Dương Thù Mỹ nước mắt ngắn dài dìu lấy một bên cánh tay của Trần Trạch chầm chậm bước xuống cầu thang, còn ở phía bên kia là dáng vẻ trầm lặng của Từ Mạn Mạn.
 
-Lương Huệ Trân vội vã rảo bước chạy ùa tới, nét mặt bà nở nụ cười đôn hậu, ân cần cất tiếng hỏi han, an ủi Trần Trạch như thể đang dỗ dành đứa con rể quý báu của mình.
+Lương Tuệ Trân vội vã rảo bước chạy ùa tới, nét mặt bà nở nụ cười đôn hậu, ân cần cất tiếng hỏi han, an ủi Trần Trạch như thể đang dỗ dành đứa con rể quý báu của mình.
 
 Thẩm Tử Ngôn đứng chôn chân tại chỗ, lặng lẽ dõi mắt nhìn trọn vẹn màn kịch đoàn tụ gia đình ấm áp ấy.
 
@@ -256,4 +254,4 @@ Vương Duy Đào đứng cạnh: ⊙▂⊙
 
 "Song đầu sỏ quyền lực nhất của công ty xưa nay là Thẩm tổng và Từ tổng... Giờ thì Từ tổng coi như bay màu vĩnh viễn rồi sao?"
 
-Đơn Vĩ lặng lẽ gạt cần số, nhấn nhẹ chân ga cho chiếc xe êm ái lướt đi. Ngay cả một người mới chân ướt chân ráo bước vào công ty chưa được bao lâu như Quan Văn Bách cũng đều hiểu rất rõ: danh xưng "Song đầu sỏ của công ty" mà bấy lâu nay mọi người vẫn luôn kính cẩn nhắc đến... kể từ giây phút này đã chính thức bị xé toạc làm đôi!
+Đan Vĩ lặng lẽ gạt cần số, nhấn nhẹ chân ga cho chiếc xe êm ái lướt đi. Ngay cả một người mới chân ướt chân ráo bước vào công ty chưa được bao lâu như Quan Văn Bách cũng đều hiểu rất rõ: danh xưng "Song đầu sỏ của công ty" mà bấy lâu nay mọi người vẫn luôn kính cẩn nhắc đến... kể từ giây phút này đã chính thức bị xé toạc làm đôi!

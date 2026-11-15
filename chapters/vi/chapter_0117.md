@@ -1,7 +1,5 @@
 # Chương 117: Từ Mạn Mạn: Hạt dẻ bà nội trồng là hạt dẻ ngon nhất tớ từng ăn
 
-> **Tiêu đề gốc**: 第117章 徐曼曼：奶奶种的板栗，是我吃过最好吃的板栗。
-
 Thẩm Tử Ngôn không ở lại Quận Sa, bởi nơi ấy đã có Triệu Kim An tọa trấn.
 
 Nghe Triệu Bác Lan than phiền rằng doanh số ở thị trường Thường Đức dạo này không mấy khả quan, Thẩm Tử Ngôn liền chủ động xin nhận nhiệm vụ, đích thân tới Thường Đức tiếp quản.

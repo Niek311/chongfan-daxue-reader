@@ -1,7 +1,5 @@
 # Chương 115: Lần đầu ghé chơi...
 
-> **Tiêu đề gốc**: 第115章 第一次上门...
-
 "Hừ!"
 
 Thẩm Tử Ngôn cười khẩy một tiếng, khẽ lắc đầu ngán ngẩm, sau khi cất gọn hành lý cho Diêu Sân liền vẫy tay gọi cô bạn lên xe.
@@ -64,7 +62,7 @@ Chu Sở Hân lập tức hào hứng hùa theo: "Phải cho mấy ông chủ ti
 
 Thẩm Tử Ngôn đưa mắt nhìn Triệu Kim An cười tươi rói, đây là lần đầu tiên cô nghe thấy anh nói đùa thoải mái như vậy.
 
-Liếc nhìn chiếc Audi A6 sang trọng đậu trong góc sân, Thẩm Tử Ngôn đã biết Đơn Vĩ là tài xế riêng của anh. Chợt nhớ lại cảnh tượng hai chị em Trương Tuệ và Trương Vân Thiến làm màu lúc sáng, Thẩm Tử Ngôn không nhịn được muốn bật cười thành tiếng.
+Liếc nhìn chiếc Audi A6 sang trọng đậu trong góc sân, Thẩm Tử Ngôn đã biết Đan Vĩ là tài xế riêng của anh. Chợt nhớ lại cảnh tượng hai chị em Trương Tuệ và Trương Vân Thiến làm màu lúc sáng, Thẩm Tử Ngôn không nhịn được muốn bật cười thành tiếng.
 
 Mercedes ư? BMW sao? Hừ, người ta đã có hẳn tài xế riêng chuyên lái Audi A6 đưa đón từ đời nào rồi!!
 
@@ -76,9 +74,9 @@ Nếu Triệu Kim An lên đại học mà cứ mải miết "bám riết", lụ
 
 Cũng may là Hồ Thần không có mặt ở đây, nếu không anh chàng sẽ bĩu môi bảo ngay: Cười ư?
 
-Anh ấy chỉ việc mỉm cười đứng ngoài, còn người ra tay làm việc dơ bẩn là Đơn Vĩ!
+Anh ấy chỉ việc mỉm cười đứng ngoài, còn người ra tay làm việc dơ bẩn là Đan Vĩ!
 
-Đơn Vĩ lái xe tông thẳng vào người ta, người còn chưa kịp tông thì anh ấy đã tính toán xong xuôi mọi đường lui, phủi tay sạch sẽ không để lại nửa vết tích.
+Đan Vĩ lái xe tông thẳng vào người ta, người còn chưa kịp tông thì anh ấy đã tính toán xong xuôi mọi đường lui, phủi tay sạch sẽ không để lại nửa vết tích.
 
 Triệu Kim An vẩy vẩy nước đọng trên hai bàn tay, ngẫm nghĩ một lát rồi trầm giọng đáp: "Bà nội tôi từng dạy, nụ cười có thể hóa giải đến 90% các mâu thuẫn trên đời."
 
@@ -166,7 +164,7 @@ Lạc Cẩn Chi đút hai tay vào túi quần, đứng trên gác lửng phóng
 
 Lưu Mỹ Nga đã lên Quận Sa được vài ngày, Triệu Kim An tế nhị không đến làm phiền cuộc sống riêng của hai mẹ con Đường Hiểu Tình.
 
-Đơn Vĩ đã báo cáo tường tận mọi chuyện cho Triệu Kim An, bao gồm cả việc Cốc Siêu Thừa xuất hiện đón lõng.
+Đan Vĩ đã báo cáo tường tận mọi chuyện cho Triệu Kim An, bao gồm cả việc Cốc Siêu Thừa xuất hiện đón lõng.
 
 Đường Hiểu Tình chỉ nghỉ ngơi đúng một ngày rồi lại lao vào công việc, nhiệm vụ chính của cô là đi khảo sát, chăm sóc các tiệm tạp hóa nên cũng ít có thời gian ghé qua văn phòng công ty.
 
@@ -184,7 +182,7 @@ Vừa nhìn thấy Triệu Kim An, bà thoáng sững người một nhịp.
 
 "Chào... chào Giám đốc Triệu ạ..."
 
-Lưu Mỹ Nga bắt chước theo cách gọi của Đơn Vĩ. Bà biết rõ con gái mình nhận được sự nâng đỡ, chăm sóc hết lòng của chàng trai trẻ này, lại thêm ơn cứu nguy trả nợ lần này nữa...
+Lưu Mỹ Nga bắt chước theo cách gọi của Đan Vĩ. Bà biết rõ con gái mình nhận được sự nâng đỡ, chăm sóc hết lòng của chàng trai trẻ này, lại thêm ơn cứu nguy trả nợ lần này nữa...
 
 "Cháu chào bác gái ạ, bác cứ gọi tên cháu là Kim An cho thân mật ạ."
 

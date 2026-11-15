@@ -1,7 +1,5 @@
 # Chương 547: Nơi đâu có người, nơi đó có người mình cần cù mưu sinh
 
-> **Tiêu đề gốc**: 第547章 有人的地方就有勤劳的国人做生意。
-
 Đàm Tử Kiều và Du Phi sốt ruột rảo bước như chạy giặc, bởi nếu không có nước hoa xua muỗi và nhang muỗi thì các cô chẳng thể nào chịu nổi thêm dù chỉ một giây ở cái nơi quỷ quái này.
 
 "Triệu tổng, không xong rồi, sang đây anh phải tính lương trả theo ngày cho em mới được!"

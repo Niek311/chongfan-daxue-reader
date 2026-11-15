@@ -1,7 +1,5 @@
 # Chương 418: Thế giới này vốn là một gánh tuồng chắp vá khổng lồ
 
-> **Tiêu đề gốc**: 第418章 这世界就是一个巨大的草台班子。
-
 Không chỉ riêng giáo sư Lương ở Đại học Trung Nam, mà ngay cả Dư Tĩnh và Nhan Hi đều lần lượt gọi điện báo trước cho Triệu Kim An.
 
 Bước sang tháng 1 năm 2010, giá CIF (giá giao tại cảng đến) của quặng sắt đã vọt thẳng lên mốc 135 Đô la Mỹ một tấn.

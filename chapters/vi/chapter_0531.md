@@ -1,7 +1,5 @@
 # Chương 531: Kiếp này đã hoàn toàn khác xưa
 
-> **Tiêu đề gốc**: 第531章 这一世面目全非。
-
 "Đúng là đang đón trúng điểm rơi đầu ngọn gió."
 
 Triệu Kim An khẽ gật đầu, thái độ không tỏ rõ đúng sai. Thị trường bất động sản vẫn còn chừng bảy, tám năm hoàng kim rực rỡ phía trước, điều đáng sợ nhất chỉ là lòng tham khiến người ta giăng mành trải chiếu quá rộng. Xưa nay làm địa ốc, có mấy ai không bấu víu vào những khoản vay ngập đầu và đòn bẩy tài chính?

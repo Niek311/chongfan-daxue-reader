@@ -1,7 +1,5 @@
 # Chương 335: Giả say
 
-> **Tiêu đề gốc**: 第335章 装醉。
-
 Nằm dài trong bồn tắm, đưa mắt lướt xem những dòng tin nhắn nhảy liên tục trong nhóm chat của lớp, Triệu Kim An cất tiếng dặn dò: "Dì mua thêm nhiều thức ăn một chút nhé, mấy đứa bạn đại học của cháu muốn qua nhà mình tham quan chơi một chuyến."
 
 "Vâng ạ, ông chủ cứ yên tâm!"
@@ -48,7 +46,7 @@ Chẳng cần bàn bạc với gia đình ở quê, Triệu Trí Dũng và Trị
 
 "Dạ, được chứ anh."
 
-Bây giờ Trịnh Như mới vỡ lẽ Hứa Mạn Mạn không phải là bạn gái của Triệu Kim An. Triệu Trí Dũng từng khoe rằng bọn họ có một "cô thím nhỏ" vô cùng môn đăng hộ đối ở Bắc Kinh.
+Bây giờ Trịnh Như mới vỡ lẽ Từ Mạn Mạn không phải là bạn gái của Triệu Kim An. Triệu Trí Dũng từng khoe rằng bọn họ có một "cô thím nhỏ" vô cùng môn đăng hộ đối ở Bắc Kinh.
 
 "Kim An về rồi hả anh?"
 
@@ -78,7 +76,7 @@ Cậu ta đinh ninh rằng Triệu Kim An xưa nay vẫn chưa từng buông b�
 
 ...
 
-Bên mảng Trăn Nhiên đã có Lạc Cẩn Chi và Thẩm Tử Ngôn cáng đáng, chuỗi Trăn Hối Tuyển thì có Hứa Mạn Mạn quán xuyến chu toàn, Triệu Kim An quyết định tự thưởng cho bản thân một kỳ nghỉ ngơi ngắn ngủi. Triệu Bác Lan và Chu Sở Hân đã bắt đầu tiến hành chuyến thanh tra, đối chiếu sổ sách tài chính tại từng nhà máy sản xuất nước khoáng.
+Bên mảng Trăn Nhiên đã có Lạc Cẩn Chi và Thẩm Tử Ngôn cáng đáng, chuỗi Trăn Hối Tuyển thì có Từ Mạn Mạn quán xuyến chu toàn, Triệu Kim An quyết định tự thưởng cho bản thân một kỳ nghỉ ngơi ngắn ngủi. Triệu Bác Lan và Chu Sở Hân đã bắt đầu tiến hành chuyến thanh tra, đối chiếu sổ sách tài chính tại từng nhà máy sản xuất nước khoáng.
 
 Làm nghề kế toán tài chính, người ta chẳng sợ những khoản tiền chênh lệch hàng triệu tệ, mà chỉ nơm nớp lo sợ những khoản lệch sổ sách vỏn vẹn vài hào bạc lẻ.
 
@@ -138,7 +136,7 @@ Cánh con trai kéo nhau ra góc ban công thi nhau nhả khói mịt mù, còn 
 
 Các cô nàng tò mò đẩy cửa ngó nghiêng khắp các phòng ngủ phụ, duy chỉ có phòng ngủ chính là chẳng ai dám tự tiện bước vào.
 
-Không giống như Hứa Mạn Mạn và Thẩm Tử Ngôn trước kia, vừa đến nơi là đã đường hoàng đẩy cửa ngắm nghía phòng ngủ chính của cậu.
+Không giống như Từ Mạn Mạn và Thẩm Tử Ngôn trước kia, vừa đến nơi là đã đường hoàng đẩy cửa ngắm nghía phòng ngủ chính của cậu.
 
 "Nhà cửa bài trí đơn giản lắm, chẳng có gì đặc sắc để xem đâu," Triệu Kim An cười nói.
 
@@ -176,7 +174,7 @@ Vương Học Ân đứng bên gật đầu lia lịa biểu thị sự đồng 
 
 Triệu Kim An hào phóng mang ra một chai rượu Mao Đài thượng hạng để chiêu đãi bạn bè. Trịnh Như liếc mắt nhìn Lý Ngải Lan một cái rồi chẳng buồn bận tâm, cô gái này nếu đặt lên bàn cân thì thậm chí còn thua xa con gái của Lưu Mỹ Nga.
 
-Hôm nay không có sự hiện diện của Thẩm Tử Ngôn và Hứa Mạn Mạn, Mộc Dao lại càng vắng bóng, nên Lý Ngải Lan tỏ ra vô cùng "bạo dạn". Cô ta cố tình nốc liền hai chén rượu trắng rồi gục đầu xuống mặt bàn giả vờ say xỉn, khiến đám bạn học xung quanh dẫu biết tỏng nhưng cũng chẳng tiện lên tiếng vạch trần.
+Hôm nay không có sự hiện diện của Thẩm Tử Ngôn và Từ Mạn Mạn, Mộc Dao lại càng vắng bóng, nên Lý Ngải Lan tỏ ra vô cùng "bạo dạn". Cô ta cố tình nốc liền hai chén rượu trắng rồi gục đầu xuống mặt bàn giả vờ say xỉn, khiến đám bạn học xung quanh dẫu biết tỏng nhưng cũng chẳng tiện lên tiếng vạch trần.
 
 Triệu Kim An khẽ mỉm cười trêu chọc: "Cậu tính tối nay ngủ lại luôn ở đây thật đấy à?"
 

@@ -1,7 +1,5 @@
 # Chương 477: Chặn số
 
-> **Tiêu đề gốc**: 第477章 拉黑。
-
 Không ngờ Hùng tổng lại thản nhiên tiết lộ rằng họ đã chi cho Giản Tài Kiệt sáu mươi vạn USD làm kinh phí bôi trơn hoạt động, ngay cả hai tập đoàn thép lớn là Bảo Vũ Cương và An Cương cũng đều đã "chi trả" một khoản lộ phí nho nhỏ tương tự.
 
 "..."
@@ -122,11 +120,11 @@ Kẻ nào thích thể hiện lòng bác ái bao la, kẻ đó cứ việc tự 
 
 ...
 
-Vẫn đang ở Kinh Đô, Triệu Kim An bất ngờ nhận được cuộc gọi từ Đoàn Thu Bình.
+Vẫn đang ở Kinh Đô, Triệu Kim An bất ngờ nhận được cuộc gọi từ Đoạn Thu Bình.
 
-Đoàn Thu Bình ngập ngừng báo rằng Tống Uyển Hòa đã bắt chuyến xe lên Quận Sa. Đây là lần thứ hai Triệu Kim An để lộ rõ sự thiếu kiên nhẫn và bực dọc đối với bà mẹ ruột của mình: "Sao mẹ lại đưa chị ta tới Quận Sa làm gì?"
+Đoạn Thu Bình ngập ngừng báo rằng Tống Uyển Hòa đã bắt chuyến xe lên Quận Sa. Đây là lần thứ hai Triệu Kim An để lộ rõ sự thiếu kiên nhẫn và bực dọc đối với bà mẹ ruột của mình: "Sao mẹ lại đưa chị ta tới Quận Sa làm gì?"
 
-Đoàn Thu Bình vội vàng nói với giọng khép nép đầy cẩn trọng: "Kim An à, không phải mẹ đưa đi đâu... Con bé nó đi theo đợt tập huấn của công ty mà..."
+Đoạn Thu Bình vội vàng nói với giọng khép nép đầy cẩn trọng: "Kim An à, không phải mẹ đưa đi đâu... Con bé nó đi theo đợt tập huấn của công ty mà..."
 
 "Kim An à, con không cần phải bận tâm chăm sóc cho con bé Uyển Hòa đâu..."
 
@@ -144,17 +142,17 @@ Tống Siêu Văn lập tức cứng họng, không thốt ra nổi nửa lời.
 
 "Tút... tút... tút..."
 
-Triệu Kim An không đợi Đoàn Thu Bình nói hết câu đã dứt khoát dập máy. Anh có thể không phải là người khéo léo trong giao tiếp ứng xử, nhưng tuyệt đối không phải là một kẻ ngu ngốc để người khác dắt mũi.
+Triệu Kim An không đợi Đoạn Thu Bình nói hết câu đã dứt khoát dập máy. Anh có thể không phải là người khéo léo trong giao tiếp ứng xử, nhưng tuyệt đối không phải là một kẻ ngu ngốc để người khác dắt mũi.
 
 ...
 
 Tại Sâm Thành.
 
-Đoàn Thu Bình hoảng hồn, vội vàng bấm gọi lại số của Triệu Kim An ngay lập tức. Thế nhưng từ đầu dây bên kia chỉ vang lên một giọng nữ máy móc thông báo thuê bao đang bận.
+Đoạn Thu Bình hoảng hồn, vội vàng bấm gọi lại số của Triệu Kim An ngay lập tức. Thế nhưng từ đầu dây bên kia chỉ vang lên một giọng nữ máy móc thông báo thuê bao đang bận.
 
 Bà run rẩy bấm gọi lại lần thứ hai.
 
-Khuôn mặt Đoàn Thu Bình thoắt cái cắt không còn một giọt máu, bà run rẩy thốt lên: "Kim An... nó chặn số tôi rồi..."
+Khuôn mặt Đoạn Thu Bình thoắt cái cắt không còn một giọt máu, bà run rẩy thốt lên: "Kim An... nó chặn số tôi rồi..."
 
 "Hả... không... không thể nào như thế được..."
 

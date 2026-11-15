@@ -1,191 +1,193 @@
-# ﻿Chương 371: Cô Ấy Không Trong Sáng
+# Chương 371: Cô ta không sạch sẽ
 
-> **Tiêu đề gốc**: 第371章 她不干净。
+Gần một năm trôi qua, Trăn Hối Tuyển đã gây dựng được tiếng tăm nhất định tại Quận Sa.
 
-Gần một năm, Trăn Hội Tuyển đã có được tiếng tăm nhất định ở Quận Sa.
+Có lẽ chưa thể sánh ngang với sức hút của Bàn Tây Lai tại Hứa Đô, thế nhưng Quận Sa dù sao cũng là thủ phủ của cả một tỉnh, dân số đông đảo, lại thêm người dân nơi đây rất chuộng tiêu dùng, từ ăn mặc đến đi lại đều sẵn lòng chi đậm; danh xưng "thành phố không ngủ" quả thực chẳng phải hư danh.
 
-Có lẽ chưa nổi tiếng như胖西来 ở Hứa Đô — nhưng Quận Sa không chỉ là tỉnh lỵ, dân số đông, người Quận Sa lại rất thích tiêu xài, ăn mặc ở đi đều không tiếc tay, cái tên "thành phố không ngủ" không phải ngẫu nhiên mà có.
+Đó cũng là lý do khiến giá nhà ở Quận Sa luôn nằm ở nhóm đội sổ trong tất cả các thành phố thủ phủ.
 
-Cũng chính vì vậy mà giá nhà ở Quận Sa mãi thuộc nhóm thấp nhất trong các thành phố tỉnh lỵ cả nước.
-
-Giữ tiền không được mà.
+Người ta khó lòng mà tích cóp được tiền.
 
 Màn đêm buông xuống.
 
-Trăn Hội Tuyển dần đông khách, tiếc là vị Từ tổng — người đã cùng gây dựng nên Trăn Hội Tuyển — không còn ở đây nữa.
+Lượng khách ra vào Trăn Hối Tuyển dần trở nên tấp nập, chỉ tiếc là Từ tổng — người cùng chung tay sáng lập nên nơi này — nay đã chẳng còn ở đây.
 
-Chẳng ai biết cô đang làm ở công ty nào tại Hộ Thị.
+Chẳng ai biết cô đang làm việc tại công ty nào ở Thượng Hải.
 
-Triệu Kim An xuống lầu, đi kiểm tra.
+Triệu Kim An bước xuống lầu thị sát.
 
-Bên cạnh có Đường Hiểu Tình, Liễu Ôn Ninh và Lưu Hiểu Tĩnh đi theo.
+Theo sát bên cạnh anh là Đường Hiểu Tình, Liễu Ôn Ninh và Lưu Hiểu Tĩnh.
 
-"Triệu tổng hôm nay đổ tâm sức vào Trăn Hội Tuyển rồi?"
+"Triệu tổng dạo này bắt đầu dồn tâm sức vào Trăn Hối Tuyển rồi sao?"
 
-Nhân viên Trăn Hội Tuyển ngày trước hiếm khi thấy Triệu Kim An xuất hiện — họ chỉ biết Từ tổng và Liễu tổng.
+Trước kia nhân viên Trăn Hối Tuyển rất hiếm khi được thấy mặt Triệu Kim An, họ chỉ biết đến Từ tổng và Liễu tổng.
 
-Theo lời Tôn Dũng: Trăn Hội Tuyển chỉ là một siêu thị nhỏ, Triệu tổng có Trăn Nhiên và Hoàn Vũ Cảng Vụ, cái nào mà chẳng có tiền đồ hơn Trăn Hội Tuyển — Trăn Hội Tuyển chẳng qua là Triệu tổng mở ra cho Từ tổng vui thôi.
+Nói theo lời của Tôn Dũng thì Trăn Hối Tuyển chẳng qua chỉ là một siêu thị nhỏ; Triệu tổng trong tay nắm giữ cả Trăn Nhiên lẫn Hoàn Vũ Cảng Vụ, cái nào chẳng có tiền đồ rạng rỡ hơn Trăn Hối Tuyển gấp bội? Trăn Hối Tuyển chẳng qua chỉ là món đồ chơi mà Triệu tổng mở ra cho Từ tổng giải khuây mà thôi.
 
-Câu này vừa nói đùa vừa nói thật — nhưng cũng nói lên Triệu tổng chiều chuộng Từ Mạn Mạn đến mức nào.
+Đó vốn chỉ là câu nói nửa đùa nửa thật, nhưng cũng đủ để thể hiện Triệu tổng cưng chiều Từ Mạn Mạn đến nhường nào.
 
-Bởi vì Triệu Kim An đã có Trăn Nhiên trước, nên luận điệu này được cả Liễu Ôn Ninh lẫn Lưu Hiểu Tĩnh mặc nhiên thừa nhận.
+Bởi vì Triệu Kim An có Trăn Nhiên trước rồi mới lập nên Trăn Hối Tuyển, nên nhận định ấy thậm chí còn được cả Liễu Ôn Ninh và Lưu Hiểu Tĩnh ngầm thừa nhận.
 
-Cũng như khi Lưu Hiểu Tĩnh nhìn thấy Triệu Kim An và Đường Hiểu Tình tương tác, mới thấy Triệu Kim An chiều Đường Hiểu Tình đến nhường nào.
+Giống như lúc Lưu Hiểu Tĩnh nhìn thấy cảnh Triệu Kim An tương tác với Đường Hiểu Tình, cô mới phát hiện ra anh cũng chiều chuộng Đường Hiểu Tình hết mực.
 
-Trước đó, tất cả đều thống nhất: Triệu Kim An chiều Từ Mạn Mạn nhất.
+Trước đó, các cô vẫn luôn nhất trí cho rằng Triệu Kim An cưng chiều Từ Mạn Mạn nhất.
 
-Họ còn xì xầm sau lưng: Thẩm tổng của Trăn Nhiên không được sếp cưng như Từ tổng nhà mình.
+Sau lưng còn xì xào bàn tán: "Thẩm tổng bên Trăn Nhiên chẳng được sủng ái bằng Từ tổng nhà mình đâu."
 
-"Triệu tổng, nửa đầu năm doanh thu của chúng ta đạt chín trăm triệu, hoàn thành mục tiêu, cả năm dự kiến có thể đạt hai mươi tỷ."
+"Triệu tổng, nửa năm đầu doanh thu của chúng ta đạt 900 triệu tệ, hoàn thành mục tiêu đề ra, dự kiến cả năm có thể chạm mốc 2 tỷ."
 
-Liễu Ôn Ninh không nhắc đến lợi nhuận ròng — tính ra thì lợi nhuận ròng chỉ khoảng sáu chục triệu.
+Liễu Ôn Ninh không nhắc tới lợi nhuận ròng, bởi tính ra lãi ròng cũng chỉ rơi vào khoảng 60 triệu tệ.
 
-Một năm kiếm lại được đúng tiền mua mặt bằng cửa hàng rồi?
+Một năm đã thu hồi lại được vốn mua mặt bằng rồi ư?
 
-Lương nhân viên Trăn Hội Tuyển học theo mô hình của Hồ Thị Lai — lương cao hơn nhiều so với mặt bằng chung Quận Sa, càng cao hơn nhiều so với mức lương tối thiểu. Nên biết năm 2009 lương tối thiểu chỉ có 635 tệ, lao động không toàn thời gian tối thiểu 6,8 tệ/giờ — mà Trăn Hội Tuyển không có nhân viên nào lương dưới 2.600 tệ.
+Chế độ đãi ngộ nhân viên của Trăn Hối Tuyển được tham chiếu theo Bàn Tây Lai, mức lương cao hơn hẳn mặt bằng chung tại Quận Sa, lại càng bỏ xa mức lương tối thiểu vùng — nên biết mức lương tối thiểu năm 2009 chỉ vỏn vẹn 635 tệ mà thôi.
 
-"Ừ."
+Mức lương tối thiểu theo giờ đối với lao động bán thời gian chỉ là 6,8 tệ/giờ.
 
-Triệu Kim An gật đầu, không có nhiều phản ứng.
+Trong khi đó, ở Trăn Hối Tuyển không có ai nhận lương dưới 2.600 tệ.
 
-Liễu Ôn Ninh và Lưu Hiểu Tĩnh nhìn nhau, mím môi.
+"Ừm."
 
-Quả nhiên vậy.
+Triệu Kim An khẽ gật đầu, vẻ mặt không mấy gợn sóng.
 
-So với Trăn Nhiên, dù doanh thu hay lợi nhuận thì Trăn Hội Tuyển đều kém xa quá.
+Liễu Ôn Ninh và Lưu Hiểu Tĩnh liếc nhìn nhau, khẽ bĩu môi.
 
-Triệu Kim An ở tầng một trông thấy một bóng lưng cao ráo, bước lại gần.
+Cũng phải thôi.
+
+Đem so sánh với Trăn Nhiên thì bất kể là doanh thu hay lợi nhuận, Trăn Hối Tuyển đều còn kém quá xa.
+
+Ở tầng một, Triệu Kim An trông thấy một bóng dáng cao ráo liền bước tới.
 
 "Triệu... Triệu tổng."
 
-Diêu Tiểu giật nảy người, thấy Triệu Kim An vẫn chưa quen cách gọi — từ Triệu Kim An ở trường đến Triệu tổng nơi công sở.
+Diêu Sân giật mình thon thót, gặp Triệu Kim An cô vẫn chưa quen cách gọi, nhất thời chưa chuyển kịp từ "Triệu Kim An" hồi còn đi học sang "Triệu tổng" chốn công sở.
 
-Cô cũng gọi thêm: Liễu tổng, Lưu thư ký.
+Cô vội cất tiếng chào thêm Liễu tổng và Thư ký Lưu.
 
-"Nhìn gì đó, trả tiền đi."
+"Nhìn cái gì, muốn lấy đồ thì phải trả tiền đấy."
 
-"Em đến xem sản phẩm của nhà mình."
+"Em qua xem sản phẩm của nhà mình một chút thôi mà."
 
-"Sản phẩm nhà mình cũng phải trả tiền nhé."
+"Sản phẩm của nhà mình thì cũng phải trả tiền."
 
-"Xem thôi cũng phải trả tiền à? Trăn Hội Tuyển bá đạo thế?"
+"Chỉ nhìn thôi cũng phải trả tiền sao? Trăn Hối Tuyển bá đạo thế à?"
 
-"Cậu không ủng hộ sản phẩm nhà mình?"
+"Sản phẩm của nhà mình mà không ủng hộ chút doanh số à?"
 
-"....."
+"..."
 
-Thẩm Tử Ngôn cầm gói bánh quy gấu, không biết nói gì.
+Thẩm Tử Ngôn tay cầm gói bánh quy gấu nhỏ, nhất thời cạn lời.
 
-"Trăn Hội Tuyển kinh doanh thua lỗ rồi à? Triệu tổng đích thân ra sức tiếp thị, bán chèo kéo."
+"Trăn Hối Tuyển làm ăn thua lỗ rồi hay sao? Đến mức Triệu tổng phải đích thân ra mặt tiếp thị, ép mua ép bán thế này."
 
-Liễu Ôn Ninh: (#+_+)
+Liễu Ôn Ninh cạn lời nhìn hai người.
 
-"Thẩm tổng, sản phẩm bên nhà tổng đều tính chu kỳ thanh toán một tháng, ngắn nhất rồi đó."
+"Thẩm tổng, hàng hóa bên chị đều áp dụng kỳ hạn thanh toán một tháng, là kỳ hạn ngắn nhất rồi đấy ạ."
 
-Thực ra sản phẩm của Trương Vân Khê trong Trăn Hội Tuyển cũng là chu kỳ một tháng — do Từ Mạn Mạn quy định, thương Mộc Dao mà ưu đãi vậy.
+Thực ra sản phẩm của Trương Vân Thiến tại Trăn Hối Tuyển cũng được hưởng kỳ hạn thanh toán một tháng, đó là quy định do Từ Mạn Mạn đích thân đặt ra vì nể mặt Mộc Dao.
 
-"Không sao đâu, Liễu tổng, bình giữ nhiệt một tháng bán được bao nhiêu đâu."
+"Không sao đâu Liễu tổng, bình giữ nhiệt một tháng cũng chẳng bán được mấy chiếc."
 
-Hồi Từ Mạn Mạn còn ở đây, Thẩm Tử Ngôn chưa bao giờ ghé Trăn Hội Tuyển xem sản phẩm nhà mình.
+Hồi Từ Mạn Mạn còn ở đây, Thẩm Tử Ngôn chẳng bao giờ ghé Trăn Hối Tuyển để ngó ngàng tới sản phẩm của mình.
 
-Bây giờ Từ Mạn Mạn không còn ở đây nữa, Triệu Kim An lại về Trăn Hội Tuyển làm việc — Thẩm Tử Ngôn ngày nào cũng chạy sang đây, còn ở lại ăn cơm trưa luôn tại Trăn Hội Tuyển.
+Giờ Từ Mạn Mạn đi rồi, Triệu Kim An lại chuyển sang làm việc tại Trăn Hối Tuyển, thế là ngày nào Thẩm Tử Ngôn cũng chạy sang đây, thậm chí còn ăn luôn cơm trưa công ty ở Trăn Hối Tuyển.
 
-Diêu Tiểu được xếp vào bộ phận thu mua, dưới trướng Tôn Dũng, còn được gắn thêm danh hiệu "cán bộ dự bị."
+Diêu Sân được sắp xếp vào bộ phận thu mua, làm dưới trướng Tôn Dũng, lại còn được treo thêm cái mác cán bộ nguồn dự bị.
 
-Triệu Kim An không chú ý — Thẩm Tử Ngôn đã đánh tiếng từ trước.
+Triệu Kim An vốn không để tâm đến chuyện này, là do Thẩm Tử Ngôn đã mở lời nhờ vả trước.
 
-Bộ phận thu mua ở công ty nào cũng thuộc dạng "có dầu mỡ" một chút.
+Bộ phận thu mua ở bất kỳ công ty nào cũng đều được coi là mảnh đất béo bở.
 
-Lúc này trên bàn Triệu Kim An còn có mấy tờ hồ sơ xin việc — do Đường Hiểu Tình đặt lên, hồ sơ của mấy nữ sinh lớp Kế toán 1, Đường Hiểu Tình không biết quyết thế nào.
+Hiện tại trên bàn làm việc của Triệu Kim An vẫn còn mấy bộ hồ sơ xin việc do Đường Hiểu Tình đặt lên, toàn là hồ sơ của mấy bạn nữ lớp Kế toán 1 mà Đường Hiểu Tình vẫn đang phân vân chưa dám tự quyết.
 
-Lý Ái Lan còn gọi điện hỏi Triệu Kim An có cần thư ký không.
+Lý Ngải Lan thậm chí còn gọi điện thẳng tới hỏi xem Triệu Kim An có đang thiếu thư ký hay không.
 
-Mà rắc rối là Quan Linh — cô nàng đã có bạn trai, lại còn từng "cưỡi" lên người mình, vậy mà bây giờ lại dám nộp hồ sơ xin việc.
+Vấn đề nằm ở chỗ Quan Linh — cô nàng đã có bạn trai mà vẫn từng "cưỡi" lên người mình — thế mà cũng mặt dày nộp hồ sơ xin vào.
 
-Về đến căn hộ, Triệu Kim An trách Đường Hiểu Tình.
+Trở về căn hộ, Triệu Kim An liền trách khéo Đường Hiểu Tình:
 
-"Sao cậu lại thu cả hồ sơ của Quan Linh?"
+"Sao cậu lại nhận cả hồ sơ của Quan Linh thế?"
 
-"Cô ấy nộp thì em không thu cũng không được chứ?"
+"Cậu ấy nộp tới thì tớ biết làm sao mà từ chối được chứ?"
 
-Đường Hiểu Tình ngẩng đầu, nhìn người con trai mà từ ngày mới vào đại học cô đã thích, lúng túng nói: "Kim An ơi, Quan Linh... cô ấy không trong sáng."
+Đường Hiểu Tình ngẩng đầu, nhìn chàng trai mình đã thầm thương trộm nhớ từ ngày đầu bước chân vào đại học, ngập ngừng nói: "Kim An, Quan Linh... Quan Linh cô ta không sạch sẽ."
 
-"....."
+"..."
 
-Triệu Kim An cúi đầu bật cười: "Đây là lần đầu tiên cậu nói xấu ai đó."
+Triệu Kim An cúi đầu bật cười: "Đây là lần đầu tiên tớ nghe cậu nói xấu người khác đấy."
 
 Đó là sự thật.
 
-Lâm Thanh Tuyết "cướp" Trần Trạch, bao nhiêu người trong lớp Kế toán 1 xì xào chê bai Lâm Thanh Tuyết — Đường Hiểu Tình chưa hề nói một câu không tốt không phải về Lâm Thanh Tuyết, vậy mà bây giờ lại nói Quan Linh không trong sáng.
+Hồi Lâm Thanh Tuyết "cướp mất" Trần Trạch, bao nhiêu người trong lớp Kế toán 1 bàn tán xôn xao về Lâm Thanh Tuyết, vậy mà Đường Hiểu Tình chưa từng mở miệng nói một câu chê bai hay trách móc cô ta, thế nhưng giờ đây lại thẳng thừng bảo Quan Linh không sạch sẽ.
 
-Triệu Kim An cười: "Cô ấy mới có một anh bạn trai thôi."
+Triệu Kim An cười bảo: "Cô ta mới quen có một bạn trai thôi mà."
 
-"....."
+"..."
 
-Mặt Đường Hiểu Tình đỏ bừng: "Dù sao cũng không trong sáng."
+Khuôn mặt nhỏ nhắn của Đường Hiểu Tình đỏ bừng lên vì ngượng: "Dù sao thì cũng không sạch sẽ."
 
-"Vậy thì tôi cũng không trong sáng."
+"Vậy thì tớ cũng chẳng sạch sẽ đâu."
 
-Triệu Kim An còn muốn trêu Đường Hiểu Tình, Đường Hiểu Tình lắc đầu: "Không. Cậu thì không vậy."
+Triệu Kim An vẫn muốn trêu chọc Đường Hiểu Tình thêm chút nữa, nhưng Đường Hiểu Tình liền lắc đầu quầy qwạy: "Không có."
 
-"Cậu trong sáng, Tô Miên trong sáng..."
+"Cậu sạch sẽ, Tô Miến sạch sẽ..."
 
-"Còn ai trong sáng nữa?"
+"Thế còn ai sạch sẽ nữa?"
 
-Triệu Kim An cười nhẹ, không hiểu được logic của Đường Hiểu Tình — Đường Hiểu Tình cụp mắt, giọng nhỏ như tiếng muỗi, chỉ có mình cô nghe thấy: "Mạn Mạn trong sáng, Tử Ngôn trong sáng..."
+Triệu Kim An khẽ cười, chẳng hiểu nổi logic của Đường Hiểu Tình là gì. Đường Hiểu Tình cụp mắt xuống, giọng nói nhỏ như muỗi kêu, chỉ đủ cho một mình cô nghe thấy: "Mạn Mạn sạch sẽ, Tử Ngôn sạch sẽ..."
 
-Triệu Kim An mở máy tính kết nối với Nhan Hi ở tận Bỉ Cảng xa xôi.
+Triệu Kim An mở máy tính, kết nối liên lạc với Nhan Hi đang ở tận cảng Piraeus xa xôi.
 
-Chưa tìm được người phù hợp, Nhan Hi vẫn đang kiêm quản Bỉ Cảng.
+Vì vẫn chưa tìm được người thay thế phù hợp nên Nhan Hi đành tiếp tục tạm thời quản lý cảng Piraeus.
 
-Dấu hiệu kinh tế toàn cầu phục hồi rất đơn giản — cứ nhìn container ở cảng nhiều lên là biết.
+Tín hiệu cho thấy kinh tế toàn cầu đang dần phục hồi vô cùng đơn giản, đó là lượng container qua cảng bắt đầu tăng lên rõ rệt.
 
-Người phụ trách cảng Tây Cống là một người đàn ông có mười năm kinh nghiệm làm cảng — Tào Trác Minh.
+Người phụ trách cảng Sài Gòn là một người đàn ông có tới mười năm kinh nghiệm làm việc trong ngành cảng biển — Tào Trác Minh.
 
-Triệu Kim An không ngờ chỉ qua một đợt tuyển dụng ở trường, lại có nhiều người sẵn sàng ra nước ngoài làm việc đến vậy, lớp Kế toán 1 của anh thậm chí có hai nam sinh nhận việc ở Bỉ Cảng — xem hồ sơ thấy cả hai đều là sinh viên nghèo như anh ngày trước.
+Triệu Kim An không ngờ một đợt tuyển dụng sinh viên tại trường lại có nhiều người sẵn sàng ra nước ngoài làm việc đến thế; lớp Kế toán 1 thậm chí có tận hai nam sinh sang cảng Piraeus, xem hồ sơ mới biết gia cảnh họ cũng thuộc diện sinh viên nghèo giống như anh trước kia.
 
-"Kim An ơi, Lâm Xuyên và Lưu Chí Dân đã ký hợp đồng năm năm với chúng ta rồi."
+"Kim An, Lâm Xuyên và Lưu Chí Dân đều đã ký hợp đồng năm năm với chúng ta rồi."
 
-"Không phải ba năm sao?"
+"Chẳng phải quy định là ba năm sao?"
 
-"Họ xin ký năm năm, đây là những người đầu tiên khăn gói sang Bỉ Cảng, thầy Dư Tĩnh cũng đã gặp và nói chuyện với họ rồi."
+"Bọn họ tự nguyện xin ký năm năm đấy, là nhóm đầu tiên thu dọn hành lý lên đường sang cảng Piraeus. Cô Dư Tĩnh cũng đã tìm gặp nói chuyện với họ trước khi đi rồi."
 
-"Dư Tĩnh?"
+"Cô Dư Tĩnh?"
 
-"Ừ, Kim An cậu ít lên lớp lắm, Lâm Xuyên và Lưu Chí Dân là hai người chăm chỉ nhất lớp mình — không như Vương Duy Đào, chỉ biết tám chuyện và tán tỉnh gái."
+"Ừ, Kim An dạo này ít lên lớp nên không biết, Lâm Xuyên và Lưu Chí Dân là hai người chăm chỉ học hành nhất lớp mình đấy, chẳng bù cho Vương Duy Đào, suốt ngày chỉ biết hóng chuyện với tụ tập tán gẫu cùng mấy bạn nữ."
 
-"... Ví dụ cậu đưa ra hay đấy."
+"... Cậu lấy ví dụ khéo thật đấy."
 
-Triệu Kim An cầm điện thoại gọi cho Dư Tĩnh. Đường Hiểu Tình thấy vậy khép cửa phòng làm việc lại rồi bước ra ngoài.
+Triệu Kim An cầm điện thoại lên gọi cho cô Dư Tĩnh, Đường Hiểu Tình thấy vậy liền khép cửa bước ra khỏi thư phòng.
 
-Thực ra Lâm Xuyên và Lưu Chí Dân ngày nào cũng liên lạc với Đường Hiểu Tình — họ xem Đường Hiểu Tình như thư ký của Triệu Kim An, liên lạc với cô là tương đương liên lạc với Triệu Kim An.
+Thực tế thì ngày nào Lâm Xuyên và Lưu Chí Dân cũng trao đổi công việc với Đường Hiểu Tình, họ coi Đường Hiểu Tình như thư ký riêng của Triệu Kim An, hễ nói chuyện với Đường Hiểu Tình là coi như đã báo cáo thẳng lên Triệu Kim An rồi.
 
-Đầu dây bên kia, thầy Dư Tĩnh hỏi Triệu Kim An một câu.
+Đầu dây bên kia, cô Dư Tĩnh đặt cho Triệu Kim An một câu hỏi.
 
-Lưu Bang đánh thiên hạ rồi trị thiên hạ chỉ dựa vào nhân tài từ một huyện nhỏ, Chu Nguyên Chương cũng là một đội Phượng Dương, chủ lực Thái Bình Thiên Quốc phần lớn là người Kim Điền ở Tây Quảng.
+Lưu Bang đánh thiên hạ và trị vì thiên hạ chỉ dựa vào nhân tài của một huyện nhỏ; Chu Nguyên Chương cũng chỉ có một đội ngũ xuất thân từ Phượng Dương; bộ khung chủ chốt của Thái Bình Thiên Quốc cũng đều là người Kim Điền ở Tây Quảng.
 
-Hỏi Triệu Kim An: tại sao một huyện Bái nhỏ bé lại sản sinh ra những nhân tài xuất chúng như Tiêu Hà, Tào Tham, Phàn Khoái?
+Cô hỏi Triệu Kim An tại sao một huyện Bái nhỏ bé mà lại sản sinh ra được nhiều bậc kỳ tài như Tiêu Hà, Tào Tham, Phàn Khoái đến thế?
 
-Ý thầy Dư Tĩnh muốn nói — Triệu Kim An hiểu.
+Ẩn ý trong lời nói của cô Dư Tĩnh, Triệu Kim An hoàn toàn thấu hiểu.
 
-Triệu Kim An chỉ hỏi lại một câu: "Thầy Dư ơi, thầy là Tiêu Hà của em không?"
+Anh chỉ hỏi lại một câu: "Cô Dư, vậy cô có phải là Tiêu Hà của em không?"
 
-Thật mà nói, từ khi Từ Mạn Mạn rời đi, khối lượng công việc của Triệu Kim An tăng lên đáng kể. Trước đây Từ Mạn Mạn không chỉ quản lý Trăn Hội Tuyển — cô còn đang theo dõi cả Hoàn Vũ Cảng Vụ.
+Thú thực, từ khi Từ Mạn Mạn rời đi, khối lượng công việc đổ dồn lên vai Triệu Kim An nhiều hơn hẳn. Trước đây Từ Mạn Mạn không chỉ điều hành Trăn Hối Tuyển mà còn theo sát cả mảng Hoàn Vũ Cảng Vụ.
 
-Triệu Kim An chỉ phụ trách định hướng lớn, tức là chiến lược công ty, bên ngoài chuyên lo "mua mua mua."
+Triệu Kim An chỉ cần nắm đại cục, tức là định hướng chiến lược công ty, rồi ra ngoài lo phần "mua mua mua".
 
-Phía sau có Từ Mạn Mạn theo dõi lo "bịt kẽ hở chắp vá."
+Mọi khâu hậu cần phía sau đều có Từ Mạn Mạn theo sát "lấp chỗ trống, vá sai sót".
 
-Ví dụ như nước giặt "Hương Ngộ" — Triệu Kim An chỉ cần nói với Từ Mạn Mạn hướng phát triển tiếp theo của Trăn Hội Tuyển là gì, bước tiếp theo như thế nào, Từ Mạn Mạn sẽ tự đi tìm xưởng gia công phù hợp.
+Chẳng hạn như dòng nước giặt "Hương Ngộ", Triệu Kim An chỉ cần nói cho Từ Mạn Mạn biết định hướng phát triển của Trăn Hối Tuyển và bước tiếp theo cần làm gì, Từ Mạn Mạn sẽ tự tìm xong xuôi các xưởng gia công phù hợp.
 
-Tiêu chuẩn chất lượng từng loại sản phẩm, bao bì, định giá — Từ Mạn Mạn đều làm được hết.
+Từ tiêu chuẩn chất lượng sản phẩm, bao bì cho đến định giá, Từ Mạn Mạn đều lo liệu chu toàn.
 
-Cô và Thẩm Tử Ngôn chỉ thiếu duy nhất một thứ — "tiên tri."
+Cô ấy và Thẩm Tử Ngôn chỉ thiếu mỗi khả năng "tiên tri" mà thôi.
 
-Những việc này Liễu Ôn Ninh cũng có thể làm tốt — nhưng Triệu Kim An không thể hoàn toàn tin tưởng Liễu Ôn Ninh.
+Những việc này Liễu Ôn Ninh cũng có thể làm tốt, nhưng Triệu Kim An không thể đặt trọn 100% niềm tin vào Liễu Ôn Ninh.
 
-Ví dụ như khoản dầu mỡ, hoa hồng, rồi cả bao bì.
+Ví dụ như chuyện bổng lộc, tiền hoa hồng lót tay, hay khâu thiết kế bao bì.
 
-Liễu Ôn Ninh cũng không dám học kiểu Từ Mạn Mạn, tự quyết mọi thứ — việc hơi lớn một chút là phải hỏi qua Triệu Kim An.
+Liễu Ôn Ninh cũng không dám học theo Từ Mạn Mạn chuyện gì cũng tự ý quyết đoán, hơi có việc gì lớn một chút là cô ta đều phải xin ý kiến chỉ đạo của Triệu Kim An.
 
-Điểm này Triệu Kim An rất tin Đường Hiểu Tình — nhưng khả năng của Đường Hiểu Tình còn hạn chế ở mảng đó, cô thuộc kiểu thụ động, Triệu Kim An bảo gì cô làm nấy...
+Ở điểm này Triệu Kim An rất tin tưởng Đường Hiểu Tình, chỉ có điều năng lực xử lý của Đường Hiểu Tình lại hơi yếu, cô thuộc tuýp người thụ động, Triệu Kim An bảo làm gì thì cô làm nấy.

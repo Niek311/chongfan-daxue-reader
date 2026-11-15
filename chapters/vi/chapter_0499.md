@@ -1,12 +1,10 @@
 # Chương 499: Đầy tháng
 
-> **Tiêu đề gốc**: 第499章 满月。
-
 Đầy tháng.
 
-Triệu Kim An tới thăm nhà họ Tô, Du Phỉ xách theo lỉnh kỉnh túi lớn túi nhỏ theo sau.
+Triệu Kim An tới thăm nhà họ Tô, Du Phi xách theo lỉnh kỉnh túi lớn túi nhỏ theo sau.
 
-Mang tiếng là con cái mang họ Triệu, nhưng Tô Miến thì nằm bất động trên giường bệnh, Triệu Tri Hành và Triệu Tri Vi từ nay về sau chắc chắn sẽ do một tay nhà họ Tô nuôi nấng, chở che. Mai này lớn lên liệu chúng có thể thân thiết, gắn bó với Triệu Kim An được bao nhiêu phần? Về điểm này, trong lòng Du Phỉ tràn ngập nỗi hoài nghi.
+Mang tiếng là con cái mang họ Triệu, nhưng Tô Miến thì nằm bất động trên giường bệnh, Triệu Tri Hành và Triệu Tri Vi từ nay về sau chắc chắn sẽ do một tay nhà họ Tô nuôi nấng, chở che. Mai này lớn lên liệu chúng có thể thân thiết, gắn bó với Triệu Kim An được bao nhiêu phần? Về điểm này, trong lòng Du Phi tràn ngập nỗi hoài nghi.
 
 Hôm nay đến gặp Triệu Tri Hành và Triệu Tri Vi, Triệu Kim An đã cạo sạch đám râu ria lởm chởm trên mặt, nhưng cả gương mặt vẫn lộ rõ vẻ tiều tụy, phờ phạc và suy sụp khôn cùng. Anh bế hai đứa nhỏ vào lòng, khó khăn lắm mới nặn ra được một nụ cười gượng gạo:
 
@@ -80,11 +78,11 @@ Chẳng một ai hay biết liệu Tô Miến có thể nghe thấy những lờ
 
 Triệu Kim An vừa khom lưng thủ thỉ, vừa cẩn thận đưa tay chỉnh lại nếp áo và kéo phẳng góc chăn cho Tô Miến.
 
-Khương Phức Hàm đứng lặng lẽ một bên canh chừng. Phía sau lưng bà là Tô Mặc và Du Phỉ, còn hai người giúp việc Khương Di và Trương Uyển thì đứng lùi lại ở khoảng cách xa hơn.
+Khương Phức Hàm đứng lặng lẽ một bên canh chừng. Phía sau lưng bà là Tô Mặc và Du Phi, còn hai người giúp việc Khương Di và Trương Uyển thì đứng lùi lại ở khoảng cách xa hơn.
 
 Tròn một tháng trôi qua, mái tóc của Triệu Kim An đã dài ra trông thấy, gương mặt anh hốc hác, gầy rộc đi nhiều, cổ họng khản đặc khiến tông giọng cũng biến đổi hoàn toàn. Có lẽ nếu Mộc Dao hay Từ Mạn Mạn nhìn thấy anh lúc này, cái nhìn đầu tiên chưa chắc đã dám nhận ra.
 
-Chỉ có Du Phỉ là người ngày ngày tận mắt chứng kiến sự "biến đổi" tiều tụy ấy từng chút một, nên cảm giác có phần chai sạn hơn.
+Chỉ có Du Phi là người ngày ngày tận mắt chứng kiến sự "biến đổi" tiều tụy ấy từng chút một, nên cảm giác có phần chai sạn hơn.
 
 ...
 
@@ -112,35 +110,35 @@ Nhìn thấy Tô Miến đang "say ngủ" trên giường bệnh, Phùng Vũ Lam
 
 "Sao Kim An lại biến thành nông nỗi này cơ chứ?"
 
-Bước ra khỏi phòng bệnh, Triệu Trí Dũng kéo Du Phỉ lại hỏi nhỏ, rồi không kìm được ngoái đầu nhìn lại bóng lưng người bạn nối khố đang cẩn thận chăm sóc cho Tô Miến từng li từng tí.
+Bước ra khỏi phòng bệnh, Triệu Trí Dũng kéo Du Phi lại hỏi nhỏ, rồi không kìm được ngoái đầu nhìn lại bóng lưng người bạn nối khố đang cẩn thận chăm sóc cho Tô Miến từng li từng tí.
 
 "Cậu thử một tháng trời ròng rã... như thế xem sao."
 
-Du Phỉ chỉ biết thở dài, cô còn có thể nói gì hơn được nữa?
+Du Phi chỉ biết thở dài, cô còn có thể nói gì hơn được nữa?
 
 Triệu Trí Dũng thở hắt ra một hơi dài não nề, im lặng một hồi lâu rồi mới trầm giọng nói: "Mộc Dao đã quay về Quận Sa rồi."
 
 "..."
 
-Du Phỉ ngay trong ngày hôm đó đã biết tin. Cô ngẫm nghĩ một lúc rồi hỏi: "Có xảy ra xích mích gì với Từ Mạn Mạn không? Hay là có chuyện gì phát sinh rồi?"
+Du Phi ngay trong ngày hôm đó đã biết tin. Cô ngẫm nghĩ một lúc rồi hỏi: "Có xảy ra xích mích gì với Từ Mạn Mạn không? Hay là có chuyện gì phát sinh rồi?"
 
 "Không có."
 
 Triệu Trí Dũng lắc đầu: "Chỉ là cô ấy quay về thôi, còn mua hẳn một căn nhà ở Quận Sa nữa. Tạm thời chưa nghe thấy động tĩnh gì khác."
 
-Triệu Kim An, Triệu Trí Dũng, Du Phỉ và Mộc Dao là bạn học cùng lớp suốt những năm cấp ba. Nếu bảo Mộc Dao có điểm nào đối xử tệ bạc hay có lỗi với Triệu Kim An không?
+Triệu Kim An, Triệu Trí Dũng, Du Phi và Mộc Dao là bạn học cùng lớp suốt những năm cấp ba. Nếu bảo Mộc Dao có điểm nào đối xử tệ bạc hay có lỗi với Triệu Kim An không?
 
 Tuyệt đối không!
 
-Thế nhưng thời điểm Mộc Dao trở về nước lần này quả thực quá đỗi trớ trêu. Cả Triệu Trí Dũng lẫn Du Phỉ đều không hề mong muốn Mộc Dao vào lúc này lại quay về "thêm dầu vào lửa", làm rối tung mọi chuyện lên.
+Thế nhưng thời điểm Mộc Dao trở về nước lần này quả thực quá đỗi trớ trêu. Cả Triệu Trí Dũng lẫn Du Phi đều không hề mong muốn Mộc Dao vào lúc này lại quay về "thêm dầu vào lửa", làm rối tung mọi chuyện lên.
 
-Là bạn thân nhiều năm, Du Phỉ rất hiểu tính nết của Mộc Dao. Một khi Mộc Dao đã chịu bỏ tiền ra mua nhà ở Quận Sa, điều đó đồng nghĩa với việc cô ấy không có ý định rời đi nữa.
+Là bạn thân nhiều năm, Du Phi rất hiểu tính nết của Mộc Dao. Một khi Mộc Dao đã chịu bỏ tiền ra mua nhà ở Quận Sa, điều đó đồng nghĩa với việc cô ấy không có ý định rời đi nữa.
 
 "Trong lòng Dao Dao trước giờ vẫn luôn yêu Kim An..."
 
 "Chuyện đi sang nước H chẳng qua chỉ là vỏ bọc che mắt mà thôi."
 
-Suốt ba năm ròng rã thời trung học, Triệu Trí Dũng và Du Phỉ hiểu rất rõ con người Mộc Dao. Cô chưa bao giờ giở thói "trà xanh" với Triệu Kim An, chưa từng vòi vĩnh mua cái này sắm cái nọ. Đây là vấn đề thuộc về phẩm hạnh và cốt cách con người.
+Suốt ba năm ròng rã thời trung học, Triệu Trí Dũng và Du Phi hiểu rất rõ con người Mộc Dao. Cô chưa bao giờ giở thói "trà xanh" với Triệu Kim An, chưa từng vòi vĩnh mua cái này sắm cái nọ. Đây là vấn đề thuộc về phẩm hạnh và cốt cách con người.
 
 Bằng không thì kiếp trước khi Mộc Dao ly hôn về nước, với tư cách là bạn nối khố của Kim An, Triệu Trí Dũng đã chẳng đời nào chủ động gọi điện báo cho anh. Điều đó chứng tỏ nhân cách của Mộc Dao không có chỗ nào để chê trách, và cuộc chia tay năm xưa giữa cô với Triệu Kim An cũng diễn ra vô cùng văn minh, thể diện.
 

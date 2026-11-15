@@ -1,7 +1,5 @@
 # Chương 36: Đâu phải trốn tránh
 
-> **Tiêu đề gốc**: 第36章 不是躲。
-
 "Kim An, tao thèm ăn mì tôm quá."
 
 Triệu Trí Dũng tính tình bộc trực, ăn khỏe như trâu, vừa ngửi thấy mùi mì tôm bốc lên ngào ngạt trong phòng chờ là bụng dạ đã réo ùng ục.
@@ -14,7 +12,7 @@ Triệu Kim An hít một hơi thật sâu để ổn định lại tâm trạng
 
 Sau đó cậu lại trò chuyện với bà nội thêm vài câu.
 
-Triệu Kim An giấu nhẹm chuyện Đoàn Thu Bình đã đến ga tàu, càng không nhắc tới việc chạm mặt hai cha con Tống Siêu Văn và Tống Gia Nguyệt.
+Triệu Kim An giấu nhẹm chuyện Đoạn Thu Bình đã đến ga tàu, càng không nhắc tới việc chạm mặt hai cha con Tống Siêu Văn và Tống Gia Nguyệt.
 
 Lát sau, Triệu Trí Dũng hai tay bưng hai tô mì tôm, vừa đi vừa rụt rè khép nép bước lại: "Kim An, của mày này, cầm hộ tao mau lên, bỏng chết đi được!"
 
@@ -42,7 +40,7 @@ Nghĩa là sau khi trừ hết chi phí ăn tiêu, ba tháng ròng rã hai thằ
 
 Triệu Kim An sau khi trả cho bà nội hai nghìn, gửi trả chị dâu Doãn Hiểu Lan ba trăm, thì trong túi chỉ còn vỏn vẹn hơn một nghìn tiền mặt.
 
-Trong số đó, một nghìn là do Đoàn Thu Bình hôm nọ cố tình dúi vào tay cậu trong phòng ngủ.
+Trong số đó, một nghìn là do Đoạn Thu Bình hôm nọ cố tình dúi vào tay cậu trong phòng ngủ.
 
 Chuyện này Triệu Kim An đã thưa lại với bà nội. Chuyện gì cần minh bạch thì phải nói cho bà một tiếng. Cậu không rõ Tống Siêu Văn có biết chuyện vợ mình cho tiền hay không, nếu biết thì cớ sao ông ta lại lén đưa thêm một phong bao lì xì riêng làm gì?
 
@@ -50,7 +48,7 @@ Chuyện này Triệu Kim An đã thưa lại với bà nội. Chuyện gì cầ
 
 Triệu Kim An nhìn theo hướng ngón tay Triệu Trí Dũng chỉ. Cả nhà Mộc Nhân Cường, Trương Tuệ và Lưu Văn Tinh đều có mặt đầy đủ. Đám người họ vừa bước vào phòng chờ, chắc cũng chẳng còn ghế trống nào để ngồi.
 
-Du Phỉ đang cúi đầu chăm chú bấm điện thoại.
+Du Phi đang cúi đầu chăm chú bấm điện thoại.
 
 Còn Mộc Dao thì đang dáo dác nhìn đông ngó tây, ánh mắt không ngừng tìm kiếm.
 
@@ -84,9 +82,9 @@ Triệu Kim An mấy lần chạy lên thành phố học lái xe, Triệu Trí 
 
 Đúng lúc này, chiếc điện thoại trong túi quần Kim An rung lên một nhịp.
 
-*Du Phỉ: Kim An, hai người đã tới ga chưa?*
+*Du Phi: Kim An, hai người đã tới ga chưa?*
 
-*Du Phỉ: Hai người đừng cuống nhé, tàu bị trễ ba mươi hai phút đấy.*
+*Du Phi: Hai người đừng cuống nhé, tàu bị trễ ba mươi hai phút đấy.*
 
 Triệu Kim An cất điện thoại vào túi, xoay người lại: "Đừng nhìn nữa, quay người lại đi."
 
@@ -104,17 +102,17 @@ Trong lòng nó cảm thấy tiếc hùi hụi.
 
 Dòng người trong phòng chờ nhốn nháo túa ra cửa soát vé, để lại khá nhiều dãy ghế trống.
 
-Triệu Kim An liếc mắt quan sát nhóm người đằng kia qua khóe mắt, rồi chọn một vị trí tương đối khuất và cách xa họ để ngồi xuống. Nhưng ngặt nỗi phòng chờ ga tàu chỉ có bấy nhiêu chỗ, cậu lại móc điện thoại ra gửi cho Du Phỉ một tin nhắn ngắn gọn.
+Triệu Kim An liếc mắt quan sát nhóm người đằng kia qua khóe mắt, rồi chọn một vị trí tương đối khuất và cách xa họ để ngồi xuống. Nhưng ngặt nỗi phòng chờ ga tàu chỉ có bấy nhiêu chỗ, cậu lại móc điện thoại ra gửi cho Du Phi một tin nhắn ngắn gọn.
 
 *Triệu Kim An: Đừng tìm tôi.*
 
 Gửi xong, cậu ngước mắt nhìn sang Triệu Trí Dũng bên cạnh.
 
-Triệu Trí Dũng ấp úng phân bua: "Tao... tao đâu có biết. Lúc trước cả Mộc Dao lẫn Du Phỉ đều hỏi tao đi chuyến tàu nào mà..."
+Triệu Trí Dũng ấp úng phân bua: "Tao... tao đâu có biết. Lúc trước cả Mộc Dao lẫn Du Phi đều hỏi tao đi chuyến tàu nào mà..."
 
 "Đừng tìm tôi... Thật là dứt khoát... Tuyệt tình ghê gớm."
 
-Ở phía bên kia, nhìn chằm chằm vào tin nhắn chỉ vỏn vẹn bốn chữ lạnh tanh, Du Phỉ bĩu môi, thầm lẩm bẩm trong lòng.
+Ở phía bên kia, nhìn chằm chằm vào tin nhắn chỉ vỏn vẹn bốn chữ lạnh tanh, Du Phi bĩu môi, thầm lẩm bẩm trong lòng.
 
 Thực ra, bà Trương Tuệ cũng đã dáo dác nhìn quanh mấy bận. Chẳng hiểu vì cớ gì, bà ta rất muốn bắt gặp ánh mắt của Triệu Kim An — dù trong ánh mắt ấy có là sự oán hận hay phẫn uất đi chăng nữa, thì ít nhất cũng chứng minh được rằng cậu đang nhìn về phía này.
 
@@ -122,11 +120,11 @@ Hai mươi phút sau, loa thông báo đoàn tàu hướng Bắc bắt đầu m�
 
 Triệu Kim An giữ tay Triệu Trí Dũng đang định đứng bật dậy: "Không việc gì phải vội, cứ để họ đi trước đi."
 
-Đoàn tàu dừng ở ga ít nhất nửa tiếng mới chạy. Giữa dòng người chen chúc, Mộc Dao đeo ba lô, chốc chốc lại ngoái đầu ngóng về phía cửa phòng chờ: "Du Phỉ, không lẽ Kim An và Trí Dũng vẫn chưa tới nơi sao?"
+Đoàn tàu dừng ở ga ít nhất nửa tiếng mới chạy. Giữa dòng người chen chúc, Mộc Dao đeo ba lô, chốc chốc lại ngoái đầu ngóng về phía cửa phòng chờ: "Du Phi, không lẽ Kim An và Trí Dũng vẫn chưa tới nơi sao?"
 
 "Kịp mà, không trễ đâu."
 
-Du Phỉ vừa kéo vali vừa quay đầu nhìn lại một cái.
+Du Phi vừa kéo vali vừa quay đầu nhìn lại một cái.
 
 Con gái nhà người ta đi học đại học, mỗi người lỉnh kỉnh hai chiếc vali to đùng cùng mấy túi xách lớn nhỏ. Mộc Nhân Cường tay xách nách mang, đích thân đến tiễn vợ con lên tàu.
 

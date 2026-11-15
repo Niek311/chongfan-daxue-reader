@@ -1,7 +1,5 @@
 # Chương 337: Tổng giám đốc Triệu của các cô có đến không?
 
-> **Tiêu đề gốc**: 第337章 你们赵总来了吗？
-
 "Triệu Kim An, chúng mình là bạn học cùng lớp mà."
 
 Quan Linh cất giọng, cố vớt vát thêm một câu.
@@ -72,9 +70,9 @@ Trái lại, Trần Trạch vì hợp đồng thuê nhà bên ngoài đã hết 
 
 "Đêm hôm mấy ông dậy đi vệ sinh thì làm ơn nhẹ tay nhẹ chân một chút, ngày mai người ta còn phải thi cử đấy!"
 
-Lưu Sấm Phong và Cốc Siêu Thừa không còn được tự do thoải mái như trước nữa. Bọn họ hoàn toàn không hề hay biết rằng mẹ của Trần Trạch – bà Dương Thục Mỹ – đã buộc phải bán đứt căn biệt thự đắt đỏ, khiến Trần Trạch giờ đây rơi vào cảnh "không nhà để về", mà bản thân cậu ta lại chẳng hề muốn quay về căn nhà ngột ngạt của bố đẻ và mẹ kế.
+Lưu Sấm Phong và Cốc Siêu Thừa không còn được tự do thoải mái như trước nữa. Bọn họ hoàn toàn không hề hay biết rằng mẹ của Trần Trạch – bà Dương Thù Mỹ – đã buộc phải bán đứt căn biệt thự đắt đỏ, khiến Trần Trạch giờ đây rơi vào cảnh "không nhà để về", mà bản thân cậu ta lại chẳng hề muốn quay về căn nhà ngột ngạt của bố đẻ và mẹ kế.
 
-Dương Thục Mỹ không chỉ bán biệt thự, mà bà còn phải ngậm đắng nuốt cay bán tống bán tháo một nhà máy sản xuất ở Dương Thành.
+Dương Thù Mỹ không chỉ bán biệt thự, mà bà còn phải ngậm đắng nuốt cay bán tống bán tháo một nhà máy sản xuất ở Dương Thành.
 
 Bà từng cay đắng nói với Trần Trạch: "Người ta gọi việc này là chặt tay để cầu sinh mạng."
 

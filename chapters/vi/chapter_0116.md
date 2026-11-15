@@ -1,7 +1,5 @@
 # Chương 116: Cậu là ân nhân của mẹ con tôi
 
-> **Tiêu đề gốc**: 第116章 你是我们的恩人。
-
 Tháng Bảy.
 
 Tiết trời Quận Sa nóng đến ngột ngạt, danh xưng một trong "tứ đại lò lửa" của cả nước quả nhiên chẳng phải ngoa truyền.
@@ -126,7 +124,7 @@ Chẳng biết đã trôi qua bao lâu, Đường Hiểu Tình khẽ gõ cửa g
 
 Tay nghề nấu nướng của Lưu Mỹ Nga thực sự rất khéo. Bà bảo con gà này là gà ta chính gốc nuôi thả vườn ở quê mang lên, liên tục gắp thức ăn giục Triệu Kim An ăn thật nhiều, còn dặn dò sau này lúc nào muốn ăn cơm nhà cứ việc ghé qua, chỉ cần gọi điện báo trước một tiếng để bà kịp đi chợ mua đồ tươi ngon.
 
-Đường Hiểu Tình đã đưa mẹ đi dạo làm quen với đường sá quanh khu vực, nên Lưu Mỹ Nga cũng biết nhóm Triệu Kim An thường hay ăn cơm ở nhà Đơn Vĩ.
+Đường Hiểu Tình đã đưa mẹ đi dạo làm quen với đường sá quanh khu vực, nên Lưu Mỹ Nga cũng biết nhóm Triệu Kim An thường hay ăn cơm ở nhà Đan Vĩ.
 
 Lưu Mỹ Nga tiếp đãi vô cùng niềm nở, chu đáo. Bà tuyệt nhiên không dám tơ tưởng đến chuyện hoang đường rằng Triệu Kim An có thể trở thành con rể tương lai của mình.
 

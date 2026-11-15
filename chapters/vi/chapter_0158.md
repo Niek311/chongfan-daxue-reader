@@ -1,7 +1,5 @@
 # Chương 158: Trợ lý thì không ổn, vẹn cả đôi đường.
 
-> **Tiêu đề gốc**: 第158章 助理不行的公私兼顾。
-
 Triệu Kim An cảm thấy có chút khó hiểu.
 
 Anh không tin Dương Thù Mỹ thực sự có thể nghe lọt tai những lời nhắc nhở của mình.

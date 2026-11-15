@@ -1,7 +1,5 @@
 # Chương 199: Của tôi đấy
 
-> **Tiêu đề gốc**: 第199章 是我的。
-
 Dao Dao Thỏ: [Có chứ, Kim An, trưa nay ở nhà ăn tớ chỉ dám ăn có một tí xíu thôi đấy.]
 
 Mộc Dao là người đầu tiên nhảy vào hưởng ứng, trong khi trước đó cô nàng chẳng hề mở miệng câu nào.
@@ -22,7 +20,7 @@ Triệu Kim An: [Được.]
 
 Triệu Kim An chỉ đáp lại đúng một chữ "Được", tuyệt nhiên không gắn thẻ riêng Từ Mạn Mạn thêm lần nào nữa.
 
-Đơn Vĩ nói chẳng sai chút nào, hành động hôm đó của Triệu Kim An chưa hẳn đã là hành vi của một kẻ lụy tình dại gái, chỉ có thể coi là có chút "mặt dày xáp tới" mà thôi.
+Đan Vĩ nói chẳng sai chút nào, hành động hôm đó của Triệu Kim An chưa hẳn đã là hành vi của một kẻ lụy tình dại gái, chỉ có thể coi là có chút "mặt dày xáp tới" mà thôi.
 
 ...
 

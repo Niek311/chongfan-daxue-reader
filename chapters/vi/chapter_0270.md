@@ -1,10 +1,8 @@
 # Chương 270: Nhiều người bắt đầu rục rịch
 
-> **Tiêu đề gốc**: 第270章 很多人动起来了。
-
 Chẳng một ai có thể ngờ rằng, ngay tại mảnh đất Quận Sa này, vợ chồng Từ Tắc Đống và Lương Tuệ Trân lại rơi vào cảnh mất dấu đứa con gái ruột thịt của mình.
 
-Đến cả Dương Thục Mỹ cũng không thể lường trước được điều này.
+Đến cả Dương Thù Mỹ cũng không thể lường trước được điều này.
 
 Bà chỉ biết liên tục nói lời xin lỗi với Lương Tuệ Trân, khẩn khoản hy vọng vợ chồng bà khuyên nhủ Từ Mạn Mạn quay về gánh vác, trông coi xưởng sản xuất bên Tinh Sa. Trên thực tế, toàn bộ mảng nghiệp vụ đơn hàng của cả công ty trước nay đều do một tay Từ Mạn Mạn quán xuyến.
 
@@ -136,7 +134,7 @@ Trên bàn làm việc của Từ Mạn Mạn luôn luôn bày một chai trà s
 
 "Em không dùng chiếc túi Hermès hôm trước mua à?"
 
-Triệu Kim An nhớ Dương Thục Mỹ từng tặng cho Từ Mạn Mạn một chiếc túi Chanel. Anh không có ý so đo hơn thua, chỉ là nhận thấy Từ Mạn Mạn vẫn quen dùng chiếc túi xách giản dị của riêng mình.
+Triệu Kim An nhớ Dương Thù Mỹ từng tặng cho Từ Mạn Mạn một chiếc túi Chanel. Anh không có ý so đo hơn thua, chỉ là nhận thấy Từ Mạn Mạn vẫn quen dùng chiếc túi xách giản dị của riêng mình.
 
 "Em không thích à? Là tự tay em chọn mà."
 
@@ -166,7 +164,7 @@ Liễu Ôn Ninh đã có phần, Từ Mạn Mạn lại càng không có lý do 
 
 "Vâng."
 
-Từ Mạn Mạn tuyệt đối không từ chối. Cô không hề hay biết ở kiếp trước bản thân vốn dĩ đã có một cuộc sống vô cùng sung túc và giàu sang, cũng chẳng hề hay biết bố mẹ đẻ của mình vừa mới gom góp bốn mươi vạn tệ cho Dương Thục Mỹ vay mượn.
+Từ Mạn Mạn tuyệt đối không từ chối. Cô không hề hay biết ở kiếp trước bản thân vốn dĩ đã có một cuộc sống vô cùng sung túc và giàu sang, cũng chẳng hề hay biết bố mẹ đẻ của mình vừa mới gom góp bốn mươi vạn tệ cho Dương Thù Mỹ vay mượn.
 
 Triệu Kim An ngẫm nghĩ một lát rồi nói tiếp: "Công ty sắp tới sẽ mua thêm xe mới, chiếc Audi A6 cũ để lại cho em lái nhé."
 

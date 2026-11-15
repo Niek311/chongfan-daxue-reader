@@ -1,7 +1,5 @@
 # Chương 214: Thẫn thờ
 
-> **Tiêu đề gốc**: 第214章 失神了。
-
 Vừa ăn vừa trò chuyện, Triệu Kim An nhắc tới chuyện đặt tên cho chuỗi siêu thị sắp khai trương.
 
 "Trăn Tuyển Hối!"
@@ -56,7 +54,7 @@ Triệu Kim An đã thu trọn khoảnh khắc ấy vào tầm mắt.
 
 Cậu thực sự không biết trong sâu thẳm tâm can, Từ Mạn Mạn rốt cuộc dành thứ tình cảm gì cho Trần Trạch, hay nói đúng hơn là dành thứ tình cảm gì cho gia đình nhà Trần Trạch.
 
-Người đời thường nói trọng sinh là để bù đắp những tiếc nuối của kiếp trước. Ở kiếp trước, Triệu Kim An không hề quen biết Tô Miện, chẳng hề biết tới Thẩm Tử Ngôn, nhưng cậu lại quen biết Từ Mạn Mạn. Hình bóng Từ Mạn Mạn trong cái đêm định mệnh ấy đã "găm sâu" vào tận đáy lòng cậu.
+Người đời thường nói trọng sinh là để bù đắp những tiếc nuối của kiếp trước. Ở kiếp trước, Triệu Kim An không hề quen biết Tô Miến, chẳng hề biết tới Thẩm Tử Ngôn, nhưng cậu lại quen biết Từ Mạn Mạn. Hình bóng Từ Mạn Mạn trong cái đêm định mệnh ấy đã "găm sâu" vào tận đáy lòng cậu.
 
 Kể từ đêm đầu tiên nhìn thấy Từ Mạn Mạn ở quán bar, bóng hình cô đã luôn ngự trị trong trái tim Triệu Kim An suốt bao năm tháng.
 

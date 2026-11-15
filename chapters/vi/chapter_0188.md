@@ -1,7 +1,5 @@
 # Chương 188: Ôm lấy đùi lớn
 
-> **Tiêu đề gốc**: 第188章 抱大腿。
-
 Triệu Kim An gọi Triệu Bác Lan bước vào phòng làm việc.
 
 "Giám đốc Triệu."

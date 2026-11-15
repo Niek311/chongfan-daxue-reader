@@ -1,7 +1,5 @@
 # Chương 144: Hai người họ đang ôn thi cao học à?
 
-> **Tiêu đề gốc**: 第144章 她们是在考研吗？
-
 "Triệu Kim An, anh không dùng tiền của công ty để chơi cổ phiếu đấy chứ?"
 
 Thẩm Tử Ngôn chợt sực nhớ ra điều này, liền quay sang hỏi.
@@ -46,7 +44,7 @@ Nghe vậy thì ai cũng sẽ tự nhiên liên tưởng rằng ngày thường 
 
 Dù chưa thể nắm quyền chỉ đạo chính, nhưng chí ít cũng phải theo sát học việc, coi như một đợt thực tập cọ xát để bồi dưỡng năng lực từ sớm.
 
-Đặt mình vào vị trí của người làm cha làm mẹ, nếu cậu là Dương Thục Mỹ thì mục đích sâu xa chắc chắn cũng sẽ như vậy.
+Đặt mình vào vị trí của người làm cha làm mẹ, nếu cậu là Dương Thù Mỹ thì mục đích sâu xa chắc chắn cũng sẽ như vậy.
 
 "Từng nghe Mạn Mạn buột miệng nhắc qua, gia đình Trần Trạch làm mảng thương mại xuất khẩu."
 
@@ -148,7 +146,7 @@ Hai cô gái học cùng một lớp từ thời cấp ba lên tận giảng đ�
 
 "Sinh viên đại học mà đã có tiền chơi cổ phiếu rồi cơ à?"
 
-"Chắc không phải đâu, hai cậu ấy chẳng mấy khi bàn luận chuyện đó trong phòng nên mình với Diêu Tân cũng mù tịt."
+"Chắc không phải đâu, hai cậu ấy chẳng mấy khi bàn luận chuyện đó trong phòng nên mình với Diêu Sân cũng mù tịt."
 
 Thực ra, đây mới chính là dáng vẻ chân thực nhất của lứa tuổi sinh viên.
 
@@ -202,7 +200,7 @@ Từ Mạn Mạn ngước mắt nhìn mẹ: "Dạ không, anh ấy lái xe về 
 
 "Mẹ, ai kể cho mẹ nghe thế?"
 
-"Thì mẹ nó chứ còn ai vào đây nữa, cái cô Dương Thục Mỹ ấy."
+"Thì mẹ nó chứ còn ai vào đây nữa, cái cô Dương Thù Mỹ ấy."
 
 "..."
 
@@ -218,7 +216,7 @@ Nhìn thấy cảnh tượng đó, Từ Mạn Mạn hiểu hết tất cả, cõ
 
 Bản thân cô dù có tận tâm lo toan, nhọc lòng gánh vác đến đâu thì có ích gì cơ chứ?
 
-Dương Thục Mỹ chắc chắn vẫn chưa hề chịu bán tháo số cổ phiếu đang bị chôn vốn trong tay.
+Dương Thù Mỹ chắc chắn vẫn chưa hề chịu bán tháo số cổ phiếu đang bị chôn vốn trong tay.
 
 "Bác Dương của con vừa gọi điện bảo đang kẹt công việc dưới Quảng Châu, việc bên xưởng đành phải phiền con để tâm giúp đỡ nhiều hơn. Bác ấy khen con ngày nào cũng chịu khó theo sát từng đơn hàng và việc thu hồi công nợ..."
 

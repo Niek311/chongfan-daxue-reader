@@ -1,7 +1,5 @@
 # Chương 434: Triệu tổng, lại gặp nhau rồi!
 
-> **Tiêu đề gốc**: 第434章 赵总又见面了。
-
 Bao Uyển Yên cầm máy sấy tóc từ phòng tắm bước ra rồi quay về phòng mình, không làm phiền công việc của Triệu Kim An.
 
 Đứng trước gương lớn, cô khẽ nới lỏng đai áo choàng tắm. Tấm gương phản chiếu trọn vẹn thân hình nở nang, săn chắc với những đường cong bốc lửa cùng làn da nâu khỏe khoắn. Bao Uyển Yên thừa hiểu Triệu Kim An tuyệt đối sẽ không có chút hứng thú nào với thân xác này của cô.
@@ -24,7 +22,7 @@ Lưu Sấm Phong nhắn một tin vào trong nhóm chat.
 
 Lưu Xuyên Phong: "Thưa các đại tiểu ông chủ, tôi với Phương Khiết vừa mới chân ướt chân ráo tới Dương Thành rồi, đang tính thuê một nhà xưởng ở đây."
 
-Trăn Hối Tuyển - Diêu Tân: "Chúc mừng Lưu ông chủ nhé!"
+Trăn Hối Tuyển - Diêu Sân: "Chúc mừng Lưu ông chủ nhé!"
 
 Triệu Kim An: "Chúc mừng Xá trưởng."
 
@@ -32,7 +30,7 @@ Lưu Xuyên Phong: "Ha ha ha, Kim An trồi lên rồi kìa! Nhận được m�
 
 Lưu Sấm Phong và Phương Khiết rốt cuộc cũng đã bước được một bước dài trên con đường lập nghiệp. Đại học năm thứ tư còn chưa tốt nghiệp mà đã sở hữu công ty riêng và xưởng sản xuất cho mình, đây có thể coi là thành công rực rỡ, vượt mặt tới 99,9% sinh viên cùng trang lứa.
 
-Thế nhưng ngoại trừ Triệu Kim An và Diêu Tân, nhóm chat gồm bảy thành viên ấy không còn một ai lên tiếng hưởng ứng Lưu Sấm Phong nữa.
+Thế nhưng ngoại trừ Triệu Kim An và Diêu Sân, nhóm chat gồm bảy thành viên ấy không còn một ai lên tiếng hưởng ứng Lưu Sấm Phong nữa.
 
 Điều kỳ lạ là, cả Mộc Dao lẫn Thẩm Tử Ngôn đều không hề rời khỏi nhóm, chỉ là ảnh đại diện của hai người họ từ dạo ấy đến nay chưa từng một lần sáng đèn trở lại.
 

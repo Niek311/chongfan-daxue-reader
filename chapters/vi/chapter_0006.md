@@ -1,7 +1,5 @@
 # Chương 6: Trùng phùng kiếp này
 
-> **Tiêu đề gốc**: 第6章 今生重逢。
-
 Chuyện này quả thực có đôi phần kỳ quặc.
 
 Không chỉ riêng Mộc Dao cảm thấy lạ lùng, mà tất cả những người có mặt tại đó đều dâng lên một cảm giác là lạ trong lòng.
@@ -126,13 +124,13 @@ Triệu Kim An thản nhiên gật đầu: "Ừ, đúng thế."
 
 Mộc Dao từ nãy tới giờ vẫn đứng lặng một bên, đôi mắt trong veo chan chứa nỗi niềm nhìn đăm đắm vào Triệu Kim An, tuyệt nhiên không hé răng lấy một lời.
 
-Cuối cùng, vẫn là Du Phỉ lên tiếng phá vỡ bầu không khí ngượng ngùng: "Triệu Kim An, tối nay cậu với Triệu Trí Dũng có đi hát karaoke cùng bọn tớ không?"
+Cuối cùng, vẫn là Du Phi lên tiếng phá vỡ bầu không khí ngượng ngùng: "Triệu Kim An, tối nay cậu với Triệu Trí Dũng có đi hát karaoke cùng bọn tớ không?"
 
 Cô không rủ hai người họ đi ăn tối chung, có lẽ cũng vì tinh tế nhận ra việc họ vừa bán mớ cá cho Âu Cường sẽ khiến đôi bên rơi vào cảnh gượng gạo trên bàn ăn.
 
 Triệu Kim An liếc nhìn Triệu Trí Dũng đang có vẻ háo hức nhấp nhổm, rồi điềm tĩnh đáp: "Bọn tớ không đi đâu, phải về quê ăn cơm tối rồi."
 
-"Lát nữa đám con trai hát xong còn hẹn nhau đi ăn đêm để cùng xem World Cup đấy." Du Phỉ nhớ Triệu Kim An chơi bóng rổ rất cừ, từng là tay ném chủ lực của lớp trong các trận đấu toàn trường.
+"Lát nữa đám con trai hát xong còn hẹn nhau đi ăn đêm để cùng xem World Cup đấy." Du Phi nhớ Triệu Kim An chơi bóng rổ rất cừ, từng là tay ném chủ lực của lớp trong các trận đấu toàn trường.
 
 "World Cup ư!?"
 
@@ -156,7 +154,7 @@ Triệu Kim An nở nụ cười hiền hòa quen thuộc, khẽ lắc đầu: "
 
 "Ồ..."
 
-Mộc Dao thoáng lộ vẻ hụt hẫng. Cô cắn nhẹ làn môi mọng đỏ mượt mà, nét mặt thoáng chút bối rối phức tạp, lại liếc nhìn về phía Du Phỉ và Lý Lợi đang đứng đợi phía trước, dáng vẻ dùng dằng không dứt.
+Mộc Dao thoáng lộ vẻ hụt hẫng. Cô cắn nhẹ làn môi mọng đỏ mượt mà, nét mặt thoáng chút bối rối phức tạp, lại liếc nhìn về phía Du Phi và Lý Lợi đang đứng đợi phía trước, dáng vẻ dùng dằng không dứt.
 
 "Vậy... vậy tớ đi nhé?"
 
@@ -178,17 +176,17 @@ Trong lòng Mộc Dao càng thêm ấm ức. Bắt gặp bạn trai đi bán cá
 
 Trong suy nghĩ mộc mạc của Triệu Trí Dũng, tiền hai đứa kiếm được thì cần gì phải phân chia rạch ròi. Bạn thân nối khố muốn hẹn hò với người yêu thì cứ việc cầm lấy mà chi tiêu, cùng lắm thì ngày mai chia cho cậu ta phần hơn một chút là được chứ có sao đâu.
 
-Người ngoái đầu nhìn lại không chỉ có mỗi Mộc Dao, mà cả Du Phỉ lẫn Lý Lợi cũng đang tò mò dõi mắt theo.
+Người ngoái đầu nhìn lại không chỉ có mỗi Mộc Dao, mà cả Du Phi lẫn Lý Lợi cũng đang tò mò dõi mắt theo.
 
 "Mộc Dao, Triệu Kim An không hẹn cậu đi chơi riêng à?"
 
 Mộc Dao buồn bã lắc đầu.
 
-"Ôi dào, có sao đâu, dù gì sau này cậu với Triệu Kim An cũng học chung trong một làng đại học ở Quận Sa mà." Du Phỉ bước tới khoác lấy cánh tay Mộc Dao an ủi. Cả cô và Mộc Dao đều trúng tuyển vào Đại học Công nghiệp Trung Nam, lại còn đăng ký cùng một chuyên ngành.
+"Ôi dào, có sao đâu, dù gì sau này cậu với Triệu Kim An cũng học chung trong một làng đại học ở Quận Sa mà." Du Phi bước tới khoác lấy cánh tay Mộc Dao an ủi. Cả cô và Mộc Dao đều trúng tuyển vào Đại học Công nghiệp Trung Nam, lại còn đăng ký cùng một chuyên ngành.
 
 "Mộc Dao này, tiền học phí của Triệu Kim An phải tự mình đi kiếm thật đấy à?" Lý Lợi cố tình hỏi một câu đầy ẩn ý.
 
-"Tự kiếm thì tốt chứ sao, tự lực cánh sinh lo tiền ăn học mới có ý nghĩa chứ." Du Phỉ lập tức đỡ lời thay cho Mộc Dao.
+"Tự kiếm thì tốt chứ sao, tự lực cánh sinh lo tiền ăn học mới có ý nghĩa chứ." Du Phi lập tức đỡ lời thay cho Mộc Dao.
 
 "Một người chị họ của tớ vừa tốt nghiệp đại học năm nay, chị ấy bảo lên đại học chọn bạn trai là phải hết sức thận trọng, đừng có chỉ nhìn vào mỗi điểm số với vẻ ngoài đẹp mã."
 

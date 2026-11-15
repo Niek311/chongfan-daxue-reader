@@ -1,7 +1,5 @@
 # Chương 338: Thế em có dám đi không?
 
-> **Tiêu đề gốc**: 第338章 那你敢去吗？
-
 Càng về cuối năm, các công ty lớn nhỏ đều rộn ràng tổ chức tiệc tất niên tổng kết, nhưng Triệu Kim An lại chẳng hề có ý định bày vẽ liên hoan rình rang.
 
 Đội ngũ pháp lý và đàm phán của Nhan Hy đã đáp chuyến bay sang cảng Sài Gòn.

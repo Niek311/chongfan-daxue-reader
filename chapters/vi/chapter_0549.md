@@ -1,7 +1,5 @@
 # Chương 549: Sân chơi của doanh nghiệp và tư bản
 
-> **Tiêu đề gốc**: 第549章 企业和资本的游乐场。
-
 "Mỗi bên nhường lại một chút đi."
 
 Đoàn tổng bên Bảo Vũ nhấp một ngụm trà đặc, chậm rãi lên tiếng: "Mike và cô Luna này, hai vị làm gương nhượng bộ trước đi đã. Phía Lý tổng bên Vi Lực các ông cũng nên bớt ra chút ít phần bánh."

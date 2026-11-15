@@ -1,7 +1,5 @@
 # Chương 11: McDonald's
 
-> **Tiêu đề gốc**: 第11章 麦当劳。
-
 Mộc Dao quẳng phịch chiếc điện thoại xuống ghế sofa, gương mặt lộ rõ vẻ hờn dỗi không vui.
 
 "Nhất định là Kim An đang giận rồi."

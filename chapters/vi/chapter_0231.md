@@ -1,7 +1,5 @@
 # Chương 231: Thế nào là tiêu chuẩn kép?
 
-> **Tiêu đề gốc**: 第231章 什么是双标？
-
 "Cô Dư, cô xem đấy, em nói thật thì cô lại chẳng tin."
 
 Triệu Kim An bất đắc dĩ cười nói: "Chẳng lẽ lúc nào em cũng phải kè kè bản cam kết sở hữu cổ phần bên người? Cứ hễ gặp ai cũng chìa ra bảo: 'Tôi là ông chủ đây, các người xem, đây là giấy chứng nhận này'? Rồi nếu mọi người bảo giấy tờ đó làm giả được thì sao?"
@@ -152,7 +150,7 @@ Vương Duy Đào ghé sát tai thì thầm to nhỏ.
 
 Triệu Kim An há hốc miệng. Hạ gục? Nói chuyện gì thì nói, bộ mày không nhìn xem cô Dư bao nhiêu tuổi rồi hả?
 
-Bốn mươi sáu tuổi rồi đấy! Còn lớn tuổi hơn cả mẹ Đoàn Thu Bình ở nhà nữa kia kìa!
+Bốn mươi sáu tuổi rồi đấy! Còn lớn tuổi hơn cả mẹ Đoạn Thu Bình ở nhà nữa kia kìa!
 
 Vương Duy Đào chẳng cần biết lý do, vội vàng van nài: "Kim An à, đợt này nếu môn Kế toán Quản trị của tao mà bị trượt thì trông cậy hết vào mày đấy nhé, mày nhất định phải mở lời xin xỏ cô Dư giúp tao một tiếng."
 

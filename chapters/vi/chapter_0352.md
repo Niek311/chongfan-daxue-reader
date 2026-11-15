@@ -1,251 +1,251 @@
-# ﻿Chương 352: Chồng Khít
+# Chương 352: Trùng khớp.
 
-> **Tiêu đề gốc**: 第352章 重叠。
+Đám nữ sinh lớp Kế toán 1 đều đang chờ Lâm Thanh Tuyết trở về.
 
-Cả lớp kế toán một đều đang chờ Lâm Thanh Tuyết trở về.
+Lâm Thanh Tuyết trở lại ký túc xá với vẻ mặt nhẹ nhõm, thẳng tay chặn liên lạc Trần Trạch ngay trước mặt các bạn cùng lớp.
 
-Lâm Thanh Tuyết thủng thẳng bước vào phòng ký túc xá, mặt mày thư thái như chưa có chuyện gì, rồi trước mắt mấy đứa bạn cùng phòng, cô kéo thẳng tên Trần Trạch vào danh sách chặn.
+"Tiểu Tuyết, nhà Trần Trạch vẫn còn hai cái nhà xưởng đấy."
 
-"Tiểu Tuyết ơi, nhà Trần Trạch còn hai cái xưởng đấy."
+"Thì sao chứ?"
 
-"Thì sao?"
+Lâm Thanh Tuyết cười khẩy một tiếng: "Các cậu hỏi Phương Khiết xem, có khó không?"
 
-Lâm Thanh Tuyết bật cười khẽ: "Các cậu hỏi Phương Khiết khó lắm à?"
+Phương Khiết lắc đầu rồi lại gật đầu: "Tiền, chỉ cần có tiền là rất nhanh. Làm được như Triệu Kim An thì khó, chứ chỉ hai cái xưởng nhỏ thì chẳng khó chút nào."
 
-Phương Khiết lắc đầu rồi lại gật: "Tiền — có tiền thì làm nhanh lắm. Làm được như Triệu Kim An thì khó, nhưng chỉ hai cái xưởng nhỏ thì không đến nỗi."
+Phương Khiết đã lăn lộn trong nghề, đường đi nước bước đều nắm rõ cả rồi; chỉ cần cửa hàng Taobao vẫn làm ăn phát đạt như hiện tại thì chuyện đó tự nhiên chẳng có gì khó.
 
-Phương Khiết đã nhập cuộc rồi, tư duy và các bước đều đã có trong đầu, chỉ cần cửa hàng trên Đào Bảo vẫn buôn bán tốt thì đương nhiên không phải chuyện khó.
+"Tiểu Tuyết, có phải Triệu Kim An hứa hẹn gì với cậu rồi không?"
 
-"Tiểu Tuyết, có phải Triệu Kim An hứa gì đó với cậu không?"
+Quan Linh quan tâm hỏi.
 
-Quan Linh lo lắng hỏi.
+Lâm Thanh Tuyết cười mà không nói rõ: "Không có."
 
-Lâm Thanh Tuyết chỉ mỉm cười không đáp: "Không có."
+Ở một diễn biến khác.
 
-Ở phía bên kia.
+Liễu Ôn Ninh chẳng biết phải xử lý thế nào, còn trợ lý Lưu Hiểu Tĩnh thì càng ngơ ngác hơn.
 
-Liễu Ôn Ninh không biết phải xử lý thế nào, cô trợ lý Lưu Hiểu Tĩnh còn bối rối hơn, mặt ngơ ngác như người mất hồn.
+"Văn phòng này có dọn dẹp không ạ?"
 
-"Cái văn phòng này dọn hay không dọn đây?"
+Từ Mạn Mạn để lại quá nhiều đồ đạc cá nhân trong văn phòng, đến cả chăn đệm cũng gấp gọn gàng đặt ở góc phòng. Bàn giao công việc thì chỉ là chuyện nhỏ, Liễu Ôn Ninh dù sao cũng có bao nhiêu năm kinh nghiệm làm việc rồi.
 
-Đồ đạc cá nhân của Từ Mạn Mạn để ở văn phòng quá nhiều — chăn màn còn xếp ngay ngắn ở một góc. Bàn giao công việc chỉ là chuyện nhỏ, với kinh nghiệm bao nhiêu năm của Liễu Ôn Ninh thì chẳng đáng lo.
+"Chị Liễu, Tổng giám đốc Từ và Chủ tịch Triệu cãi nhau à?"
 
-"Liễu tổng, Từ tổng với Triệu tổng cãi nhau rồi à?"
+Lưu Hiểu Tĩnh ngập ngừng hỏi.
 
-Lưu Hiểu Tĩnh dè dặt hỏi.
+"Không biết nữa."
 
-"Không biết."
+Liễu Ôn Ninh lắc đầu: "Cả Chủ tịch Triệu lẫn Tổng giám đốc Từ đều chẳng giống kiểu người sẽ cãi nhau."
 
-Liễu Ôn Ninh lắc đầu: "Triệu tổng và Từ tổng trông không giống người hay cãi nhau lắm."
+Lưu Hiểu Tĩnh nghĩ ngợi một lát rồi gật đầu: "Hai người họ đúng là không cãi nổi đâu. Hay là bất đồng hơi lớn, hoặc là điều chuyển vị trí? Chủ tịch Triệu chẳng phải còn một công ty Hoàn Vũ Cảng Vụ nữa sao?"
 
-Lưu Hiểu Tĩnh nghĩ ngợi rồi gật đầu: "Hai người ấy cãi nhau không được, mâu thuẫn lần này có vẻ lớn lắm, lại còn điều chuyển vị trí nữa. Triệu tổng không phải có cái Hoàn Vũ Cảng vụ hay sao?"
+"Với lại Chủ tịch Triệu đang chuẩn bị mở siêu thị Trăn Hối Tuyển thứ hai, chẳng phải sắp mua đất rồi hay sao?"
 
-"Với lại, Triệu tổng đang chuẩn bị mở chi nhánh Trăn Hội Tuyển thứ hai, chẳng phải đang tính mua đất sao?"
+Triệu Kim An vốn định đi tìm Tô Cảnh Hành; Trăn Nhiên và Hoàn Vũ Cảng Vụ ở Quận Sa vẫn chưa có lấy một trụ sở văn phòng ra hồn, vừa khéo xây trung tâm thương mại ở dưới, bên trên là tòa nhà văn phòng.
 
-Triệu Kim An vốn định đến gặp Tô Cảnh Hành — Trăn Nhiên và Hoàn Vũ Cảng vụ ở Quận Sa chưa có một văn phòng ra hồn, mà dưới xây thương mại trên làm văn phòng thì vừa hay.
+Còn lúc này.
 
-Nhưng bây giờ.
+Anh đang ngả lưng trên một chiếc ghế tựa, kẹp điếu thuốc trên tay.
 
-Anh nằm dài trên một chiếc ghế nghỉ, tay kẹp điếu thuốc.
+Lưu Mỹ Nga vội vàng mang tới một chiếc gạt tàn.
 
-Lưu Mỹ Nga vội vàng đem tới một cái gạt tàn.
+Du Phi đứng phía sau, cô đã dò hỏi một vòng và nắm rõ đầu đuôi câu chuyện rồi.
 
-Du Phỉ đứng sau lưng, cô vừa hỏi thăm khắp nơi, đã nắm rõ đầu đuôi câu chuyện.
+"Kim An, sao cậu lại đối xử với Từ Mạn Mạn như vậy?"
 
-"Kim An, sao anh lại đối xử với Từ Mạn Mạn như vậy?"
+Du Phi không tài nào hiểu nổi. Nếu nói về xinh đẹp thì Dao Dao cũng đẹp vậy, thế mà Kim An vẫn luôn rất điềm tĩnh; thậm chí những cô gái đẹp hơn họ cũng chẳng thiếu, muốn kiểu phụ nữ xinh đẹp nào mà anh chẳng có được?
 
-Du Phỉ không hiểu nổi. Nếu nói xinh đẹp thì Dao Dao cũng xinh, Kim An vẫn bình thản như không — thậm chí còn có những cô còn xinh hơn họ nữa. Muốn người đẹp mà không được sao?
+Có lẽ chỉ có Triệu Bác Lan là người nhìn thấu sớm nhất: ngay từ đầu, ánh mắt Triệu Kim An nhìn Từ Mạn Mạn đã có chút khác biệt rồi.
 
-Có lẽ Triệu Bác Lan là người đầu tiên nhìn ra — từ lần đầu gặp Từ Mạn Mạn, ánh mắt Triệu Kim An đã khác đi một chút.
+"Du Phi."
 
-"Du Phỉ."
+"Hả?"
 
-"Dạ?"
+Du Phi vội bước lên.
 
-Du Phỉ bước nhanh lên trước.
+Đây là lần đầu tiên Triệu Kim An hỏi đến chuyện này: "Sản phẩm sau này của Trương Vân Thiến đã vào được Trăn Hối Tuyển chưa?"
 
-Triệu Kim An lần đầu tiên nhắc đến: "Sản phẩm của Trương Vân Tây đã vào Trăn Hội Tuyển chưa?"
+"Ba dòng sản phẩm đạt tiêu chuẩn của chúng ta đã được đưa vào rồi ạ."
 
-"Ba dòng đạt chuẩn của chúng ta đã vào rồi."
+Du Phi nghĩ một lát rồi mang máy tính tới: "Đây là cửa hàng Taobao của công ty Trương Vân Thiến, doanh số khá ổn, do Dao Dao quản lý và đề xuất phương án, Thẩm Tử Ngôn đã bàn bạc với cậu ấy rồi."
 
-Du Phỉ nghĩ một lúc rồi xách máy tính ra: "Đây là cửa hàng trên Đào Bảo của công ty Trương Vân Tây, doanh số khá tốt — Dao Dao đang quản lý và đề xuất chiến lược, Thẩm Tử Ngôn đã trao đổi với cô ấy rồi."
+"Sản phẩm bán trực tuyến và hàng cung ứng cho bên mình đã được đổi bao bì khác nhau nên không bị xung đột về giá."
 
-"Hàng bán online và hàng cung cấp cho bên mình đổi bao bì khác nhau, nên không bị xung đột giá."
-
-Làm thư ký mấy tháng, Du Phỉ đã biết suy nghĩ và xử lý linh hoạt.
+Làm thư ký được mấy tháng, Du Phi đã học được cách suy một ra ba rồi.
 
 "Ừ."
 
-Triệu Kim An liếc qua một cái rồi thôi, không để ý thêm.
+Triệu Kim An liếc nhìn một cái rồi lại thôi, không bận tâm nữa.
 
-Trần Trạch cho rằng Từ Mạn Mạn quá nuông chiều Triệu Kim An. Triệu Kim An thì thấy Từ Mạn Mạn quá nuông chiều Trần Trạch. Khoảnh khắc này, Từ Mạn Mạn và người phụ nữ ở quán bar kiếp trước hoàn toàn chồng khít lên nhau trong tâm trí anh.
+Trần Trạch thấy Từ Mạn Mạn quá nuông chiều Triệu Kim An, còn Triệu Kim An lại thấy Từ Mạn Mạn quá dung túng Trần Trạch. Ngay khoảnh khắc ấy, hình bóng Từ Mạn Mạn bỗng trùng khớp với người phụ nữ trong quán bar ở kiếp trước.
 
-Trần Trạch sờ mó ôm ấp đám tiếp viên tám trăm tệ ngay trước mặt cô, cô cũng chỉ điềm nhiên nhìn.
+Trần Trạch ngang nhiên ôm ấp mấy cô tiếp rượu giá tám trăm tệ ngay trước mặt cô, vậy mà cô vẫn chỉ điềm nhiên đứng nhìn.
 
-Tất cả mọi người đều chồng lên nhau — Dương Thục Mỹ, Trần Cẩm Thu, Từ Tắc Đống, Lương Huệ Trân — tất thảy đều chiều chuộng Trần Trạch.
+Tất cả mọi người đều trùng khớp cả: Dương Thù Mỹ, Trần Cẩm Thu, Từ Tắc Đống, Lương Tuệ Trân, tất cả bọn họ đều xúm vào dỗ dành Trần Trạch.
 
-"Số đỏ."
+"Số sướng."
 
-Cốc Siêu Thừa có lẽ nói không sai.
+Có lẽ Cốc Siêu Thừa nói không sai.
 
-Không có gì gọi là công bằng hay không công bằng — đầu thai vốn dĩ đã là một môn nghệ thuật rồi.
+Chẳng có gì là công bằng hay bất công cả, đầu thai vốn dĩ cũng là một môn nghệ thuật.
 
-Triệu Kim An chỉ chợt nhớ lại lần đầu gặp Từ Tắc Đống và Lương Huệ Trân — thái độ đề phòng của họ khiến anh thấy hơi buồn cười. Hôm đó mình ra mặt làm gì chứ?
+Triệu Kim An chỉ nhớ lại lần đầu tiên gặp Từ Tắc Đống và Lương Tuệ Trân, nhớ lại thái độ của họ và sự đề phòng của Từ Tắc Đống đối với mình mà thấy hơi nực cười. Hôm đó mình đứng ra làm cái gì không biết?
 
-Đằng nào ngươi cũng sẽ "về lại chỗ cũ", mình việc gì phải làm kẻ ác.
+Đã sớm muộn gì cũng "quay về", mình việc gì phải đóng vai kẻ ác làm chi cho mệt.
 
-Nhớ lại cảnh từ cầu thang bước xuống — Dương Thục Mỹ khoác tay Trần Trạch, Từ Mạn Mạn đứng một bên, Lương Huệ Trân lại vội vàng tiến đến vỗ về dỗ dành Trần Trạch. Chẳng trách Lâm Thanh Tuyết lại nói ra câu đó.
+Lúc từ cầu thang đi xuống, Dương Thù Mỹ ôm lấy Trần Trạch, Từ Mạn Mạn đứng một bên, Lương Tuệ Trân lại vội vã bước lên an ủi Trần Trạch. Chẳng trách Lâm Thanh Tuyết lại thốt ra câu nói đó.
 
-Một cảnh tượng hạnh phúc đến vậy — ai nhìn vào cũng sẽ nghĩ họ mới là một gia đình thật sự!
+Một khung cảnh hạnh phúc đến thế, bất kỳ ai nhìn vào cũng sẽ thấy họ mới thực sự là người một nhà!
 
-Những người khác đều là thừa thãi, lạc lõng, không ăn nhập.
+Những người khác đều là kẻ thừa thãi, lạc lõng.
 
-Nghĩ đến đây, Triệu Kim An bật cười.
+Nghĩ đi nghĩ lại, Triệu Kim An bật cười.
 
-Nếu mình học Trần Trạch, thì đã không có Dương Thục Mỹ, cũng chẳng có Lương Huệ Trân — Vương Kim Nhụ chỉ tát thẳng vào mặt mình mấy cái rồi bảo: "Lần sau mày nhảy tao không cản nữa!"
+Nếu đổi lại là mình học theo Trần Trạch, chẳng có Dương Thù Mỹ, lại càng chẳng có Lương Tuệ Trân nào cả; Vương Kim Như chỉ có nước thẳng tay tát cho mình hai bạt tai rồi bảo: lần sau mày còn nhảy nữa thì tao chẳng thèm cản đâu!
 
-Nhưng thực ra cũng chẳng có ý nghĩa gì. Khủng hoảng tài chính là khủng hoảng tài chính — muốn không phá sản, thứ Dương Thục Mỹ cần nhất lúc này là tiền, chứ không phải năng lực cá nhân của ai.
+Cơ mà nghĩ vậy cũng chẳng có ý nghĩa gì. Khủng hoảng tài chính vẫn là khủng hoảng tài chính; muốn không phá sản thì thứ Dương Thù Mỹ cần nhất lúc này là tiền.
 
-Liên quan đến tiền bạc, Từ Tắc Đống đã có ý kiến với Dương Thục Mỹ. Ông ta với Lương Huệ Trân hết tiền rồi, Trần Cẩm Thu thì thái độ chưa rõ, còn Mạnh Song Viên thì quyết không để Trần Cẩm Thu móc hầu bao.
+Vào thời điểm này, năng lực làm việc cá nhân chẳng còn quan trọng nữa.
 
-Rất thực tế — "cảnh hạnh phúc" kia chỉ là một thoáng chốc.
+Đụng đến tiền bạc là Từ Tắc Đống bắt đầu có ý kiến với Dương Thù Mỹ ngay. Ông và Lương Tuệ Trân đã hết tiền, thái độ của Trần Cẩm Thu thì lập lờ, còn Mạnh Song Viên thì tuyệt đối không cho phép Trần Cẩm Thu móc hầu bao.
 
-Trần Trạch dùng chuyện nhảy lầu để đe dọa, không có tiền thì Dương Thục Mỹ chỉ có thể lần lượt bán từng cái xưởng đi.
+Đời thực là vậy đấy, khung cảnh "hạnh phúc" kia chỉ thoáng qua trong chớp mắt thôi.
 
-Trừ phi Trần Cẩm Thu và Từ Tắc Đống bán căn nhà đang ở, vét sạch lương hưu và quỹ tích lũy, đi vay mượn đồng nghiệp — có lẽ mới giúp được Dương Thục Mỹ một phần.
+Trần Trạch lấy chuyện nhảy lầu ra uy hiếp, nhưng không có tiền thì Dương Thù Mỹ cũng chỉ còn cách bán dần từng nhà xưởng một.
 
-Nên vẫn còn cách — chỉ là họ có chịu làm hay không mà thôi.
+Trừ phi Trần Cẩm Thu và Từ Tắc Đống bán luôn căn nhà đang ở hiện tại, rút sạch cả lương hưu lẫn quỹ tiết kiệm nhà ở, đi vay mượn đồng nghiệp cơ quan, may ra mới giúp được Dương Thù Mỹ.
 
-"Mạn Mạn đâu rồi?"
+Vậy nên cách giải quyết vẫn có đấy, chỉ xem họ có bằng lòng hay không thôi.
 
-"Hỏi Mạn Mạn làm gì?"
+"Mạn Mạn đâu?"
 
-Từ Tắc Đống dụi tắt điếu thuốc: "Đừng quên Trần Trạch đang đồng cư với con bé kia, và các người còn nợ chúng tôi bốn trăm nghìn."
+"Hỏi Mạn Mạn làm cái gì?"
 
-Tinh Sa — văn phòng.
+Từ Tắc Đống dí tắt đầu thuốc lá: "Đừng quên Trần Trạch còn ra ngoài sống chung với con bé kia, các người vẫn còn nợ chúng tôi bốn mươi vạn tệ đấy."
 
-Khói thuốc mịt mù.
+Tại văn phòng ở Tinh Sa.
 
-Từ Tắc Đống và Trần Cẩm Thu hết điếu này nối điếu kia.
+Khói thuốc mù mịt.
 
-Mấy người định ngồi lại bàn bạc — Mạnh Song Viên cũng có mặt, nhưng căn phòng lại yên ắng một cách kỳ lạ.
+Từ Tắc Đống và Trần Cẩm Thu hết điếu này đến điếu khác.
 
-Chỉ có Từ Tắc Đống và Lương Huệ Trân là có hơi thở mạnh để phát biểu.
+Mấy người định ngồi bàn bạc với nhau một chút, Mạnh Song Viên cũng có mặt, nhưng bầu không khí trong văn phòng khá im ắng.
 
-Họ là bên vừa "ra người" vừa bỏ tiền.
+Ngoại trừ Từ Tắc Đống và Lương Tuệ Trân là còn có chút khí thế để lên tiếng.
 
-"Mạn Mạn nhắn muốn một mình yên tĩnh."
+Dù sao họ cũng là bên vừa "góp người" lại vừa góp tiền.
 
-Lương Huệ Trân cầm điện thoại — Từ Mạn Mạn không bắt máy cũng chẳng nhắn tin.
+"Mạn Mạn bảo muốn ở một mình cho yên tĩnh."
 
-Trần Trạch cúi đầu một lúc rồi ngẩng lên nhìn Trần Cẩm Thu: "Bố."
+Lương Tuệ Trân cầm điện thoại trên tay, Từ Mạn Mạn không nghe máy cũng chẳng trả lời tin nhắn.
 
-Trần Cẩm Thu né tránh ánh mắt con trai.
+Trần Trạch vẫn cúi gằm mặt nãy giờ, chợt ngẩng lên nhìn Trần Cẩm Thu: "Bố."
 
-Trần Trạch lại nhìn Mạnh Song Viên: "Dì ơi, mẹ con sẽ trả tiền."
+Trần Cẩm Thu né tránh ánh mắt của con trai.
 
-"Trần Trạch, đừng đi cầu xin họ."
+Trần Trạch lại quay sang nhìn Mạnh Song Viên: "Dì à, mẹ cháu sẽ trả lại tiền mà."
 
-Dương Thục Mỹ đã cầu cạnh khắp nơi, chỉ duy nhất không mở miệng với Trần Cẩm Thu.
+"Trần Trạch, không cần cầu xin họ."
 
-"Cạch cạch cạch."
+Dương Thù Mỹ đã mở miệng vay mượn khắp nơi, duy chỉ có Trần Cẩm Thu là bà tuyệt nhiên không mở lời.
 
-Đang nói chuyện thì ngoài hành lang vang lên tiếng giày cao gót.
+"Cộp, cộp, cộp."
 
-"Lâm... Lâm tiểu thư?"
+Đang nói chuyện thì ngoài hành lang vọng lại tiếng giày cao gót gõ nhịp.
 
-Lâm Thanh Tuyết đã theo Trần Trạch vào đây hai lần, trong xưởng có người nhận ra cô.
+"Cô, cô Lâm?"
+
+Lâm Thanh Tuyết từng theo Trần Trạch tới đây hai lần nên trong xưởng có người nhận ra cô.
 
 "Tiểu Tuyết...?"
 
-Trần Trạch vụt đứng dậy.
+Trần Trạch bật dậy khỏi ghế.
 
 "Chào mọi người."
 
-Lâm Thanh Tuyết cố tình mua một chiếc Chanel rẻ nhất, ăn mặc chỉnh tề, nét mặt tươi tắn, đứng ngay cửa mà cười.
+Lâm Thanh Tuyết cố tình mua một chiếc túi Chanel loại rẻ nhất, ăn vận chỉn chu, gương mặt tươi cười rạng rỡ đứng ngay cửa.
 
-Phía sau là Quan Văn Bách.
+Theo sau cô là Quan Văn Bách.
 
-"Cái phòng bi-a cho cô rồi đó."
+"Phòng bida đưa cho cô rồi mà."
 
-Dương Thục Mỹ chẳng hiểu đầu đuôi — Lâm Thanh Tuyết đến đây làm gì nữa?
+Dương Thù Mỹ chẳng hiểu đầu cua tai nheo ra sao, Lâm Thanh Tuyết còn đến đây làm gì nữa?
 
-Lâm Thanh Tuyết không nhìn Trần Trạch, mang giày cao gót ngẩng đầu thẳng bước vào phòng.
+Lâm Thanh Tuyết không thèm liếc nhìn Trần Trạch lấy một cái, bước đôi giày cao gót, ngẩng cao đầu ưỡn ngực đi thẳng vào trong.
 
-"Cô thấy cô thiệt thòi à?"
+"Bác thấy mình bị lỗ à?"
 
-Đảo mắt nhìn quanh, Lâm Thanh Tuyết thoáng tiếc nuối: "Tiếc quá, Từ Mạn Mạn không có ở đây."
+Đưa mắt nhìn quanh một lượt, Lâm Thanh Tuyết hơi tiếc nuối: "Tiếc thật đấy, Từ Mạn Mạn không có ở đây."
 
 "Triệu Kim An?"
 
-Từ Tắc Đống phản ứng nhanh nhất, những người khác cũng nhận ra Quan Văn Bách đứng ngoài cửa.
+Từ Tắc Đống là người phản ứng nhanh nhất, những người khác cũng đồng loạt phát hiện ra Quan Văn Bách đang đứng ngay ngoài cửa.
 
 "Không phải."
 
 Lâm Thanh Tuyết phủ nhận.
 
-"Tiểu Tuyết, em đến công ty Triệu Kim An rồi à?"
+"Tiểu Tuyết, em sang công ty của Triệu Kim An làm rồi à?"
 
-Trần Trạch ấp úng hỏi.
+Trần Trạch lắp bắp hỏi.
 
-"Tai điếc à?"
+"Không hiểu tiếng người à?"
 
-Lâm Thanh Tuyết chẳng nhường mặt mũi gì, quét mắt một vòng khắp phòng: "Là em tự đến gặp Triệu tổng để xin, anh ấy không cho em tiền em vẫn đến, em nói em giúp anh ấy kiếm tiền."
+Lâm Thanh Tuyết chẳng nể nang chút nào, quét mắt khắp văn phòng một vòng: "Là tôi tự đi xin Chủ tịch Triệu đấy. Anh ấy không trả lương tôi cũng làm, tôi bảo sẽ giúp anh ấy kiếm tiền."
 
 "Kiếm tiền?"
 
-Mọi người ngơ ngác không hiểu.
+Cả đám người ngơ ngác chẳng hiểu mô tê gì.
 
-"Cái xưởng này của mấy người đáng bao nhiêu tiền?"
+"Cái xưởng nhỏ này của bà đáng giá bao nhiêu tiền?"
 
-Lâm Thanh Tuyết khẽ cười: "Triệu tổng nói nếu có lãi thì trả em mười phần trăm hoa hồng. Em nói không cần một xu — nếu lỗ thì em đi làm trả nợ dần. Hiểu chưa?"
+Lâm Thanh Tuyết bật cười: "Chủ tịch Triệu bảo nếu kiếm được tiền sẽ chia cho tôi mười phần trăm hoa hồng, nhưng tôi nói một xu cũng không lấy; nếu làm ăn thua lỗ thì sau này tôi đi làm thuê trả nợ, hiểu chưa?"
 
-Mọi người: ......
+Mọi người: "..."
 
 Trả thù!
 
-"Không mời ngồi à?"
+"Không mời ngồi một tiếng à?"
 
-Trần Cẩm Thu "vụt" đứng dậy — Lâm Thanh Tuyết ngạo mạn quá rồi.
+Trần Cẩm Thu "phắt" một cái đứng bật dậy, Lâm Thanh Tuyết quá ngông cuồng rồi.
 
-Quan Văn Bách lập tức quay người ở cửa, khóa chặt ánh mắt vào Trần Cẩm Thu.
+Quan Văn Bách lập tức xoay người ngay tại cửa, ánh mắt găm chặt vào Trần Cẩm Thu.
 
-Lâm Thanh Tuyết vẫn cười, nói: "Chú ơi, đừng kích động, cháu đến đây là bên bỏ tiền ra mua — hiểu không?"
+Lâm Thanh Tuyết mỉm cười: "Chú à, đừng kích động thế, cháu tới để thu mua đấy, là bên bỏ tiền ra, hiểu không?"
 
 "Bao nhiêu?"
 
-Dương Thục Mỹ là người biết co biết duỗi — lúc này bà cần tiền quá.
+Dương Thù Mỹ là người biết co biết duỗi, lúc này bà đang quá cần tiền.
 
-"Em đã nói là giúp Triệu tổng kiếm tiền rồi, đương nhiên phải mua càng rẻ càng tốt — có vậy lật tay bán lại mới có lời, không thì em lại phải đi làm trả nợ thôi."
+"Cháu đã bảo là giúp Chủ tịch Triệu kiếm tiền rồi mà, đương nhiên giá càng thấp càng tốt; như vậy cháu bán sang tay mới có lời chứ, nếu không chẳng lẽ cháu lại phải đi làm thuê trả nợ thật à?"
 
-Lâm Thanh Tuyết hoàn toàn không thèm nhìn Trần Trạch đứng trơ ra đó: "Cái xưởng này có gì đáng giá không? Dây chuyền sản xuất? Nhà xưởng? Ngoài miếng đất công nghiệp... còn mấy năm hạn chế?"
+Lâm Thanh Tuyết hoàn toàn ngó lơ Trần Trạch đang đứng ngây ra như phỗng: "Cái xưởng này có thứ gì đáng tiền không? Phân xưởng sản xuất? Dây chuyền? Ngoại trừ khu đất công nghiệp này... còn thời hạn bao nhiêu năm nữa?"
 
-"Tất nhiên, nếu có người khác trả giá cao hơn, thì mấy người cũng không cần bán cho em."
+"Đương nhiên rồi, nếu có người khác trả giá cao hơn để tiếp quản thì bà cũng chẳng cần bán cho cháu."
 
-Trần Trạch hiểu ra: "Tiểu Tuyết, em cố tình đến đây để làm nhục anh?"
+Trần Trạch hiểu ra rồi: "Tiểu Tuyết, em cố tình đến đây để làm nhục anh đúng không?"
 
-"Em cần đến đây để làm nhục anh sao?"
+"Anh còn cần đến lượt tôi phải làm nhục nữa sao?"
 
-Lâm Thanh Tuyết nhìn cả Dương Thục Mỹ lẫn Lương Huệ Trân mà cười.
+Lâm Thanh Tuyết nhìn Dương Thù Mỹ và Lương Tuệ Trân cười.
 
-"....."
+"..."
 
-Trần Trạch nhận một vạn tấn tổn thương. Anh ta bỗng nhận ra một điều — hình như cả Từ Mạn Mạn lẫn Lâm Thanh Tuyết, từ khi rời khỏi anh ta đều trở nên cuốn hút và có khí chất hơn hẳn.
+Trần Trạch cảm thấy như vừa chịu một vạn tấn sát thương. Cậu ta bỗng nhận ra một chuyện: hình như cứ hễ Từ Mạn Mạn và Lâm Thanh Tuyết rời khỏi mình là lại trở nên quyến rũ và có khí chất hơn hẳn.
 
-"Để tôi hỏi Kim An..."
+"Để tôi hỏi lại Kim An xem..."
 
-Dương Thục Mỹ rút điện thoại ra, Lương Huệ Trân cũng mon men lại gần. Lâm Thanh Tuyết tiến thêm một bước, cười lạnh: "Mấy người vẫn chưa hiểu sao? Không có Từ Mạn Mạn, mấy người có tư cách gì để đối thoại với Triệu tổng?"
+Dương Thù Mỹ rút điện thoại ra, Lương Tuệ Trân cũng ghé sát lại. Lâm Thanh Tuyết bước lên một bước, cười lạnh: "Sao các người vẫn chưa hiểu ra thế nhỉ? Không có Từ Mạn Mạn, các người lấy tư cách gì để nói chuyện với Chủ tịch Triệu?"
 
-"Triệu tổng của Trăn Nhiên. Triệu tổng của Trăn Hội Tuyển. Triệu tổng của Hoàn Vũ Cảng vụ."
+"Chủ tịch Triệu của Trăn Nhiên, Chủ tịch Triệu của Trăn Hối Tuyển, Chủ tịch Triệu của Hoàn Vũ Cảng Vụ."
 
-"Chỉ dựa vào hai cái xưởng sắp khai tử này? Hay dựa vào mấy công chức nhỏ nhoi?"
+"Dựa vào hai cái xưởng nhỏ sắp phá sản này à? Hay dựa vào mấy viên chức quèn các người?"
 
-"Dì ơi? Dương tổng ơi? Người mấy người cần đối thoại bây giờ là em."
+"Bác gái? Tổng giám đốc Dương? Người các người cần nói chuyện lúc này là tôi."
 
-Lâm Thanh Tuyết mở miệng gọi "Triệu tổng" liên tục, mắt vẫn nhìn thẳng vào Dương Thục Mỹ và Lương Huệ Trân mà cười.
+Lâm Thanh Tuyết một câu "Chủ tịch Triệu", hai câu "Chủ tịch Triệu", nhìn chằm chằm vào Dương Thù Mỹ và Lương Tuệ Trân mà cười.
 
-"....."
+"..."
 
-Dương Thục Mỹ siết chặt điện thoại, Lương Huệ Trân há hốc miệng — bị Lâm Thanh Tuyết trấn áp một hồi, không ai nói được lời nào.
+Dương Thù Mỹ siết chặt chiếc điện thoại trong tay, Lương Tuệ Trân thì trợn mắt há hốc mồm, nhất thời bị khí thế của Lâm Thanh Tuyết làm cho sững sờ.
 
-Trần Cẩm Thu và Từ Tắc Đống nhìn nhau — chưa bao giờ họ nghĩ đến điều này: con bé nhỏ này cũng ghê gớm vậy sao.
+Trần Cẩm Thu và Từ Tắc Đống ai nấy đều câm nín; họ chưa từng nghĩ tới một vấn đề: cô sinh viên nhỏ bé này lại lợi hại đến vậy sao?

@@ -1,7 +1,5 @@
 # Chương 539: Hiểu chuyện
 
-> **Tiêu đề gốc**: 第539章 懂事。
-
 "Rửa tay rồi vào ăn cơm nào."
 
 Triệu Kim An cúi người bế bổng Triệu Tri Nặc vào lòng, vươn cánh tay xoa nhẹ lên mái tóc mềm mại của Tống Gia Nguyệt.
@@ -146,7 +144,7 @@ Ngoại trừ ba đứa trẻ con ngây thơ vô tội ra, tất cả những ng
 
 "Tống Siêu Văn đúng là một kẻ phế vật vô tích sự."
 
-Đây là lần đầu tiên Triệu Kim An buông lời thóa mạ một người cay độc đến nhường này. Nhưng đó là con đường do chính Đoàn Thu Bình tự mình dấn thân lựa chọn lấy. Những uất ức vụn vặt chốn quê nhà này Từ Mạn Mạn đã sớm nắm được từ lâu, nhưng đối với Triệu Kim An, đây lại là lần đầu tiên hắn được nghe thấu suốt cả hai kiếp người.
+Đây là lần đầu tiên Triệu Kim An buông lời thóa mạ một người cay độc đến nhường này. Nhưng đó là con đường do chính Đoạn Thu Bình tự mình dấn thân lựa chọn lấy. Những uất ức vụn vặt chốn quê nhà này Từ Mạn Mạn đã sớm nắm được từ lâu, nhưng đối với Triệu Kim An, đây lại là lần đầu tiên hắn được nghe thấu suốt cả hai kiếp người.
 
 Bất giác nhớ lại kiếp trước của Tống Gia Nguyệt, trong lòng Triệu Kim An bỗng dâng lên một nỗi xót xa, quặn thắt khôn nguôi.
 

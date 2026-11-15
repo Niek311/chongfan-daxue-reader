@@ -1,10 +1,8 @@
 # Chương 417: Sự tương phản
 
-> **Tiêu đề gốc**: 第417章 对比。
-
 Trên suốt chặng đường quay về, bầu không khí bên trong khoang xe ngột ngạt đến mức khiến người ta nghẹt thở.
 
-Đơn Vĩ tập trung cao độ lái xe, không dám phát ra nửa tiếng động. Trong lòng mọi người đều hiểu một đạo lý: Thẩm Tử Ngôn càng giận dữ, càng làm ầm ĩ thì khả năng cô quay trở lại Trăn Nhiên càng cao; đằng này, cô lại mỉm cười hào sảng vẫy tay từ biệt rồi dứt khoát rời đi.
+Đan Vĩ tập trung cao độ lái xe, không dám phát ra nửa tiếng động. Trong lòng mọi người đều hiểu một đạo lý: Thẩm Tử Ngôn càng giận dữ, càng làm ầm ĩ thì khả năng cô quay trở lại Trăn Nhiên càng cao; đằng này, cô lại mỉm cười hào sảng vẫy tay từ biệt rồi dứt khoát rời đi.
 
 Chẳng còn ai buồn nhắc tới chuyện cá cược lúc trước nữa.
 

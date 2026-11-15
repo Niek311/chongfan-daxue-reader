@@ -1,213 +1,223 @@
-# Chương 381: Hóa ra là vậy
+# Chương 381: Thì ra là thế
 
-> **Tiêu đề gốc**: 第381章 原来如此。
+Ngày hôm sau.
 
-Sang ngày hôm sau.
+Từ Mạn Mạn đến công ty, tháo đôi giày cao gót ra để đi giày bệt.
 
-Từ Mạn Mạn đến công ty, cô cởi bỏ đôi giày cao gót thường ngày, thay bằng một đôi giày đế bệt.
+Các công ty đầu tư vốn có yêu cầu khá khắt khe về trang phục, không thể ăn mặc quá xuề xòa; giày cao gót và đồng phục công sở gần như là quy chuẩn tối thiểu.
 
-Các công ty đầu tư vốn có những quy chuẩn khắt khe về trang phục, không thể ăn mặc quá tùy tiện; giày cao gót và âu phục công sở gần như là yêu cầu tối thiểu. Hoặc có thể nói, nhịp sống Thượng Hải chuộng nét tinh tế, chỉn chu, không giống như đất Dương Thành — nơi mà một gã mặc quần đùi hoa, xỏ tông lào lẹt quẹt đi ngoài phố khéo lại chính là một ông chủ bạc tỷ.
+Hoặc cũng có thể nói, bản thân người Thượng Hải vốn chuộng phong cách ăn mặc chỉn chu, tinh tế, chẳng giống ở Dương Thành — nơi mà một người mặc quần đùi rộng thùng thình, xỏ dép lê ra đường cũng chẳng biết có phải ông chủ lớn hay không.
 
-Thế nhưng hiện tại Từ Mạn Mạn không thể đi giày cao gót được nữa.
+Nhưng Từ Mạn Mạn lại không thể đi giày cao gót.
 
-Một đôi giày da đế bệt êm ái dẫu sao cũng coi như tạm chấp nhận.
+Một đôi giày da đế bệt xem ra vẫn tạm chấp nhận được.
 
-"Mạn Mạn này, tối nay cùng đi ăn cơm nhé? Tôi đã đặt bàn ở một nhà hàng xoay bên Phố Đông rồi."
+"Từ Mạn Mạn, tối nay đi ăn cùng tôi nhé, tôi đặt bàn ở một nhà hàng Tây xoay tại Phố Đông rồi."
 
-Gần đến giờ tan sở, trưởng nhóm Trần Tư Lương tiến lại gần, cất lời mời vô cùng lịch thiệp.
+Gần đến giờ tan làm, trưởng nhóm Trần Tư Lương lịch thiệp lên tiếng mời.
 
 "Ồ hô~"
 
-Mấy cô cậu trong nhóm lập tức hò reo, trêu chọc.
+Các đồng nghiệp trong nhóm lập tức ồ lên trêu chọc.
 
-Trần Tư Lương là người Thượng Hải bản xứ, điều kiện gia đình rất tốt; còn Từ Mạn Mạn thì chẳng khác nào hoa khôi của công ty. Kể từ ngày cô bước chân vào làm việc, bao nhiêu ánh mắt của cánh mày râu đều đổ dồn về phía này. Mọi người kháo nhau rằng công ty mới tuyển được một cô bé thực tập sinh xứ Hồ Nam xinh xắn vô cùng.
+Trần Tư Lương là người Thượng Hải gốc, điều kiện gia đình rất tốt, còn Từ Mạn Mạn chẳng khác nào hoa khôi của công ty.
 
-Từ Mạn Mạn khẽ cúi đầu thu dọn bàn làm việc. Cô không mang theo chiếc túi Hermès trị giá hơn hai trăm nghìn tệ kia, ngước mắt nhìn các đồng nghiệp chung nhóm rồi thẳng thắn nói với Trần Tư Lương:
+Dù sao từ ngày Từ Mạn Mạn bước chân vào công ty, cô đã trở thành tâm điểm chú ý của cánh đồng nghiệp nam.
 
-"Quản lý Trần, hiện tại tôi không có ý định yêu đương."
+Mọi người đều kháo nhau rằng công ty mới có một cô thực tập sinh người Tương Nam xinh đẹp.
 
-"Tôi đã có người đàn ông của mình rồi."
+Từ Mạn Mạn cúi đầu thu dọn bàn làm việc. Cô không mang theo chiếc túi Hermès trị giá hơn hai trăm nghìn tệ kia, chỉ ngước nhìn các đồng nghiệp cùng nhóm rồi nói với Trần Tư Lương: "Quản lý Trần, tôi không có ý định yêu đương."
 
-"Có... có người đàn ông rồi á!?"
+"Tôi có đàn ông rồi."
 
-Các thành viên trong nhóm đưa mắt nhìn nhau, nét mặt ai nấy đều vô cùng đặc sắc.
+"Có... có đàn ông rồi sao?!"
+
+Các thành viên trong nhóm người nhìn tôi, tôi nhìn anh, vẻ mặt ai nấy đều vô cùng đặc sắc.
 
 "..."
 
-Trần Tư Lương sững sờ tại chỗ.
+Trần Tư Lương sững người tại chỗ.
 
-Anh ta nhất thời chưa hiểu hết hàm ý trong câu nói ấy.
+Anh ta còn chưa kịp hiểu Từ Mạn Mạn đang ám chỉ điều gì.
 
-Từ Mạn Mạn không nói mình "đã có bạn trai", mà nói rõ ràng là "đã có người đàn ông của mình".
+Từ Mạn Mạn không nói mình đã có bạn trai, mà nói thẳng là đã có đàn ông.
 
-Cô cũng từng nghĩ đến việc Trần Tư Lương có thể vì thế mà làm khó, chèn ép mình trong công việc. Nhưng Trần Tư Lương hiểu về cô quá ít; thế giới cảm xúc nội tâm của Từ Mạn Mạn thực ra vô cùng nhỏ bé và chật hẹp.
+Cô từng nghĩ tới khả năng Trần Tư Lương sẽ gây khó dễ cho mình trong công việc. Trần Tư Lương hiểu về Từ Mạn Mạn quá ít, "khung thế giới" tình cảm trong nội tâm cô thực ra rất nhỏ, nhỏ vô cùng.
 
-Từ khi còn thơ bé, Từ Tắc Đống đã nuôi dạy cô theo khuôn mẫu của một nàng dâu tương lai nhà họ Trần. Mười mấy năm trời được uốn nắn như thế, cho đến tận ngày Triệu Kim An xuất hiện...
+Từ nhỏ Từ Tắc Đống đã nuôi dạy cô theo khuôn mẫu con dâu nhà họ Trần, uốn nắn suốt hơn mười năm kể từ khi cô bắt đầu hiểu chuyện, cho đến khi Triệu Kim An xuất hiện...
 
-Dương Thục Mỹ từng nói một câu rất đúng: Trải nghiệm trưởng thành của mỗi người một khác.
-
-...
+Dương Thù Mỹ có một câu nói rất đúng: hoàn cảnh trưởng thành của mỗi người đều khác nhau.
 
 Trần Trạch đã quay về Dương Thành.
 
-Ở Quận Sa, Lâm Thanh Tuyết chẳng buồn đoái hoài gì đến cậu ta; Lưu Sấm Phong thì đã dọn ra ngoài ở riêng. Phòng ký túc xá 303 giờ chỉ còn lại mỗi Cốc Siêu Thừa, mà Cốc Siêu Thừa cũng ngày ngày chen chúc xe buýt chạy xuôi chạy ngược về xưởng Tinh Sa.
+Ở Quận Sa, Lâm Thanh Tuyết chẳng thèm đoái hoài đến cậu ta, Lưu Sấm Phong thì dọn ra ngoài ở riêng, phòng ký túc xá 303 chỉ còn lại mỗi Cốc Siêu Thừa, mà Cốc Siêu Thừa cũng ngày ngày bắt xe buýt chạy xuống nhà máy ở Tinh Sa.
 
-Còn về phần Triệu Kim An, chẳng ai hay biết cậu đang ở phương trời nào.
+Còn về Triệu Kim An, chẳng ai biết anh đang ở đâu.
 
-Ngay cả Mộc Dao cũng không nắm được tình hình cụ thể.
+Ngay cả Mộc Dao cũng không rõ tình hình cụ thể.
 
-Du Phi chỉ giải thích chung chung là đi công tác; khi chuyện mỏ quặng bên kia chưa ngã ngũ, cô nàng tuyệt đối không hé răng nửa lời.
+Du Phi chỉ nói là đi công tác; trước khi chuyện mỏ sắt ngã ngũ, cô sẽ không tùy tiện tiết lộ.
 
-Mà dẫu cho Mộc Dao có biết chuyện thì cũng chẳng ảnh hưởng gì.
+Dẫu Mộc Dao có biết thì cũng chẳng ảnh hưởng gì.
 
-Nhìn thấy bạn bè xung quanh ai nấy đều đang dốc sức phấn đấu — người thì khởi nghiệp, người thì ôn thi thạc sĩ, kẻ lại dùi mài kinh sử thi công chức — sau khi trở về Dương Thành, Trần Trạch cũng muốn tự mình cố gắng. Dù sao ở tuổi hai mươi hai, con người ta cũng đã bắt đầu hiểu chuyện đôi phần.
+Thấy bạn bè xung quanh ai nấy đều đang nỗ lực — người khởi nghiệp, người ôn thi cao học, người thi công chức — về đến Dương Thành, Trần Trạch cũng muốn cố gắng một phen. Dù sao cũng hai mươi hai tuổi rồi, ít nhiều cũng nên hiểu chuyện một chút chứ.
 
-"Mẹ, hình như mẹ chẳng hỏi han gì về Mạn Mạn cả?"
+"Mẹ, hình như mẹ chẳng hỏi han gì đến Mạn Mạn cả."
 
-Về nhà được ba ngày mà không thấy Dương Thục Mỹ nhắc nửa lời đến Từ Mạn Mạn, Trần Trạch tò mò hỏi.
+Về nhà ba ngày rồi mà không thấy Dương Thù Mỹ nhắc lấy một câu về Từ Mạn Mạn, Trần Trạch tò mò hỏi.
 
-"Hỏi làm gì?"
+"Hỏi gì cơ?"
 
-"Mạn Mạn biến mất rồi, chú Từ với dì Lương đều không biết em ấy đang ở đâu."
+"Mạn Mạn mất tích rồi, chú Từ với dì Lương đều không biết cô ấy ở đâu."
 
-"Hai đứa chia tay nhau cũng ngót nghét hai năm rồi còn gì?"
+"Hai đứa chia tay gần hai năm rồi còn gì?"
 
-Dương Thục Mỹ liếc nhìn con trai: "Con bé không yếu đuối như con đâu... Nó vẫn bình an vô sự."
+Dương Thù Mỹ liếc nhìn con trai: "Con bé không giống con đâu... nó không sao cả."
 
 "..."
 
-Trần Trạch há hốc miệng. Ý của Dương Thục Mỹ là Từ Mạn Mạn không phải kiểu người hở chút là suy sụp trước sóng gió. Bà cứ ngỡ sau những lời bà nói với Triệu Kim An dạo trước, Từ Mạn Mạn sẽ trở về Trăn Hối Tuyển.
+Trần Trạch mấp máy môi. Ý của Dương Thù Mỹ là Từ Mạn Mạn không phải kiểu người dễ gục ngã trước đả kích. Bà cứ đinh ninh sau khi mình nói những lời kia với Triệu Kim An, Từ Mạn Mạn sẽ quay lại Trăn Hối Tuyển.
 
-"Xưởng Tinh Sa dạo này thế nào rồi?"
+"Xưởng ở Tinh Sa dạo này thế nào?"
 
-"Chuyển đổi mô hình rồi mẹ, giờ chỉ tập trung nhận đơn bán hàng trực tuyến trên Taobao thôi."
+"Chuyển hướng rồi mẹ ạ, giờ chỉ chuyên làm hàng bán trên Taobao thôi."
 
-Trần Trạch lộ vẻ buồn bực: "Cả Lưu Sấm Phong lẫn Cốc Siêu Thừa ở phòng ký túc xá của con đều đặt hàng từ chỗ đó."
+Trần Trạch lộ vẻ chán nản: "Lưu Sấm Phong với Cốc Siêu Thừa ở phòng con đều đặt hàng ở đấy cả."
 
 "Thế còn Kim An?"
 
-"Mẹ, mẹ hỏi cậu ta làm gì?"
+"Mẹ, mẹ hỏi anh ta làm gì?"
 
-Trần Trạch càng thêm bực bội: "Với lại, sao mẹ lại gọi cậu ta thân mật là Kim An thế?"
+Trần Trạch càng thêm bực bội: "Với lại, sao mẹ gọi anh ta là Kim An thân mật thế?"
 
 "..."
 
-Tim Dương Thục Mỹ thắt lại một nhịp, vội nói lảng: "Con có thù oán gì với nó à? Mạn Mạn là do tự con đánh mất, còn con bé Lâm Thanh Tuyết kia..."
+Lòng Dương Thù Mỹ thắt lại: "Con có thù oán gì với nó à? Mạn Mạn là do tự con làm mất, còn con bé Lâm Thanh Tuyết kia..."
 
-"Mẹ! Lâm Thanh Tuyết là do người lớn ngăn cản! Chứ không phải tại con làm mất!"
+"Mẹ, chuyện Lâm Thanh Tuyết là do bố mẹ ngăn cản! Không phải do con tự làm mất!"
 
-Nhắc đến chuyện này, Trần Trạch liền lớn tiếng cãi lại, xem như nói đúng được một nửa. Thực chất, nguyên nhân chính khiến Lâm Thanh Tuyết và Trần Trạch chia tay không hẳn do Dương Thục Mỹ, mà là vì Trần Trạch quá thiếu bản lĩnh gánh vác.
+Lần này Trần Trạch có cớ để cãi lại, mà kể ra cũng đúng được một nửa.
 
-"Tập trung lo làm việc cho tốt đi, đến tuổi phải biết suy nghĩ rồi. Đừng để Lâm Thanh Tuyết vượt mặt, kẻo con bé lại càng coi thường con hơn."
+Nguyên nhân chính khiến Lâm Thanh Tuyết chia tay Trần Trạch không phải do Dương Thù Mỹ, mà là vì Trần Trạch quá thiếu bản lĩnh, chẳng có chút trách nhiệm nào.
 
-"Mẹ, con biết rồi mà, chẳng phải vẫn còn có mẹ ở đây sao?"
+"Lo mà làm việc cho đàng hoàng đi, phải biết điều hơn nữa, đừng để bị Lâm Thanh Tuyết vượt mặt, kẻo nó lại càng khinh thường con."
 
-Trần Trạch đã vui vẻ, cởi mở hơn trước rất nhiều. Đây có lẽ chính là sự trưởng thành mà Dương Thục Mỹ thường nhắc tới. Khi nền kinh tế toàn cầu dần hồi phục, xưởng may nhà họ Trần cũng túc tắc nhận được các đơn hàng mới, Trần Trạch lại bắt đầu phì phèo những điếu thuốc Phù Dung Xanh quen thuộc.
+"Mẹ, con biết rồi, chẳng phải vẫn còn có mẹ sao?"
 
-Có tiền trong tay, một chàng trai hai mươi hai tuổi như Trần Trạch chẳng bao giờ sợ thiếu bạn gái. Thầy quản nhiệm Lưu Huy từng bảo cậu ta không biết trân trọng những gì mình có, nhưng thử hỏi ở cái tuổi hăm hai, chưa bước chân ra khỏi cánh cổng trường đại học, được mấy ai đã thấu tỏ hai chữ "trân trọng"?
+Trần Trạch đã phấn chấn hơn nhiều. Có lẽ đây chính là cái gọi là "trải nghiệm trưởng thành" mà Dương Thù Mỹ từng nhắc tới. Kinh tế toàn cầu đang dần phục hồi, nhà máy lục tục nhận được đơn hàng, Trần Trạch lại rít điếu thuốc Lam Phù như trước.
 
-Nếu ai nấy đều biết trân trọng, thì cuộc đời này đâu có nhiều điều nuối tiếc đến vậy.
+Có tiền rồi, chàng trai hai mươi hai tuổi như Trần Trạch chẳng sợ không tìm được bạn gái.
 
-Sắc mặt Dương Thục Mỹ dạo này hồng hào hơn hẳn, vóc dáng đẫy đà, nở nang đã dần lấy lại vẻ mặn mà. Ngồi lâu một chỗ, bà lại theo thói quen khẽ kéo ống quần lên một chút. Mỗi khi đụng đến chuyện của Triệu Kim An, Dương Thục Mỹ lại không dám nhìn thẳng vào mắt con trai.
+Thầy phụ đạo Lưu Huy từng mắng cậu ta không biết trân trọng, nhưng ở tuổi hai mươi hai chưa tốt nghiệp đại học, mấy ai thực sự biết thế nào là trân trọng cơ chứ.
 
-Bất luận giữa hai người đã thực sự xảy ra chuyện gì hay chưa, Triệu Kim An và Trần Trạch vẫn là bạn cùng phòng đại học. Chính Dương Thục Mỹ đã tự mình tìm đến tận cửa, buông lời cam kết, tự tay xé toạc tấm màn thân phận "dì Mỹ" đứng đắn bấy lâu.
+Nếu ai cũng biết trân trọng ngay từ đầu, thì trên đời đã chẳng có nhiều nuối tiếc đến thế.
 
-Nói cho khó nghe một chút, chẳng lẽ mình chỉ là một món đồ chơi giải khuây sao?
+Sắc mặt Dương Thù Mỹ hồng hào hẳn lên, vóc dáng cũng đầy đặn trở lại, ngồi lâu một chút là lại phải kéo nhẹ gấu quần. Riêng chuyện liên quan đến Triệu Kim An, Dương Thù Mỹ không dám nhìn thẳng vào mặt con trai.
 
-...
+Bất luận giữa hai người đã xảy ra chuyện gì hay chưa, Triệu Kim An vẫn là bạn cùng phòng đại học của Trần Trạch. Chính Dương Thù Mỹ là người tự tìm đến cửa, đích thân hứa hẹn, tự tay xé bỏ lớp vỏ bọc "cô, dì" của mình.
 
-Bên bờ nước Úc xa xôi.
+Nói khó nghe một chút, chẳng khác nào món đồ chơi?
 
-Triệu Kim An đang nghịch ngợm chiếc điện thoại trên tay, đoạn liếc mắt sang nhìn Quan Văn Bách ngồi bên cạnh.
+Nước Úc.
 
-"Sếp."
+Triệu Kim An xoay xoay chiếc điện thoại trên tay, liếc nhìn Quan Văn Bách đứng bên cạnh.
 
-Triệu Kim An tính toán thời gian, nhắm mắt điều hòa lại nhịp thở rồi bình thản dặn dò: "Anh về nước đi..."
+"Ông chủ."
 
-"Tôi hiểu rồi, thưa sếp."
+Triệu Kim An nhẩm tính thời gian, nhắm mắt điều chỉnh lại nhịp thở rồi trở về vẻ điềm tĩnh thường ngày: "Anh về nước đi..."
 
-Quan Văn Bách gật đầu, lập tức đặt vé máy bay trong ngày để bay thẳng về Thượng Hải.
+"Rõ rồi, ông chủ."
 
-Hiện trường đấu thầu tại Úc lúc này vô cùng náo nhiệt, có tới mười hai doanh nghiệp cùng tham gia bỏ giá.
+Quan Văn Bách gật đầu, lập tức đặt vé máy bay ngay trong ngày để bay thẳng về Thượng Hải.
 
-Mọi ánh mắt đều đổ dồn về hai gã khổng lồ BHP Billiton và Trung Lữ (Chinalco) — đây là hai bên có tiềm lực tài chính hùng hậu nhất. Đáng lẽ ra còn có cả Rio Tinto, nhưng tập đoàn này vừa mới thoát khỏi bờ vực phá sản nên khó lòng theo kịp.
+Ở Úc lúc này đang vô cùng náo nhiệt, có tới mười hai công ty tham gia bỏ thầu.
 
-Con số 4,5 tỷ USD không phải là thứ mà bất kỳ doanh nghiệp nào cũng có thể móc hầu bao chi trả.
+Tất cả mọi người đều dồn sự chú ý vào BHP Billiton và Chinalco (Trung Nhôm), hai cái tên có thực lực tài chính hùng hậu nhất.
 
-Dường như các bên đều ngầm hiểu với nhau một điều: Dưới mức 4,5 tỷ USD thì đừng mong mơ tưởng đến mỏ quặng này.
+Vốn dĩ còn có Rio Tinto, nhưng tập đoàn này vừa mới được kéo lại từ bên bờ vực phá sản.
 
-Trung Lữ còn nắm trong tay một lợi thế chí mạng: Thị trường nội địa khổng lồ của Trung Quốc — quốc gia luôn là bên có nhu cầu và lượng nhập khẩu quặng sắt lớn nhất thế giới.
+Bốn tỷ rưỡi đô la Mỹ không phải công ty nào cũng đủ sức móc hầu bao ra được.
 
-Triệu Kim An xắn tay áo, bày ra bộ dạng muốn "đơn thương độc mã" tranh đoạt đến cùng. La Kiến Thành và Hùng tổng thừa biết Triệu Kim An chỉ đang phô trương thanh thế, nhưng họ lại chẳng dám chắc liệu chàng thanh niên hai mươi mốt tuổi này có nổi cơn điên thật hay không.
+Dường như các bên đều ngầm đạt được nhận thức chung: dưới mức 4,5 tỷ đô thì đừng hòng mơ tưởng.
 
-Đó chính là cái lợi thế của tuổi trẻ.
+Trung Nhôm còn nắm một lợi thế lớn: thị trường nội địa.
 
-Người trẻ tuổi thường chẳng màng nghĩ ngợi quá nhiều đến hậu quả, mà những kẻ lão luyện trên thương trường lại hay gọi lớp trẻ ấy bằng cái danh "ngựa non háu đá".
+Đông Đại xưa nay vẫn là quốc gia có nhu cầu tiêu thụ và nhập khẩu quặng sắt lớn nhất thế giới.
 
-Cảng vụ Hoàn Vũ là bên đầu tiên tung ra mức giá mới: 5,0 tỷ USD!
+Triệu Kim An xắn tay áo lên, bày ra bộ dạng như thể muốn "đơn thương độc mã" đấu tới cùng. La Kiến Thành và Hùng tổng biết thừa Triệu Kim An đang đánh đòn tâm lý, nhưng lại chẳng dám chắc chàng trai hai mươi mốt tuổi này có thật sự nổi điên lên làm liều hay không.
 
-"Cậu Triệu điên rồi sao? Cậu ta lấy đâu ra ngần ấy tiền? Cậu ta định chơi thật đấy à!?"
+Đó chính là cái lợi của tuổi trẻ.
 
-La Kiến Thành vừa nhận được tin tức liền giật mình, muốn nhấc máy gọi ngay cho Tô Minh Tùng.
+Người trẻ tuổi thường chẳng màng đến hậu quả, đám người lão luyện bọn họ rất thích gọi kiểu người trẻ như thế là "ngựa non háu đá".
 
-Các người không quản nổi người của mình sao?
+Hoàn Vũ Cảng Vụ là bên đầu tiên đưa ra mức giá: 5 tỷ đô la Mỹ!
 
-Sang tận nước Úc làm càn, phá vỡ toàn bộ toan tính của chúng tôi!
+"Triệu tổng điên rồi sao? Cậu ta có nhiều tiền thế à? Cậu ta chơi thật đấy hả?!"
 
-Cuối cùng, La Kiến Thành vẫn phải gọi điện về nước bàn bạc với Hùng tổng, bởi chẳng ai đoán trước được Triệu Kim An sẽ còn đẩy giá lên tới mức nào.
+La Kiến Thành vừa nhận được tin đã suýt nữa gọi điện thẳng cho Tô Minh Tùng.
 
-"Cảng vụ Hoàn Vũ này rốt cuộc là từ đâu chui ra vậy?"
+Ông không quản nổi người của mình à?
 
-Các tập đoàn quốc tế đều ngơ ngác, không ngờ giữa đường lại nhảy ra một kẻ liều mạng như thế. Ngay cả BHP Billiton và Rio Tinto cũng bắt đầu dồn sự chú ý vào cái tên "vô danh tiểu tốt" Cảng vụ Hoàn Vũ.
+Sang tận nước Úc làm càn, phá hỏng hết bố cục của chúng ta rồi!
 
-Bất kể có giành được mỏ Kinh Bối Sơn (Whaleback) hay không, cái tên Cảng vụ Hoàn Vũ đã vang danh khắp giới khai khoáng.
+Cuối cùng La Kiến Thành vẫn gọi về nước bàn bạc với Hùng tổng, ai mà biết được Triệu Kim An sẽ còn đẩy giá lên tới mức nào nữa?
 
-Sau một hồi dò la tin tức, mọi người mới vỡ lẽ, lộ vẻ mặt bừng tỉnh: Hóa ra là vậy.
+"Hoàn Vũ Cảng Vụ là thế lực nào thế?"
 
-Chẳng trách dám vung ra 3,5 tỷ USD thâu tóm cảng Piraeus, thì ra cùng một phe cánh với Trung Lữ.
+Tất cả mọi người đều có chút ngơ ngác, bỗng đâu mọc ra một kẻ ngáng đường, ngay cả BHP Billiton lẫn Rio Tinto cũng bắt đầu phải để mắt tới cái tên Hoàn Vũ Cảng Vụ "vô danh tiểu tốt" này.
 
-Nhưng ngặt nỗi, Cảng vụ Hoàn Vũ ở Trung Quốc lại là một doanh nghiệp tư nhân cơ mà!
+Bất luận có thâu tóm được mỏ Kình Bối Sơn hay không, ít nhất cái tên Hoàn Vũ Cảng Vụ đã khắc sâu vào tâm trí giới tài phiệt.
 
-Dư Tĩnh và Nhan Hi vì đã hiểu rõ nội tình nên tỏ ra vô cùng bình thản.
+Sau khi dò hỏi kỹ lưỡng, đám đông đồng loạt lộ vẻ bừng tỉnh: thì ra là thế.
 
-Còn giáo sư Lương và giáo sư Lục thì chết sững hồi lâu.
+Thảo nào dám chi tới 3,5 tỷ đô la Mỹ để thâu tóm cảng Piraeus (Tỷ Cảng), đi chung một con đường với Trung Nhôm.
 
-"Hừm, cậu Triệu này quả thực có khí phách."
+Nhưng Hoàn Vũ Cảng Vụ ở Đông Đại lại là doanh nghiệp tư nhân cơ mà!
 
-"Đẩy thẳng một mạch lên mốc 5 tỷ USD làm giá khởi điểm."
+Dư Tĩnh và Nhan Hi biết rõ nội tình nên giữ thái độ vô cùng điềm tĩnh.
 
-Đặc biệt là nhóm nghiên cứu sinh và tiến sĩ như Dương Tuệ Quỳnh, 5 tỷ USD quy đổi ra Nhân dân tệ là con số thiên văn cỡ nào chứ? Đến lúc này họ mới thực sự nhận ra khoảng cách vời vợi giữa mình và Triệu Kim An — một bên là ông chủ thao túng đại cục, còn bản thân chỉ là những kẻ làm công ăn lương, nói trắng ra chỉ là mối quan hệ thuê mướn.
+Còn Giáo sư Lương và Giáo sư Lục thì sững sờ mất một hồi lâu.
 
-Tại phòng khách sạn, Triệu Kim An châm một điếu thuốc, ngồi đối diện với màn hình máy tính. Thực lòng trong bụng cậu cũng đang run rẩy không thôi. Đã nộp 30 triệu USD tiền ký quỹ, trong khi tài khoản chứng khoán Mỹ của cậu hiện chỉ còn khoảng 2,8 tỷ USD.
+"Hờ, Triệu tổng đúng là có bản lĩnh thật đấy."
 
-Nếu lỡ phiên đấu giá thành công mà cậu không thể móc ra đủ tiền, thì 30 triệu USD tiền cọc này sẽ tan thành mây khói.
+"Mở màn đã đẩy thẳng mức khởi điểm lên 5 tỷ đô la Mỹ."
 
-Thẩm Tử Ngôn bưng một tách trà ấm bước tới.
+Đặc biệt là nhóm nghiên cứu sinh, tiến sĩ như Dương Tuệ Quỳnh — 5 tỷ đô la Mỹ quy đổi ra Nhân dân tệ là bao nhiêu tiền cơ chứ?
 
-Triệu Kim An lập tức tắt phần mềm tài chính đi.
+Lúc này họ mới thực sự nhận ra khoảng cách giữa mình và Triệu Kim An: một người là ông chủ tối cao, còn họ chỉ là người làm công ăn lương theo dự án, nói trắng ra chỉ là quan hệ thuê mướn.
 
-Điều này không phải vì cậu muốn đề phòng Thẩm Tử Ngôn, bởi ngay cả Tô Miến cậu cũng chưa từng tiết lộ nửa lời. Ngoại trừ bí mật chuyển sinh và dòng tiền chứng khoán Mỹ, cậu gần như chẳng giấu giếm cô điều gì khác.
+Trong phòng khách sạn, Triệu Kim An ngồi trước màn hình máy tính, châm một điếu thuốc. Kỳ thực trong lòng anh cũng đang đánh trống ngực liên hồi; anh mới nộp 30 triệu đô tiền đặt cọc, còn tài khoản chứng khoán Mỹ chỉ có 2,8 tỷ đô la Mỹ.
+
+Nếu thực sự chốt đơn mà không xoay đủ tiền thanh toán, 30 triệu đô tiền cọc kia coi như mất trắng.
+
+Thẩm Tử Ngôn bưng tới một tách trà.
+
+Triệu Kim An gập màn hình phần mềm lại.
+
+Chuyện này không phải anh đề phòng Thẩm Tử Ngôn, ngay cả Tô Miến anh cũng chưa từng hé răng nói.
+
+Ngoài chuyện đó ra, cơ bản anh chẳng còn bí mật gì với cô.
 
 "Sợ rồi à?"
 
-Thẩm Tử Ngôn khẽ cười trêu: "Lỡ như không ai ra giá cao hơn nữa thì coi như mua đứt luôn đấy. Khi đó không chỉ là chuyện mất 30 triệu tiền cọc đâu, mà sau này Cảng vụ Hoàn Vũ muốn mua thứ gì khác cũng khó mà ra giá được..."
+Thẩm Tử Ngôn bật cười: "Lỡ không có ai trả giá cao hơn thì coi như chốt kèo luôn đấy. Lúc đó không chỉ là vấn đề mất 30 triệu tiền cọc đâu, mà sau này Hoàn Vũ Cảng Vụ muốn mua gì cũng khó mà trả giá được nữa..."
 
-"Trông em có vẻ vui nhỉ?"
+"Xem ra em vui lắm nhỉ."
 
-"Chẳng có gì phải sợ cả. Cho dù mức giá 5 tỷ USD có thể chịu lỗ đôi chút, nhưng cũng chẳng lỗ bao nhiêu. Cùng lắm thì bán chiết khấu một phần cổ phần ra ngoài, chuyện nhỏ thôi mà."
+"Có gì mà phải sợ, dẫu mức giá 5 tỷ đô có lỗ đi chăng nữa thì cũng chẳng lỗ bao nhiêu, cùng lắm bán chiết khấu bớt một phần cổ phần ra ngoài là xong, chuyện nhỏ thôi."
 
-Một khi quyết định đã được đưa ra, Thẩm Tử Ngôn sẽ không bao giờ bàn lùi hay tranh cãi xem nó đúng hay sai nữa, bởi điều đó hoàn toàn vô nghĩa.
+Quyết định đã đưa ra rồi, Thẩm Tử Ngôn sẽ không bao giờ bàn luận lại xem đúng hay sai, làm thế chẳng có ý nghĩa gì.
 
-Quả nhiên, hai ngày sau, Rio Tinto bất ngờ đưa ra mức giá mới: 5,08 tỷ USD.
+Kết quả hai ngày sau, Rio Tinto bất ngờ đưa ra mức giá mới: 5,08 tỷ đô la Mỹ.
 
-Trung Lữ cũng lập tức bám đuổi: 5,1 tỷ USD.
+Trung Nhôm cũng lập tức ra giá: 5,1 tỷ đô la Mỹ.
 
-Thêm một ngày nữa trôi qua, BHP Billiton nâng mức giá lên 5,2 tỷ USD.
+Qua thêm một ngày nữa, BHP Billiton nâng giá lên 5,2 tỷ đô la Mỹ.
 
-Nhan Hi, với tư cách là đại diện của Cảng vụ Hoàn Vũ, dõng dạc xướng giá: 5,3 tỷ USD!
+Nhan Hi với tư cách đại diện của Hoàn Vũ Cảng Vụ bình thản báo giá: 5,3 tỷ đô la Mỹ.
 
-Điên thật rồi!
+Điên hết rồi!
 
-Các người đang đùa giỡn với tiền đấy à?
+Các người đang nói chuyện bằng tiền thật đấy à?
 
-Nên nhớ rằng, cứ 100 triệu USD tương đương với 750 triệu Nhân dân tệ!
+Một trăm triệu đô la Mỹ tương đương với 750 triệu Nhân dân tệ đấy!

@@ -1,7 +1,5 @@
 # Chương 538: Một ngày đặc biệt
 
-> **Tiêu đề gốc**: 第538章 特殊的日子。
-
 "..."
 
 Từ Mạn Mạn khẽ quay người đưa mắt nhìn Triệu Kim An. Màn hình chiếc điện thoại đặt trên bàn trà cứ chớp sáng liên hồi không dứt, Triệu Kim An liếc mắt nhìn qua một lượt nhưng tuyệt nhiên chẳng buồn nhấc máy cuộc nào. Cực chẳng đã, Từ Mạn Mạn đành phải cầm lấy nghe máy, dẫu sao cũng không thể để cả hai người cùng lúc bặt vô âm tín được.
@@ -64,21 +62,21 @@ Tại một vùng quê nông thôn xa xôi, tiếng pháo nổ đì đùng rộn
 
 Vốn dĩ chuyện này chẳng có gì to tát cả.
 
-Bình thường mấy người bọn họ cũng chẳng ưa thích gì con bé Tống Gia Nguyệt. Thế nhưng thấy Tống Gia Nguyệt Tết nhất thực sự không thèm bước chân về nhà, mấy người thím dâu và hai người cô lại bóng gió gặng hỏi, còn ông bà nội thì ra sức trách móc Đoàn Thu Bình tại sao lại không dắt cháu gái về quê sum họp.
+Bình thường mấy người bọn họ cũng chẳng ưa thích gì con bé Tống Gia Nguyệt. Thế nhưng thấy Tống Gia Nguyệt Tết nhất thực sự không thèm bước chân về nhà, mấy người thím dâu và hai người cô lại bóng gió gặng hỏi, còn ông bà nội thì ra sức trách móc Đoạn Thu Bình tại sao lại không dắt cháu gái về quê sum họp.
 
 Làm gì có cái thói đời Tết đến xuân về lại chạy tót sang nhà thằng anh trai cùng mẹ khác cha cơ chứ?
 
 "Đã gọi được chưa thế?"
 
-Chiếc điện thoại của Từ Mạn Mạn cứ bận suốt từ nãy tới giờ, Tống Siêu Văn sốt ruột đứng ngồi không yên cất tiếng hỏi. Dù sao đi nữa cũng là giọt máu của mình, Tống Siêu Văn chỉ canh cánh nỗi lo Tống Gia Nguyệt sẽ nhớ nhà, tủi thân. Điều ông sợ nhất chính là Từ Mạn Mạn ngoài mặt tỏ ra lạnh nhạt, hà khắc với con bé; sợ cô trước mặt Triệu Kim An và Đoàn Thu Bình thì đon đả thảo mai, nhưng hễ Triệu Kim An vừa quay lưng đi là Từ Mạn Mạn liền buông lời cay nghiệt xua đuổi.
+Chiếc điện thoại của Từ Mạn Mạn cứ bận suốt từ nãy tới giờ, Tống Siêu Văn sốt ruột đứng ngồi không yên cất tiếng hỏi. Dù sao đi nữa cũng là giọt máu của mình, Tống Siêu Văn chỉ canh cánh nỗi lo Tống Gia Nguyệt sẽ nhớ nhà, tủi thân. Điều ông sợ nhất chính là Từ Mạn Mạn ngoài mặt tỏ ra lạnh nhạt, hà khắc với con bé; sợ cô trước mặt Triệu Kim An và Đoạn Thu Bình thì đon đả thảo mai, nhưng hễ Triệu Kim An vừa quay lưng đi là Từ Mạn Mạn liền buông lời cay nghiệt xua đuổi.
 
 "Được rồi, Mạn Mạn gọi video sang đây rồi này!"
 
-Đoàn Thu Bình hai tay nâng niu chiếc điện thoại, mừng rỡ cất tiếng.
+Đoạn Thu Bình hai tay nâng niu chiếc điện thoại, mừng rỡ cất tiếng.
 
 "Mau đưa xem nào! Con bé Uyển Hòa chẳng phải bảo anh trai của Tiểu Nguyệt là đại tỷ phú nghìn tỷ đấy sao?"
 
-Hai người cô và bà thím dâu tò mò xúm xít lại gần. Tống Uyển Hòa cũng vô cùng tò mò muốn mục sở thị xem cơ ngơi nhà Triệu Kim An rốt cuộc tráng lệ đến nhường nào. Mấy người phụ nữ xúm quanh chiếc điện thoại iPhone thời thượng - món quà đắt giá mà Từ Mạn Mạn đã mua tặng Đoàn Thu Bình trước đó.
+Hai người cô và bà thím dâu tò mò xúm xít lại gần. Tống Uyển Hòa cũng vô cùng tò mò muốn mục sở thị xem cơ ngơi nhà Triệu Kim An rốt cuộc tráng lệ đến nhường nào. Mấy người phụ nữ xúm quanh chiếc điện thoại iPhone thời thượng - món quà đắt giá mà Từ Mạn Mạn đã mua tặng Đoạn Thu Bình trước đó.
 
 "Tiểu Nguyệt à, bên nhà anh trai cháu đã ăn cơm tất niên chưa?"
 
@@ -96,7 +94,7 @@ Bà thím lớn tiếng cất giọng cật vấn qua màn hình.
 
 Tống Gia Nguyệt buông hờ chiếc điện thoại sang một bên.
 
-Đoàn Thu Bình thì tuyệt nhiên chẳng hề lo lắng chuyện có ai bạc đãi con gái rượu của mình, bà chỉ sốt sắng dồn dập hỏi: "Tiểu Nguyệt ơi, cho mẹ nhìn bé Nặc Nặc một chút nào con!"
+Đoạn Thu Bình thì tuyệt nhiên chẳng hề lo lắng chuyện có ai bạc đãi con gái rượu của mình, bà chỉ sốt sắng dồn dập hỏi: "Tiểu Nguyệt ơi, cho mẹ nhìn bé Nặc Nặc một chút nào con!"
 
 "Mẹ ơi, bé Nặc Nặc ngoan nhất trần đời luôn đấy!"
 
@@ -106,7 +104,7 @@ Tống Gia Nguyệt cầm điện thoại chĩa về phía chiếc xe đồ chơ
 
 Tất cả những người đang vây quanh ở đầu dây bên kia đều sững sờ chết lặng. Trong tầm mắt của họ chỉ hiện lên một không gian tráng lệ, rộng lớn đến mức không tưởng.
 
-Đoàn Thu Bình ngơ ngác hỏi dồn: "Tiểu Nguyệt, anh trai con lại đổi nhà mới nữa rồi à?"
+Đoạn Thu Bình ngơ ngác hỏi dồn: "Tiểu Nguyệt, anh trai con lại đổi nhà mới nữa rồi à?"
 
 "Vâng ạ, mẹ nhìn này."
 
@@ -118,7 +116,7 @@ Câu hỏi này thì con bé Tống Gia Nguyệt chịu chết, không thể nà
 
 "Tiểu Nguyệt, bé Nặc Nặc đang ăn cái gì đấy con?"
 
-Đoàn Thu Bình khao khát được nhìn ngắm đứa cháu gái nội đến cồn cào ruột gan. Tống Gia Nguyệt chĩa ống kính máy quay về phía Triệu Tri Nặc, ngọt ngào khoe: "Mẹ ơi, Nặc Nặc đang ăn bánh bao ạ."
+Đoạn Thu Bình khao khát được nhìn ngắm đứa cháu gái nội đến cồn cào ruột gan. Tống Gia Nguyệt chĩa ống kính máy quay về phía Triệu Tri Nặc, ngọt ngào khoe: "Mẹ ơi, Nặc Nặc đang ăn bánh bao ạ."
 
 Bé Triệu Tri Nặc ngồi bệt trên sàn thảm êm ái, một tay thoăn thoắt moi từng mẩu nhân thịt trong chiếc bánh bao nhét tọt vào miệng nhai ngon lành.
 
@@ -142,11 +140,11 @@ Tống Gia Nguyệt chạy tót lại bàn trà, chĩa camera vào xấp bao lì
 
 "Tiểu Nguyệt à, con với bé Nặc Nặc mặc phong phanh mỏng manh thế kia không thấy lạnh à con?"
 
-Rốt cuộc vừa mang tâm thế của một người mẹ vừa là một người bà nội, góc nhìn quan tâm của Đoàn Thu Bình hoàn toàn khác biệt: "Nặc Nặc ngồi bệt dưới sàn thế kia khéo lạnh mông đấy con."
+Rốt cuộc vừa mang tâm thế của một người mẹ vừa là một người bà nội, góc nhìn quan tâm của Đoạn Thu Bình hoàn toàn khác biệt: "Nặc Nặc ngồi bệt dưới sàn thế kia khéo lạnh mông đấy con."
 
 "Trong nhà có điều hòa với cả hệ thống sưởi sàn ấm áp lắm mẹ ơi, ngồi bệt dưới sàn nhà ấm sực luôn."
 
-"Nặc Nặc ngoan, gọi bà nội đi con." Đoàn Thu Bình ân cần dỗ dành qua màn hình điện thoại.
+"Nặc Nặc ngoan, gọi bà nội đi con." Đoạn Thu Bình ân cần dỗ dành qua màn hình điện thoại.
 
 Bé Triệu Tri Nặc ngước đôi mắt to tròn nhìn màn hình một cái, rồi lại tiếp tục cắm cúi chăm chỉ moi nhân bánh bao ăn.
 
@@ -154,7 +152,7 @@ Bé Triệu Tri Nặc ngước đôi mắt to tròn nhìn màn hình một cái,
 
 Đó là tiếng dặn dò của Từ Mạn Mạn vang lên từ đằng xa.
 
-Chiếc bánh bao bỗng chốc bị lấy mất, Triệu Tri Nặc liền mếu máo cái miệng nhỏ, nhưng con bé tuyệt nhiên không hề khóc lóc giãy giụa. Ở đầu dây bên kia, Đoàn Thu Bình nhìn thấy mà xót xa thắt cả ruột gan:
+Chiếc bánh bao bỗng chốc bị lấy mất, Triệu Tri Nặc liền mếu máo cái miệng nhỏ, nhưng con bé tuyệt nhiên không hề khóc lóc giãy giụa. Ở đầu dây bên kia, Đoạn Thu Bình nhìn thấy mà xót xa thắt cả ruột gan:
 
 "Nặc Nặc ngoan của bà đừng khóc nhé."
 
@@ -166,7 +164,7 @@ Tống Siêu Văn nhìn con gái rượu ở bên nhà anh trai vui vẻ, rạng
 
 Lúc này, tất cả mọi người bên nhà họ Tống đều dán chặt mắt vào màn hình, tò mò về người anh trai danh tiếng lẫy lừng của Tống Gia Nguyệt.
 
-Hay nói đúng hơn, chính là đứa con trai ruột thịt mà Đoàn Thu Bình đã dứt ruột đẻ ra năm nào.
+Hay nói đúng hơn, chính là đứa con trai ruột thịt mà Đoạn Thu Bình đã dứt ruột đẻ ra năm nào.
 
 "Chị dâu bảo không được chĩa máy quay vào người khác ạ."
 
@@ -182,7 +180,7 @@ Cô ta mới chính là người chị gái ruột cùng cha cùng mẹ thân th
 
 "Mũ của Nặc Nặc có tới mấy chục chiếc lận, cái này là mũ hình con voi này, hi hi, mẹ nhìn xem, cái vòi dài ngoằng ngộ nghĩnh chưa."
 
-Tống Gia Nguyệt tuổi còn quá nhỏ, chẳng thể nào thấu hiểu nổi thứ tâm lý so đo phức tạp của người lớn, càng không hiểu tại sao họ lại đưa ra lắm câu hỏi kỳ quặc đến thế. Cô bé cứ vô tư cầm điện thoại khoe khoang "gia tài đồ sộ" của đứa cháu gái Triệu Tri Nặc. Chỉ có mỗi Đoàn Thu Bình là say sưa, hồ hởi chuyện trò ríu rít cùng con gái.
+Tống Gia Nguyệt tuổi còn quá nhỏ, chẳng thể nào thấu hiểu nổi thứ tâm lý so đo phức tạp của người lớn, càng không hiểu tại sao họ lại đưa ra lắm câu hỏi kỳ quặc đến thế. Cô bé cứ vô tư cầm điện thoại khoe khoang "gia tài đồ sộ" của đứa cháu gái Triệu Tri Nặc. Chỉ có mỗi Đoạn Thu Bình là say sưa, hồ hởi chuyện trò ríu rít cùng con gái.
 
 Còn những người khác trong gian nhà họ Tống ở quê, trong lòng lúc này dâng lên một cảm giác ngổn ngang, chua xót khôn tả.
 
@@ -200,7 +198,7 @@ Con bé Tiểu Nguyệt sang bên nhà anh trai nó... rốt cuộc là đang s�
 
 "Chúc bà năm mới bình an." Triệu Kim An ngập ngừng một lát rồi vẫn cất tiếng hỏi: "Bà ăn Tết ở đâu?"
 
-"Tôi... tôi ăn Tết ở..." Đoàn Thu Bình ngắc ngứ chưa kịp trả lời trọn câu, thì Tống Gia Nguyệt ngây thơ đã nhanh nhảu mách: "Anh ơi, mẹ ăn Tết ở nhà ông nội em, năm nào nhà em cũng về quê nội ăn Tết cả."
+"Tôi... tôi ăn Tết ở..." Đoạn Thu Bình ngắc ngứ chưa kịp trả lời trọn câu, thì Tống Gia Nguyệt ngây thơ đã nhanh nhảu mách: "Anh ơi, mẹ ăn Tết ở nhà ông nội em, năm nào nhà em cũng về quê nội ăn Tết cả."
 
 "Ừm."
 

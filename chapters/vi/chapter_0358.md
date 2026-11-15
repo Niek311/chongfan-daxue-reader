@@ -1,279 +1,277 @@
-# ﻿Chương 358: Người mà ai cũng ngại nhắc đến đã tới (2)
+# Chương 358: Người Mà Ai Cũng Né Tránh Đã Đến (2)
 
-> **Tiêu đề gốc**: 第358章 避而不谈的人来了，2
+“Đến rồi.”
 
-"Đến rồi."
+Triệu Kim An bế Tô Miến bước ra khỏi thang máy, Vương Duy Đào đẩy xe lăn, Đường Hiểu Tình và Ngô Hiểu xách hành lý theo sau.
 
-Triệu Kim An bế Tô Miên ra khỏi thang máy, Vương Duy Thao đẩy xe lăn theo sau, Đường Hiểu Tình và Ngô Hiểu xách hành lý.
+Nghe tiếng thang máy mở, Du Phi bước ra đón: “Tô Miến!”
 
-Nghe tiếng thang máy, Dư Phi chạy ra: "Tô Miên!"
-
-"Sao mọi người kéo nhau đến hết thế này?"
+“Sao mọi người đều tới hết thế này?”
 
 Triệu Kim An hỏi.
 
-Đường Hiểu Tình giơ tay: "Em gọi điện."
+Đường Hiểu Tình giơ tay lên: “Tớ gọi điện đấy.”
 
-Lưu Mỹ Nga đứng một bên quan sát Tô Miên. Lúc thông tin mới lan ra, biết Tô Miên phải ngồi xe lăn, Lưu Mỹ Nga còn không tin — giờ thì tin rồi. Cô không biết Tô Miên ở lại bao lâu, mà với cái thể trạng của mình, cô cũng chăm sóc không nổi cho người ta.
+Lưu Mỹ Nga đứng bên cạnh lặng lẽ quan sát Tô Miến. Hồi mới lộ tin Tô Miến phải ngồi xe lăn, bà vẫn bán tín bán nghi; giờ tận mắt thấy rồi mới tin là thật. Bà không biết Tô Miến định ở lại bao lâu, với sức vóc hiện giờ của bà thì cũng chẳng chăm sóc nổi cho cô.
 
-Đường Hiểu Tình chạy vào phòng chính mở vòi bồn tắm.
+Đường Hiểu Tình chạy vào phòng ngủ chính xả nước vào bồn tắm.
 
-Không nói Vương Duy Thao, ngay cả Dư Phi cũng không hiểu nổi.
+Không riêng gì Vương Duy Đào, ngay cả Du Phi nhất thời cũng không tài nào hiểu nổi.
 
-"Tấm lòng của Hiểu Tình rộng thế sao?"
+“Tấm lòng của Tình Tình rộng lượng đến thế cơ à?”
 
-Về lý mà nói, Đường Hiểu Tình và Tô Miên là tình địch — dù trong lòng cô không coi Tô Miên là tình địch, thì cũng chẳng có lý nào lại đi xả nước tắm cho người ta chứ, tự hạ thấp mình quá rồi!
+Tính ra thì Đường Hiểu Tình và Tô Miến là tình địch của nhau. Dù trong lòng Đường Hiểu Tình không coi Tô Miến là tình địch đi chăng nữa, cũng chẳng có lý nào lại đi xả nước tắm cho cô ấy cả; làm vậy chẳng phải quá hạ thấp bản thân sao!
 
-Đặt mình vào vị trí thấp thế không?
+Sao lại tự đặt mình ở vị thế thấp kém đến thế?
 
-Thử nghĩ từ góc độ của người khác, Dư Phi tự hỏi mình không thể làm được như Đường Hiểu Tình.
+Đặt mình vào vị trí đó, Du Phi tự hỏi lòng mình tuyệt đối không thể làm được như Đường Hiểu Tình.
 
-"Ừ, một cô Đường Hiểu Tình như vậy, Kim An không tin tưởng cô ấy thì còn tin ai? Không tăng lương cho cô ấy thì tăng cho ai?"
+“Chà, Đường Hiểu Tình mà như thế này, Kim An không tin tưởng cậu ấy thì còn tin ai nữa? Không tăng lương cho cậu ấy thì tăng cho ai?”
 
-Vương Duy Thao đặt mình vào vị trí Triệu Kim An, đặt mình vào vị trí một người đàn ông — nếu mình là ông chủ công ty, dù Đường Hiểu Tình đòi lương bao nhiêu mình cũng sẵn lòng trả. Vương Duy Thao phục thật sự.
+Vương Duy Đào thử đặt mình vào vị trí của Triệu Kim An, đứng từ góc độ đàn ông mà ngẫm nghĩ: nếu mình là ông chủ công ty, Đường Hiểu Tình đòi mức lương cao đến mấy mình cũng sẵn sàng trả. Vương Duy Đào bái phục sát đất.
 
-"Lý Ái Lan hay Lâm Thanh Tuyết còn kém xa."
+“Lý Ngải Lan với Lâm Thanh Tuyết còn kém xa lắm.”
 
-Anh ta lại lạc vào bếp tìm đồ ăn trong tủ lạnh.
+Cậu ta lại tót vào bếp mở tủ lạnh kiếm đồ ăn.
 
-Phòng tắm.
+Trong phòng tắm.
 
-Lưu Mỹ Nga đóng cửa phòng chính lại, phòng Vương Duy Thao lỡ xộc vào.
+Lưu Mỹ Nga khép cửa phòng ngủ chính lại, đề phòng Vương Duy Đào hấp tấp xông vào.
 
-Đường Hiểu Tình thử nhiệt độ nước, Tô Miên cũng ngạc nhiên không kém. Triệu Kim An nói: "Mấy người vào đây làm gì, một mình anh là đủ."
+Đường Hiểu Tình thử nhiệt độ nước, ngay cả Tô Miến cũng lấy làm bất ngờ. Triệu Kim An bèn bảo: “Mọi người kéo nhau vào đây hết làm gì, một mình tôi là đủ rồi.”
 
-Ngô Hiểu là giúp việc, cô không nói gì, xắn tay áo lên — một người không thể tháo quần áo cho người kia được.
+Ngô Hiểu là bảo mẫu, bà chẳng nói chẳng rằng xắn tay áo lên; thực tế một mình thì rất khó cởi quần áo cho người ngồi xe lăn.
 
-"Kim An, để em giúp anh."
+“Kim An, để tớ giúp cậu.”
 
-Đường Hiểu Tình nói khẽ.
+Đường Hiểu Tình khẽ nói.
 
-"..."
+“...”
 
-Triệu Kim An há miệng định nói — mấy cô đứng đây có gì hay nhìn, Tô Miên cũng là con gái mà. Nhưng lại thôi.
+Triệu Kim An há miệng định bảo mấy cô gái các người ở lại đây thì có gì hay ho mà nhìn, Tô Miến cũng là con gái đấy.
 
-"Kim An, cho Đường Hiểu Tình ở lại đây."
+“Kim An, cứ để Đường Hiểu Tình ở lại đi.”
 
-Tô Miên lên tiếng. Triệu Kim An gật đầu.
+Tô Miến lên tiếng, Triệu Kim An đành gật đầu.
 
-Dư Phi và Ngô Hiểu chỉ còn nước đi ra ngoài.
+Du Phi và Ngô Hiểu đành phải lui ra ngoài.
 
-Đường Hiểu Tình ở lại rồi lại không biết bắt đầu từ đâu. Triệu Kim An bế Tô Miên lên, gọi giật bỏ váy ra.
+Ở lại rồi Đường Hiểu Tình lại lúng túng chẳng biết bắt đầu từ đâu, Triệu Kim An bế Tô Miến lên bảo cô kéo váy xuống giúp anh.
 
-"Ừ."
+“À.”
 
-Đường Hiểu Tình luống cuống, lại tiếp tục giúp tháo giày và tất.
+Đường Hiểu Tình cuống quýt làm theo, rồi lại giúp tháo giày tất.
 
-Mãi đến lúc này, Đường Hiểu Tình mới nhận ra đôi chân của Tô Miên thật sự không còn chút sức lực — không đi được và không còn sức lực là hai việc hoàn toàn khác nhau.
+Mãi đến giây phút này, Đường Hiểu Tình mới nhận ra đôi chân của Tô Miến thực sự không có chút sức lực nào; không đi lại được và hoàn toàn mất lực là hai khái niệm khác hẳn nhau.
 
-Nhìn Triệu Kim An từng cái một giúp Tô Miên cởi quần áo, rồi bế cô vào bồn tắm, Đường Hiểu Tình không biết nói gì, đành tìm chuyện: "Tô Miên, da và vóc dáng của cô đẹp thật."
+Nhìn Triệu Kim An giúp Tô Miến cởi từng món đồ một rồi bế cô vào bồn tắm, Đường Hiểu Tình bèn tìm chuyện nói cho đỡ ngượng: “Tô Miến, làn da và vóc dáng của cậu đẹp thật đấy.”
 
-Tô Miên ngồi trong bồn cười khẽ: "Cậu cười lên trông rất xinh đấy."
+Tô Miến ngồi trong bồn tắm khẽ mỉm cười: “Cậu cười lên trông xinh lắm.”
 
-Đường Hiểu Tình đứng bên bồn tắm, mang sữa tắm ra, ngồi xổm nhìn Tô Miên.
+Đường Hiểu Tình lại lấy chai sữa tắm, ngồi xổm bên cạnh bồn tắm nhìn Tô Miến.
 
-"Kim An, lấy đây."
+“Kim An, đưa cậu này.”
 
-"..."
+“...”
 
-Triệu Kim An quay sang nhìn Đường Hiểu Tình đứng cạnh: "Cô muốn đứng đây nhìn tôi thoa sữa tắm cho cô ấy à?"
+Triệu Kim An quay đầu nhìn Đường Hiểu Tình bên cạnh: “Cậu định đứng xem tớ thoa sữa tắm cho cô ấy à?”
 
-"Ah?"
+“Hả?”
 
-"Cô ra ngoài đi, đừng chiếm lợi thế của tôi."
+“Cậu ra ngoài được rồi đấy, đừng có đứng đây lợi dụng tớ.”
 
-Đường Hiểu Tình sững người: "Em là con gái, nhìn Tô Miên không phải chiếm lợi thế của anh."
+Đường Hiểu Tình ngẩn người ra một giây: “Tớ là con gái, nhìn Tô Miến thì tính là lợi dụng cậu kiểu gì chứ.”
 
-Đúng thật.
+Nói cũng phải.
 
-Triệu Kim An chỉ thắc mắc không hiểu sao Tô Miên lại giữ Đường Hiểu Tình ở lại.
+Triệu Kim An chỉ thắc mắc không hiểu sao Tô Miến lại giữ Đường Hiểu Tình ở lại.
 
-Tối đó Đường Hiểu Tình và Lưu Mỹ Nga ngủ phòng giúp việc, Dư Phi và Ngô Hiểu ngủ phòng khách, Vương Duy Thao ngủ sofa ngoài phòng khách.
+Đêm đó, Đường Hiểu Tình và Lưu Mỹ Nga ngủ ở phòng bảo mẫu, Du Phi và Ngô Hiểu ngủ phòng khách, còn Vương Duy Đào nằm ngoài sofa phòng khách lớn.
 
-Lần này mọi người đều khóa trái cửa phòng.
+Lần này ai nấy đều chốt trái cửa cẩn thận.
 
-Một lần trận mây mưa.
+Quấn quýt xong một trận.
 
-Tô Miên đã mệt không nói nổi.
+Tô Miến mệt đến mức chẳng còn sức mà nói nữa.
 
-Triệu Kim An cố tình vậy — anh ngại Tô Miên hỏi lung tung.
+Triệu Kim An có chút cố tình làm vậy, anh sợ Tô Miến lại hỏi han đủ điều.
 
-Vương Duy Thao muốn chửi thề, lăn sang bên kia trên sofa.
+Ngoài kia, Vương Duy Đào nằm trên sofa muốn chửi thề, lăn qua lộn lại chẳng ngủ được.
 
-"Kim An, anh bắt nạt chị Tô Miên vậy có tốt không, lợi dụng chị ấy không đi được được à!"
+“Kim An, cậu bắt nạt chị Tô Miến thế mà coi được à, ỷ người ta không cử động được chứ gì!”
 
-Phòng bên, Lưu Mỹ Nga và Đường Hiểu Tình cũng nghe loáng thoáng tiếng động.
+Ở phòng bên cạnh, Lưu Mỹ Nga và Đường Hiểu Tình cũng thoáng nghe thấy chút âm thanh.
 
-"Sao lâu thế?"
+“Sao mà lâu thế không biết?”
 
-Đường Hiểu Tình mặt đỏ bừng, rúc đầu vào chăn.
+Đường Hiểu Tình đỏ bừng mặt, kéo chăn trùm kín đầu.
 
-Lưu Mỹ Nga không động đậy, ngồi dậy đi đóng cửa sổ lại, rồi nằm xuống, trằn trọc mãi không ngủ được.
+Lưu Mỹ Nga lặng lẽ đứng dậy đi đóng cửa sổ lại, rồi nằm xuống giường trằn trọc mãi không sao chợp mắt được.
 
-"Nhìn thì thấy ông ấy yên lặng như thế, chuyện này lại..."
+“Ông chủ bình thường nhìn trầm tĩnh thế kia, sao chuyện này lại...”
 
-Nên nói Vương Duy Thao là trai tân chưa từng trải, Đường Hiểu Tình thì còn trẻ — còn Tô Miên và Lưu Mỹ Nga là người từng trải, hai người này khác hoàn toàn.
+Thế mới nói anh chàng tân binh Vương Duy Đào chẳng hiểu sự đời, Đường Hiểu Tình cũng ngây thơ không kém; còn Tô Miến và người từng trải như Lưu Mỹ Nga thì lại khác hẳn.
 
-Tô Miên không hỏi han gì hết. Cô vốn không có thói quen hỏi. Tay cô lần từng sợi râu mới mọc lún phún của Triệu Kim An — người đàn ông của mình có tâm sự, đã thức hai đêm liền trong tiệm net rồi còn đi thêm ra quán bar.
+Tô Miến không hề gặng hỏi Đông Tây, cô không bao giờ hỏi những chuyện như thế. Cô đưa tay khẽ vuốt phần râu mới lún phún trên cằm Triệu Kim An; chàng trai của cô đang có tâm sự, anh đã chơi ở quán net suốt hai đêm liền rồi lại kéo nhau đi quán bar.
 
-"Là ai vậy?"
+“Là ai vậy?”
 
-Triệu Kim An mấy đêm liên tiếp không ngủ được, lúc này gục ngủ mất rồi. Tô Miên vất vả lật nghiêng người, tay chạm nhẹ lên mí mắt Triệu Kim An.
+Triệu Kim An mấy đêm liền không được nghỉ ngơi tử tế nên thiếp đi rất nhanh. Tô Miến khó khăn xoay nghiêng người, đưa tay khẽ chạm lên mí mắt anh.
 
-Thời gian: 02:10.
+2 giờ 10 phút sáng.
 
-"Ting, ting ting..."
+“Tít, tít tít...”
 
-Điện thoại trong phòng 406 thỉnh thoảng lại rung lên tiếng tin nhắn.
+Trong ký túc xá 406, chiếc điện thoại thỉnh thoảng lại vang lên tiếng báo tin nhắn.
 
-Thẩm Tử Ngôn rờ lấy điện thoại liếc qua một cái — cơn buồn ngủ tan biến ngay.
+Thẩm Tử Ngôn lần tay lấy điện thoại liếc nhìn, cơn buồn ngủ lập tức tan biến sạch sẽ.
 
-Khoảng mười phút sau, Thẩm Tử Ngôn cầm điện thoại lên, thản nhiên nói một câu: "Tô Miên đến rồi."
+Khoảng mười phút sau, Thẩm Tử Ngôn giơ điện thoại lên, cất giọng bình thản: “Tô Miến đến rồi.”
 
-Không ai phản ứng.
+Không một ai đáp lời.
 
-Thêm năm phút nữa trôi qua, Thẩm Tử Ngôn nằm thẳng trên giường nói: "Giờ chắc đang ngủ ở nhà Kim An rồi."
+Năm phút nữa trôi qua, Thẩm Tử Ngôn nằm ngửa trên giường nói tiếp: “Giờ này chắc đang ngủ ở nhà Kim An rồi.”
 
-"Tô Miên?"
+“Tô Miến?”
 
-"Tô Miên đến Quận Sa rồi sao!?"
+“Tô Miến tới Quận Sa rồi sao!?”
 
-Diêu Tân choàng ngồi dậy, lại bị bóng người bên giường kế làm giật mình.
+Diêu Sân bật dậy, suýt nữa bị một bóng người ở giường bên cạnh dọa cho hết hồn.
 
-"Ơ, trời... Mạn, Mạn Mạn mày..."
+“Ối, Mạn, Mạn Mạn, cậu...”
 
-Từ Mạn Mạn không một tiếng động, ngồi thẳng trên giường, tay cầm điện thoại, màn hình vẫn còn sáng.
+Từ Mạn Mạn ngồi thẳng lưng trên giường không một tiếng động, tay cầm điện thoại, màn hình vẫn còn sáng.
 
-Diêu Tân vẫn hỏi Thẩm Tử Ngôn cho chắc: "Tử Ngôn, mày vừa nói Tô Miên đến Quận Sa rồi à?"
+Diêu Sân vẫn quay sang hỏi Thẩm Tử Ngôn: “Tử Ngôn, ý cậu là Tô Miến tới Quận Sa thật à?”
 
-"Ừ, nửa đêm đứng ở cửa quán bar chờ Kim An, cả lớp bạn anh ấy đều thấy."
+“Ừ, nửa đêm ngồi đợi Kim An ngoài cửa quán bar, cả lớp bọn họ đều nhìn thấy hết rồi.”
 
-Một lúc sau Thẩm Tử Ngôn lại nói thêm: "Bay từ Kinh Đô sang Quận Sa, từ sân bay thẳng đến quán bar, Lưu Xung Phong nói là qua bắt Kim An về vì đang chơi bời lăng nhăng."
+Một lát sau Thẩm Tử Ngôn lại nói thêm: “Bay từ Kinh Đô thẳng tới Quận Sa, từ sân bay chạy thẳng ra quán bar. Lưu Sấm Phong bảo là tới bắt quả tang Kim An ăn vụng.”
 
-Từ Mạn Mạn cúi đầu siết chặt điện thoại, không nói gì.
+Từ Mạn Mạn cúi đầu nắm chặt lấy điện thoại, im lặng không nói một lời.
 
-"..."
+“...”
 
-Ngay cả Diêu Tân cũng nghe ra — câu "bắt Triệu Kim An về vì đang chơi bời lăng nhăng" vừa là chuyện đùa, vừa không phải đùa hoàn toàn.
+Đến cả Diêu Sân cũng hiểu được, câu “tới bắt quả tang Triệu Kim An ăn vụng” nghe tưởng như nói đùa, nhưng kỳ thực lại chẳng phải đùa chút nào.
 
-"Nói hai nghĩa à?"
+“Tính là nói bóng gió sao?”
 
-Diêu Tân nhìn Từ Mạn Mạn — mái tóc xõa xuống, chỉ thấy một bóng tối lờ mờ cúi đầu.
+Diêu Sân nhìn mái tóc xõa xuống che khuất khuôn mặt Từ Mạn Mạn, dưới ánh sáng mờ chỉ thấy một bóng đen lặng lẽ.
 
-Thực ra Từ Mạn Mạn quan hệ tốt với Đường Hiểu Tình, hoặc hỏi Lưu Xung Phong hay bất kỳ bạn nào của lớp Kế toán 1 đều biết — mấy ngày nay Triệu Kim An có chút bỏ bê việc học bỏ bê công việc.
+Thực ra Từ Mạn Mạn chơi thân với Đường Hiểu Tình, hoặc chỉ cần hỏi Lưu Sấm Phong hay bất kỳ bạn học nào trong lớp Kế toán 1 là biết ngay mấy hôm nay Triệu Kim An có phần bỏ bê công việc.
 
-Triệu Tổng của Trân Nhiên mà chạy ra tiệm net chơi game, chơi đến tận nửa đêm!!
+Đường đường là Triệu tổng của Trăn Nhiên mà lại chạy ra quán net chơi game, chơi đến tận nửa đêm!!
 
-"Tô Miên đến 'quản' Triệu Kim An rồi."
+“Tô Miến tới để ‘quản’ Triệu Kim An rồi.”
 
-Chữ "quản" này có thể đặt trong dấu ngoặc kép — Diêu Tân nhìn đi nhìn lại, cô bắt đầu phần nào hiểu tại sao trước đây Thẩm Tử Ngôn và Từ Mạn Mạn đều né tránh không chịu nhắc đến Tô Miên.
+Chữ “quản” này đáng phải bỏ trong ngoặc kép. Diêu Sân nhìn trái ngó phải, cô dường như đã hiểu phần nào lý do trước đây Thẩm Tử Ngôn và Từ Mạn Mạn luôn né tránh nhắc đến Tô Miến.
 
-"Bay từ Kinh Đô sang Quận Sa..."
+“Bay từ Kinh Đô tới Quận Sa...”
 
-"Vì Mạn Mạn sao?"
+“Là vì Mạn Mạn sao?”
 
-"Triệu Kim An vì Mạn Mạn... Tô Miên từ Kinh Đô bay đến Quận Sa... thẳng đến quán bar!"
+“Triệu Kim An vì Mạn Mạn mà... Tô Miến liền bay từ Kinh Đô tới Quận Sa... chạy thẳng ra quán bar!”
 
-"Tại sao?"
+“Tại sao chứ?”
 
-Diêu Tân chưa gặp Tô Miên bao giờ, nhưng cô hình dung được cảnh Tô Miên nửa đêm ngồi xe lăn đứng chờ trước cửa quán bar đợi Triệu Kim An ra — tại sao Thẩm Tử Ngôn không "quản" Triệu Kim An? Vì quản không được chăng?
+Diêu Sân chưa từng gặp Tô Miến, nhưng vẫn mường tượng ra được cảnh tượng cô gái ngồi trên xe lăn đợi Triệu Kim An trước cửa quán bar lúc nửa đêm. Tại sao Thẩm Tử Ngôn không “quản” Triệu Kim An, là vì không quản nổi sao?
 
-Hay là chưa nghĩ đến?
+Hay là không nghĩ tới?
 
-Tô Miên đi lại không tiện mà còn bay một mình trong đêm từ Kinh Đô sang đây!
+Tô Miến đi lại bất tiện như thế mà còn bay xuyên đêm từ Kinh Đô sang đây!
 
-Bầu không khí phòng 406 trở nên kỳ lạ khó tả.
+Trong phòng ký túc xá 406, bầu không khí trở nên có phần quái dị.
 
-Diêu Tân tò mò cầm điện thoại lên xem tin nhắn.
+Diêu Sân tò mò cầm điện thoại lên xem tin nhắn.
 
-Nhóm chat QQ phòng 406 và 303.
+Nhóm QQ chung của phòng 406 và 303.
 
-Lưu Xung Phong: hahaha, Tô Miên hỏi Kim An chơi đủ chưa, Kim An một câu không dám cãi.
+Lưu Xuyên Phong: Ha ha ha, Tô Miến hỏi Kim An chơi đủ chưa, Kim An không dám cãi lại lấy nửa lời luôn.
 
-"Đồ ngốc."
+“Đồ ngu.”
 
-Diêu Tân thầm chửi — mày tưởng câu "chơi đủ chưa" của Tô Miên và câu đó Phương Khiết nói với mày là giống nhau sao?
+Diêu Sân thầm chửi một câu trong bụng, cậu tưởng câu “chơi đủ chưa” của Tô Miến giống với câu Phương Khiết hay hỏi cậu chắc?
 
-Rõ ràng Diêu Tân hiểu ra, Thẩm Tử Ngôn và Từ Mạn Mạn đều cảm nhận được điều đó.
+Hiển nhiên điều mà Diêu Sân nhận ra, cả Thẩm Tử Ngôn và Từ Mạn Mạn đều thấu hiểu sâu sắc.
 
-Từ Mạn Mạn tắt màn hình điện thoại, từ từ nằm xuống, không ai biết cô đang nghĩ gì.
+Từ Mạn Mạn tắt màn hình điện thoại rồi chậm rãi nằm xuống, chẳng ai biết trong lòng cô đang nghĩ gì.
 
-Diêu Tân nghĩ ngợi một lúc, cầm điện thoại gõ lóc cóc.
+Diêu Sân ngẫm nghĩ một lát rồi cầm điện thoại lên gõ lạch cạch.
 
-Diêu Tân: Dao Dao ơi, Tô Miên đến rồi.
+Diêu Sân: Dao Dao, Tô Miến đến rồi.
 
-Sáng hôm sau.
+Ngày hôm sau.
 
-Mộc Dao thức dậy rất sớm, nhìn thấy tin nhắn, ngồi bần thần trên giường.
+Mộc Dao đọc được tin nhắn từ rất sớm, ngồi ngẩn người trên giường.
 
-Vài tháng trước, Mộc Dao vẫn còn cho rằng Tô Miên là kẻ cướp mất người yêu của mình — hai năm trước Triệu Kim An còn là bạn trai cô. Người phụ nữ "chỉ nghe tên chứ chưa thấy mặt" ấy.
+Mấy tháng trước, Mộc Dao vẫn luôn coi Tô Miến là kẻ đã cướp mất bạn trai của mình; hai năm trước Triệu Kim An vẫn còn là bạn trai của cô, vậy mà người phụ nữ “chỉ nghe tiếng chứ chưa từng thấy mặt” kia...
 
-Người phụ nữ "chắn ngang trước mặt tất cả mọi người", muốn gặp cũng chẳng gặp được ấy.
+Người phụ nữ luôn “ngáng đường” trước mặt tất cả mọi người, muốn gặp mà chẳng thể gặp nổi.
 
-Bên trong căn nhà của Triệu Kim An, trời vừa sáng, phòng khách đã vang lên giọng oang oang.
+Trời vừa hửng sáng, trong phòng khách nhà Triệu Kim An đã vang lên một giọng nói oang oang.
 
-"Chí Dũng, nhỏ tiếng thôi!"
+“Chí Dũng, anh nói nhỏ tiếng thôi!”
 
-Trịnh Nhự cầm muỗng từ trong bếp chạy ra ngăn: "Kim An và Tô Miên còn đang ngủ."
+Trịnh Như tay cầm muôi từ trong bếp bước ra nhắc nhở: “Kim An và Tô Miến vẫn còn đang ngủ đấy.”
 
-"Em bảo mọi người đừng nấu sáng nữa — em đã mua sẵn rồi, hơn mười món đây!"
+“Anh bảo này, các người còn nấu bữa sáng làm gì? Anh mua đủ cả rồi đây này, hơn chục món liền!”
 
-Dư Phi từ phòng bước ra, cầm đồ ăn sáng ăn luôn: "Niệm Khả đâu rồi?"
+Du Phi từ phòng ngủ bước ra, cầm ngay một phần bữa sáng lên ăn: “Niệm Khả đâu rồi?”
 
-"Chờ xem mấy giờ rồi, đưa đi học từ sớm rồi đó."
+“Em xem mấy giờ rồi còn hỏi, đưa con bé đi học rồi chứ sao.”
 
-"Chị bảo sáng sớm mà chị chạy sang đây làm gì vậy."
+“Tôi bảo sao anh chạy sang đây sớm thế không biết.”
 
-Vương Duy Thao thức cả đêm không ngủ ngon, nằm ầm ừ. Triệu Chí Dũng tối qua đã muốn qua rồi, nhưng có Trịnh Nhự, mà Trịnh Nhự sáng nay còn cố ý trang điểm kỹ hơn bình thường.
+Vương Duy Đào cả đêm ngủ không ngon giấc, lầm bầm phàn nàn. Thực ra Triệu Chí Dũng đã muốn sang từ tối qua, chỉ tại có Trịnh Như ngăn lại; sáng nay nghe tin “thím út” tới, Trịnh Như còn cố tình trang điểm sửa soạn một chút.
 
-Phòng chính.
+Trong phòng ngủ chính.
 
-"Kim An, ngoài đó đông người thế?"
+“Kim An, sao bên ngoài đông người thế?”
 
-Tô Miên mơ màng ngái ngủ, Triệu Kim An choàng tay ôm cô: "Em đang ở làng Triệu đó, nhà không phải hay như vậy sao, họ thích ghé chơi."
+Tô Miến vẫn còn ngái ngủ, Triệu Kim An ôm cô vào lòng: “Hồi ở Triệu Gia Thôn, nhà mình cũng đông người như thế còn gì, mọi người đều thích tới chơi.”
 
-"Tại sao?"
+“Sao lại thế?”
 
-"Không biết, anh có nồng nhiệt gì đâu, ngủ tiếp đi."
+“Không biết nữa, anh cũng đâu có nhiệt tình tiếp đón gì đâu, ngủ tiếp đi.”
 
-Chín giờ sáng Triệu Kim An mới đẩy xe lăn đưa Tô Miên ra phòng ngoài, bàn ăn bày la liệt đủ loại đồ ăn sáng.
+Mãi đến chín giờ sáng Triệu Kim An mới đẩy Tô Miến từ phòng ngủ ra ngoài, trên bàn ăn đã bày biện la liệt đủ loại đồ ăn sáng.
 
-"Tiểu thím!"
+“Thím út!”
 
-Triệu Chí Dũng thấy Tô Miên, mừng lắm. Trịnh Nhự do dự một chút rồi cũng gọi theo: "Tiểu thím, em là Trịnh Nhự."
+Triệu Chí Dũng thấy Tô Miến liền mừng rỡ ra mặt. Trịnh Như hơi ngập ngừng một chút rồi cũng gọi theo: “Thím út, cháu là Trịnh Như ạ.”
 
-"Trịnh Nhự, lại đây."
+“Trịnh Như, lại đây nào.”
 
-Tô Miên đã chuẩn bị sẵn hai phong bì đỏ từ trong phòng ra, mỉm cười: "Một cái của cậu, một cái của Niệm Khả."
+Tô Miến đã chuẩn bị sẵn hai phong bao lì xì từ trong phòng, mỉm cười đưa ra: “Một cái cho cháu, một cái cho Niệm Khả nhé.”
 
-"Triệu Chí Dũng cũng gọi tiểu thím rồi à?"
+“Triệu Chí Dũng gọi hẳn là thím út luôn rồi cơ à?”
 
-Đường Hiểu Tình một lúc mới phản ứng ra, Ngô Hiểu đang giúp Tô Miên buộc tóc. Tô Miên thoáng qua nói: "Kim An, tí nữa mình ra khu đại học dạo một vòng, rồi ghé Trân Hội Tuyển em chưa qua bao giờ."
+Đường Hiểu Tình ngẩn ra hồi lâu mới hoàn hồn. Ngô Hiểu đang giúp Tô Miến buộc lại mái tóc, Tô Miến bỗng buột miệng nói một câu đầy ẩn ý: “Kim An, lát nữa qua trường anh dạo một vòng đi, với lại Trăn Hối Tuyển em cũng chưa ghé qua lần nào.”
 
-"Được."
+“Được.”
 
-Triệu Kim An cúi xuống bóc trứng cho Tô Miên: "Chỉ là danh tính của em..."
+Triệu Kim An cúi đầu bóc trứng cho Tô Miến: “Chỉ là thân phận của em...”
 
-"Đừng báo cho trường anh biết."
+“Đừng nói cho người ở trường anh biết.”
 
-"..."
+“...”
 
-Đường Hiểu Tình thầm nghĩ — Từ Mạn Mạn đã nghỉ ở Trân Hội Tuyển rồi mà.
+Đường Hiểu Tình thầm nghĩ, Từ Mạn Mạn vừa mới nghỉ việc ở Trăn Hối Tuyển xong đấy.
 
-"Danh tính gì thế?"
+“Thân phận gì cơ?”
 
-Vương Duy Thao và Triệu Chí Dũng nhìn nhau, hai người không như Dư Phi, chưa từng đến nhà Tô Miên, chỉ biết Tô Miên là cán bộ nhỏ gì đó.
+Vương Duy Đào và Triệu Chí Dũng đưa mắt nhìn nhau; bọn họ không giống Du Phi từng tới nhà Tô Miến, chỉ mơ hồ biết Tô Miến là một lãnh đạo nhỏ nào đó.
 
-Nói vậy cũng không sai.
+Nói như vậy cũng chẳng sai chút nào.
 
-So với Tô Minh Tùng và hai người anh trai của cô, Tô Miên không tính gì mấy.
+So với Tô Minh Tùng và hai người anh trai của cô, Tô Miến đúng là chưa tính là lãnh đạo lớn gì.
 
-Trịnh Nhự cầm hai phong bì dày, cô không phải đến để lấy tiền lì xì — gọi tiểu thím không phải vì tiền, cô chợt nhớ lần trước Từ Mạn Mạn đã cho mình thẻ mua sắm.
+Trịnh Như cầm hai phong bao lì xì dày cộp trên tay. Cô thực sự không có ý tới đây để nhận lì xì, gọi một tiếng thím út cũng không phải vì tiền mừng; cô bỗng nhớ lại lần trước Từ Mạn Mạn cũng từng tặng mình thẻ mua sắm.
 
-Sinh viên lớp Kế toán 1 tối qua về đến ký túc xá vẫn còn đang bàn tán về Tô Miên.
+Đám sinh viên lớp Kế toán 1 tối qua về đến ký túc xá rồi mà vẫn còn xôn xao bàn tán về Tô Miến.
 
-Có lẽ vì ngồi xe lăn mà người ta bàn tán nhiều quá chăng.
+Có lẽ vì hình ảnh ngồi xe lăn quá đỗi gây tò mò chăng.
 
-Mộc Dao đang làm ở công ty dì, nhận được một tin nhắn, suy nghĩ một lúc rồi quyết định đến nhìn Tô Miên một cái.
+Mộc Dao đang ở công ty của dì út thì nhận được tin nhắn; suy nghĩ hồi lâu, cô quyết định vẫn nên ghé qua nhìn mặt Tô Miến một lần.
 
-Cô muốn biết mình "thua" vì điều gì.
+Cũng muốn biết xem mình đã “thua” dưới tay ai.

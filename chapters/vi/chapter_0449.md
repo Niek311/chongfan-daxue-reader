@@ -1,7 +1,5 @@
 # Chương 449: Chuyến đi Dương Thành
 
-> **Tiêu đề gốc**: 第449章 羊城之行。
-
 Phương Khiết liếc nhìn màn hình điện thoại: "Trần Trạch nhắn bảo bị cảm nặng quá nên không ghé được rồi."
 
 "Trần Trạch nghe đồn lại đổi bạn gái mới rồi hả?"
@@ -40,15 +38,15 @@ Có người buột miệng điểm trúng ngay hồng tâm: "Nhà người ta l
 
 Nghe đến câu ấy, nụ cười trên môi Quan Linh bỗng khựng lại, nụ cười gượng gạo chẳng còn chút tự nhiên nào.
 
-Ở kiếp trước, Trần Trạch đích thị là người kết hôn sớm nhất trong cả lớp Kế toán 1. Vương Phương Dụ quả thực không có được nét kiều diễm, sắc sảo như Từ Mạn Mạn, cũng chẳng mang vẻ thanh thuần thoát tục của hoa khôi Lâm Thanh Tuyết năm nào. Nhưng bù lại, Vương Phương Dụ chững chạc, lịch duyệt, là cánh tay đắc lực nâng đỡ toàn diện cho sự nghiệp làm ăn của cả Dương Thục Mỹ lẫn Trần Trạch.
+Ở kiếp trước, Trần Trạch đích thị là người kết hôn sớm nhất trong cả lớp Kế toán 1. Vương Phương Dụ quả thực không có được nét kiều diễm, sắc sảo như Từ Mạn Mạn, cũng chẳng mang vẻ thanh thuần thoát tục của hoa khôi Lâm Thanh Tuyết năm nào. Nhưng bù lại, Vương Phương Dụ chững chạc, lịch duyệt, là cánh tay đắc lực nâng đỡ toàn diện cho sự nghiệp làm ăn của cả Dương Thù Mỹ lẫn Trần Trạch.
 
 Muốn dấn thân vào thương trường bất động sản thì dứt khoát phải có thế lực chống lưng, và Vương Phương Dụ chính là điểm tựa ngàn vàng ấy.
 
-Bà Dương Thục Mỹ đối với Vương Phương Dụ luôn có thêm một phần nể trọng so với Từ Mạn Mạn thuở xưa. Nói chuyện tiền nong lương bổng thì tầm thường quá, mà mỗi khi đứng trước những quyết sách trọng đại, bà đều nghiêm túc ngồi lại bàn bạc, lắng nghe ý kiến của Vương Phương Dụ một cách thấu đáo.
+Bà Dương Thù Mỹ đối với Vương Phương Dụ luôn có thêm một phần nể trọng so với Từ Mạn Mạn thuở xưa. Nói chuyện tiền nong lương bổng thì tầm thường quá, mà mỗi khi đứng trước những quyết sách trọng đại, bà đều nghiêm túc ngồi lại bàn bạc, lắng nghe ý kiến của Vương Phương Dụ một cách thấu đáo.
 
-Nếu không có sự giúp đỡ, nâng đỡ từ người cha làm lãnh đạo của Vương Phương Dụ, Dương Thục Mỹ đừng hòng mơ tới chuyện giành được đất dự án, chứ đừng nói tới một gã lông bông như Trần Trạch.
+Nếu không có sự giúp đỡ, nâng đỡ từ người cha làm lãnh đạo của Vương Phương Dụ, Dương Thù Mỹ đừng hòng mơ tới chuyện giành được đất dự án, chứ đừng nói tới một gã lông bông như Trần Trạch.
 
-Người ngoài nhìn vào thường thắc mắc Dương Thục Mỹ lấy đâu ra lắm vốn liếng đến thế. Kỳ thực, một khi đã đủ bản lĩnh giành được đất dự án trong tay thì chẳng cần phải tự mình bỏ ra quá nhiều tiền vốn. Thời buổi này, đất đai chính là tiền tươi thóc thật, vừa thâu tóm được lô đất là có thể trở tay thế chấp vay vốn ngân hàng hàng trăm tỷ. Đến khâu thi công xây dựng dự án chung cư thì đã có các nhà thầu thi công tự nguyện bỏ tiền túi ra ứng trước.
+Người ngoài nhìn vào thường thắc mắc Dương Thù Mỹ lấy đâu ra lắm vốn liếng đến thế. Kỳ thực, một khi đã đủ bản lĩnh giành được đất dự án trong tay thì chẳng cần phải tự mình bỏ ra quá nhiều tiền vốn. Thời buổi này, đất đai chính là tiền tươi thóc thật, vừa thâu tóm được lô đất là có thể trở tay thế chấp vay vốn ngân hàng hàng trăm tỷ. Đến khâu thi công xây dựng dự án chung cư thì đã có các nhà thầu thi công tự nguyện bỏ tiền túi ra ứng trước.
 
 Nói chung, trước năm 2019, các doanh nghiệp địa ốc cứ việc sải những bước chân thần tốc mà thâu tóm đất đai, khắp các tỉnh thành danh xưng "Vua đất" mọc lên như nấm sau mưa.
 
@@ -62,13 +60,13 @@ Lưu Sấm Phong bao năm qua luôn nung nấu dã tâm vượt mặt Trần Tr�
 
 Từ tận đáy lòng, cậu ta luôn khinh thường Lưu Sấm Phong ra mặt.
 
-Một lát sau, chiếc xe BMW X5 của Vương Phương Dụ từ từ rẽ vào sân. Dương Thục Mỹ ngồi ở ghế phụ phía trước.
+Một lát sau, chiếc xe BMW X5 của Vương Phương Dụ từ từ rẽ vào sân. Dương Thù Mỹ ngồi ở ghế phụ phía trước.
 
 "Dì ơi, Triệu Kim An vẫn chưa tới nhỉ?"
 
 "Chưa tới con ạ, chưa thấy bóng dáng xe của nó đâu."
 
-Hai người trong bụng đều hiểu rõ, Triệu Kim An mới là nhân vật tâm điểm của buổi gặp mặt hôm nay. Suốt dọc đường đi họ phóng xe rất nhanh. Trần Trạch không đi, Vương Phương Dụ cùng Dương Thục Mỹ bàn bạc kỹ lưỡng rồi mới quyết định lên đường.
+Hai người trong bụng đều hiểu rõ, Triệu Kim An mới là nhân vật tâm điểm của buổi gặp mặt hôm nay. Suốt dọc đường đi họ phóng xe rất nhanh. Trần Trạch không đi, Vương Phương Dụ cùng Dương Thù Mỹ bàn bạc kỹ lưỡng rồi mới quyết định lên đường.
 
 Vương Phương Dụ vô cùng tò mò về chàng trai mà giới thượng tầng gọi bằng cái tên kính cẩn: "Triệu tổng đất Quận Sa".
 
@@ -82,7 +80,7 @@ Lưu Sấm Phong tinh mắt réo to lên. Vương Phương Dụ lái chiếc BMW
 
 Không so với Từ Mạn Mạn, Vương Phương Dụ quả thực còn chẳng xinh đẹp bằng Lâm Thanh Tuyết của lớp họ. Dĩ nhiên, gương mặt cô cũng ưa nhìn, lại lớn hơn ba tuổi nên trông đằm thắm, chững chạc hơn hẳn.
 
-Duy chỉ có Lưu Sấm Phong là tươi cười hớn hở bước tới đon đả chào đón Dương Thục Mỹ một cách nhiệt tình quá mức.
+Duy chỉ có Lưu Sấm Phong là tươi cười hớn hở bước tới đon đả chào đón Dương Thù Mỹ một cách nhiệt tình quá mức.
 
 "Bíp, bíp ——"
 
@@ -90,17 +88,17 @@ Tiếng còi xe vang lên trầm hùng. Hai chiếc Mercedes thương vụ màu 
 
 "Kim An tới rồi!" Phương Khiết và Quan Linh đồng thanh reo lên.
 
-Dương Thục Mỹ và Vương Phương Dụ đồng thời quay ngoắt người, rảo bước nhanh ra phía mép đường đón chào. Vương Phương Dụ liếc mắt nhìn kỹ biển số xe để ghi nhớ trong đầu. Mọi người đều đứng dậy ngóng chờ Triệu Kim An bước xuống.
+Dương Thù Mỹ và Vương Phương Dụ đồng thời quay ngoắt người, rảo bước nhanh ra phía mép đường đón chào. Vương Phương Dụ liếc mắt nhìn kỹ biển số xe để ghi nhớ trong đầu. Mọi người đều đứng dậy ngóng chờ Triệu Kim An bước xuống.
 
 "Chỗ này có món gì ăn thế?"
 
-Triệu Kim An đẩy cửa bước xuống xe, đưa mắt nhìn Dương Thục Mỹ rồi cất lời chào trước: "Cháu chào dì ạ."
+Triệu Kim An đẩy cửa bước xuống xe, đưa mắt nhìn Dương Thù Mỹ rồi cất lời chào trước: "Cháu chào dì ạ."
 
 Đây là phép lịch sự tối thiểu dành cho mẹ của bạn học cùng lớp, chẳng liên quan gì tới thân phận hay địa vị xã hội.
 
 "Kim An, chào cháu!"
 
-Dương Thục Mỹ đon đả, nhiệt tình ra mặt, bà nào dám thực sự nhận mình là bậc "dì" bề trên trước mặt anh.
+Dương Thù Mỹ đon đả, nhiệt tình ra mặt, bà nào dám thực sự nhận mình là bậc "dì" bề trên trước mặt anh.
 
 "Trần Trạch đâu rồi dì?" Triệu Kim An hỏi bâng quơ.
 
@@ -122,13 +120,13 @@ Triệu Kim An khẽ nắm hờ tay cô một cái: "Tôi không làm bất đ�
 
 "..."
 
-Vương Phương Dụ thoáng ngạc nhiên. Cả cô lẫn Dương Thục Mỹ đều đinh ninh rằng Triệu Kim An đã bắt đầu bành trướng sang mảng địa ốc. Có ông lớn Tô Cảnh Hành che chở tại Quận Sa, Triệu Kim An còn sợ gì chuyện không thâu tóm được đất đẹp?
+Vương Phương Dụ thoáng ngạc nhiên. Cả cô lẫn Dương Thù Mỹ đều đinh ninh rằng Triệu Kim An đã bắt đầu bành trướng sang mảng địa ốc. Có ông lớn Tô Cảnh Hành che chở tại Quận Sa, Triệu Kim An còn sợ gì chuyện không thâu tóm được đất đẹp?
 
 Thời buổi này làm bất động sản chẳng khác nào ra đường nhặt tiền.
 
 "Ngành này ở thời điểm hiện tại kiếm tiền rất khá."
 
-Triệu Kim An khẽ gật đầu với Dương Thục Mỹ. Ban nãy Dương Thục Mỹ có nhắn tin dò hỏi, giờ anh mới chính thức cho bà câu trả lời. Còn chuyện của tám năm sau nữa, Triệu Kim An biết nói sao cho đặng?
+Triệu Kim An khẽ gật đầu với Dương Thù Mỹ. Ban nãy Dương Thù Mỹ có nhắn tin dò hỏi, giờ anh mới chính thức cho bà câu trả lời. Còn chuyện của tám năm sau nữa, Triệu Kim An biết nói sao cho đặng?
 
 Du Phi đứng sau liếc nhìn Vương Phương Dụ một lát, rồi chuyển hướng nhìn Quan Linh. Lý Ngải Lan từng nhắc thoáng qua chuyện của Quan Linh cho cô nghe.
 
@@ -140,25 +138,25 @@ Quan Linh và Phương Khiết đưa mắt nhìn Du Phi. Chuyện "nửa lần" 
 
 Quan Linh gật đầu, trong lòng dâng lên một cảm giác kỳ lạ, tự hào khó tả. Khi công việc làm ăn của Triệu Kim An ngày một đồ sộ ngút trời, cho dù không có hai vạn tệ năm ấy, thì bản thân cô cũng từng có "nửa lần" nếm trải với Triệu tổng Quận Sa cơ mà!
 
-Phương Khiết niềm nở mời mọi người vào bàn. Quan Linh toan ngồi xuống chiếc ghế cạnh Triệu Kim An thì Dương Thục Mỹ đã nhanh chân bước tới ngồi trước. Quan Linh nghĩ ngợi một chút rồi đành lùi sang phía bên kia. Dương Thục Mỹ vẫn tha thiết muốn thỉnh giáo thêm đôi điều từ Triệu Kim An.
+Phương Khiết niềm nở mời mọi người vào bàn. Quan Linh toan ngồi xuống chiếc ghế cạnh Triệu Kim An thì Dương Thù Mỹ đã nhanh chân bước tới ngồi trước. Quan Linh nghĩ ngợi một chút rồi đành lùi sang phía bên kia. Dương Thù Mỹ vẫn tha thiết muốn thỉnh giáo thêm đôi điều từ Triệu Kim An.
 
-Vương Phương Dụ bắt tay chào hỏi từng bạn học lớp Kế toán 1 rồi khéo léo ngồi xuống sát cạnh Dương Thục Mỹ. Ngay cả Triệu Kim An cũng thầm gật đầu tán thưởng trong bụng: cô bạn gái này của Trần Trạch xử sự rất được, tài ngoại giao không chê vào đâu được.
+Vương Phương Dụ bắt tay chào hỏi từng bạn học lớp Kế toán 1 rồi khéo léo ngồi xuống sát cạnh Dương Thù Mỹ. Ngay cả Triệu Kim An cũng thầm gật đầu tán thưởng trong bụng: cô bạn gái này của Trần Trạch xử sự rất được, tài ngoại giao không chê vào đâu được.
 
 Phương Khiết giới thiệu: "Triệu Kim An, dì ơi, quán này chuyên về các món cá đồng, phòng nghỉ cũng đặt xong xuôi cả rồi, thiết kế rất độc đáo. Tối nay nếu không tiện quay về nội thành thì mọi người có thể nghỉ lại đây luôn."
 
 Phương Khiết thu xếp chu đáo đến từng chi tiết. Đám người Quan Linh đêm nay chắc chắn khó mà bắt xe về Thâm Quyến, thuê khách sạn bên ngoài lại tốn thêm mớ tiền.
 
-Du Phi cùng Đơn Vĩ và nhóm vệ sĩ ngồi riêng ở một bàn khác.
+Du Phi cùng Đan Vĩ và nhóm vệ sĩ ngồi riêng ở một bàn khác.
 
-Triệu Kim An không rõ Trần Trạch có thực sự bị cảm hay không, anh cũng chẳng buồn để tâm suy nghĩ. Chỉ thấy thoang thoảng bên cánh mũi hai mùi nước hoa thanh tao dìu dịu, lại nhận ra Lưu Sấm Phong dường như săn đón Dương Thục Mỹ một cách quá mức nhiệt tình.
+Triệu Kim An không rõ Trần Trạch có thực sự bị cảm hay không, anh cũng chẳng buồn để tâm suy nghĩ. Chỉ thấy thoang thoảng bên cánh mũi hai mùi nước hoa thanh tao dìu dịu, lại nhận ra Lưu Sấm Phong dường như săn đón Dương Thù Mỹ một cách quá mức nhiệt tình.
 
 Bữa này không cần Triệu Kim An phải móc hầu bao chiêu đãi. Phương Khiết rảo bước tới quầy thu ngân, Vương Phương Dụ lập tức đứng dậy bám theo sau. Hai người từng gặp mặt vài lần, chắc hẳn đang tranh nhau thanh toán. Phương Khiết lo tiền cơm nước, thì Vương Phương Dụ bao trọn tiền phòng nghỉ.
 
-Dương Thục Mỹ khẽ nhích lại gần hỏi han Triệu Kim An, còn ân cần lo lắng về "vết thương" dạo trước của anh ở Phụ Bình. Đợi tới khi Vương Phương Dụ và Phương Khiết thanh toán xong quay về chỗ ngồi, Dương Thục Mỹ mới ý tứ ngồi thẳng lưng lại. Con dâu tương lai ngồi ngay bên cạnh, bà buộc phải giữ gìn vẻ đoan trang, đứng đắn. Vương Phương Dụ mỉm cười gật đầu chào Triệu Kim An.
+Dương Thù Mỹ khẽ nhích lại gần hỏi han Triệu Kim An, còn ân cần lo lắng về "vết thương" dạo trước của anh ở Phụ Bình. Đợi tới khi Vương Phương Dụ và Phương Khiết thanh toán xong quay về chỗ ngồi, Dương Thù Mỹ mới ý tứ ngồi thẳng lưng lại. Con dâu tương lai ngồi ngay bên cạnh, bà buộc phải giữ gìn vẻ đoan trang, đứng đắn. Vương Phương Dụ mỉm cười gật đầu chào Triệu Kim An.
 
 Triệu Kim An hạ thấp giọng: "Dì à, bất động sản thực sự kiếm được bộn tiền đấy."
 
-Âm lượng vừa vặn để Vương Phương Dụ ngồi kế bên nghe rõ mồn một. Dương Thục Mỹ từng nếm đòn đau trong cơn khủng hoảng tài chính nên lá gan bị teo lại. Vương Phương Dụ nghe Dương Thục Mỹ kể lại rằng năm xưa chính Triệu Kim An đã lên tiếng cảnh báo bà về cơn bão tài chính. Dĩ nhiên Dương Thục Mỹ giấu nhẹm chuyện Từ Mạn Mạn cũng từng nhắc nhở mình. Vương Phương Dụ lặn lội tới đây gặp Triệu Kim An chính là muốn xem thử vị đại gia này có nhận định sâu sắc, độc đáo gì về thị trường địa ốc hay không.
+Âm lượng vừa vặn để Vương Phương Dụ ngồi kế bên nghe rõ mồn một. Dương Thù Mỹ từng nếm đòn đau trong cơn khủng hoảng tài chính nên lá gan bị teo lại. Vương Phương Dụ nghe Dương Thù Mỹ kể lại rằng năm xưa chính Triệu Kim An đã lên tiếng cảnh báo bà về cơn bão tài chính. Dĩ nhiên Dương Thù Mỹ giấu nhẹm chuyện Từ Mạn Mạn cũng từng nhắc nhở mình. Vương Phương Dụ lặn lội tới đây gặp Triệu Kim An chính là muốn xem thử vị đại gia này có nhận định sâu sắc, độc đáo gì về thị trường địa ốc hay không.
 
 Thế nhưng lúc này, cô lại cảm thấy Triệu Kim An ngoài vẻ ngoài điển trai, phong độ ngời ngời ra thì dường như cũng có phần bình thường, chẳng có gì ghê gớm. Chuyện bất động sản hốt bạc thì thiên hạ ai mà chẳng biết?
 

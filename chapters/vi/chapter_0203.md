@@ -1,8 +1,6 @@
 # Chương 203: Kim An, cuối cùng anh cũng tới thăm em
 
-> **Tiêu đề gốc**: 第203章 今安，你终于来看我了。
-
-Đơn Vĩ thật ra cũng chẳng có cách nào để đi theo bảo vệ.
+Đan Vĩ thật ra cũng chẳng có cách nào để đi theo bảo vệ.
 
 Chút ngón nghề võ vẽ của anh ta đối phó với mấy kẻ đầu đường xó chợ tầm thường thì còn được.
 

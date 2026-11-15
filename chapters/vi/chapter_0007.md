@@ -1,7 +1,5 @@
 # Chương 7: Nếu sống không êm ấm... thì ly hôn đi
 
-> **Tiêu đề gốc**: 第7章 如果不好过...就离了吧。
-
 "Kim An, hôm nay tụi mình kiếm được tròn hai trăm tệ đấy!"
 
 Bóng chiều tà ngả dần về phía tây, ngọn gió hoàng hôn thổi tung mái tóc dài bồng bềnh, Triệu Trí Dũng khoái chí vặn mạnh tay ga.

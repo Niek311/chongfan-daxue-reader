@@ -1,169 +1,197 @@
-# ﻿Chương 367: Ai Cũng Có Toan Tính Riêng
+# Chương 367: Tự lo đường riêng
 
-> **Tiêu đề gốc**: 第367章 各自打算。
+Nói thật lòng, với một sinh viên năm tư chuẩn bị thực tập mà nói, yêu cầu đó quả thực hơi làm khó người tuyển dụng.
 
-Thật lòng mà nói, một sinh viên thực tập năm tư muốn xin được việc tử tế quả là chuyện không dễ.
+Hồ sơ của Từ Mạn Mạn đã được một vài công ty lớn xem xét rất kỹ lưỡng.
 
-Hồ sơ của Từ Mạn Mạn đã được một vài công ty lớn nghiêm túc xem qua.
+Trăn Hối Tuyển tuy chưa phải chuỗi siêu thị quy mô lớn, nhưng chỉ cần người trong ngành dò hỏi qua một chút là biết ngay tiếng tăm.
 
-Trăn Hội Tuyển tuy không phải chuỗi siêu thị tầm cỡ, nhưng chỉ cần hỏi thăm trong ngành là ai cũng biết tiếng.
+Ngành Quản trị Kinh doanh vốn không phải vị trí kỹ thuật. Ở vị trí kỹ thuật, chỉ cần bạn có tay nghề chuyên môn cứng thì đừng nói lương tháng 6 nghìn, ngay cả 6 vạn cũng khối công ty lớn tranh nhau mời về.
 
-Quản trị kinh doanh không phải vị trí kỹ thuật. Kỹ thuật mà giỏi thực sự thì chẳng nói làm gì — lương sáu ngàn, thậm chí sáu chục ngàn vẫn có công ty lớn xếp hàng tranh nhau. Điển hình như ngành công nghệ thông tin đang khát nhân lực đến nỗi không kiếm đủ người.
+Ví dụ như ngành Công nghệ thông tin hiện nay đang cực kỳ khát nhân lực.
 
-Còn quản trị kinh doanh lại khác. Hồ sơ Từ Mạn Mạn dẫu rất đẹp, nhưng ghế quản lý của công ty nào chẳng là một cái bẫy một người ngồi? Ông chủ nào lại chịu để một sinh viên năm ba lên ngồi vị trí cấp cao?
+Thế nhưng Quản trị Kinh doanh thì khác. Hồ sơ của Từ Mạn Mạn rất đẹp, nhưng vị trí quản lý ở bất kỳ công ty nào chẳng phải đều có người ngồi sẵn cả rồi sao?
 
-Mà sinh viên năm ba đó lại không có gia thế vững chắc sau lưng. Không giống mấy "công tử nhị đại" chỉ cần treo tên vào công ty là xong — nhưng họ có mạng lưới quan hệ! Khi cần, một cú điện thoại là giải quyết được tất cả.
+Nếu bạn là ông chủ, liệu bạn có dám giao chức quản lý cấp cao cho một thực tập sinh năm ba đại học không?
 
-Riêng khoản này, không phải do Từ Mạn Mạn kém cỏi, mà ngay cả cả lớp của cô cũng khó xin việc hơn các bạn lớp Kế toán 1 của Sư Đại — kế toán rốt cuộc cũng là một nghề kỹ thuật.
+Huống hồ cô thực tập sinh năm ba này lại không có gia thế hiển hách chống lưng, không giống mấy "cậu ấm cô chiêu" chỉ cần treo cái danh trong công ty.
 
-Từ Tắc Đống từ nhỏ đã đào tạo Từ Mạn Mạn theo hướng đó, thậm chí ngành học đại học cũng chính tay ông ta chọn — mục đích chỉ để sau này con gái có thể phụ giúp Dương Thục Mỹ.
+Nhưng họ có quan hệ!
 
-Cuối cùng Từ Mạn Mạn đành hạ mức kỳ vọng lương xuống còn bốn ngàn.
+Đến thời khắc mấu chốt cần ra tay, họ chỉ cần nhấc máy gọi một cuộc điện thoại là mọi chuyện xong xuôi.
 
-Thực ra đáng ra cô nên đến Dương Thành mới phải. Trải qua chuyện vừa rồi, dù Dương Thục Mỹ có nghèo đến mấy cũng sẽ phải trả lương cho Từ Mạn Mạn — mà có lẽ do cảm giác tội lỗi vì Trần Trạch, mức lương còn không thấp được. Cắn răng cũng phải trả.
+Về điểm này thì không phải lỗi tại cá nhân Từ Mạn Mạn; sinh viên lớp cô thực sự còn khó xin việc hơn cả các bạn lớp Kế toán 1 bên Đại học Sư phạm, chí ít nghề kế toán vẫn được coi là một nghề có chuyên môn kỹ thuật hẳn hoi.
 
-Diêu Tiểu đi hội chợ việc làm ở Sư Đại.
+Từ Tắc Đống nuôi dạy Từ Mạn Mạn từ nhỏ theo hướng này, ngay cả chuyên ngành đại học cũng do một tay ông chọn giúp.
 
-Cô kéo cả Mộc Dao đi cùng.
+Tất cả đều nhằm mục đích sau này cô có thể phụ giúp Dương Thù Mỹ.
 
-Thẩm Tử Ngôn đang ở Dương Thành cùng Triệu Kim An, hội chợ việc làm đương nhiên Triệu Kim An không để Thẩm Tử Ngôn phụ trách. Việc đó rơi vào tay Đường Hiểu Tình — cô điều phối bộ phận nhân sự của ba công ty: Trăn Nhiên, Trăn Hội Tuyển và Hoàn Vũ Cảng Vụ.
+Từ Mạn Mạn đành phải hạ thấp tiêu chuẩn, sửa mức lương kỳ vọng xuống còn 4K.
 
-Diêu Tiểu vẫn hỏi một câu: "Mạn Mạn, cậu đi xem không?"
+Thực ra Từ Mạn Mạn nên đi Dương Thành mới phải. Sau biến cố vừa rồi, Dương Thù Mỹ dù có túng thiếu đến đâu cũng sẽ trả lương cho cô; có lẽ vì Trần Trạch đã gây ra chuyện đó mà trong lòng thấy áy náy nên mức lương cũng sẽ không thấp đâu.
 
-Trong lòng Diêu Tiểu nghĩ: chỉ cần Từ Mạn Mạn chịu ngồi nói chuyện thật lòng với Triệu Kim An, giải tỏa hết mọi hiểu lầm, thế nào Kim An cũng sẽ nhận cô ấy trở lại Trăn Hội Tuyển.
+Khoản lương này dù có phải cắn răng thì họ cũng vẫn phải chi trả cho cô.
 
-Điều Diêu Tiểu không biết — trước khi Từ Mạn Mạn vào công ty, Triệu Kim An đã nói thẳng với cô trước rồi, và Từ Mạn Mạn cũng đã nghe vào. Hai người ngay từ đó đã có một sự ngầm hiểu — hay nói cách khác, một thỏa thuận ngầm.
+Diêu Sân chạy tới ngày hội việc làm của Đại học Sư phạm.
 
-Vì vậy khi Từ Mạn Mạn bước xuống từ sân thượng, cô không lập tức đến Trăn Hội Tuyển.
+Cô còn kéo cả Mộc Dao đi cùng.
 
-Không dám đến.
+Thẩm Tử Ngôn đang theo Triệu Kim An ở Dương Thành, mà có ở đây thì Triệu Kim An cũng chẳng để Thẩm Tử Ngôn phụ trách ngày hội tuyển dụng này.
 
-Cô vẫn nuôi một chút hy vọng hão huyền.
+Trách nhiệm ấy được giao cho Đường Hiểu Tình, do cô phối hợp cùng phòng nhân sự của cả ba công ty: Trăn Nhiên, Trăn Hối Tuyển và Hoàn Vũ Cảng Vụ.
 
-Mãi cho đến khi đặt chân vào Trăn Hội Tuyển và thấy Lưu Hiểu Tĩnh đã dọn dẹp sạch sẽ phòng làm việc của mình, cô mới chịu tin. Cô gọi điện hỏi Triệu Kim An — thực ra là hỏi xem anh có ra quyết định sa thải ngay hôm đó không, có phải ngay trên xe anh đã gọi điện rồi không?
+Diêu Sân vẫn quay sang hỏi một câu: "Mạn Mạn, cậu có đi xem cùng không?"
 
-Chứ không phải hỏi: "Tại sao anh đuổi em?"
+Trong thâm tâm Diêu Sân vẫn nghĩ chỉ cần Từ Mạn Mạn tìm Triệu Kim An nói chuyện đàng hoàng, giải tỏa hết mọi hiểu lầm, anh nhất định sẽ cho cô quay lại Trăn Hối Tuyển.
 
-Thật ra, cách làm của Triệu Kim An sẽ khiến người ta cảm thấy anh quá dứt khoát, không thể đợi thêm nửa phút. Xét về mặt tình cảm mà nói, đó đúng là sự lạnh lùng đến đau lòng.
+Diêu Sân đâu biết rằng trước khi Từ Mạn Mạn bước chân vào công ty, Triệu Kim An đã giao kèo rõ ràng với cô từ đầu, và Từ Mạn Mạn cũng đã gật đầu đồng ý.
 
-Nhưng từ lúc Từ Mạn Mạn bước lên sân thượng rồi cùng Dương Thục Mỹ và Trần Trạch bước xuống — cô đã tự chọn con đường của mình.
+Hôm đó hai người đã ngầm hiểu ý nhau.
 
-Nhìn từ góc độ thương mại, đây là tinh thần hợp đồng.
+Nói cách khác, cả hai đã đạt được sự đồng thuận ngay từ lúc khởi đầu.
 
-Trời nắng đẹp.
+Bởi vậy sau khi từ sân thượng bước xuống, Từ Mạn Mạn không lập tức quay về Trăn Hối Tuyển.
 
-Khuôn viên đại học ngập tràn khí sắc thanh xuân. Học kỳ tới sẽ có lứa sinh viên năm nhất mới nhập học.
+Cô không dám về.
 
-Mộc Dao lái chiếc BMW — cùng dòng xe Series 3 với Trần Trạch và Trương Vân Khê.
+Cô vẫn ôm một tia hy vọng mong manh.
 
-Nhà thi đấu đông nghịt người. Sinh viên năm ba và năm tư tay cầm hồ sơ, hội chợ việc làm trong trường là cơ hội tốt hiếm có, nhiều doanh nghiệp mang tới những vị trí tương đối hấp dẫn.
+Cho đến khi cô đặt chân tới Trăn Hối Tuyển, tận mắt nhìn thấy Lưu Hiểu Tĩnh đã thu dọn sạch sẽ đồ đạc trong văn phòng giúp mình.
 
-Ở vị trí đắc địa nhất trong nhà thi đấu, ba công ty của Triệu Kim An xếp liền nhau thành một hàng. Đường Hiểu Tình cao một mét năm hai, mặc bộ đồ công sở chỉnh tề đứng trước gian hàng — phía trước người chen người, sinh viên xin việc đứng chật kín.
+Cô gọi điện hỏi Triệu Kim An cũng chỉ để xác nhận xem có phải ngay ngày hôm đó anh đã hạ quyết tâm sa thải mình rồi không, có phải anh đã gọi điện chỉ thị ngay từ lúc đang ngồi trên xe hay không?
 
-Các bạn cùng lớp Kế toán 1 và Kế toán 2 cũng kéo nhau đến xem náo nhiệt.
+Chứ cô không hề hỏi Triệu Kim An: tại sao anh lại đuổi việc em?
 
-Lý Ái Lan nhìn mãi mà chẳng thấy vị trí tuyển thư ký — cô đang mơ được làm thư ký cho Triệu Kim An.
+Nói thật lòng, cách hành xử ấy của Triệu Kim An khiến người ta cảm thấy có phần quá đỗi tuyệt tình, đến một khắc một phút cũng chẳng buồn nấn ná chờ đợi.
 
-Quan Linh do dự rồi cũng rụt rè dúi một bộ hồ sơ vào tay nhân sự bên Trăn Nhiên.
+Đó là xét trên phương diện tình cảm.
 
-Cuối cùng toàn bộ hồ sơ đều được chuyển lên tay Đường Hiểu Tình, bao gồm cả hồ sơ của các bạn khác trong lớp Kế toán 1.
+Nhưng nếu nhìn từ khoảnh khắc Từ Mạn Mạn bước lên sân thượng, rồi cùng Dương Thù Mỹ và Trần Trạch bước xuống, cô đã tự tay đưa ra lựa chọn của mình rồi.
 
-Riêng Vương Duy Đào là thoải mái nhất — anh chàng muốn vào công ty thì cứ việc tìm thẳng Triệu Kim An. Nhưng rốt cuộc Vương Duy Đào vẫn quyết định nghe theo sắp xếp của Tô Miên.
+Còn đứng trên góc độ thương trường, đó chính là tinh thần thượng tôn giao kèo.
 
-"Đường kinh lý, trà sữa ạ!"
+Ánh nắng ban mai chan hòa rực rỡ.
 
-Thằng này hơi có vẻ phách lối, cố tình khoe mẽ — dù sao với điều kiện như vậy, sinh viên đại học hai mươi mốt tuổi có mấy ai không phách lối được?
+Khắp khuôn viên trường đại học tràn ngập sức sống thanh xuân, chỉ còn một học kỳ nữa là lứa tân sinh viên năm nhất mới lại nhập trường.
 
-"Vương Duy Đào, tôi đang làm việc!"
+Mộc Dao cầm lái chiếc BMW, cùng dòng Series 3 với xe của Trần Trạch và Trương Vân Thiến.
 
-"Mua rồi thì uống thôi, trà sữa hay nước khoáng có khác gì nhau, với lại mấy chị đồng nghiệp còn đang pha cà phê kia kìa."
+Nhà thi đấu đông nghịt người, sinh viên năm ba và năm tư tay cầm hồ sơ chen chúc. Ngày hội việc làm là cơ hội tìm kiếm công việc rất tốt, bởi nhiều doanh nghiệp sẽ tung ra những vị trí đãi ngộ hấp dẫn.
 
-"Đường Hiểu Tình không uống thì tôi uống."
+Tại vị trí đẹp nhất trong nhà thi đấu, ba gian hàng của ba công ty nhà Triệu Kim An xếp thành một hàng ngang. Đường Hiểu Tình với vóc dáng nhỏ nhắn cao 1m52 diện bộ đồ công sở gọn gàng, chỉn chu, phía trước bàn là đám đông sinh viên đang chen nhau nộp hồ sơ.
 
-Lý Ái Lan xán lại, mắt chằm chằm vào Đường Hiểu Tình mà nuốt nước bọt: "Tình Tình, cậu mặc thế này... to quá nhỉ."
+Các bạn học lớp Kế toán 1 và lớp 2 cũng kéo nhau tới góp vui.
 
-"....."
+Lý Ngải Lan ngó nghiêng hồi lâu mà chẳng thấy tin tuyển dụng thư ký đâu cả, cô vốn đang nhăm nhe xin làm thư ký cho Triệu Kim An.
 
-Mặt Đường Hiểu Tình đỏ bừng lên: "Lý Ái Lan, cậu đừng nói bậy, ở đây đông người lắm."
+Quan Linh chần chừ một lúc rồi cũng dúi một bản hồ sơ vào tay nhân sự của Trăn Nhiên.
 
-Đang nói chuyện thì Diêu Tiểu và Mộc Dao chen vào.
+Kết quả là toàn bộ số hồ sơ đó đều chảy về tay Đường Hiểu Tình, bao gồm cả hồ sơ của những bạn học khác trong lớp Kế toán 1.
 
-Phía sau lưng — có Từ Mạn Mạn.
+Chỉ có Vương Duy Đào là nhàn nhã nhất. Cậu ta muốn vào công ty làm việc thì cứ tìm thẳng Triệu Kim An là xong, nhưng cuối cùng Vương Duy Đào vẫn quyết định nghe theo sự sắp xếp của Tô Miến.
+
+"Quản lý Đường, trà sữa này!"
+
+Thằng ranh này có chút đắc ý, cố tình khoe khoang. Nhưng mà với điều kiện như thế, một cậu sinh viên mới 21 tuổi đầu thử hỏi mấy ai kiềm lòng mà không phổng mũi được chứ?
+
+"Vương Duy Đào, tớ đang làm việc đấy!"
+
+"Thì tớ cũng lỡ mua rồi, trà sữa với nước khoáng có khác gì nhau đâu, cậu xem mấy đồng nghiệp nữ bên cạnh cậu còn đang pha cà phê kia kìa."
+
+"Đường Hiểu Tình không uống thì đưa tớ uống cho."
+
+Lý Ngải Lan ghé sát lại, mắt dán chặt vào người Đường Hiểu Tình như muốn nhỏ dãi: "Tình Tình, cậu mặc bộ này... trông đầy đặn quá trời luôn."
+
+"..."
+
+Khuôn mặt nhỏ nhắn của Đường Hiểu Tình đỏ bừng lên ngay tức khắc: "Lý Ngải Lan, cậu đừng có nói bậy, bao nhiêu người ở đây đấy!"
+
+Đang lúc trò chuyện rôm rả thì Diêu Sân và Mộc Dao chen được vào.
+
+Theo sát phía sau hai người là Từ Mạn Mạn.
 
 "Mạn Mạn..."
 
-Đường Hiểu Tình kêu lên một tiếng. Mấy ngày nằm chung giường ở Hứa Đô, hai người đã nói chuyện rất nhiều — Đường Hiểu Tình chưa bao giờ nghĩ Từ Mạn Mạn sẽ rời Trăn Hội Tuyển.
+Đường Hiểu Tình khẽ gọi một tiếng. Cô và Từ Mạn Mạn từng ngủ chung giường mấy ngày ở Hứa Đô, hai người đã tâm sự với nhau rất nhiều; Đường Hiểu Tình chưa từng nghĩ có ngày Từ Mạn Mạn lại rời khỏi Trăn Hối Tuyển.
 
 "Từ... Từ tổng..."
 
-Nhân sự bên Trăn Hội Tuyển nhận ra Từ Mạn Mạn trước tiên, vẻ mặt có chút lúng túng. Sếp cũ của mình giờ xuất hiện ở hội chợ việc làm — thật không biết xử lý ra sao.
+Nhân viên nhân sự của Trăn Hối Tuyển nhận ra Từ Mạn Mạn đầu tiên, vẻ mặt thoáng chút lúng túng.
 
-Nhân sự bên Trăn Nhiên và Hoàn Vũ Cảng Vụ liếc nhìn thêm vài cái rồi không có phản ứng gì lớn. Họ chỉ nghe nói về "đôi cột trụ" của công ty, Từ Mạn Mạn chưa từng can thiệp vào Trăn Nhiên, còn Hoàn Vũ Cảng Vụ thì chưa kịp bắt đầu làm việc cùng — họ cũng không biết cái tên Hoàn Vũ Cảng Vụ chính là do Từ Mạn Mạn đặt.
+Cấp trên trực tiếp một thời của mình giờ lại xuất hiện ngay tại sảnh tuyển dụng với tư cách người ngoài.
 
-"Chào mọi người."
+Nhân sự bên Trăn Nhiên và Hoàn Vũ Cảng Vụ chỉ liếc nhìn thêm vài cái chứ không phản ứng gì thái quá.
 
-Từ Mạn Mạn mỉm cười gật đầu với các nhân viên.
+Người của hai công ty trụ cột kia chỉ mới nghe danh chứ chưa từng tiếp xúc; Từ Mạn Mạn chưa bao giờ nhúng tay vào chuyện của Trăn Nhiên, còn Hoàn Vũ Cảng Vụ thì mới thành lập chưa kịp vận hành, họ thậm chí còn chẳng biết cái tên Hoàn Vũ Cảng Vụ chính là do Từ Mạn Mạn đặt cho.
 
-"Từ tổng, hay là cô vào..."
+"Chào mọi người." Từ Mạn Mạn mỉm cười, gật đầu chào họ.
 
-Một nhân viên nửa người đứng lên định mời, thì bị người phụ nữ bên cạnh kéo áo lại, ra hiệu mắt.
+"Từ tổng, hay là chị vào đây..."
 
-"Cô ấy không còn là Từ tổng nữa rồi... Cậu mời cô ấy vào ngồi có hợp không?"
+Một nam nhân viên của Trăn Hối Tuyển vừa nhổm dậy định nhường chỗ thì bị cô đồng nghiệp ngồi bên cạnh kéo giật vạt áo, ra hiệu bằng ánh mắt.
 
-Người đàn ông ngượng ngùng ngồi xuống.
+"Cô ấy đâu còn là Từ tổng nữa... anh mời cô ấy vào ngồi liệu có hợp lý không?"
 
-Nhân sự bên Trăn Nhiên và Hoàn Vũ Cảng Vụ còn nghiêng người nhìn qua, nở nụ cười đầy ẩn ý — kèm theo vài tiếng cười khe khẽ không to không nhỏ.
+Nam nhân viên nọ sượng sùng ngồi thụp xuống.
 
-Đường Hiểu Tình nghiêm mặt nhìn sang, nhưng cũng chỉ biết thở dài.
+Mấy nhân viên nhân sự của Trăn Nhiên và Hoàn Vũ Cảng Vụ thậm chí còn rướn người sang, trao nhau những nụ cười đầy ẩn ý.
 
-"Thôi kệ~"
+Kèm theo đó là vài tiếng cười khẽ không lớn cũng chẳng nhỏ.
 
-Người ta chẳng nói gì, Đường Hiểu Tình đi làm lâu rồi cũng hiểu. Chốn công sở vốn dĩ thế — kẻ đang lên thì người người xúm quanh, lúc sa cơ thì bị lạnh nhạt. Cuộc đời ngoài kia cũng nhiều chỗ như vậy.
+Đường Hiểu Tình sa sầm mặt mày quay sang nhìn, nhưng rồi cũng đành bất lực thở dài.
 
-Có nghệ sĩ nọ từng nói: khi anh thành công, xung quanh toàn người tốt, mặt nào cũng tươi rói nụ cười.
+"Haizz~"
 
-"Mạn Mạn, thôi ta đi."
+Người ta có nói nặng lời gì đâu. Đường Hiểu Tình đi làm bấy lâu nay cũng đủ hiểu sự đời.
 
-"Không sao."
+Chốn công sở vốn dĩ là vậy, luôn có thói nịnh trên đạp dưới.
 
-Diêu Tiểu kéo tay Từ Mạn Mạn, có lẽ lại thêm một bài học thấm thía. Từ Mạn Mạn bước sang gian hàng Hoàn Vũ Cảng Vụ, ngẩng đầu đọc bảng vị trí tuyển dụng và mức lương — qua đó phần nào có thể thấy được Hoàn Vũ Cảng Vụ đang phát triển ra sao.
+Hoặc có thể nói, nhiều chuyện ngoài xã hội cũng chẳng khác gì thế này.
 
-Gian hàng Hoàn Vũ Cảng Vụ đông ứng viên nhất — vì có cơ hội ra nước ngoài, đãi ngộ cũng tốt nhất.
+Mượn lời một nghệ sĩ từng nói: khi bạn thành công, xung quanh bạn toàn là người tốt, gương mặt nào cũng rạng rỡ nụ cười.
 
-"Anh Tào, công ty đã cử người sang Bỉ Cảng chưa ạ?"
+"Mạn Mạn, thôi bỏ đi, tụi mình về."
 
-Từ Mạn Mạn từng giữ chức danh tại Hoàn Vũ Cảng Vụ, nên gọi đúng tên người quản lý ngay.
+"Không sao đâu."
 
-Thực ra từng vị trí quản lý trong Trăn Nhiên, Từ Mạn Mạn đều nhớ hết — hồ sơ của họ cô có thể đọc thuộc lòng.
+Diêu Sân kéo tay Từ Mạn Mạn lại. Có lẽ vừa mới trải qua thêm một bài học thực tế phũ phàng, Từ Mạn Mạn bước tới trước gian hàng của Hoàn Vũ Cảng Vụ, ngẩng đầu quan sát bảng vị trí tuyển dụng và mức đãi ngộ; nhìn qua đây cũng có thể phần nào đoán được đà phát triển hiện tại của Hoàn Vũ Cảng Vụ.
 
-Anh Tào hơi khó xử, cười nhẹ: "Từ tổng, đây là bí mật công ty."
+Gian hàng của Hoàn Vũ Cảng Vụ đông người nộp hồ sơ nhất, bởi vì có cơ hội được cử đi công tác nước ngoài, mà mức đãi ngộ cũng hậu hĩnh nhất.
 
-Từ Mạn Mạn gật đầu, tiếp tục nhìn.
+"Trưởng phòng Tào, công ty đã cử nhân sự sang cảng Piraeus rồi sao?"
 
-Diêu Tiểu bực quá, kéo tay Từ Mạn Mạn định đi, thầm nghĩ: hồi chị còn trong công ty, ai dám nói chuyện với chị như vậy?
+Từ Mạn Mạn trước đây có giữ chức danh kiêm nhiệm tại Hoàn Vũ Cảng Vụ nên gọi chính xác tên vị trưởng phòng kia.
 
-Mộc Dao không nói gì, chỉ đứng cạnh Từ Mạn Mạn cùng nhìn.
+Thực tế, danh sách toàn bộ đội ngũ quản lý của Trăn Nhiên, Từ Mạn Mạn đều nhớ như in, thậm chí đọc vanh vách được cả lý lịch của từng người.
 
-"Thôi ta đi thôi, các công ty của Kim An đều đang tăng tốc đi lên."
+Trưởng phòng Tào cười gượng gạo đầy khó xử: "Từ tổng, chuyện này thuộc về bảo mật nội bộ của công ty ạ."
 
-"....."
+Từ Mạn Mạn gật đầu tỏ ý đã hiểu rồi tiếp tục xem xét.
 
-Diêu Tiểu há miệng: "Các cậu đến đây để xem cái này? Chỉ nhìn một buổi tuyển dụng mà nhận xét được à?"
+Diêu Sân có chút không chịu nổi cảnh này, kéo tay Từ Mạn Mạn định rời đi; trong lòng cô thầm nghĩ hồi Mạn Mạn còn làm ở công ty, thử hỏi có đứa nào dám mở miệng nói chuyện với Mạn Mạn bằng cái giọng điệu đó không?
 
-Mộc Dao liếc nhìn Diêu Tiểu, không giải thích thêm.
+Mộc Dao không nói gì, chỉ lặng lẽ đứng cạnh Từ Mạn Mạn cùng xem.
 
-"Cậu có tính gì chưa? Về Dương Thành? Hay rời Quận Sa đến thành phố khác?"
+"Đi thôi, các công ty của Kim An đều đang trên đà phát triển rất nhanh."
 
-"Chưa biết."
+"..."
 
-Mộc Dao gật đầu, không hỏi thêm.
+Diêu Sân há hốc miệng: "Hai cậu tới đây để xem cái này đấy à? Nhìn bảng tuyển dụng mà cũng đoán ra được tình hình phát triển cơ á?"
 
-Về Dương Thành là về với Trần Trạch — câu hỏi của Mộc Dao mang cùng ý nghĩa như câu Phương Khiết hỏi Lâm Thanh Tuyết.
+Mộc Dao liếc nhìn Diêu Sân một cái, không giải thích gì thêm.
 
-May là Từ Mạn Mạn còn có mấy tháng lương ở Trăn Hội Tuyển, thưởng cuối năm ba chục ngàn, Triệu Kim An lại riêng tặng thêm mười ngàn tiền thưởng cá nhân — không thì Từ Mạn Mạn đã bị Từ Tắc Đống nắm chặt trong lòng bàn tay rồi.
+"Cậu tính sao rồi? Định đi Dương Thành à? Hay là rời khỏi Quận Sa để tới một thành phố khác?"
 
-Cũng không hẳn là "nắm chặt."
+"Tớ cũng chưa biết nữa."
 
-Có tiền, Từ Mạn Mạn mới có nhiều lựa chọn hơn.
+Mộc Dao gật đầu, không gặng hỏi thêm.
 
-Người ta sống ai mà không cần đến tiền — không thể như mấy bộ phim ngôn tình, cô gái nhà nghèo lên thành phố lớn lại thuê được căn hộ view biển rộng lớn, tối tối nhâm nhi rượu vang đỏ...
+Đi Dương Thành đồng nghĩa với việc chọn Trần Trạch; câu hỏi này của Mộc Dao cũng mang hàm ý y hệt như câu Phương Khiết từng hỏi Lâm Thanh Tuyết.
+
+May mắn là mấy tháng làm ở Trăn Hối Tuyển, Từ Mạn Mạn cũng nhận được lương đều đặn, cộng thêm 3 vạn tiền thưởng cuối năm và 10 vạn tiền thưởng riêng Triệu Kim An cho thêm, nếu không cô đã sớm bị Từ Tắc Đống nắm thóp rồi.
+
+Thực ra cũng chẳng hẳn là bị nắm thóp.
+
+Có tiền trong tay, Từ Mạn Mạn mới có thêm nhiều lựa chọn cho tương lai.
+
+Con người muốn sống thì ai cũng không thể tách rời đồng tiền; đâu thể như mấy bộ phim thần tượng, một cô gái xuất thân gia đình khó khăn chạy tới các siêu đô thị như Bắc Kinh, Thượng Hải, Quảng Châu, Thâm Quyến mà vẫn thuê nổi căn hộ cao cấp hướng biển, tối tối nhâm nhi rượu vang đỏ...

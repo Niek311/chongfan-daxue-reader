@@ -1,241 +1,239 @@
-# ﻿Chương 355: Từ Đây
+# Chương 355: Từ đây.
 
-> **Tiêu đề gốc**: 第355章 从此。
+"Xong rồi, lại im bặt nữa rồi."
 
-"Xong rồi, lại im bặt."
+Du Phi chăm chú quan sát, điều đó chứng tỏ Triệu Kim An thật sự rất để tâm.
 
-Du Phỉ quan sát kỹ — điều này chứng tỏ Triệu Kim An thật sự rất quan tâm.
-
-"Em hỏi anh, còn quan trọng không?"
+"Em nói xem còn quan trọng nữa không?"
 
 Triệu Kim An hỏi lại.
 
-"Kim An, em xin lỗi, em đã hiểu lầm anh."
+"Kim An, em xin lỗi, em hiểu lầm anh rồi."
 
-Giọng Từ Mạn Mạn trở nên trầm xuống.
+Giọng Từ Mạn Mạn chùng xuống.
 
-"Anh chỉ sợ Trần Trạch đi cực đoan, lo cho sự an toàn của em, không ngờ lại thấy em tắt đèn muộn vậy — không phải theo dõi, anh nghe Trần Trạch mất tích mới bảo Đơn Vĩ đến."
+"Anh chỉ sợ Trần Trạch nghĩ quẩn làm liều, lo cho sự an toàn của em, chẳng ngờ lại nhìn thấy em tắt đèn muộn như thế. Không phải anh theo dõi em đâu, anh nghe tin Trần Trạch mất tích mới bảo Đan Vĩ chạy qua xem thử."
 
 "Kim An, anh đừng nói nữa."
 
-"Em không mỏi chân à? Cứ đứng trước cửa kính sàn mà nhìn."
+"Chân em đứng trước cửa sổ sát đất không thấy mỏi à?"
 
-Triệu Kim An thừa nhận với bản thân rằng mình có tình cảm mơ hồ khó giải thích với Từ Mạn Mạn — đó là bộ lọc từ kiếp trước. Nếu chỉ vì xinh đẹp, vì là phụ nữ, thì Quan Linh đã chủ động leo lên giường anh rồi.
+Triệu Kim An thừa nhận bản thân có thứ tình cảm khó nói thành lời dành cho Từ Mạn Mạn, đó là lăng kính từ kiếp trước sót lại; chứ nếu chỉ vì xinh đẹp, vì là phụ nữ, thì ngay cả Quan Linh cũng từng chủ động trèo lên giường anh rồi.
 
-Ngay cả Triệu Kim An cũng tự thú nhận, cách mình đối xử với Thẩm Tử Ngôn như vậy là không công bằng.
+Thậm chí Triệu Kim An còn tự thừa nhận, mình làm như vậy là không công bằng với Thẩm Tử Ngôn.
 
 "Kim An, em không có ý..."
 
-Từ Mạn Mạn ôm điện thoại, không biết nói gì: "Em lòng mệt lắm rồi, em không biết chân có mệt không."
+Từ Mạn Mạn ôm chặt điện thoại, chẳng biết phải nói gì thêm: "Lòng em mệt mỏi quá, chân đứng mỏi hay không em cũng chẳng biết nữa."
 
-Đại khái là do Từ Tắc Đống giáo dục từ nhỏ — Từ Mạn Mạn vốn đã "chạy thoát" rồi, ở trạm dịch vụ đường cao tốc cô và Triệu Kim An móc ngón tay nhau, tim cô đập loạn cả một đêm.
+Có lẽ do sự giáo dục từ nhỏ của Từ Tắc Đống, Từ Mạn Mạn vốn dĩ đã "thoát ly" được rồi; ở trạm dừng nghỉ cao tốc hôm đó, khi móc ngoéo ngón tay với Triệu Kim An, tim cô đã đập loạn nhịp suốt cả một đêm.
 
-Nhưng Triệu Kim An lại để lộ ra chuyện có Tô Miên, Từ Mạn Mạn nhất thời mơ hồ không biết mình đang đứng ở đâu.
+Thế nhưng Triệu Kim An lại lộ ra chuyện có Tô Miến, khiến Từ Mạn Mạn nhất thời rơi vào hoang mang.
 
-Từ Mạn Mạn thì thế, Thẩm Tử Ngôn cũng thế — họ không phải Lý Ái Lan, cũng chẳng phải Quan Linh.
+Dù là Từ Mạn Mạn hay Thẩm Tử Ngôn, họ đều không phải Lý Ngải Lan, càng chẳng phải Quan Linh.
 
-"Kim An, em không phải vì thích Trần Trạch, là vì lo anh ấy có chuyện — dù gì từ nhỏ đến lớn chúng em cũng quen biết nhau, cùng lớn lên với nhau."
+"Kim An, em không thích Trần Trạch, chỉ là lo cậu ta xảy ra chuyện thôi, dù sao bọn em cũng quen biết lớn lên cùng nhau từ nhỏ."
 
-"Em không sai, anh hiểu."
+"Em không sai, anh hiểu mà."
 
-Triệu Kim An thản nhiên nói: "Nếu là Mộc Dao, anh cũng làm không được nhắm mắt làm ngơ."
+Triệu Kim An thản nhiên đáp: "Nếu là Mộc Dao, anh cũng chẳng thể làm ngơ được."
 
-"Nhưng... rồi thì sao?"
+"Nhưng... rồi sao nữa?"
 
-Triệu Kim An lại chuyển hướng: "Chỉ cần Trần Trạch mất tích là em không ngủ được? Chỉ cần anh ta làm màn tự tử thì em phải chạy đến cứu? Xin lỗi, tất cả đều là người lớn cả rồi."
+Triệu Kim An bỗng chuyển giọng: "Cứ hễ Trần Trạch mất tích là em không ngủ? Cứ hễ cậu ta đòi sống đòi chết là em lại chạy đi cứu à? Xin lỗi nhé, chúng ta đều là người trưởng thành cả rồi."
 
-"Anh ta lớn không nổi — các người coi anh ta như trẻ con, em, cha mẹ em, cha mẹ anh ta — các người chiều anh ta là chuyện của các người."
+"Cậu ta không chịu lớn, các người coi cậu ta như trẻ con; em, bố mẹ em, bố mẹ cậu ta, các người chiều chuộng cậu ta là chuyện của các người."
 
-"Anh không có nghĩa vụ đó."
+"Anh không có cái nghĩa vụ đó."
 
-"Người khác cũng không có nghĩa vụ đó."
+"Những người khác cũng chẳng ai có nghĩa vụ đó cả."
 
-Từ Mạn Mạn phủ nhận ngay: "Kim An, em không có chiều anh ấy, là anh ta định nhảy lầu..."
+Từ Mạn Mạn vội vàng phủ nhận: "Kim An, em không chiều chuộng cậu ta, là tại cậu ta đòi nhảy lầu..."
 
-"Rồi thì sao?"
+"Thế rồi sao nữa?"
 
-Triệu Kim An lại cười: "Em hỏi Lâm Thanh Tuyết xem — hai nhà các người đứng cạnh nhau, anh và cô ấy đều thấy mình là thừa."
+Triệu Kim An lại bật cười: "Em đi hỏi Lâm Thanh Tuyết xem, hai gia đình các người đứng cạnh nhau, cả anh lẫn cô ấy đều trở thành kẻ thừa thãi đấy."
 
 "Kim An!"
 
-"Lưu Hiểu Tĩnh dọn văn phòng lúc nào không quan trọng — đã về rồi thì đừng quay lại, em biết điều này trước khi vào công ty rồi."
+"Lưu Hiểu Tĩnh dọn văn phòng lúc nào không quan trọng, quay về rồi thì đừng quay lại nữa, trước khi em vào công ty chúng ta đã giao kèo rõ ràng rồi."
 
-"Kim An, em không có đến xưởng Tinh Sa... tút tút tút."
+"Kim An, em không hề tới nhà xưởng ở Tinh Sa... tút tút tút."
 
-Nói xong, Triệu Kim An cúp máy.
+Nói xong, Triệu Kim An dứt khoát cúp máy.
 
-Nghe thấy văn phòng không còn động tĩnh, Lưu Hiểu Tĩnh mới đẩy cửa vào.
+Nghe thấy bên trong văn phòng không còn tiếng động nữa, Lưu Hiểu Tĩnh mới đẩy cửa bước vào.
 
-Chỉ thấy Từ Mạn Mạn đứng thẳng lưng, tay cầm điện thoại mà đứng đơ.
+Chỉ thấy Từ Mạn Mạn vẫn đứng thẳng lưng, ngẩn ngơ nhìn chằm chằm vào màn hình điện thoại.
 
-Liễu Ôn Ninh và Tôn Dũng cũng đứng ngoài cửa.
+Liễu Ôn Ninh và Tôn Dũng cũng đang đứng ngay ngoài cửa.
 
-Họ không hiểu Từ Mạn Mạn — Trăn Hội Tuyển phát triển tốt như vậy, còn có Trăn Nhiên và Hoàn Vũ Cảng vụ nữa, nếu sau này thành lập tập đoàn, Từ Mạn Mạn và Thẩm Tử Ngôn ở tập đoàn sẽ là thật sự "dưới một người, trên vạn người."
+Họ không tài nào hiểu nổi Từ Mạn Mạn. Trăn Hối Tuyển đang phát triển rực rỡ đến thế, lại còn cả Trăn Nhiên và Hoàn Vũ Cảng Vụ; nếu sau này thành lập tập đoàn, vị thế của Từ Mạn Mạn và Thẩm Tử Ngôn trong tập đoàn chính là dưới một người trên vạn người.
 
-Lưu Hiểu Tĩnh khẽ nhắc: "Từ tổng, đóng cửa rồi."
+Lưu Hiểu Tĩnh khẽ nhắc: "Tổng giám đốc Từ, sắp đóng cửa rồi ạ."
 
-Câu này nhắc nhở Từ Mạn Mạn: cô không thể ngủ lại văn phòng nữa.
+Cô đang ngầm nhắc Từ Mạn Mạn rằng: chị không thể ngủ lại trong văn phòng được nữa đâu.
 
-Không nhận được điện thoại hay tin nhắn nào của Triệu Kim An — điều đó có nghĩa là từ hôm nay "Từ tổng" chỉ là Từ Mạn Mạn.
+Không nhận được điện thoại hay tin nhắn nào từ Triệu Kim An, điều đó có nghĩa là từ nay về sau, "Tổng giám đốc Từ" sẽ chỉ còn là Từ Mạn Mạn mà thôi.
 
-Tất cả mọi người ở đây đều hiểu — công ty là của ai, ai đang trả lương cho họ.
+Tất cả mọi chuyện, những người ở đây đều hiểu rõ cả: công ty là của ai, và ai mới là người trả lương cho họ.
 
-Từ Mạn Mạn do dự rồi lại do dự, cuối cùng bước ra khỏi văn phòng.
+Từ Mạn Mạn chần chừ hết lần này đến lần khác rồi mới bước chân ra khỏi văn phòng.
 
-Liễu Ôn Ninh và Tôn Dũng lúng túng nhưng vẫn giữ được lịch sự, mỉm cười chào.
+Liễu Ôn Ninh và Tôn Dũng nở nụ cười vừa lúng túng vừa giữ phép lịch sự gật đầu chào cô.
 
-"....."
+"..."
 
-Lưu Hiểu Tĩnh muốn nói mà không nói được, gọi giữ Từ Mạn Mạn lại: "Từ tổng, chìa khóa xe Audi A6, và thẻ mua hàng."
+Lưu Hiểu Tĩnh ngập ngừng muốn nói lại thôi, cuối cùng vẫn gọi với theo: "Tổng giám đốc Từ, chìa khóa chiếc Audi A6, với cả thẻ mua sắm nữa ạ."
 
-Thỉnh thoảng có lãnh đạo các cơ quan liên quan đến thăm Trăn Hội Tuyển, dịp lễ tết cũng cần biếu xén một số, nên Từ Mạn Mạn và Liễu Ôn Ninh thường mang theo thẻ mua hàng bên người.
+Đôi khi có lãnh đạo các cơ quan liên quan tới thị sát Trăn Hối Tuyển, lễ Tết cũng cần biếu xén chút ít cho một số vị lãnh đạo, nên trong túi xách của Từ Mạn Mạn và Liễu Ôn Ninh lúc nào cũng mang theo sẵn thẻ mua sắm.
 
-Những thẻ này đều có đăng ký sổ sách.
+Số thẻ mua sắm này đều có ghi chép sổ sách đàng hoàng.
 
-"....."
+"..."
 
-Từ Mạn Mạn đứng ngẩn, cô chưa bao giờ nghĩ mình sẽ rời Trăn Hội Tuyển — dù sau này có điều chuyển sang Hoàn Vũ Cảng vụ, Từ Mạn Mạn vẫn có quyền dùng thẻ mua hàng để biếu người.
+Từ Mạn Mạn sững người giây lát. Cô chưa từng nghĩ sẽ có ngày mình rời khỏi Trăn Hối Tuyển; ngay cả khi sau này có điều chuyển sang Hoàn Vũ Cảng Vụ, Từ Mạn Mạn vẫn có quyền cầm thẻ mua sắm đi biếu tặng đối ngoại.
 
-Sẽ chẳng ai nhắc đến chuyện này.
+Chẳng ai lại đi nhắc tới chuyện này cả.
 
-Giống như Thẩm Tử Ngôn cũng có nhiều thẻ mua hàng của Trăn Hội Tuyển, Trăn Nhiên vào dịp lễ tết cũng cần biếu quà một số lãnh đạo.
+Cũng giống như Thẩm Tử Ngôn cũng giữ rất nhiều thẻ mua sắm của Trăn Hối Tuyển, hay Trăn Nhiên vào dịp lễ Tết cũng phải tặng quà cho một số vị lãnh đạo vậy.
 
-Dù Triệu Kim An quen biết Tô Cảnh Hành, nhưng một số lễ nghĩa cần đủ vẫn phải đủ.
+Triệu Kim An dẫu có quen biết Tô Cảnh Hành thì những lễ nghi xã giao tối thiểu vẫn phải chu toàn.
 
-Dưới ánh mắt của Liễu Ôn Ninh và Tôn Dũng, Từ Mạn Mạn lại đứng ở cửa mở túi, rút chìa khóa xe và thẻ mua hàng trao cho Lưu Hiểu Tĩnh.
+Dưới ánh mắt dõi theo của Liễu Ôn Ninh và Tôn Dũng, Từ Mạn Mạn đứng ngay tại cửa kéo khóa túi xách, lấy ra chìa khóa xe cùng xấp thẻ mua sắm đưa lại cho Lưu Hiểu Tĩnh.
 
-Chốn công sở vốn thực tế như vậy.
+Chốn công sở là thế đấy, thực tế đến phũ phàng.
 
-Lâu sau Du Phỉ và Triệu Chí Dũng mới quay lại.
+Thấy vậy, mãi một lúc lâu sau Du Phi và Triệu Chí Dũng mới dám bước lại gần.
 
-Triệu Kim An không thích ăn mỳ cay, đây là lần đầu tiên anh chiếu cố chỗ kinh doanh của Trịnh Như.
+Triệu Kim An vốn không thích ăn lẩu xiên cay, đây cũng là lần đầu tiên anh ghé ủng hộ quán của Trịnh Như.
 
-Nhìn thấy cả bát lổn nhổn những viên bò viên cá viên bị chọc nát, Du Phỉ và Triệu Chí Dũng nhìn nhau, quyết định im miệng.
+Nhìn trong bát toàn những viên bò viên và chả cá bị chọc nát bấy, Du Phi và Triệu Chí Dũng liếc mắt nhìn nhau rồi cùng chọn cách ngậm miệng làm thinh.
 
-Triệu Kim An sờ vào má Triệu Niệm Khả: "Thi có lấy giấy khen không?"
+Triệu Kim An khẽ nựng má Triệu Niệm Khả: "Thi cử có được giấy khen không đấy?"
 
 Triệu Niệm Khả lắc đầu.
 
-"Hứ, giống hệt bố."
+"Hờ, giống hệt bố cháu."
 
-Triệu Chí Dũng: ......
+Triệu Chí Dũng: "..."
 
-Kim An mày nói gì vậy? Tao ít nhất hồi cấp ba cũng học lớp chuyên nhé.
+Kim An, mày nói cái gì thế hả? Hồi cấp ba tao ít ra cũng học lớp chọn đấy nhé.
 
-"....."
+"..."
 
-Du Phỉ chớp mắt — Triệu Niệm Khả đâu phải con ruột Triệu Chí Dũng, cũng đòi dây vào?
+Du Phi chớp chớp mắt, Triệu Niệm Khả đâu phải con ruột của Triệu Chí Dũng, chuyện này mà cũng lôi vào cho giống nhau được sao?
 
 "Đi thôi."
 
-Triệu Kim An đứng dậy, nhìn Trịnh Như: "Sao không thuê mặt bằng?"
+Triệu Kim An đứng dậy, quay sang nhìn Trịnh Như: "Sao chị không thuê hẳn một cái mặt bằng cửa hàng?"
 
-"Không muốn thuê người làm, không có tiền thuê, không có áp lực gì, như vậy cũng tốt."
+"Chị không muốn thuê người làm, chẳng tốn tiền thuê mặt bằng, cũng chẳng áp lực gì, cứ thế này lại hay."
 
 "Ừ."
 
 Triệu Kim An gật đầu.
 
-Trịnh Như cũng không biết sao, lại có chút sợ sợ cái "chú" theo thứ bậc này.
+Chẳng hiểu vì sao Trịnh Như lại hơi sờ sợ người "chú" cùng vai vế trong họ này.
 
-Dù sao công việc vẫn phải tiếp tục. Tháng 3, Triệu Kim An ngừng bán khống cổ phiếu Mỹ — thị trường Mỹ bắt đầu phục hồi, đây chính là cái hố vàng thật sự.
+Dẫu thế nào thì công việc vẫn phải tiếp tục. Tháng 3, Triệu Kim An ngừng bán khống trên thị trường chứng khoán Mỹ; chứng khoán Mỹ bắt đầu bật tăng trở lại, thời điểm này chính là cái "hố vàng" thực sự.
 
-Chỉ số S&P 500: 676 điểm. Dow Jones: 6469 điểm. Nasdaq chỉ vỏn vẹn 1265 điểm.
+Chỉ số S&P 500 của Mỹ: 676 điểm, chỉ số công nghiệp Dow Jones: 6.469 điểm, còn Nasdaq mới ở mức 1.265 điểm.
 
-Hồng Kông, chỉ số Hang Seng: 11344 điểm.
+Chứng khoán Hồng Kông, chỉ số Hang Seng: 11.344 điểm.
 
-Không cần phải biết chơi chứng khoán — chỉ cần hơi quan tâm đến kinh tế, ai cũng biết cái hố vàng này sâu đến nhường nào.
+Cái này chẳng cần phải rành chơi cổ phiếu, chỉ cần người hơi quan tâm đến kinh tế một chút đều biết cái hố vàng này lớn đến mức nào.
 
-Nhìn cổ phiếu Tần Cầu lúc này mới chỉ quanh 48, Triệu Kim An không biết sẽ tăng gấp bao nhiêu lần — anh định nắm dài hạn.
+Nhìn cổ phiếu Tencent lúc này giá mới quanh quẩn mức 48 đô la Hồng Kông, Triệu Kim An chẳng biết sau này nó sẽ nhân lên bao nhiêu lần, anh dự định sẽ nắm giữ dài hạn.
 
-Còn có Apple, Microsoft, Nvidia, Amazon, Tesla.
+Ngoài ra còn có Apple, Microsoft, Nvidia, Amazon, Tesla.
 
-Apple khỏi phải nói, ngày 7/6/2010 ra mắt iPhone 4, vốn hóa cao nhất vượt 3,78 nghìn tỷ đô, là công ty có giá trị vốn hóa cao nhất toàn cầu.
+Riêng tập đoàn Apple thì khỏi phải bàn, ngày 7 tháng 6 năm 2010 sẽ ra mắt iPhone 4, vốn hóa đỉnh điểm từng vượt mốc 3,78 nghìn tỷ USD, là công ty có giá trị vốn hóa lớn nhất toàn cầu.
 
-Triệu Kim An không muốn mua hết một lần, anh vốn thận trọng, chỉ mua dần từng ngày ở đáy.
+Triệu Kim An không tiện dồn tiền mua hết một lần; trước nay anh vẫn luôn cẩn trọng, chỉ âm thầm gom dần từng chút một ngay vùng đáy mỗi ngày.
 
-Sau khi mua cảng Tây Cống, đến tháng 3 cổ phiếu Mỹ của anh còn lại 612 triệu đô.
+Sau khi mua cảng Sài Gòn, tính đến tháng 3, tài khoản chứng khoán Mỹ của anh vẫn còn lại 612 triệu USD.
 
-Trong lúc gom Tần Cầu, Triệu Kim An nhớ lại chuyện đồng nghiệp hồi kiếp trước bàn tán trong văn phòng:
+Trong lúc mua cổ phiếu Tencent, Triệu Kim An chợt nhớ lại ở kiếp trước, trong văn phòng từng có người tranh luận:
 
-Vốn hóa Tần Cầu với Tự Tiết cái nào cao hơn?
+Giữa Tencent và ByteDance, vốn hóa công ty nào cao hơn?
 
-Đại khái vì làm kế toán, mọi người đưa số liệu ra cãi nhau khá căng.
+Có lẽ vì đều là dân học kế toán nên mọi người còn lôi cả số liệu ra tranh cãi vô cùng kịch liệt.
 
-Nhưng cuối cùng không có kết quả rõ ràng, ai cũng không phục ai.
+Nhưng rốt cuộc vẫn chẳng có đáp án chính xác, ai cũng chẳng chịu phục ai.
 
-Một bên là QQ và WeChat ai ai cũng dùng.
+Một bên là QQ và WeChat mà người người đều dùng;
 
-Một bên là video ngắn ai ai cũng lướt.
+Một bên là ứng dụng video ngắn mà người người đều lướt.
 
-Tần Cầu đỉnh vốn hóa từng vượt 5,43 nghìn tỷ đô Hồng Kông, tương đương khoảng 703 tỷ đô Mỹ, xếp thứ 16 toàn cầu, là doanh nghiệp internet có vốn hóa cao nhất trong nước.
+Tencent từng đạt đỉnh vốn hóa vượt 5,43 nghìn tỷ đô la Hồng Kông, tương đương khoảng 703 tỷ USD, xếp hạng 16 toàn cầu, là doanh nghiệp internet có vốn hóa lớn nhất trong nước.
 
-Tự Tiết chưa niêm yết.
+Còn ByteDance vẫn chưa niêm yết.
 
-Nhưng căn cứ vào doanh thu toàn cầu nửa đầu năm 2025 đạt 73 tỷ đô, định giá thị trường sơ cấp tương ứng khoảng 230 tỷ đô.
+Tuy nhiên, theo số liệu doanh thu toàn cầu nửa đầu năm 2025 đạt 73 tỷ USD, mức định giá tương ứng trên thị trường sơ cấp vào khoảng 230 tỷ USD.
 
-Nếu tương lai niêm yết.
+Nếu tương lai lên sàn niêm yết.
 
-Tính theo cùng PS ratio, vốn hóa có thể đạt khoảng 816,5 tỷ đô.
+Tính theo hệ số P/S tương đương, vốn hóa của nó có thể chạm mốc 816,5 tỷ USD.
 
-Dân kế toán thích nói chuyện bằng số liệu, nhưng chưa niêm yết thì không ai thuyết phục được ai.
+Dân học kế toán thích dùng số liệu để nói chuyện, nhưng khi chưa lên sàn thì chẳng ai thuyết phục nổi ai.
 
-Còn liên quan đến tiềm năng tăng trưởng sau khi IPO, mua cổ phiếu là mua kỳ vọng — ví dụ mảng AI và chiến lược toàn cầu — Triệu Kim An giờ nghĩ lại vẫn thấy buồn cười.
+Trong đó còn liên quan đến tiềm năng tăng trưởng vốn hóa sau khi niêm yết; mua cổ phiếu là mua kỳ vọng tương lai, ví dụ như mảng AI và bố cục chiến lược toàn cầu. Nghĩ lại bây giờ, Triệu Kim An thấy buồn cười thật.
 
-Đồng nghiệp ngày xưa cứ tranh luận là phải kéo số liệu ra.
+Mấy đồng nghiệp cũ hễ tranh luận là y như rằng lôi bảng số liệu ra đập bàn.
 
-Ali với Tần Cầu thực ra không cần so — về vốn hóa, Tần Cầu nhỉnh hơn Ali một chút.
+Alibaba và Tencent thì chẳng có gì phải tranh cãi; xét về vốn hóa công ty, Tencent nhỉnh hơn Alibaba một chút.
 
-PDD, Mỹ Đoàn, Nét Dịch, Thiên Độ, Tiểu Mễ, Kim Đông, Khoái Thủ... đều thuộc tầng thứ hai, kém Tần Cầu và Ali một khoảng cách khá lớn.
+Còn những cái tên như Pinduoduo, Meituan, NetEase, Baidu, Xiaomi, JD.com, Kuaishou... đều thuộc nhóm thứ hai, kém xa Tencent và Alibaba một đoạn dài.
 
-Ví dụ cùng là nền tảng thương mại điện tử, vốn hóa Kim Đông dài kỳ loanh quanh 500-550 tỷ đô, chỉ bằng một phần mười Tần Cầu và Ali.
+Ví dụ cùng là sàn thương mại điện tử, vốn hóa của JD.com quanh năm quẩn quanh ở mức 50 đến 55 tỷ USD, chỉ bằng một phần mười của Tencent và Alibaba.
 
-Triệu Kim An mỗi đêm ngồi trong thư phòng cho đến khi phân bổ xong 612 triệu đô mới thôi.
+Mỗi tối Triệu Kim An đều ngồi lì trong thư phòng, cho đến khi "phân bổ" xong xuôi toàn bộ 612 triệu USD ấy mới thôi.
 
-Mua Apple nhiều nhất — 158 triệu.
+Anh mua nhiều nhất là Apple, rót vào tới 158 triệu USD.
 
-Chuyện của Từ Mạn Mạn, Triệu Kim An không nghĩ nữa, cũng không quan tâm cô có đến xưởng Tinh Sa không.
+Chuyện của Từ Mạn Mạn, Triệu Kim An không nghĩ tới nữa, cũng chẳng bận tâm xem cô có xuống nhà xưởng ở Tinh Sa hay không.
 
-Không nghĩ đến việc Từ Mạn Mạn có lại bị Từ Tắc Đống tát vào mặt không, khóe miệng có rách không.
+Cũng không nghĩ xem Từ Mạn Mạn có lại bị Từ Tắc Đống tát vào mặt, khóe miệng có bị rách tươm máu nữa hay không.
 
-Nhìn vào gương thấy mình trong đó, sờ lên khóe miệng, Triệu Kim An phát hiện mình vẫn cứ nhớ về cái buổi chiều năm đó — lần đầu tiên Từ Mạn Mạn vào văn phòng quỳ trên ghế sofa nghịch cây thanh lương trà.
+Nhìn chính mình trong gương, khẽ đưa tay chạm lên khóe miệng, Triệu Kim An phát hiện mình vẫn bất giác nhớ về buổi chiều hôm ấy, lần đầu tiên Từ Mạn Mạn bước vào văn phòng quỳ trên ghế sofa nghịch chậu trầu bà xanh.
 
-Vẫn cứ nhớ lần đầu trong văn phòng Trăn Hội Tuyển gặp Từ Tắc Đống ra tay, mình sờ lên khóe miệng rướm máu của cô ấy.
+Vẫn nhớ tới lần đầu tiên chứng kiến Từ Tắc Đống ra tay ngay tại văn phòng Trăn Hối Tuyển, và khoảnh khắc mình đưa tay chạm vào khóe miệng rỉ máu của Từ Mạn Mạn.
 
-"Em tự chọn."
+"Là tự em chọn đấy."
 
-Dù có nhớ thì nhớ vậy thôi — Triệu Kim An cầm điện thoại gọi cho Lâm Thanh Tuyết.
+Nghĩ thì nghĩ vậy, Triệu Kim An vẫn cầm điện thoại lên gọi cho Lâm Thanh Tuyết.
 
-Điện thoại bắt máy ngay,
+Đầu dây bên kia bắt máy ngay lập tức.
 
-"Triệu tổng."
+"Chủ tịch Triệu."
 
-Lâm Thanh Tuyết mở miệng gọi Triệu tổng, cô nói chỉ nhận được một cú điện thoại của Dương Thục Mỹ.
+Lâm Thanh Tuyết mở miệng liền gọi một tiếng "Chủ tịch Triệu", cô bảo chỉ mới nhận được một cuộc điện thoại từ Dương Thù Mỹ.
 
-"Anh đoán là Trần Trạch không muốn bán cho em, cậu biết đấy — anh ta sĩ diện nhất."
+"Tôi đoán là Trần Trạch không muốn bán cho tôi, anh biết đấy, cậu ta sĩ diện lắm."
 
-Lâm Thanh Tuyết cười: "Thà bán rẻ hơn chứ không bán cho chúng ta, tiếc thay Dương tổng có thằng con như vậy, ích kỷ nhỏ nhen, không phân biệt được công chuyện và chuyện riêng."
+Lâm Thanh Tuyết bật cười: "Thà bán rẻ đi một chút chứ nhất quyết không chịu bán cho tôi và anh. Tiếc cho Tổng giám đốc Dương có một cậu con trai như thế, hành xử cảm tính, chẳng phân biệt nổi việc công với việc tư."
 
-Triệu Kim An bình thản hỏi: "Em tính lật tay bán lại, hay tự mình kinh doanh?"
+Triệu Kim An hỏi với giọng bình thản: "Cô định bán sang tay kiếm lời, hay tự mình điều hành?"
 
-"Chưa nghĩ ra."
+"Tôi chưa nghĩ kỹ."
 
-Lâm Thanh Tuyết cũng không phải loại không có đầu óc: "Giờ khủng hoảng tài chính, chờ kinh tế phục hồi rồi lật tay bán lại chắc kiếm được chút."
+Lâm Thanh Tuyết cũng chẳng phải kẻ bất tài vô học: "Hiện tại đang khủng hoảng tài chính, đợi kinh tế phục hồi rồi bán sang tay chắc cũng kiếm được một khoản."
 
-"Em vay tiền không tính lãi suất à?"
+"Cô vay tiền mà không tính lãi à?"
 
-"Khúc khúc khúc... Em chỉ có một mình thôi, anh tính sao cũng được."
+"Khúc khích... tôi chỉ có một thân một mình thế này thôi, anh muốn tính thế nào cũng được."
 
-"Em không nói muốn cho bố mẹ sống tốt hơn sao?"
+"Không phải cô bảo muốn để bố mẹ có cuộc sống sung túc sao?"
 
-"Ừ, tự mình kinh doanh, chuyển hướng làm thời trang nữ?"
+"Ừm, hay là tự điều hành rồi chuyển hướng sang làm đồ nữ nhỉ?"
 
-Lâm Thanh Tuyết thật thà: "Ví dụ cung cấp hàng cho Phương Khiết và Cốc Siêu Thừa? Hoặc làm xuất khẩu cũng được, nhưng em không giỏi kinh doanh."
+Lâm Thanh Tuyết thẳng thắn bày tỏ: "Ví dụ như cung ứng hàng cho Phương Khiết và Cốc Siêu Thừa? Hoặc là tiếp tục làm hàng ngoại thương? Nhưng tôi không giỏi khoản quản lý điều hành."
 
-Lâm Thanh Tuyết tự biết giới hạn của mình — qua chuyện này, cô hiểu năng lực kinh doanh của mình không bằng Từ Mạn Mạn.
+Lâm Thanh Tuyết biết tự lượng sức mình; qua chuyện lần này, cô hiểu rõ năng lực của bản thân ở phương diện đó không bằng Từ Mạn Mạn.
 
-"Nhưng Dương tổng và họ khó cầm cự lắm, hồi em qua chắc là không nhận được đơn hàng nên ngừng sản xuất rồi."
+"Nhưng phía Tổng giám đốc Dương chắc khó mà trụ vững nổi đâu; lần trước tôi tới đó thì hình như không nhận được đơn hàng nên đã phải ngừng sản xuất rồi."
 
 "Ừ."
 
-.....
+...

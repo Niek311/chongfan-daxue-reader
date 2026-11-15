@@ -1,7 +1,5 @@
 # Chương 275: Em là Mạn Đau Đau mà
 
-> **Tiêu đề gốc**: 第275章 你是曼疼疼。
-
 Sự tuyệt tình và dứt khoát của Từ Mạn Mạn.
 
 Từ Tắc Đống và Lương Tuệ Trân nhất thời sững sờ chết lặng.
@@ -172,7 +170,7 @@ Oái oăm thay, tất cả những người có mặt trong phòng đều tin s�
 
 Từ Mạn Mạn đứng phía sau im lặng, không giải thích, cũng chẳng hùa theo châm dầu vào lửa.
 
-Lúc đầu cô còn lo lắng Triệu Kim An sẽ chê bai mình bất hiếu, Từ Mạn Mạn đâu có biết chuyện của Đoàn Thu Bình và Tống Uyển Hòa, càng chưa từng được nghe Triệu Kim An "giảng đạo lý" cho hai người phụ nữ kia như thế nào.
+Lúc đầu cô còn lo lắng Triệu Kim An sẽ chê bai mình bất hiếu, Từ Mạn Mạn đâu có biết chuyện của Đoạn Thu Bình và Tống Uyển Hòa, càng chưa từng được nghe Triệu Kim An "giảng đạo lý" cho hai người phụ nữ kia như thế nào.
 
 "Tôi có thể tăng lương thêm cho cô ấy."
 

@@ -1,7 +1,5 @@
 # Chương 254: Từ Tắc Đống dạo siêu thị Trăn Hối Tuyển
 
-> **Tiêu đề gốc**: 第254章 徐则栋逛臻汇选
-
 Có lẽ ở kiếp trước, Từ Mạn Mạn cũng đã sống như thế.
 
 Lặng lẽ nhìn Trần Trạch ôm ấp, đùa cợt với những cô gái khác trong quán bar, bình thản nhìn bố mẹ già đi theo năm tháng, cần mẫn làm tròn nghĩa vụ của một người con gái.
@@ -80,7 +78,7 @@ Họ làm sao biết được sâu thẳm trong nội tâm vị Từ tổng bả
 
 Triệu Kim An rất hiếm khi xuất hiện ở siêu thị, Từ Mạn Mạn gần như là người nắm quyền điều hành cao nhất tại Trăn Hối Tuyển.
 
-Đơn Na Tề không nhận ra Lương Tuệ Trân, Đường Hiểu Tình ở quầy đồ ăn chín cũng không hề biết mặt bà, còn Từ Tắc Đống thì cứ ngó nghiêng chung quanh, trong lòng không giấu nổi vẻ tò mò với Trăn Hối Tuyển.
+Đan Na Tề không nhận ra Lương Tuệ Trân, Đường Hiểu Tình ở quầy đồ ăn chín cũng không hề biết mặt bà, còn Từ Tắc Đống thì cứ ngó nghiêng chung quanh, trong lòng không giấu nổi vẻ tò mò với Trăn Hối Tuyển.
 
 Ngay từ lúc bước vào thang máy cho đến khi nhìn thấy phòng chăm sóc mẹ và bé, Trăn Hối Tuyển đã mang lại cho Từ Tắc Đống một cảm giác hoàn toàn khác biệt.
 

@@ -1,7 +1,5 @@
 # Chương 273: Mời vào
 
-> **Tiêu đề gốc**: 第273章 请进。
-
 Từ Tắc Đống và Lương Tuệ Trân sững sờ nhìn chằm chằm vào tấm biển đồng gắn trên cửa: Phó Tổng Giám Đốc.
 
 "Mời vào."

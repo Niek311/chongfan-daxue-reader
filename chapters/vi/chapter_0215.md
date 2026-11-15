@@ -1,7 +1,5 @@
 # Chương 215: Cậu ấy không đến thăm cháu nữa à?
 
-> **Tiêu đề gốc**: 第215章 他没来看过你了吗？
-
 Đầu dây bên kia, bà nội chỉ luôn miệng cười bảo tốt, tốt lắm, mua được nhà là điều đại hỷ.
 
 Trong suy nghĩ của bà nội, mua nhà là một việc hệ trọng vô cùng của một đời người, mà có lẽ trong tâm thức của bất kỳ người dân nước mình nào, việc tậu được chốn an cư cũng đều là đại sự hàng đầu.
@@ -26,11 +24,11 @@ Bà Lưu Mỹ Nga thậm chí còn chẳng buồn hỏi han đến chuyện ti�
 
 ...
 
-Điện thoại Triệu Kim An nhận được một tin nhắn ngắn ngủi từ Tô Miện.
+Điện thoại Triệu Kim An nhận được một tin nhắn ngắn ngủi từ Tô Miến.
 
-Tô Miện: [Kim An, bà dì của em tới rồi.]
+Tô Miến: [Kim An, bà dì của em tới rồi.]
 
-Triệu Kim An lập tức bấm số gọi cho Tô Miện. Giọng điệu của Tô Miện ở đầu dây bên kia nghe vô cùng chùng xuống và ủ rũ, suốt mười một lần ân ái mặn nồng mà bụng vẫn chưa có động tĩnh gì. Triệu Kim An dịu dàng hết lời khuyên nhủ, an ủi Tô Miện qua điện thoại, cậu có thể cảm nhận sâu sắc rằng cô thực sự đang khao khát đến cháy bỏng được làm mẹ.
+Triệu Kim An lập tức bấm số gọi cho Tô Miến. Giọng điệu của Tô Miến ở đầu dây bên kia nghe vô cùng chùng xuống và ủ rũ, suốt mười một lần ân ái mặn nồng mà bụng vẫn chưa có động tĩnh gì. Triệu Kim An dịu dàng hết lời khuyên nhủ, an ủi Tô Miến qua điện thoại, cậu có thể cảm nhận sâu sắc rằng cô thực sự đang khao khát đến cháy bỏng được làm mẹ.
 
 Thực lòng mà nói, Triệu Kim An không hề đặt nặng chuyện này trong lòng. Đâu phải cứ muốn là có thai ngay được dễ dàng như thế?
 
@@ -40,17 +38,17 @@ Nếu tính theo logic đó thì Tưởng Chỉ Tình e rằng đã có bầu t�
 
 Triệu Kim An trước giờ chưa từng áp dụng bất kỳ biện pháp an toàn nào, và khi ở bên Tưởng Chỉ Tình cậu cũng hoàn toàn thả tự nhiên như vậy.
 
-Sau khi cúp máy, Triệu Kim An khẽ trầm ngâm giây lát. Cuộc điện thoại này kéo dài suốt nửa tiếng đồng hồ, và tâm trạng Tô Miện cũng ủ rũ ròng rã suốt nửa tiếng ấy.
+Sau khi cúp máy, Triệu Kim An khẽ trầm ngâm giây lát. Cuộc điện thoại này kéo dài suốt nửa tiếng đồng hồ, và tâm trạng Tô Miến cũng ủ rũ ròng rã suốt nửa tiếng ấy.
 
-Lúc phải ngồi trên chiếc xe lăn, Tô Miện chưa từng lộ vẻ bi quan tuyệt vọng đến thế, vậy mà chỉ vì chuyện chưa mang thai mà cảm xúc lại suy sụp nặng nề đến nhường này.
+Lúc phải ngồi trên chiếc xe lăn, Tô Miến chưa từng lộ vẻ bi quan tuyệt vọng đến thế, vậy mà chỉ vì chuyện chưa mang thai mà cảm xúc lại suy sụp nặng nề đến nhường này.
 
-Một lúc sau, bà Quách Uyển Thanh gọi điện tới, kể rằng Tô Miện ở nhà vừa nổi một trận lôi đình thịnh nộ, hất tung toàn bộ dụng cụ phục hồi chức năng xuống sàn nhà, đuổi thẳng cổ mấy cô y tá điều dưỡng chăm sóc đặc biệt ra khỏi phòng.
+Một lúc sau, bà Quách Uyển Thanh gọi điện tới, kể rằng Tô Miến ở nhà vừa nổi một trận lôi đình thịnh nộ, hất tung toàn bộ dụng cụ phục hồi chức năng xuống sàn nhà, đuổi thẳng cổ mấy cô y tá điều dưỡng chăm sóc đặc biệt ra khỏi phòng.
 
 Cô vừa khóc vừa uất ức gào lên rằng bản thân đã tàn phế không đứng dậy nổi, nay đến cả thiên chức sinh con đẻ cái cũng chẳng làm được!!!
 
 "..."
 
-Triệu Kim An bấy giờ mới hiểu vì sao trước đây Ngô Hiểu lại sợ Tô Miện đến mất mật như vậy. Tính khí của Tô Miện khi ở nhà và khi ở làng Triệu Gia hoàn toàn là hai con người trái ngược một trời một vực.
+Triệu Kim An bấy giờ mới hiểu vì sao trước đây Ngô Hiểu lại sợ Tô Miến đến mất mật như vậy. Tính khí của Tô Miến khi ở nhà và khi ở làng Triệu Gia hoàn toàn là hai con người trái ngược một trời một vực.
 
 Đây mới đích thực là tính khí của một vị thiên kim đại tiểu thư cành vàng lá ngọc!
 
@@ -58,15 +56,15 @@ Người cảm thấy cạn lời nhất trong chuyện này có lẽ là Tô M�
 
 Biết bao cặp vợ chồng son chuẩn bị cả năm, hai năm trời ròng rã mới có tin vui.
 
-Thế nhưng vợ chồng ông Tô Minh Tùng và bà Quách Uyển Thanh thì đâu có biết nội tình, họ cứ đinh ninh rằng ngay từ lần đầu tiên Tô Miện về làng Triệu Gia là hai đứa đã phát sinh quan hệ thân mật rồi, thế nên trong lòng hai ông bà cũng bắt đầu dấy lên nỗi lo âu, thấp thỏm.
+Thế nhưng vợ chồng ông Tô Minh Tùng và bà Quách Uyển Thanh thì đâu có biết nội tình, họ cứ đinh ninh rằng ngay từ lần đầu tiên Tô Miến về làng Triệu Gia là hai đứa đã phát sinh quan hệ thân mật rồi, thế nên trong lòng hai ông bà cũng bắt đầu dấy lên nỗi lo âu, thấp thỏm.
 
 Đứa con gái cưng này vừa phải ngồi xe lăn lại vừa không sinh được mụn con nối dõi thì tương lai biết tính làm sao?
 
-Bà Quách Uyển Thanh tha thiết nhờ Triệu Kim An lựa lời khuyên nhủ Tô Miện, việc tập luyện phục hồi chức năng vẫn bắt buộc phải kiên trì tiếp tục.
+Bà Quách Uyển Thanh tha thiết nhờ Triệu Kim An lựa lời khuyên nhủ Tô Miến, việc tập luyện phục hồi chức năng vẫn bắt buộc phải kiên trì tiếp tục.
 
-Triệu Kim An lại bấm máy gọi cho Tô Miện, trêu đùa: "Em hung dữ đùng đùng như thế thì sau này làm sao làm mẹ hiền dạy con được đây?"
+Triệu Kim An lại bấm máy gọi cho Tô Miến, trêu đùa: "Em hung dữ đùng đùng như thế thì sau này làm sao làm mẹ hiền dạy con được đây?"
 
-Tô Miện nhỏ nhẹ đáp: "Em vĩnh viễn không bao giờ hung dữ với anh, và cũng sẽ không bao giờ nổi nóng với con của chúng mình."
+Tô Miến nhỏ nhẹ đáp: "Em vĩnh viễn không bao giờ hung dữ với anh, và cũng sẽ không bao giờ nổi nóng với con của chúng mình."
 
 Cô còn nhấn mạnh thêm: "Dù chỉ một câu em cũng tuyệt đối không nỡ mắng."
 

@@ -1,7 +1,5 @@
 # Chương 12: Những người ở lại
 
-> **Tiêu đề gốc**: 第12章 留守。
-
 Chẳng mấy chốc, Triệu Trí Dũng lại xách nửa tảng thịt heo quay trở lại. Đi ngang qua Vương Kim Như, cậu ta vẫn cười hớn hở chào một tiếng "thím", khiến bà tức mình liếc xéo một cái.
 
 "Chỉ khéo dỗ dành chị dâu nhỏ của các người thôi."

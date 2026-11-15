@@ -1,7 +1,5 @@
 # Chương 221: Khống chế điểm số?
 
-> **Tiêu đề gốc**: 第221章 控分？
-
 "Triệu Kim An, cậu có nhiều tiền thế này sao không đem gửi ngân hàng đi?"
 
 Lý Ngải Lan nhìn xấp tiền dày cộp mà mắt sáng rực, suýt nữa thì nuốt nước bọt. Từng này tiền thì mua được biết bao nhiêu quần áo đẹp với đồ mỹ phẩm cơ chứ?

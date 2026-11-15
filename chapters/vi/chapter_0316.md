@@ -1,7 +1,5 @@
 # Chương 316: Không quen lắm, chỉ cỡ này thôi
 
-> **Tiêu đề gốc**: 第316章 没多熟，就这么熟。
-
 Vương Duy Đào vẫn chưa chịu rời đi, anh móc ra một bao thuốc Hòa Thiên Hạ rồi bắt đầu mời thuốc xung quanh.
 
 Anh còn nổi hứng trêu chọc Cốc Siêu Thừa – kẻ lúc nào cũng thích đắm chìm trong thế giới nội tâm u sầu: "Lão Cốc, làm một điếu không? Thuốc của Kim An đấy."

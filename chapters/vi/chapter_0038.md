@@ -1,7 +1,5 @@
 # Chương 38: Triệu Bác Lan: Tính theo vai vế em phải gọi nó là chú!
 
-> **Tiêu đề gốc**: 第38章 赵博兰：按字辈我要喊他叔。
-
 "Kim An, tao lại đói bụng rồi."
 
 "Lại đói nữa à?"
@@ -60,7 +58,7 @@ Xuất phát từ ga tàu, đi dọc theo đại lộ Ngũ Nhất đến trạm 
 
 Dưới cái nắng hè gay gắt như thiêu như đốt, trước cổng bến xe chật ních các bậc phụ huynh và tân sinh viên tay xách nách mang, túi lớn bao nhỏ nối đuôi nhau chuyển tuyến xe. Tiếng ồn ào huyên náo, tiếng còi xe inh ỏi cùng âm thanh bánh xe vali kéo lê trên mặt đường tạo nên một khung cảnh vô cùng hỗn loạn.
 
-Năm 2006, số người sở hữu ô tô con riêng vẫn chỉ là thiểu số, thuộc về những gia đình thực sự có điều kiện kinh tế khá giả, còn những gia đình như nhà Du Phỉ thì làm gì có xe hơi.
+Năm 2006, số người sở hữu ô tô con riêng vẫn chỉ là thiểu số, thuộc về những gia đình thực sự có điều kiện kinh tế khá giả, còn những gia đình như nhà Du Phi thì làm gì có xe hơi.
 
 Vào mùa tựu trường, đón được một chiếc taxi ở khu vực ga tàu khó khăn chẳng khác nào lên trời, nên Triệu Kim An liền dắt bạn leo đại lên một tuyến xe buýt chạy qua bên kia sông.
 
@@ -82,25 +80,25 @@ Triệu Trí Dũng cũng từng ra quán net tra cứu, thậm chí còn học t
 
 "Triệu Kim An, bên này này!"
 
-Từ phía bên kia đường vọng lại tiếng gọi của Du Phỉ. Cô nàng đang kiễng chân, vẫy tay rối rít gọi lớn.
+Từ phía bên kia đường vọng lại tiếng gọi của Du Phi. Cô nàng đang kiễng chân, vẫy tay rối rít gọi lớn.
 
 Triệu Kim An và Triệu Trí Dũng kéo hành lý băng qua đường. Trông thấy bà Lưu Văn Tinh đang đứng bên lề đường, cả hai đứa liền cất tiếng chào lễ phép: "Cháu chào dì ạ."
 
-Du Phỉ thè lưỡi thở dài: "Đông người quá chừng, chen mãi mà chẳng tài nào lên nổi xe buýt."
+Du Phi thè lưỡi thở dài: "Đông người quá chừng, chen mãi mà chẳng tài nào lên nổi xe buýt."
 
-Triệu Trí Dũng tò mò hỏi: "Du Phỉ ơi, Mộc Dao đâu rồi? Chẳng phải cậu ấy có người dì ruột ở Quận Sa này sao?"
+Triệu Trí Dũng tò mò hỏi: "Du Phi ơi, Mộc Dao đâu rồi? Chẳng phải cậu ấy có người dì ruột ở Quận Sa này sao?"
 
 "Mộc Dao sang nhà dì nó rồi, còn bọn tớ thì..."
 
-Du Phỉ thật sự không muốn ngồi chiếc xe BMW của Trương Vân Thiến, thậm chí cô bé cũng chẳng mấy hào hứng với việc đi nhờ xe của Mộc Nhân Cường. Ngồi xe của người khác lúc nào cũng gò bó, ngột ngạt không thoải mái, thà bỏ ra mấy đồng bạc đi xe khách tuyến cho xong.
+Du Phi thật sự không muốn ngồi chiếc xe BMW của Trương Vân Thiến, thậm chí cô bé cũng chẳng mấy hào hứng với việc đi nhờ xe của Mộc Nhân Cường. Ngồi xe của người khác lúc nào cũng gò bó, ngột ngạt không thoải mái, thà bỏ ra mấy đồng bạc đi xe khách tuyến cho xong.
 
 Lưu Văn Tinh tò mò đưa mắt đánh giá Triệu Kim An, còn Triệu Trí Dũng da dẻ đen nhẻm đứng bên cạnh thì hoàn toàn bị bà phớt lờ.
 
 Chẳng cần bàn tới con bé Mộc Dao, chỉ riêng cái tính kiêu kỳ của bà Trương Tuệ thôi thì loại con trai như Triệu Trí Dũng vĩnh viễn không bao giờ lọt nổi vào mắt xanh.
 
-Du Phỉ và Mộc Dao là bạn học cùng lớp, lại là bạn thân thiết của nhau. Lưu Văn Tinh đã từng tiếp xúc với Trương Tuệ vài lần, tính khí của người phụ nữ ấy thế nào trong lòng bà nắm rất rõ.
+Du Phi và Mộc Dao là bạn học cùng lớp, lại là bạn thân thiết của nhau. Lưu Văn Tinh đã từng tiếp xúc với Trương Tuệ vài lần, tính khí của người phụ nữ ấy thế nào trong lòng bà nắm rất rõ.
 
-"Triệu Kim An, hay là chúng ta bắt chung một chuyến taxi đi, taxi giờ này cũng khó đón lắm." Du Phỉ đề xuất.
+"Triệu Kim An, hay là chúng ta bắt chung một chuyến taxi đi, taxi giờ này cũng khó đón lắm." Du Phi đề xuất.
 
 Từ bến xe Vinh Loan Trấn rẽ sang trái là hướng đi vào làng đại học — nơi có Đại học Sư phạm và Đại học Công nghiệp Trung Nam.
 
@@ -108,7 +106,7 @@ Còn rẽ sang phải là hướng đi trường Tài Chuyên, về phía Bến 
 
 Triệu Kim An lắc đầu bảo cậu phải đưa Triệu Trí Dũng đến trường làm thủ tục nhập học trước.
 
-Du Phỉ hơi tiếc nuối. Thấy trên người Triệu Kim An chỉ có duy nhất một chiếc ba lô đeo chéo, cô bé lại ngạc nhiên hỏi: "Kim An, cậu chỉ mang theo mỗi một cái ba lô này thôi à?"
+Du Phi hơi tiếc nuối. Thấy trên người Triệu Kim An chỉ có duy nhất một chiếc ba lô đeo chéo, cô bé lại ngạc nhiên hỏi: "Kim An, cậu chỉ mang theo mỗi một cái ba lô này thôi à?"
 
 "Ừ."
 
@@ -132,7 +130,7 @@ Trên đường đi về phía làng đại học, Lưu Văn Tinh ngồi ở hà
 
 "Dạ."
 
-Du Phỉ gật đầu xác nhận, không hé răng nửa lời về chuyện hai người họ đang làm ầm ĩ đòi chia tay.
+Du Phi gật đầu xác nhận, không hé răng nửa lời về chuyện hai người họ đang làm ầm ĩ đòi chia tay.
 
 "Hừm."
 

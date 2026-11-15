@@ -1,203 +1,203 @@
-# Chương 385: Trong công việc xin hãy gọi chức vụ!
+# Chương 385: Trong công việc vui lòng gọi đúng chức danh
 
-> **Tiêu đề gốc**: 第385章 工作请称呼职务。
+"Thôi bỏ đi, chúng ta treo lại sang bên kia vậy."
 
-"Thôi bỏ đi, chúng mình sang bên kia treo lại vậy."
+Trần Thanh Trĩ kéo tay bạn cùng phòng lại, không muốn gây thêm phiền phức.
 
-Trần Thanh Trĩ vội vàng giữ chặt lấy tay cô bạn cùng phòng, không muốn chuốc thêm rắc rối sinh sự.
+"Hứ!"
 
-"Hừ!"
+Tiểu Phương hừ lạnh một tiếng: "Có quen biết gì chị ta đâu, lần trước bước xuống xe làm gì có mặt chị ta chứ?"
 
-Tiểu Phương hừ mũi một tiếng đầy vẻ bất bình: "Đã từng thấy mặt mũi chị ta ở công ty bao giờ đâu, lần trước người ta bước xuống từ xe sang có mặt chị ta không cơ chứ?"
+"Cô...!"
 
-"Mày bảo cái gì?!"
+Lý Ngải Lan tức đến nổ đom đóm mắt, đám đàn em khóa dưới bây giờ mồm mép ghê gớm thật đấy?
 
-Lý Ngải Lan như bị giáng một đòn chí mạng, uất ức đến mức suýt nhảy dựng lên. Mấy con bé khóa dưới bây giờ mồm mép đứa nào đứa nấy ghê gớm đến thế cơ à?
+"Treo cho đàng hoàng tử tế vào, không thì tôi bắt các cô treo lại lần nữa đấy!"
 
-"Treo cho tử tế cẩn thận vào đấy, nếu không thì bà đây lại bắt các cô tháo xuống treo lại lần nữa bây giờ!"
+Tiểu Phương: "..."
 
-Tiểu Phương tức nghẹn lời: "..."
+"Nhìn cái gì? Không phục à?"
 
-"Nhìn cái gì mà nhìn? Bộ không phục chắc?"
+Lý Ngải Lan chống nạnh vênh váo: "Cái gã Trưởng ban Trần của các cô tính là cái thá gì? Kim An nhà chúng tôi là Chủ tịch Hội Sinh viên đấy, hơn nữa đại hội thể thao lần này là do Trăn Nhiên chúng tôi tài trợ độc quyền!"
 
-Lý Ngải Lan hai tay chống nạnh, vênh mặt thách thức: "Cái gã Trưởng ban Trần của các cô thì tính là cái thớ gì chứ? Kim An nhà chúng tôi là Chủ tịch Hội sinh viên toàn trường đấy! Chưa kể nhé, toàn bộ cái đại hội thể thao lần này là do Trăn Nhiên chúng tôi độc quyền tài trợ! Nếu không có chúng tôi rót tiền, thì cái Ban Đối ngoại của các người đào đâu ra được món tài trợ béo bở như thế hả?"
-
-"..."
-
-Tiểu Phương nghẹn ứ một cục tức ngay lồng ngực, không tài nào phản bác nổi lấy một câu.
-
-Kể từ ngày biết tin Triệu Kim An ngồi ghế Chủ tịch Hội sinh viên, Trần Thanh Trĩ đã lập tức nộp đơn xin gia nhập. Ngặt nỗi cô chưa từng có cơ duyên chạm mặt Triệu Kim An lấy một lần, bởi bất kỳ cuộc họp lớn nhỏ nào của Hội sinh viên, vị Chủ tịch bí ẩn này cũng đều vắng mặt.
-
-Đã bước sang năm thứ tư rồi, Triệu Kim An chỉ giữ chức nốt khóa này rồi sẽ chính thức bàn giao, thoái lui.
-
-Người vợ đầu ấp tay gối ở kiếp trước... Trần Thanh Trĩ bấm đốt ngón tay, ngậm ngùi nhận ra mình mới chỉ được diện kiến Triệu Kim An vỏn vẹn đúng hai lần ngắn ngủi.
-
-Còn về tài khoản QQ ư?
-
-Hình đại diện QQ của Triệu Kim An lúc nào cũng chìm trong màu xám xịt ảm đạm, chưa từng một lần sáng đèn, cũng chẳng hề gửi lại bất kỳ dòng hồi âm nào.
-
-Hiệu trưởng Cung cùng ban lãnh đạo các viện của Sư Đại dành sự ủng hộ tối đa cho đợt tài trợ quy mô này của Trăn Nhiên; cơ man nào là băng rôn, khẩu hiệu cùng các vật phẩm quảng bá được mặc sức cho Hội sinh viên và người của Trăn Nhiên bố trí khắp mọi ngóc ngách.
-
-Suốt hai mươi tư khoa viện của Sư Đại, phóng tầm mắt tới đâu cũng bắt gặp logo và biển hiệu tài trợ bắt mắt của Trăn Nhiên.
-
-Từ những dòng biểu ngữ quen thuộc như "Chúc các vận động viên thi đấu hết mình, gặt hái thành tích vẻ vang", cho đến các bảng hiệu cỡ lớn... Thậm chí dọc khắp các nẻo đường trong khu đô thị đại học cũng rải rác giăng đầy những dải băng rôn đỏ rực của Trăn Nhiên.
-
-Một chiến dịch quảng bá bề nổi mang tính chất nội bộ nhỏ nhặt cỡ này dĩ nhiên chưa tới lượt Thẩm Tử Ngôn phải bận tâm; một vị Giám đốc Tiếp thị tầm cỡ như cô hơi đâu nhúng tay vào mấy chuyện vặt vãnh ấy. Đường Hiểu Tình chỉ hỏi han qua loa vài câu, rồi giao phó toàn quyền cho cô nàng Lý Ngải Lan "xưa nay chẳng làm nên trò trống gì" đứng ra phụ trách.
-
-Được trao quyền, Lý Ngải Lan lên mặt thần khí, vênh váo không để đâu cho hết.
-
-Sau khi Hội sinh viên họp bàn phương án, họ lập tờ trình xin duyệt kinh phí tài trợ hai vạn tệ.
-
-Lý Ngải Lan không dám tự tiện quyết định bèn chạy đi gõ cửa phòng Đường Hiểu Tình.
-
-Đường Hiểu Tình nhấc máy bấm một cuộc gọi ngắn, đoạn quay sang bảo Lý Ngải Lan: "Duyệt hẳn năm vạn."
-
-Lý Ngải Lan mừng rỡ nhảy cẫng lên, ôm chầm lấy Đường Hiểu Tình thơm mấy cái chùn chụt vào má, đoạn hớn hở cầm phiếu đề xuất chạy tót sang phòng tài vụ tìm Triệu Bác Lan. Triệu Bác Lan chỉ liếc qua đối chiếu chữ ký, chân mày không buồn nhíu lấy một lần, cũng chẳng thèm mở miệng gặng hỏi Lý Ngải Lan lấy nửa câu.
-
-"Chẳng lẽ không sợ tiêu tốn quá nhiều tiền sao?"
-
-Bộ phận tài vụ xưa nay chỉ làm việc căn cứ theo chữ ký phê duyệt hợp lệ để xuất quỹ.
-
-Trên phiếu có đủ chữ ký của Lạc Cẩn Chi, Thẩm Tử Ngôn, hoặc là Đường Hiểu Tình, và chốt hạ cuối cùng là nét ký quen thuộc của Triệu Kim An.
-
-Số tiền cỏn con thế này, có năm vạn tệ bọ, chẳng bõ công để người ta phải truy xét cặn kẽ từng li từng tí.
-
-Thế nhưng Lý Ngải Lan thì cứ nghển dài cổ, ngơ ngác trố mắt nhìn từng động tác thoăn thoắt của Triệu Bác Lan: ký tên, đóng dấu cộp cộp, dán phiếu thu chi, rồi cẩn thận kẹp vào hồ sơ lưu trữ, cả người cô nàng như hóa đá mất một lúc lâu.
-
-"Năm vạn tệ tiền tươi thóc thật đấy trời đất ơi!!!"
-
-"Anh không theo thông lệ hỏi han em dăm ba câu cho phải phép sao?"
-
-Thế nào là phong thái của kẻ nhà giàu nứt đố đổ vách, tiêu tiền như nước, phen này Lý Ngải Lan dường như đã được mở rộng tầm mắt đến tận cùng.
-
-Năm vạn tệ tài trợ cho một sự kiện thể thao sinh viên liệu có bị lỗ vốn không?
-
-Khu đô thị đại học Quận Sa quy tụ tới hơn hai mươi vạn sinh viên; một chai nước khoáng bán ra giá hai tệ, một chai Trà Phái niêm yết bốn tệ rưỡi.
-
-Đường Hiểu Tình có chủ ý buông tay dần để rèn giũa cho Lý Ngải Lan gánh vác chút việc sự vụ, Lý Ngải Lan bèn hăm hở bấm số gọi thẳng cho xưởng trưởng nhà máy nước Sâm Thành là Triệu Quốc Hoa, yêu cầu nhà máy cung cấp nước khoáng miễn phí xuyên suốt thời gian diễn ra đại hội thể thao.
-
-"A lô, chú ạ, cháu chào chú! Cháu là Lý Ngải Lan đây ạ, bạn học cùng lớp đại học với Kim An..."
-
-Đầu dây bên kia, Lý Ngải Lan vừa cất lời đã cố tình uốn éo, giọng điệu nũng nịu, ngọt xớt như rót mật, lại còn kèm theo chút chất giọng kẹp nén õng ẹo đến phát ngấy.
+"Không thì ban Đối ngoại của các cô lấy đâu ra lắm tiền tài trợ thế hả?"
 
 "..."
 
-Triệu Quốc Hoa ở đầu máy bên này giật thót mình một cái, da gà da vịt nổi rần rần khắp người: "Này... này cô bé gì ơi... Đang trong giờ làm việc, xin hãy gọi đúng chức danh công tác giùm tôi cái."
+Tiểu Phương nghẹn ứ một cục tức ở cổ họng, chẳng cãi lại được nửa lời.
 
-"Ơ kìa chú ơi, cháu với Kim An thân thiết..."
+Hồi mới hay tin Triệu Kim An là Chủ tịch Hội Sinh viên, Trần Thanh Trĩ đã lập tức đăng ký gia nhập Hội Sinh viên ngay, đáng tiếc chẳng lần nào chạm mặt được anh, buổi họp nào vị Chủ tịch Hội Sinh viên ấy cũng vắng mặt.
 
-"Gọi là Triệu xưởng trưởng!"
+Năm tư rồi, Triệu Kim An chỉ làm nốt nhiệm kỳ này là sẽ từ chức Chủ tịch Hội Sinh viên.
 
-"Dạ... Triệu xưởng trưởng ạ?"
+Là người vợ cũ ở kiếp trước, Trần Thanh Trĩ đếm trên đầu ngón tay cũng chỉ mới gặp được Triệu Kim An đúng hai lần.
 
-"Đấy, gọi thế mới đúng phép tắc chứ!"
+Còn về QQ.
 
-Cúp máy xong, Triệu Quốc Hoa run tay rút một điếu thuốc lá châm lửa, phả ra làn khói trắng xóa mà trong bụng thầm nhủ: Thằng anh cả nhà mình ngày xưa đâu có tính trăng hoa ong bướm thế này đâu nhỉ? Hết Thẩm tổng tài năng, Từ tổng kiêu kỳ, giờ lại thòi đâu ra một cô Lý Ngải Lan điệu đà này nữa, à mà đúng rồi, nghe phong phanh trong công ty người ta còn lén lút gọi con bé Đường Hiểu Tình là 'Tình tiểu chủ' nữa cơ đấy!
+Ảnh đại diện QQ của Triệu Kim An lúc nào cũng xám xịt, chưa từng có lấy một dòng hồi âm.
 
-"Haizz... Đúng là đàn ông cứ lắm tiền nhiều của vào là y như rằng sinh tật đổ đốn. Kẻ chưa đổ đốn chẳng qua là vì nghèo đói nó kiềm hãm mà thôi!"
+Hiệu trưởng Cung cùng lãnh đạo các khoa của Đại học Sư phạm dành sự ủng hộ tối đa cho đợt tài trợ lần này của Trăn Nhiên, đủ loại băng rôn và ấn phẩm quảng bá đều để mặc cho Hội Sinh viên và Trăn Nhiên tùy ý bày biện.
 
-Triệu xưởng trưởng buồn bã thò tay móc túi quần, gom tới gom lui cũng chẳng moi ra nổi ba trăm tệ tiền lẻ.
+Khắp 24 khoa của Đại học Sư phạm, đâu đâu lọt vào tầm mắt cũng toàn là tài trợ của Trăn Nhiên.
 
-Triệu xưởng trưởng quả thực nghèo rớt mồng tơi!
+Chẳng hạn như những khẩu hiệu kiểu "Chúc thi đấu hết mình, đạt thành tích cao" các thứ.
 
-"Kim An ơi là Kim An, mày cứ việc bay nhảy cho sướng thân đi con ạ, rồi để xem bà nội với thím ba mày cầm roi tre quất cho nát mông thế nào!"
+Thậm chí khắp khu Đại học Thành cũng giăng đầy băng rôn của Trăn Nhiên.
 
-"Để rồi xem mày thu dọn cái mớ bòng bong này ra sao, liệu có dám dắt cả bầy về làng hay không!"
+Hoạt động quảng bá nhỏ nhặt thế này của Trăn Nhiên, Thẩm Tử Ngôn chẳng buồn nhúng tay, một Giám đốc Marketing như cô đâu cần bận tâm tới việc cỏn con ấy. Đường Hiểu Tình chỉ hỏi han qua loa vài câu, sau cùng giao hết cho Lý Ngải Lan — người vốn "chẳng mấy hữu dụng" — đứng ra phụ trách.
 
-"Bà đây đếch tin đâu nhé."
+Lý Ngải Lan đắc ý vênh mặt lên tận trời.
 
-"Chẳng lẽ bà nội với thím mày lại chơi trò tiêu chuẩn kép? Tiêu chuẩn ba? Hay là tiêu chuẩn bốn luôn cho rồi..."
+Hội Sinh viên họp xong báo lên xin 20 nghìn tệ tiền tài trợ.
 
-Triệu Quốc Hoa bất giác rùng mình nhớ lại, nếu bản thân ông mà dám léng phéng tơ tưởng tới của lạ bên ngoài, thì đêm về nằm ngủ chắc chắn Vương Kim Như đã vác dao phay kề sát cổ rồi; còn bà nội thì nhất định sẽ cầm gậy gỗ đứng phục sẵn ngay đầu dốc trước sân nhà. Đừng nói là mơ dắt gái lạ về làng, ngay cả cái thân xác tàn tạ này khéo cũng chẳng còn cửa mà lết vào nhà.
+Lý Ngải Lan không dám tự quyết, đành chạy đi tìm Đường Hiểu Tình.
 
-...
+Đường Hiểu Tình gọi một cuộc điện thoại, xong quay sang bảo Lý Ngải Lan: "Duyệt 50 nghìn."
 
-Lớp Kế toán 1 và Kế toán 2 đã có tới phân nửa số sinh viên rời trường tìm đơn vị thực tập; bước vào năm cuối rồi, chẳng mấy ai còn tâm trí đâu mà mặn mà với đại hội thể thao của trường nữa.
+Lý Ngải Lan ôm chầm lấy Đường Hiểu Tình hôn chụt mấy cái, rồi hí hửng cầm tờ trình sang phòng tài chính tìm Triệu Bác Lan. Triệu Bác Lan chỉ liếc mắt xác nhận chữ ký, chẳng nhíu mày lấy một cái, cũng chẳng thèm hỏi han Lý Ngải Lan nửa câu.
 
-Thanh xuân đại học tươi đẹp coi như đã cơ bản khép lại sau lưng họ.
+"Tiền chi thế này có bị nhiều quá không ạ?"
 
-Chạy vạy tìm việc làm, cắm đầu ôn thi công chức hay dùi mài kinh sử thi cao học đã trở thành trọng tâm sinh tử của bọn họ ở giai đoạn này.
+Phòng tài chính chỉ căn cứ theo chữ ký phê duyệt mà giải ngân.
 
-Triệu Kim An lẳng lặng quay trở lại trường, chọn một góc bậc thềm trên khán đài sân vận động, lặng lẽ ngồi lắng nghe từng đợt tiếng reo hò, cổ vũ náo nhiệt vang vọng khắp không gian.
+Có chữ ký của Lạc Cẩn Chi, Thẩm Tử Ngôn hoặc Đường Hiểu Tình, và cuối cùng là chữ ký của Triệu Kim An.
 
-Lý Lộ cùng mấy người bạn học đang cắm chốt trông coi "trạm tiếp tế" — trạm này do chính Lý Ngải Lan cắt cử, lần này toàn bộ sân vận động chỉ dựng duy nhất một trạm tiếp tế để phát nước khoáng cho các vận động viên tranh tài.
+Chút tiền lẻ cỏn con có 50 nghìn tệ, chẳng bõ để hỏi han chi tiết làm gì.
 
-"Cho cậu này Kim An, cam rốn của chính Triệu Gia Thôn các cậu đấy nhé."
+Vậy mà Lý Ngải Lan cứ nghển cổ nhìn Triệu Bác Lan ký tên, đóng dấu, dán chứng từ, lưu hồ sơ, sững sờ mất một lúc lâu.
 
-Đường Hiểu Tình ngồi ở bậc thềm phía dưới, thấp hơn Triệu Kim An hai bậc, bên cạnh đặt chiếc túi vải canvas căng phồng.
+"50 nghìn tệ đấy!!!"
 
-Cô nàng đang cặm cụi tỉ mẩn bóc vỏ cam, kiên nhẫn tước sạch từng sợi xơ trắng li ti, đoạn nhoẻn miệng cười để lộ hai chiếc răng khểnh nhỏ xinh vô cùng duyên dáng, đưa múi cam mọng nước ra phía sau cho Triệu Kim An.
+"Chị không hỏi theo lệ vài câu sao?"
 
-Khuôn viên trường học giữa độ thu muộn, ánh nắng bỗng trở nên dịu dàng, trong từng ngọn gió heo may mang theo hơi lạnh vừa vặn, mát lành và sảng khoái đến lạ kỳ.
+Thế nào gọi là vung tay quá trán, thế nào là lắm tiền nhiều của, Lý Ngải Lan coi như đã được nếm trải tận mắt.
 
-Nơi góc sân vận động, mép những chiếc lá ngô đồng ngả vàng khẽ cuộn cong lại, tia nắng xuyên qua từng kẽ lá thưa thớt rải xuống mặt đất những đốm sáng lung linh, loang lổ.
+50 nghìn tệ tiền tài trợ liệu có lỗ không?
 
-Không còn nét chói chang gay gắt của mùa hạ, chỉ vương lại chút ấm áp êm đềm.
+Khu Đại học Thành Quận Sa có hơn 200 nghìn sinh viên; một chai nước khoáng bán giá 2 tệ, một chai Trà π bán giá 4,5 tệ.
 
-Triệu Kim An đeo cặp kính râm đen, người hơi nghiêng tựa vào bậc thềm đá. Thấp hơn hai bậc là Đường Hiểu Tình, cô chẳng màng ngắm nhìn phong cảnh thi vị xung quanh, chỉ chăm chú cúi đầu loay hoay với phần việc của mình.
+Đường Hiểu Tình cố ý buông tay để Lý Ngải Lan tập tành gánh vác công việc. Lý Ngải Lan lại gọi điện liên hệ với Xưởng trưởng nhà máy nước Sâm Thành là Triệu Quốc Hoa, xin cấp nước khoáng miễn phí của Trăn Nhiên trong suốt thời gian diễn ra đại hội thể thao.
 
-Mấy người nhóm Lý Lộ từ xa đưa mắt nhìn sang, trong lòng vừa dâng lên nỗi ngưỡng mộ khôn xiết, lại vừa bùi ngùi xúc động khôn nguôi.
+"Chú ơi, cháu chào chú ạ, cháu là Lý Ngải Lan, bạn học đại học cùng lớp với Kim An..."
 
-Chỉ thấy chàng trai có nụ cười mê đắm lòng người kia khẽ dùng đầu mũi giày khều nhẹ vào chiếc túi canvas một cái. Đường Hiểu Tình lập tức quay đầu lại, trên gương mặt bừng sáng một nụ cười thuần khiết, rạng rỡ như ánh mai:
+Đầu dây bên kia Lý Ngải Lan vừa cất tiếng, giọng điệu ngọt xớt nũng nịu, lại còn hơi cố tình bóp giọng cho dễ thương.
 
-"Bên trong túi đựng cái gì mà căng thế?"
+"..."
 
-"Toàn đồ ăn vặt thôi ạ."
+Triệu Quốc Hoa rùng mình một cái, nổi hết cả da gà da vịt: "Ờ... trong công việc vui lòng gọi đúng chức danh."
 
-"Cậu coi siêu thị Trăn Hối Tuyển thành nhà của mình rồi đấy phỏng?"
+"Chú ơi, cháu với Kim An..."
+
+"Gọi là Xưởng trưởng Triệu."
+
+"Xưởng trưởng Triệu ạ?"
+
+"Đúng rồi, thế mới phải chứ."
+
+Cúp máy xong, Triệu Quốc Hoa châm một điếu thuốc, thầm nghĩ ông anh cả nhà mình đâu có đào hoa lăng nhăng thế này nhỉ? Hết Thẩm tổng, Từ tổng, giờ lại mọc thêm cô Lý Ngải Lan, à đúng rồi, trong công ty còn có người lén sau lưng gọi Đường Hiểu Tình là "Tình tiểu chủ" nữa chứ.
+
+"Haizz, đàn ông có tiền là sinh hư, chưa hư chẳng qua là do cái nghèo nó kìm hãm lại thôi."
+
+Xưởng trưởng Triệu thò tay móc túi quần, đếm đi đếm lại chẳng gom nổi 300 tệ.
+
+Xưởng trưởng Triệu nghèo rớt mùng tơi thật rồi.
+
+"Kim An à, mày cứ việc ăn chơi trác táng đi, để xem bà nội với thím út mày cầm chổi tre đánh mày thế nào."
+
+"Xem mày thu dọn tàn cục ra sao, làm sao dám vác mặt dẫn cả đám về quê."
+
+"Chú cứ chống mắt lên xem."
+
+"Chẳng lẽ bà nội với thím út mày lại thiên vị tiêu chuẩn kép đến thế? Tiêu chuẩn tam, tiêu chuẩn tứ luôn à..."
+
+Triệu Quốc Hoa nhớ lại cảnh hễ mình mà dám léng phéng có hồ ly tinh bên ngoài, tối nằm ngủ thể nào Vương Kim Như cũng kề dao phay lên cổ ngay lập tức, còn bà nội thì đứng canh sẵn ở con dốc trước sân.
+
+Đừng nói tới chuyện dẫn gái về nhà, ngay cả thân mình ông cũng chẳng vác xác về nổi.
+
+Lớp Kế toán 1 và Kế toán 2 có quá nửa số sinh viên đã tìm được chỗ thực tập rồi. Năm tư đại học, chẳng mấy ai còn mặn mà với Đại hội Thể dục Thể thao trường nữa.
+
+Quãng đời sinh viên tươi đẹp đối với họ xem như đã khép lại.
+
+Tìm việc làm, ôn thi công chức hay thi cao học đã trở thành trọng tâm hàng đầu trong giai đoạn hiện tại.
+
+Triệu Kim An âm thầm quay về trường, đứng bên sân vận động lắng nghe tiếng hò reo cổ vũ vang dội.
+
+Lý Lộ cùng vài bạn học đang trông coi "trạm tiếp tế" do Lý Ngải Lan sắp xếp; lần này chỉ bố trí duy nhất một "trạm tiếp tế" trên sân vận động để phát nước khoáng miễn phí cho các vận động viên thi đấu.
+
+"Cho cậu này, Kim An, cam rốn của Triệu Gia Thôn nhà cậu đấy."
+
+Đường Hiểu Tình ngồi trên bậc thềm đá, thấp hơn anh hai bậc, bên cạnh đặt một chiếc túi vải bạt.
+
+Chiếc túi vải bạt phồng căng lên.
+
+Cô tỉ mỉ bóc từng múi cam, nhặt sạch hết cả xơ trắng, rồi mỉm cười để lộ hai chiếc răng khểnh xinh xắn đưa ngược ra sau cho Triệu Kim An.
+
+Khuôn viên trường đại học độ cuối thu, nắng trở nên dịu dàng êm ả, làn gió mang theo chút se lạnh vừa vặn, mát mẻ dễ chịu vô cùng.
+
+Nơi góc sân vận động, lá ngô đồng bắt đầu xoăn mép, ánh nắng xuyên qua tán lá thưa thớt rắc xuống những đốm sáng loang lổ.
+
+Không hề gay gắt, chỉ thấy ấm áp dịu êm.
+
+Triệu Kim An đeo cặp kính râm ngồi ngả người trên bậc thềm, phía dưới hai bậc là Đường Hiểu Tình. Cô chẳng màng ngắm cảnh, chỉ cúi đầu chăm chú làm việc của mình.
+
+Nhóm Lý Lộ đứng cách đó không xa nhìn sang, trong lòng vừa ngưỡng mộ lại vừa cảm khái.
+
+Chỉ thấy Triệu Kim An đang cười rất tươi, khẽ dùng chân khều nhẹ chiếc túi vải bạt; Đường Hiểu Tình liền quay đầu lại, nụ cười trong trẻo rạng rỡ.
+
+"Trong này đựng gì thế?"
+
+"Đồ ăn đấy."
+
+"Cậu coi Trăn Hối Tuyển như nhà mình luôn rồi hả?"
 
 "Hì hì."
 
-Nụ cười trên môi Đường Hiểu Tình lại càng thêm phần xán lạn.
+Nụ cười trên môi Đường Hiểu Tình càng thêm rạng rỡ.
 
-Lý Lộ giờ đây chẳng còn chút dũng khí hay tư cách nào để bước tới xua đuổi Đường Hiểu Tình như ngày xưa nữa; ngay cả cô nàng đanh đá Lý Ngải Lan bây giờ cũng nhất nhất nghe theo sự phân công, điều động của Đường Hiểu Tình.
+Lý Lộ chẳng còn chút tự tin nào để tới đuổi Đường Hiểu Tình đi nữa, ngay cả Lý Ngải Lan bây giờ cũng phải răm rắp nghe theo sự sắp xếp công việc của Đường Hiểu Tình.
 
-"Hai bạn sinh viên nghèo của lớp chúng mình..."
+"Hai bạn sinh viên nghèo lớp mình..."
 
-Một cô bạn cùng lớp đứng cạnh Lý Lộ khẽ thì thào, câu nói mới thốt ra được một nửa rồi nghẹn lại.
+Một nữ sinh ngập ngừng cất lời, nói được nửa câu rồi thôi.
 
-Thế nhưng tất cả những người có mặt đều hiểu thấu điều cô bạn đang muốn ám chỉ.
+Nhưng ai nấy đều hiểu cô bạn ấy muốn bày tỏ điều gì.
 
-Mấy vị phó chủ tịch Hội sinh viên tranh thủ chạy tới ngồi hàn huyên bên cạnh Triệu Kim An một lát rồi mới cung kính đứng dậy cáo lui. Kế đó, một vài vị trưởng ban của Hội sinh viên cũng lục tục kéo nhau tới chào hỏi, bắt tay Triệu Kim An.
+Mấy vị phó chủ tịch Hội Sinh viên tới ngồi tiếp chuyện Triệu Kim An một lát rồi cũng đứng dậy rời đi, tiếp đó là một loạt trưởng ban của Hội Sinh viên lần lượt bước tới chào hỏi anh.
 
-Mọi người vây quanh không phải vì nể cái danh Chủ tịch Hội sinh viên hữu danh vô thực của cậu, mà là vì kiêng nể thân phận Triệu đại tổng tài nắm trong tay cả sản nghiệp bạc tỷ lẫy lừng.
+Mọi người nể trọng đâu phải cái danh Chủ tịch Hội Sinh viên của anh, mà là coi trọng thân phận Tổng giám đốc Triệu.
 
-Dĩ nhiên cũng có những kẻ chọn cách đứng từ xa nhìn lại.
+Dĩ nhiên cũng có những người chẳng thèm tới.
 
-Bà đây chẳng ăn nhờ hớp cháo hạt gạo nào của nhà cậu ta, hà tất phải hạ mình chạy tới xu nịnh, bợ đỡ làm gì cho nhục nhã.
+Tôi đâu có ăn hạt gạo nào nhà anh ta, việc gì phải hạ mình chạy tới nịnh bợ chứ.
 
-Với tư cách là Chủ tịch Hội sinh viên, Triệu Kim An thực chất chẳng quen biết nổi một ai trong số họ. Hễ có người chủ động chìa tay ra, cậu đều lịch thiệp bắt tay đáp lễ một cái.
+Với tư cách Chủ tịch Hội Sinh viên, Triệu Kim An chẳng nhớ mặt được ai vào ai, cứ thấy người ta chìa tay ra là anh bắt tay xã giao lại một cái.
 
-"Triệu Chủ tịch..."
+"Chủ tịch Triệu..."
 
-Đúng lúc này, Trần Thanh Trĩ chậm rãi bước tới, rụt rè đưa bàn tay nhỏ nhắn của mình ra trước mặt Triệu Kim An đang ngồi trên bậc thềm.
+Đúng lúc này, Trần Thanh Trĩ bước tới, cũng chìa bàn tay nhỏ nhắn ra trước mặt Triệu Kim An đang ngồi trên bậc thềm.
 
-Nhìn bàn tay nhỏ nhắn, thanh mảnh hiện ra trước mắt, Triệu Kim An thoáng ngẩn người trong giây lát.
+Nhìn bàn tay nhỏ bé trước mắt, Triệu Kim An thoáng ngẩn người ra một chút.
 
 "Chào em."
 
-Cậu theo phép lịch sự khẽ nắm lấy bàn tay Trần Thanh Trĩ một thoáng rồi buông lơi.
+Anh vẫn theo phép lịch sự nắm nhẹ tay Trần Thanh Trĩ một cái rồi buông ra.
 
-Đó là một cảm giác thế nào nhỉ?
+Cảm giác lúc này là thế nào nhỉ?
 
-Thật khó để dùng ngôn từ mà miêu tả cho trọn vẹn. Khi người vợ từng chung chăn sẻ gối ở kiếp trước bỗng nhiên chìa tay ra đòi bắt tay làm quen với bạn như hai người xa lạ, cảm giác ấy quả thực vô cùng quái dị. Chủ yếu là do chướng ngại tâm lý; bởi từng tấc da tấc thịt trên cơ thể Trần Thanh Trĩ, Triệu Kim An của kiếp trước đã quá đỗi thân thuộc, tường tận đến từng chân tơ kẽ tóc.
+Thật khó mà diễn tả thành lời; khi người vợ cũ ở kiếp trước chìa tay ra đòi bắt tay xã giao với mình, cảm giác ấy cứ là lạ thế nào, chủ yếu là do tác động tâm lý, bởi từng tấc da tấc thịt trên người Trần Thanh Trĩ, Triệu Kim An đều quá đỗi quen thuộc.
 
-Trần Thanh Trĩ của năm hai đại học đã bắt đầu nuôi mái tóc dài buông xõa ngang vai, khoác trên mình bộ trang phục giản dị không quá đắt tiền nhưng cũng chẳng đến mức rẻ rúng, dưới chân xỏ đôi giày vải trắng tinh khôi.
+Trần Thanh Trĩ năm hai đại học đã để tóc dài, mặc bộ quần áo giá cả bình dân, chân đi đôi giày vải trắng.
 
-Mẹ cô là bà Bành Vĩnh Lệ mở một quán bán đồ ăn sáng ngay trước cổng trường học, gia cảnh vốn dĩ chẳng phải danh gia vọng tộc gì; chưa bàn tới Thẩm Tử Ngôn, mà ngay cả so với Từ Mạn Mạn hay Mộc Dao cũng còn kém xa một bậc.
+Bà Bành Vĩnh Lệ mở quán ăn sáng ngay cổng trường cấp ba của họ, gia cảnh vốn chẳng phải nhà giàu sang phú quý gì; chẳng cần so với Thẩm Tử Ngôn, ngay cả điều kiện gia đình Từ Mạn Mạn và Mộc Dao cũng hơn cô nhiều.
 
-Thế nhưng dẫu sao thì điều kiện ấy vẫn còn khấm khá hơn cái thân côi cút, mất cha từ thuở thiếu thời của Triệu Kim An ở Triệu Gia Thôn ngày trước.
+Nhưng vẫn còn khá khẩm hơn Triệu Kim An ở Triệu Gia Thôn sau khi mất bố là Triệu Quốc Khánh.
 
-"Em... chào anh..."
+"Chào... chào anh..."
 
-Trần Thanh Trĩ ngập ngừng rụt tay lại, đôi mắt to tròn trong veo chăm chú nhìn xoáy vào chàng trai đang ngồi tựa lưng trên bậc thềm đá.
+Trần Thanh Trĩ rụt rè thu tay lại, đôi mắt nhìn chằm chằm không chớp vào Triệu Kim An đang ngồi trên bậc thềm.
 
-"Em muốn hỏi anh một câu có được không?"
+"Em muốn hỏi anh một câu."
 
-Cô gái mười chín tuổi cất giọng thanh thoát lạ lùng, nơi đáy mắt ngân ngấn nét trong trẻo không vướng chút bụi trần:
+Trần Thanh Trĩ tuổi mười chín có giọng nói trong trẻo, ánh mắt cũng trong veo thuần khiết: "Chúng ta có quen nhau không ạ?"
 
-"Chúng ta... từng quen biết nhau từ trước sao anh?"
-
-Triệu Kim An đã nói dối:
-
-"Không quen."
+Triệu Kim An nói dối: "Không quen."

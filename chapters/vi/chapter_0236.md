@@ -1,7 +1,5 @@
 # Chương 236: Du Phi, Kim An không cần tớ nữa rồi.
 
-> **Tiêu đề gốc**: 第236章 俞菲，今安不要我了。
-
 "Uống trà sữa không?"
 
 Triệu Kim An lại hỏi câu đó, giống hệt như vừa rồi anh hỏi Lý Ngải Lan.
@@ -52,9 +50,9 @@ Lúc này trong đầu anh chẳng nghĩ ngợi gì cả, bỗng chốc trở n�
 
 Anh cũng chẳng thể nào phản bác.
 
-Mộc Dao lúc này quả thực mới hai mươi tuổi, năm kia mới mười tám. Cô ngây thơ chẳng hề hay biết gì, thậm chí còn không rõ chuyện Trương Huệ dặn anh phải chăm sóc cô như một người anh trai thực chất là đang tính toán toan tính điều gì.
+Mộc Dao lúc này quả thực mới hai mươi tuổi, năm kia mới mười tám. Cô ngây thơ chẳng hề hay biết gì, thậm chí còn không rõ chuyện Trương Tuệ dặn anh phải chăm sóc cô như một người anh trai thực chất là đang tính toán toan tính điều gì.
 
-Thế nhưng Triệu Kim An là người đã từng trải qua tất cả. Chuyện kiếp trước Mộc Dao chủ động nói lời chia tay chịu ảnh hưởng rất lớn từ những lời mưa dầm thấm lâu của Trương Huệ và Trương Vân Thiến.
+Thế nhưng Triệu Kim An là người đã từng trải qua tất cả. Chuyện kiếp trước Mộc Dao chủ động nói lời chia tay chịu ảnh hưởng rất lớn từ những lời mưa dầm thấm lâu của Trương Tuệ và Trương Vân Thiến.
 
 "Kim An, Kim An à, tớ hoàn toàn trong sạch mà. Tớ chỉ mới nắm tay với cậu, chỉ mới hôn cậu thôi. Tớ không thích Âu Cường, cũng chẳng thích Khổng Triết Vũ. Khổng Triết Vũ mua đồ ăn sáng mang đến tận dưới chân ký túc xá cho tớ..."
 
@@ -78,7 +76,7 @@ Thấy Triệu Kim An vẫn dửng dưng không lay chuyển, Mộc Dao nức n�
 
 "Mộc Dao, chúng ta hãy giữ cho nhau chút thể diện đi. Trước đây chẳng phải mọi chuyện vẫn rất tốt đẹp sao?"
 
-Phải rồi, chưa nói đến kiếp trước chia tay trong hòa bình và thể diện, ngay cả kiếp này trước đó mọi thứ vẫn luôn êm đẹp đấy thôi. Có lẽ là do Triệu Kim An của kiếp này ngày càng trở nên xuất sắc vượt bậc, lại thêm việc Trương Huệ đã đổi giọng tán thành hai đứa.
+Phải rồi, chưa nói đến kiếp trước chia tay trong hòa bình và thể diện, ngay cả kiếp này trước đó mọi thứ vẫn luôn êm đẹp đấy thôi. Có lẽ là do Triệu Kim An của kiếp này ngày càng trở nên xuất sắc vượt bậc, lại thêm việc Trương Tuệ đã đổi giọng tán thành hai đứa.
 
 "Tớ không cần thể diện, tớ không muốn làm bạn học..."
 
@@ -130,7 +128,7 @@ Thậm chí có khi còn mua sớm hơn thế nữa.
 
 Điều đó chứng tỏ việc kinh doanh mỹ phẩm của bà ta ở Sa Quận làm ăn khá khẩm.
 
-Mộc Dao sang Hàn Quốc có phải để theo nghề mỹ phẩm hay không thì anh không rõ. Suốt bao nhiêu năm bôn ba ấy, chắc chắn cô từng có lần về nước, bởi dù sao Mộc Nhân Cường và Trương Huệ vẫn luôn sống ở Tư Tinh.
+Mộc Dao sang Hàn Quốc có phải để theo nghề mỹ phẩm hay không thì anh không rõ. Suốt bao nhiêu năm bôn ba ấy, chắc chắn cô từng có lần về nước, bởi dù sao Mộc Nhân Cường và Trương Tuệ vẫn luôn sống ở Tư Tinh.
 
 Thế nhưng Triệu Kim An chưa từng nghe ngóng được bất kỳ tin tức nào, cũng chẳng có ai nói với anh.
 
@@ -148,7 +146,7 @@ Mộc Dao vẫn ngồi bệt dưới đất khóc nức nở, hệt như cái l�
 
 Rất nhanh sau đó, Du Phi đã bắt xe ôm chạy tới.
 
-Bước xuống từ chiếc xe máy còn có cả Diêu Sân. Thẩm Tử Ngôn và Hứa Mạn Mạn lúc này có lẽ vẫn còn đang bận rộn ở công ty.
+Bước xuống từ chiếc xe máy còn có cả Diêu Sân. Thẩm Tử Ngôn và Từ Mạn Mạn lúc này có lẽ vẫn còn đang bận rộn ở công ty.
 
 Hai cô gái vừa xuống xe liền hớt hải chạy vội tới, ngồi thụp xuống bên cạnh Mộc Dao, ngập ngừng chẳng biết phải mở lời an ủi thế nào.
 
@@ -182,7 +180,7 @@ Hai người bọn họ rõ ràng đã chia tay từ trước khi bước vào �
 
 "Reng reng reng."
 
-Đúng lúc này điện thoại của Diêu Sân reo vang. Chẳng cần hỏi cũng đoán được nếu không phải Thẩm Tử Ngôn thì cũng là Hứa Mạn Mạn gọi tới.
+Đúng lúc này điện thoại của Diêu Sân reo vang. Chẳng cần hỏi cũng đoán được nếu không phải Thẩm Tử Ngôn thì cũng là Từ Mạn Mạn gọi tới.
 
 Ký túc xá sắp đến giờ đóng cửa rồi.
 

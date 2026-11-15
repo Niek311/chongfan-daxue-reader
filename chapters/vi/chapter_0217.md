@@ -1,7 +1,5 @@
 # Chương 217: Tâm nguyện cuối cùng
 
-> **Tiêu đề gốc**: 第217章 最后的心愿。
-
 Trở lại xưởng.
 
 Nhà kho của nhà máy nước và xưởng đồ hộp nằm cách nhau chẳng bao xa, ngay trước cửa kho lúc này đang đỗ ba chiếc xe tải thùng cỡ lớn.

@@ -1,7 +1,5 @@
 # Chương 162: Cọng rơm cuối cùng đè chết lạc đà
 
-> **Tiêu đề gốc**: 第162章 压死骆驼最后一根稻草。
-
 Gác lại cuộc gọi, Lô Kiều Vĩ đưa mắt đăm đăm nhìn sang khuôn viên xưởng đồ hộp tối om như mực ở sát vách.
 
 Đốm đèn le lói cuối cùng trên tầng hai cũng vừa bị bóng đêm dày đặc nuốt chửng hoàn toàn.
@@ -54,17 +52,17 @@ Từ Mạn Mạn cũng chưa từng mở lời kể cho Trần Trạch nghe.
 
 Diêu Sân luôn cảm thấy Từ Mạn Mạn đã hy sinh và đánh đổi vì Trần Trạch quá nhiều, cô nàng từng thẳng thắn tuyên bố rằng nếu sau này Trần Trạch mà dám phụ bạc Từ Mạn Mạn, thì lương tâm của hắn ta chắc chắn đã bị chó tha mất rồi!
 
-Cùng là cảnh ngộ vừa phải vừa đi học vừa đi làm thêm vất vả, nhưng hoàn cảnh của Trầm Tử Ngôn và Từ Mạn Mạn lại là hai bức tranh hoàn toàn trái ngược nhau, một trời một vực.
+Cùng là cảnh ngộ vừa phải vừa đi học vừa đi làm thêm vất vả, nhưng hoàn cảnh của Thẩm Tử Ngôn và Từ Mạn Mạn lại là hai bức tranh hoàn toàn trái ngược nhau, một trời một vực.
 
-Nghe tin Trầm Tử Ngôn được theo chân sếp Lạc Cẩn Chi bay thẳng tới tận thủ đô Bắc Kinh để tham gia buổi đấu giá tranh giành vị trí quảng cáo giờ vàng trên đài truyền hình Trung ương CCTV, cả Mộc Dao lẫn Diêu Sân đều không giấu nổi ánh mắt ngưỡng mộ tột cùng. Cho dù thương vụ đấu giá ấy có thành công hay không, thì đó cũng đã là một cơ hội tuyệt vời để mở mang tầm mắt, tích lũy vốn sống và trải nghiệm đỉnh cao rồi.
+Nghe tin Thẩm Tử Ngôn được theo chân sếp Lạc Cẩn Chi bay thẳng tới tận thủ đô Bắc Kinh để tham gia buổi đấu giá tranh giành vị trí quảng cáo giờ vàng trên đài truyền hình Trung ương CCTV, cả Mộc Dao lẫn Diêu Sân đều không giấu nổi ánh mắt ngưỡng mộ tột cùng. Cho dù thương vụ đấu giá ấy có thành công hay không, thì đó cũng đã là một cơ hội tuyệt vời để mở mang tầm mắt, tích lũy vốn sống và trải nghiệm đỉnh cao rồi.
 
-Trầm Tử Ngôn một khi cần làm đơn xin nghỉ học thì lúc nào cũng có thể đường hoàng, đĩnh đạc trình bày lý do chính đáng, các thầy cô giáo bộ môn chắc chắn sẽ phê duyệt đơn nghỉ một cách nhanh chóng, thậm chí còn ân cần hỏi han xem kết quả công việc tiến triển ra sao.
+Thẩm Tử Ngôn một khi cần làm đơn xin nghỉ học thì lúc nào cũng có thể đường hoàng, đĩnh đạc trình bày lý do chính đáng, các thầy cô giáo bộ môn chắc chắn sẽ phê duyệt đơn nghỉ một cách nhanh chóng, thậm chí còn ân cần hỏi han xem kết quả công việc tiến triển ra sao.
 
 Giờ đây trong phòng ký túc xá 406, chẳng còn một ai buồn mở miệng gặng hỏi Từ Mạn Mạn xem mẹ của Trần Trạch rốt cuộc đã chịu bán tống bán tháo số cổ phiếu kia đi hay chưa nữa.
 
 Nếu như đến tận thời điểm này mà bà ta vẫn còn ngoan cố ôm khư khư lấy số cổ phiếu ấy, thì quả thực cũng chẳng còn gì để mà bàn tán thêm nữa rồi.
 
-Từ Mạn Mạn chẳng hề ghen tị với việc Trầm Tử Ngôn được đi thủ đô tham gia đấu giá quảng cáo truyền hình trung ương. Điều duy nhất mà cô ao ước lúc này, là mong sao bản thân lại có thêm một cơ hội nhỏ nhoi được ngồi tựa lưng trên chiếc xe êm ái của Triệu Kim An để chợp mắt nghỉ ngơi một lát mà thôi.
+Từ Mạn Mạn chẳng hề ghen tị với việc Thẩm Tử Ngôn được đi thủ đô tham gia đấu giá quảng cáo truyền hình trung ương. Điều duy nhất mà cô ao ước lúc này, là mong sao bản thân lại có thêm một cơ hội nhỏ nhoi được ngồi tựa lưng trên chiếc xe êm ái của Triệu Kim An để chợp mắt nghỉ ngơi một lát mà thôi.
 
 Bà Dương Thù Mỹ đã hoàn toàn quẳng phăng những lời cảnh báo đầy tâm huyết của Từ Mạn Mạn và Triệu Kim An ra sau đầu. Thêm vào đó, đợt này Từ Mạn Mạn phải tập trung toàn bộ tâm trí cho kỳ thi học kỳ căng thẳng nên không còn thời gian đâu để quản thúc việc ở công ty, chỉ cần bên ngoài có đơn đặt hàng nào phát sinh là bà ta lập tức dồn toàn lực tranh giành nhận lấy.
 

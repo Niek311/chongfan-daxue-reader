@@ -1,7 +1,5 @@
 # Chương 65: Đây là đặc quyền của người làm mẹ
 
-> **Tiêu đề gốc**: 第65章 这是妈妈的权利啊。
-
 "Xe chạy vào nhà chú Triệu Quốc Hoa rồi kìa!"
 
 Trông thấy hai chiếc xe hơi sang trọng nhích từng chút một bò lên con dốc đất, những người dân làng đứng ven đường lại càng thêm tò mò, xôn xao bàn tán.

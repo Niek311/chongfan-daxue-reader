@@ -1,20 +1,18 @@
 # Chương 478: Thế này sao?
 
-> **Tiêu đề gốc**: 第478章 这样吗？
-
 Nói cho cùng, ở khía cạnh này Triệu Kim An còn cực đoan và dứt khoát hơn cả Từ Mạn Mạn. Dù sao năm xưa Từ Tắc Đống và Lương Tuệ Trân nuôi nấng Từ Mạn Mạn chừng ấy năm trời, về mặt tiền bạc vật chất chưa bao giờ để cô phải chịu thiệt thòi thiếu thốn.
 
-Đoàn Thu Bình hoàn toàn không thể ngờ được rằng hành động vô tâm vừa rồi của bà lại là một nhát dao kích động sâu sắc vào vết thương lòng của Triệu Kim An.
+Đoạn Thu Bình hoàn toàn không thể ngờ được rằng hành động vô tâm vừa rồi của bà lại là một nhát dao kích động sâu sắc vào vết thương lòng của Triệu Kim An.
 
-Trong tâm khảm của Triệu Kim An, người cha duy nhất trên đời này chỉ có một mình Triệu Quốc Khánh. Đoàn Thu Bình nay đã cùng Tống Siêu Văn tạo dựng một gia đình êm ấm không phân chia ranh giới, gọi điện thoại cho con trai ruột mà người chồng sau lại kè kè đứng sát bên tai nghe ngóng, vậy thì rõ ràng đã là người của hai gia đình khác biệt. Có những tổn thương và khoảng cách, dẫu có trải qua hai kiếp luân hồi cũng vĩnh viễn chẳng thể nào phai nhòa.
+Trong tâm khảm của Triệu Kim An, người cha duy nhất trên đời này chỉ có một mình Triệu Quốc Khánh. Đoạn Thu Bình nay đã cùng Tống Siêu Văn tạo dựng một gia đình êm ấm không phân chia ranh giới, gọi điện thoại cho con trai ruột mà người chồng sau lại kè kè đứng sát bên tai nghe ngóng, vậy thì rõ ràng đã là người của hai gia đình khác biệt. Có những tổn thương và khoảng cách, dẫu có trải qua hai kiếp luân hồi cũng vĩnh viễn chẳng thể nào phai nhòa.
 
-Triệu Kim An cả đời này sẽ không bao giờ quên được cái ngày năm ấy, khi cậu lầm lũi bắt chuyến xe khách liên huyện lên Sâm Thành để tìm mẹ xin tiền đóng học phí đồng phục. Đến nơi, nhìn thấy Đoàn Thu Bình đang vui vẻ ôm ấp Tống Gia Nguyệt trong lòng, cậu đã lặng lẽ lùi bước trốn đi, rồi lủi thủi bắt chuyến xe khách ngược về làng.
+Triệu Kim An cả đời này sẽ không bao giờ quên được cái ngày năm ấy, khi cậu lầm lũi bắt chuyến xe khách liên huyện lên Sâm Thành để tìm mẹ xin tiền đóng học phí đồng phục. Đến nơi, nhìn thấy Đoạn Thu Bình đang vui vẻ ôm ấp Tống Gia Nguyệt trong lòng, cậu đã lặng lẽ lùi bước trốn đi, rồi lủi thủi bắt chuyến xe khách ngược về làng.
 
 Chính vào khoảnh khắc trớ trêu ấy, dường như cậu đã thấu hiểu một sự thật cay đắng: Mẹ đã tái giá gả cho người khác, đã là người của gia đình người ta, và mẹ đã có những đứa con của riêng mình.
 
-Có lẽ khi ấy tâm hồn Triệu Kim An quá đỗi nhạy cảm. Nếu như cậu chịu dày mặt bước tới chìa tay ra xin, chắc chắn Đoàn Thu Bình sẽ móc tiền đưa cho cậu.
+Có lẽ khi ấy tâm hồn Triệu Kim An quá đỗi nhạy cảm. Nếu như cậu chịu dày mặt bước tới chìa tay ra xin, chắc chắn Đoạn Thu Bình sẽ móc tiền đưa cho cậu.
 
-Thời điểm ấy, hơn một trăm tệ thực sự không phải là một món tiền nhỏ, một ngày đi làm phu hồ cửu vạn đổ mồ hôi sôi nước mắt cũng chỉ kiếm được mười hai đến mười lăm tệ bạc, thế nhưng Đoàn Thu Bình nhất định sẽ gom góp cho con.
+Thời điểm ấy, hơn một trăm tệ thực sự không phải là một món tiền nhỏ, một ngày đi làm phu hồ cửu vạn đổ mồ hôi sôi nước mắt cũng chỉ kiếm được mười hai đến mười lăm tệ bạc, thế nhưng Đoạn Thu Bình nhất định sẽ gom góp cho con.
 
 Dù trong túi không còn tiền, bà cũng sẽ hỏi xin Tống Siêu Văn để đưa tận tay Triệu Kim An.
 
@@ -90,11 +88,11 @@ Tống Uyển Hòa có chút bán tín bán nghi, tò mò nghé mắt nhìn vào
 
 Từ Mạn Mạn chỉ mỉm cười nhã nhặn đáp lại mọi người.
 
-Đúng lúc này, thư ký Du Phỉ cầm điện thoại từ phòng bên bước tới. Cô nở một nụ cười vừa ngượng ngùng nhưng không kém phần chuẩn mực lễ phép: "Triệu tổng vừa nhắn lại rằng, anh ấy trên đời này chỉ có duy nhất một đứa em gái là Triệu Duyệt Thiên, xưa nay chưa từng có chị gái nào cả. Thêm nữa, bố của cô trước đó cũng đã dặn Triệu tổng rằng nếu cô có lên đây thì anh ấy không cần phải bận tâm tiếp đãi đâu ạ."
+Đúng lúc này, thư ký Du Phi cầm điện thoại từ phòng bên bước tới. Cô nở một nụ cười vừa ngượng ngùng nhưng không kém phần chuẩn mực lễ phép: "Triệu tổng vừa nhắn lại rằng, anh ấy trên đời này chỉ có duy nhất một đứa em gái là Triệu Duyệt Thiên, xưa nay chưa từng có chị gái nào cả. Thêm nữa, bố của cô trước đó cũng đã dặn Triệu tổng rằng nếu cô có lên đây thì anh ấy không cần phải bận tâm tiếp đãi đâu ạ."
 
 "Nếu cô không tin, cô có thể trực tiếp gọi điện thoại về hỏi bố mình."
 
-Du Phỉ cố nén nụ cười đang chực bật ra, nghiêm trang bổ sung thêm một câu.
+Du Phi cố nén nụ cười đang chực bật ra, nghiêm trang bổ sung thêm một câu.
 
 Tống Uyển Hòa chết lặng: "....."
 
@@ -110,7 +108,7 @@ Từ Mạn Mạn khẽ mỉm cười, xoay người thong thả bước trở l�
 
 Cách xử lý này quả thực vô cùng chuẩn phong cách của Triệu Kim An.
 
-Lời Du Phỉ vừa thuật lại cam đoan không sai lệch dù chỉ nửa chữ.
+Lời Du Phi vừa thuật lại cam đoan không sai lệch dù chỉ nửa chữ.
 
 Tống Uyển Hòa cùng đám đồng nghiệp đứng trơ trọi giữa hành lang, mặt mày ai nấy đều đỏ bừng vì xấu hổ đến tột cùng.
 
@@ -120,21 +118,21 @@ Tống Uyển Hòa cùng đám đồng nghiệp đứng trơ trọi giữa hành
 
 Tại Sâm Thành.
 
-Đoàn Thu Bình hoảng loạn run rẩy, bà bần thần nhìn cô con gái nhỏ Tống Gia Nguyệt đang ngoan ngoãn ngồi xem phim hoạt hình trên ghế sô pha.
+Đoạn Thu Bình hoảng loạn run rẩy, bà bần thần nhìn cô con gái nhỏ Tống Gia Nguyệt đang ngoan ngoãn ngồi xem phim hoạt hình trên ghế sô pha.
 
 "Tiểu Nguyệt à, mẹ có lỗi với con..."
 
 Tống Gia Nguyệt chưa hiểu chuyện gì đang xảy ra, thấy mẹ khóc liền vội vàng tụt khỏi ghế sô pha chạy lại dỗ dành: "Mẹ ơi, mẹ làm sao thế ạ?"
 
-Đoàn Thu Bình lấy tay quẹt nước mắt. Triệu Kim An vừa tuyên bố anh chỉ có duy nhất một đứa em gái...
+Đoạn Thu Bình lấy tay quẹt nước mắt. Triệu Kim An vừa tuyên bố anh chỉ có duy nhất một đứa em gái...
 
 Tống Gia Nguyệt đưa bàn tay nhỏ nhắn lên lau nước mắt cho mẹ: "Mẹ ơi, mẹ đừng khóc mà."
 
-Chẳng qua Đoàn Thu Bình thấy thời gian qua Triệu Kim An đã mấy lần gửi tiền về cho mình, lại có vẻ như đã chấp nhận đứa em gái Tống Gia Nguyệt này, nên bà mới ngỡ rằng mối quan hệ giữa hai bên đã có thể dần dần dịu đi đôi chút. Thực ra cũng chẳng thể nói là hòa hoãn dịu đi, bởi vốn dĩ giữa hai nhà xưa nay đâu có xích mích cãi vã gì lớn, chỉ đơn giản là chưa bao giờ qua lại thân thiết với nhau mà thôi.
+Chẳng qua Đoạn Thu Bình thấy thời gian qua Triệu Kim An đã mấy lần gửi tiền về cho mình, lại có vẻ như đã chấp nhận đứa em gái Tống Gia Nguyệt này, nên bà mới ngỡ rằng mối quan hệ giữa hai bên đã có thể dần dần dịu đi đôi chút. Thực ra cũng chẳng thể nói là hòa hoãn dịu đi, bởi vốn dĩ giữa hai nhà xưa nay đâu có xích mích cãi vã gì lớn, chỉ đơn giản là chưa bao giờ qua lại thân thiết với nhau mà thôi.
 
 "Tiểu Nguyệt à, mẹ..."
 
-Đoàn Thu Bình nghẹn ngào không biết phải mở lời thế nào, mà có nói ra thì đứa trẻ ngây thơ chừng ấy tuổi cũng chẳng thể nào hiểu nổi.
+Đoạn Thu Bình nghẹn ngào không biết phải mở lời thế nào, mà có nói ra thì đứa trẻ ngây thơ chừng ấy tuổi cũng chẳng thể nào hiểu nổi.
 
 Thế nhưng có một điều mà bà có thể khẳng định chắc nịch: Nếu như có được một người anh trai như Triệu Kim An che chở nâng đỡ, thì cả cuộc đời này của Tống Gia Nguyệt sẽ...
 

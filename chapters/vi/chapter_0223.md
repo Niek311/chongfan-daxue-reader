@@ -1,7 +1,5 @@
 # Chương 223: Trạm dừng nghỉ cao tốc
 
-> **Tiêu đề gốc**: 第223章 高速服务站。
-
 Từ Mạn Mạn khẽ lắc đầu rồi lại gật đầu. Rốt cuộc không có khả năng nhìn thấu tương lai, trong lòng cô vẫn chưa thực sự chắc chắn.
 
 "Mở gian hàng trên Taobao cũng là một hướng đi tốt, nhưng tôi đang tính hay là xây dựng một nền tảng độc lập của riêng mình, lấy luôn tên là Trăn Hối Tuyển. Ban đầu chỉ kinh doanh các sản phẩm của siêu thị thôi, như thế sẽ không tốn kém quá nhiều kinh phí."

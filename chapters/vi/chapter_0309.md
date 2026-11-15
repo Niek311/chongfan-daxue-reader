@@ -1,7 +1,5 @@
 # Chương 309: Đầu mối then chốt, cậu có thể mặc đồng phục công sở rồi.
 
-> **Tiêu đề gốc**: 第309章 核心枢纽，你可以穿工作制服了。
-
 Dư Tĩnh chăm chú nhìn Vương Duy Đào hồi lâu mới sực nhớ ra, đây dường như là cậu sinh viên chuyên đi học điểm danh hộ cho Triệu Kim An.
 
 "Cô Dư..."
@@ -118,9 +116,9 @@ Hơn nữa công ty là của Triệu Kim An, Kim An bảo làm gì thì cậu l
 
 Trịnh Như nói nhỏ.
 
-Đoàn Thu Bình và Lưu Mỹ Nga đưa mắt nhìn Trịnh Như. Người phụ nữ này tay chân vô cùng thoăn thoắt, vào bếp chỉ cắm cúi làm việc chứ không hề nhiều lời buôn chuyện, chỉ khi nào Đoàn Thu Bình chủ động mở lời hỏi han, Trịnh Như mới nhỏ nhẹ đáp lại vài câu.
+Đoạn Thu Bình và Lưu Mỹ Nga đưa mắt nhìn Trịnh Như. Người phụ nữ này tay chân vô cùng thoăn thoắt, vào bếp chỉ cắm cúi làm việc chứ không hề nhiều lời buôn chuyện, chỉ khi nào Đoạn Thu Bình chủ động mở lời hỏi han, Trịnh Như mới nhỏ nhẹ đáp lại vài câu.
 
-Trịnh Như chỉ kém Đoàn Thu Bình và Lưu Mỹ Nga vài tuổi, tính ra chưa đầy một giáp, ba người phụ nữ này đứng cạnh nhau có thể xem như cùng một thế hệ.
+Trịnh Như chỉ kém Đoạn Thu Bình và Lưu Mỹ Nga vài tuổi, tính ra chưa đầy một giáp, ba người phụ nữ này đứng cạnh nhau có thể xem như cùng một thế hệ.
 
 Lưu Mỹ Nga không dám hỏi han nhiều, bà tự biết thân phận người làm của mình nên chỉ khi nhắc đến chuyện buôn bán sạp ma lạt thảng mới xen vào vài câu.
 

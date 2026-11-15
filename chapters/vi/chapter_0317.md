@@ -1,7 +1,5 @@
 # Chương 317: Đổi thay
 
-> **Tiêu đề gốc**: 第317章 变化。
-
 Triệu Kim An rút một điếu thuốc mời Hiệu trưởng Cung, lại còn ân cần bật lửa châm thuốc giúp ông.
 
 Bàn tay đang giơ lên che gió của Hiệu trưởng Cung vẫn còn run rẩy nhè nhẹ.
@@ -56,13 +54,13 @@ Trong phòng làm việc lúc này chỉ có hai người bọn họ, còn câu 
 
 "Triệu tổng còn quen biết nhân vật tầm cỡ nào nữa không?"
 
-"Trần Nhuệ có tính không ạ? Nhưng mà cũng chỉ là chỗ quen biết sơ sơ, gật đầu chào hỏi thôi."
+"Trần Nhuế có tính không ạ? Nhưng mà cũng chỉ là chỗ quen biết sơ sơ, gật đầu chào hỏi thôi."
 
 Triệu Kim An nhớ lại một chút: "Hôm lễ khai mạc Thế vận hội, em chỉ tiện tay cuốn giúp bà ấy hai miếng vịt quay Bắc Kinh, rồi đưa cho bà ấy hai cái quạt máy cầm tay mini mà thôi."
 
 "Khụ, khụ khụ!"
 
-Hiệu trưởng Cung vừa ho sặc sụa vừa xua tay lia lịa. Đồng chí Trần Nhuệ đấy nhé! Người ta chịu ăn miếng vịt quay do chính tay cậu cuốn, thế mà cậu dám dùng hai chữ "mà thôi" sao?
+Hiệu trưởng Cung vừa ho sặc sụa vừa xua tay lia lịa. Đồng chí Trần Nhuế đấy nhé! Người ta chịu ăn miếng vịt quay do chính tay cậu cuốn, thế mà cậu dám dùng hai chữ "mà thôi" sao?
 
 Đổi lại là do tôi cuốn, cậu xem người ta có thèm liếc mắt nhìn lấy một cái hay không?
 
@@ -72,13 +70,13 @@ Triệu Kim An lại bồi thêm một câu giải thích, hoàn toàn không c�
 
 Hiệu trưởng Cung nghe xong lại càng ho dữ dội hơn. Quả nhiên, người có vẻ ngoài khôi ngô, sạch sẽ và tuấn tú lúc nào cũng chiếm lợi thế lớn.
 
-Triệu Kim An thấy vậy liền có lòng tốt hỏi han: "Hiệu trưởng Cung, thầy có cần em gọi điện thoại cho đồng chí Trần Nhuệ không? Để thầy nói chuyện trực tiếp với bà ấy vài câu nhé?"
+Triệu Kim An thấy vậy liền có lòng tốt hỏi han: "Hiệu trưởng Cung, thầy có cần em gọi điện thoại cho đồng chí Trần Nhuế không? Để thầy nói chuyện trực tiếp với bà ấy vài câu nhé?"
 
 "Không cần, không cần đâu!"
 
-Hiệu trưởng Cung ngẩn người ra trong tích tắc rồi vội vàng từ chối. Mạng lưới quan hệ này khủng khiếp quá, đúng là bản thân ông rất muốn cầu tiến trên con đường quan lộ, nhưng tầm vóc của ông liệu có với tới và gánh nổi không? Đồng chí Trần Nhuệ người ta liệu có biết ông là nhân vật nào hay không chứ?
+Hiệu trưởng Cung ngẩn người ra trong tích tắc rồi vội vàng từ chối. Mạng lưới quan hệ này khủng khiếp quá, đúng là bản thân ông rất muốn cầu tiến trên con đường quan lộ, nhưng tầm vóc của ông liệu có với tới và gánh nổi không? Đồng chí Trần Nhuế người ta liệu có biết ông là nhân vật nào hay không chứ?
 
-Thế nhưng qua câu nói này, ông cũng hoàn toàn khẳng định được rằng: Triệu Kim An thực sự có quen biết Trần Nhuệ, thậm chí còn nắm giữ số điện thoại riêng của bà, thuộc dạng có thể gọi điện hàn huyên bất cứ lúc nào.
+Thế nhưng qua câu nói này, ông cũng hoàn toàn khẳng định được rằng: Triệu Kim An thực sự có quen biết Trần Nhuế, thậm chí còn nắm giữ số điện thoại riêng của bà, thuộc dạng có thể gọi điện hàn huyên bất cứ lúc nào.
 
 "Triệu tổng à, chúng ta... chúng ta vẫn nên bàn chuyện gì thực tế và gần gũi một chút đi."
 

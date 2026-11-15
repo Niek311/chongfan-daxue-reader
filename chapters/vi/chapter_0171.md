@@ -1,24 +1,22 @@
 # Chương 171: Chị dâu...
 
-> **Tiêu đề gốc**: 第171章 嫂子....
-
 Triệu Kim An chăm chú cầm lái, thỉnh thoảng lại liếc nhìn qua gương chiếu hậu.
 
-Đoàn Thu Bình ôm Tống Gia Nguyệt trong lòng, cất giọng hỏi: "Kim An, con định lái xe đi đâu thế?"
+Đoạn Thu Bình ôm Tống Gia Nguyệt trong lòng, cất giọng hỏi: "Kim An, con định lái xe đi đâu thế?"
 
 Triệu Kim An với tay lấy một quả táo bên ghế phụ đưa ra hàng ghế sau: "Tống Uyển Hòa đâu rồi mẹ?"
 
-Đoàn Thu Bình im lặng, không đáp.
+Đoạn Thu Bình im lặng, không đáp.
 
 Triệu Kim An im lặng một hồi rồi mới trầm giọng mở lời: "Người ta chẳng thương mẹ bằng bố Triệu Quốc Khánh đâu. Bố con ngày xưa không bao giờ nỡ để mẹ phải vất vả thế này. Hồi đó mẹ thích uốn tóc xoăn, thích điệu đà làm đẹp, vậy mà mấy năm nay mẹ già đi nhanh quá... Mẹ không tự soi gương xem lại mình sao?"
 
 "..."
 
-Đoàn Thu Bình cúi gằm mặt xuống. Không phải bà xót xa cho nỗi vất vả của bản thân, mà là cảm giác hổ thẹn đang dâng tràn.
+Đoạn Thu Bình cúi gằm mặt xuống. Không phải bà xót xa cho nỗi vất vả của bản thân, mà là cảm giác hổ thẹn đang dâng tràn.
 
 Bà biết con trai đang lo lắng, quan tâm cho mình, nhưng càng như vậy, bà lại càng thấy xấu hổ và tội lỗi với con, tội lỗi với cả Triệu Quốc Khánh nơi chín suối.
 
-Đoàn Thu Bình làm sao không hiểu Triệu Quốc Khánh từng yêu thương, chiều chuộng bà đến nhường nào; bà cũng hiểu rõ bà nội thương bà ra sao, thương đứa con dâu cả này biết bao nhiêu.
+Đoạn Thu Bình làm sao không hiểu Triệu Quốc Khánh từng yêu thương, chiều chuộng bà đến nhường nào; bà cũng hiểu rõ bà nội thương bà ra sao, thương đứa con dâu cả này biết bao nhiêu.
 
 Đến trước cửa tiệm KFC, Triệu Kim An đánh lái tấp xe vào lề.
 
@@ -26,13 +24,13 @@ Bà biết con trai đang lo lắng, quan tâm cho mình, nhưng càng như vậ
 
 "Vâng."
 
-Triệu Kim An bước về phía quầy gọi món. Đoàn Thu Bình ôm Tống Gia Nguyệt vội vã móc tiền túi ra: "Kim An, con muốn ăn gì cứ chọn đi, mẹ trả."
+Triệu Kim An bước về phía quầy gọi món. Đoạn Thu Bình ôm Tống Gia Nguyệt vội vã móc tiền túi ra: "Kim An, con muốn ăn gì cứ chọn đi, mẹ trả."
 
 "Con kiếm ra tiền rồi, để con trả."
 
 "Kim An..."
 
-Triệu Kim An khẽ lắc đầu. Đoàn Thu Bình cũng chẳng còn tâm trí đâu mà nghĩ xem vì sao ban nãy con trai lại không ăn đồ nướng cùng chồng mình nữa. Bà đặt Tống Gia Nguyệt xuống đất, nép sát vào người Triệu Kim An, một tay dắt lấy bàn tay nhỏ bé của con gái.
+Triệu Kim An khẽ lắc đầu. Đoạn Thu Bình cũng chẳng còn tâm trí đâu mà nghĩ xem vì sao ban nãy con trai lại không ăn đồ nướng cùng chồng mình nữa. Bà đặt Tống Gia Nguyệt xuống đất, nép sát vào người Triệu Kim An, một tay dắt lấy bàn tay nhỏ bé của con gái.
 
 Bà đã khao khát khoảnh khắc này biết bao: trước mặt là con trai, dưới tầm mắt là con gái.
 
@@ -40,15 +38,15 @@ Cô nhân viên phục vụ nhìn thấy cảnh tượng ấy cũng mỉm cườ
 
 "Tiểu Nguyệt, con muốn ăn gì nào?"
 
-Đoàn Thu Bình lại bế Tống Gia Nguyệt lên, chỉ vào những hình ảnh rực rỡ trên bảng thực đơn.
+Đoạn Thu Bình lại bế Tống Gia Nguyệt lên, chỉ vào những hình ảnh rực rỡ trên bảng thực đơn.
 
 Triệu Kim An gọi rất nhiều món, giữa trời đông giá rét thế này mà anh còn gọi thêm hai ly kem sundae.
 
-Lần này Đoàn Thu Bình không hề tiếc tiền hay thấy lãng phí. Bà từng mơ ước biết bao lần cả ba mẹ con có thể quây quần đi chơi với nhau như thế này.
+Lần này Đoạn Thu Bình không hề tiếc tiền hay thấy lãng phí. Bà từng mơ ước biết bao lần cả ba mẹ con có thể quây quần đi chơi với nhau như thế này.
 
-Tất nhiên, Đoàn Thu Bình hoàn toàn không hay biết rằng ở Tư Tinh, cô bé Triệu Duyệt Duyệt cũng đang sở hữu một cửa hàng KFC như thế.
+Tất nhiên, Đoạn Thu Bình hoàn toàn không hay biết rằng ở Tư Tinh, cô bé Triệu Duyệt Duyệt cũng đang sở hữu một cửa hàng KFC như thế.
 
-Trời đã khuya, trong khu cầu trượt chỉ có mỗi Tống Gia Nguyệt đang một tay cầm chiếc đùi gà rán gặm ngon lành. Đoàn Thu Bình đứng tựa cửa cầm chiếc bánh mì kẹp thịt. Tống Gia Nguyệt tính tình có phần nhút nhát, rụt rè, chốc chốc lại đưa mắt lén nhìn Triệu Kim An.
+Trời đã khuya, trong khu cầu trượt chỉ có mỗi Tống Gia Nguyệt đang một tay cầm chiếc đùi gà rán gặm ngon lành. Đoạn Thu Bình đứng tựa cửa cầm chiếc bánh mì kẹp thịt. Tống Gia Nguyệt tính tình có phần nhút nhát, rụt rè, chốc chốc lại đưa mắt lén nhìn Triệu Kim An.
 
 Ở kiếp trước, Tống Gia Nguyệt không học đại học, tốt nghiệp cấp ba xong là ở lại Sâm Thành đi làm thuê.
 
@@ -58,61 +56,61 @@ Ngày thường, hai anh em cũng rất ít khi liên lạc.
 
 "Tiểu Nguyệt..."
 
-Đoàn Thu Bình ngồi xổm xuống đút cho con bé một miếng bánh kẹp. Tống Gia Nguyệt ngẩng đầu nhìn Triệu Kim An, dường như vẫn còn chút e sợ người anh trai này. Phải một lúc sau, ánh mắt con bé mới len lén chuyển sang ly kem sundae mát lạnh.
+Đoạn Thu Bình ngồi xổm xuống đút cho con bé một miếng bánh kẹp. Tống Gia Nguyệt ngẩng đầu nhìn Triệu Kim An, dường như vẫn còn chút e sợ người anh trai này. Phải một lúc sau, ánh mắt con bé mới len lén chuyển sang ly kem sundae mát lạnh.
 
 Con bé từng được đi ăn KFC, nhưng chưa bao giờ được ăn bữa thịnh soạn thế này, muốn ăn gì cũng có.
 
 "Không được ăn nhiều kem lạnh đâu đấy."
 
-Dù nói vậy nhưng Đoàn Thu Bình vẫn múc một muỗng đút cho con gái. Triệu Kim An chỉ ngồi trên chiếc ghế cao lặng lẽ quan sát.
+Dù nói vậy nhưng Đoạn Thu Bình vẫn múc một muỗng đút cho con gái. Triệu Kim An chỉ ngồi trên chiếc ghế cao lặng lẽ quan sát.
 
 "Kim An à..."
 
-Thấy Tống Gia Nguyệt lại lon ton trèo lên cầu trượt chơi, Đoàn Thu Bình đứng dậy bước lại gần con trai.
+Thấy Tống Gia Nguyệt lại lon ton trèo lên cầu trượt chơi, Đoạn Thu Bình đứng dậy bước lại gần con trai.
 
 Triệu Kim An nở nụ cười nhẹ: "Mẹ cũng ăn đi, con mua nhiều thế này đừng để lãng phí."
 
 "Ừ."
 
-Đoàn Thu Bình cắn một miếng bánh. Bà rất muốn hỏi thăm về Tô Miến, nhưng lại sợ làm hỏng bầu không khí êm đềm hiếm có lúc này.
+Đoạn Thu Bình cắn một miếng bánh. Bà rất muốn hỏi thăm về Tô Miến, nhưng lại sợ làm hỏng bầu không khí êm đềm hiếm có lúc này.
 
 Triệu Kim An lấy ra một xấp tiền đã chuẩn bị sẵn, đúng năm nghìn tệ.
 
-Con số này chính là số tiền học phí mà Đoàn Thu Bình từng lặn lội mang về thôn Triệu gia ngày trước. Triệu Kim An không cố ý chọn con số đó, cũng chẳng có ngụ ý sâu xa gì, anh chỉ nhìn chiếc áo bông cũ kỹ trên người bà rồi bảo: "Tết đến rồi, mẹ cầm lấy mà mua mấy bộ quần áo mới."
+Con số này chính là số tiền học phí mà Đoạn Thu Bình từng lặn lội mang về thôn Triệu gia ngày trước. Triệu Kim An không cố ý chọn con số đó, cũng chẳng có ngụ ý sâu xa gì, anh chỉ nhìn chiếc áo bông cũ kỹ trên người bà rồi bảo: "Tết đến rồi, mẹ cầm lấy mà mua mấy bộ quần áo mới."
 
 "Kim An, con... làm sao mẹ có thể lấy tiền của con được!?"
 
-Nhìn xấp tiền dày cộp, Đoàn Thu Bình có chút hốt hoảng. Làm sao bà có thể nỡ tiêu số tiền mồ hôi nước mắt mà con trai vất vả vừa học vừa làm kiếm được cơ chứ?
+Nhìn xấp tiền dày cộp, Đoạn Thu Bình có chút hốt hoảng. Làm sao bà có thể nỡ tiêu số tiền mồ hôi nước mắt mà con trai vất vả vừa học vừa làm kiếm được cơ chứ?
 
 "Mẹ cứ cầm lấy đi."
 
-Triệu Kim An nhét xấp tiền vào túi áo Đoàn Thu Bình, rồi liếc nhìn Tống Gia Nguyệt đang chơi đùa, khẽ hỏi: "Ông ta chi tiêu tằn tiện lắm à mẹ?"
+Triệu Kim An nhét xấp tiền vào túi áo Đoạn Thu Bình, rồi liếc nhìn Tống Gia Nguyệt đang chơi đùa, khẽ hỏi: "Ông ta chi tiêu tằn tiện lắm à mẹ?"
 
-Đoàn Thu Bình ngập ngừng, không biết phải trả lời thế nào.
+Đoạn Thu Bình ngập ngừng, không biết phải trả lời thế nào.
 
 "Tằn tiện để dành cho ai tiêu?"
 
 Triệu Kim An cười khổ một tiếng. Thím Vương Kim Như tằn tiện là vì hoàn cảnh gia đình ngày trước, còn người đàn ông kia thì khác. Anh nhìn thẳng vào mắt mẹ, dặn dò: "Mẹ tự mình phải khôn ngoan lên một chút."
 
-Đoàn Thu Bình ngước nhìn con trai: "Kim An..."
+Đoạn Thu Bình ngước nhìn con trai: "Kim An..."
 
 Triệu Kim An gật đầu, nhấn mạnh từng chữ: "Con đưa tiền cho mẹ là để mẹ tự chi tiêu cho bản thân, tuyệt đối đừng đem ra bù đắp cho chi tiêu trong nhà bên đó, mẹ hiểu chưa?"
 
 "Ừ."
 
-Đoàn Thu Bình gật đầu, hai tay nắm chặt lấy cánh tay Triệu Kim An, khẽ đáp: "Mẹ biết rồi."
+Đoạn Thu Bình gật đầu, hai tay nắm chặt lấy cánh tay Triệu Kim An, khẽ đáp: "Mẹ biết rồi."
 
 "Mẹ còn nhớ hôm trước con hỏi Tống Uyển Hòa câu gì không?"
 
 "Mẹ nhớ."
 
-Trong lòng Đoàn Thu Bình quả thực đã có vết gợn với Tống Uyển Hòa. Hôm đó những lời Triệu Kim An hỏi chẳng khác nào "đâm trúng tim đen". Đoàn Thu Bình gả sang bên ấy, chăm sóc con gái riêng của chồng chu đáo tận tình như thế, vậy mà khi chạm đến vấn đề "phụng dưỡng lúc về già", Tống Uyển Hòa lại ngập ngừng, do dự.
+Trong lòng Đoạn Thu Bình quả thực đã có vết gợn với Tống Uyển Hòa. Hôm đó những lời Triệu Kim An hỏi chẳng khác nào "đâm trúng tim đen". Đoạn Thu Bình gả sang bên ấy, chăm sóc con gái riêng của chồng chu đáo tận tình như thế, vậy mà khi chạm đến vấn đề "phụng dưỡng lúc về già", Tống Uyển Hòa lại ngập ngừng, do dự.
 
 Rơi vào hoàn cảnh ấy, là ai thì cũng phải lạnh lòng.
 
 Dù sau khi về nhà, Tống Uyển Hòa có giải thích thế nào đi nữa, nhưng phản ứng đầu tiên của một con người luôn là điều chân thật nhất.
 
-Triệu Kim An lái xe đưa hai mẹ con về. Lần này Đoàn Thu Bình không nài nỉ anh lên nhà ngủ nữa, bà chỉ lặng lẽ bế Tống Gia Nguyệt đã ngủ say trong lòng, dõi mắt nhìn chiếc xe của con trai rời đi, đứng dưới trời đêm rất lâu mới chịu bước lên lầu.
+Triệu Kim An lái xe đưa hai mẹ con về. Lần này Đoạn Thu Bình không nài nỉ anh lên nhà ngủ nữa, bà chỉ lặng lẽ bế Tống Gia Nguyệt đã ngủ say trong lòng, dõi mắt nhìn chiếc xe của con trai rời đi, đứng dưới trời đêm rất lâu mới chịu bước lên lầu.
 
 ...
 

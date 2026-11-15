@@ -1,7 +1,5 @@
 # Chương 137: Đêm trong như nước
 
-> **Tiêu đề gốc**: 第137章 夜色如水。
-
 "Trí Dũng, bên này!"
 
 Lúc này có người rọi đèn pin, cất tiếng gọi Triệu Trí Dũng.

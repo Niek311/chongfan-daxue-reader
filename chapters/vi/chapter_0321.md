@@ -1,7 +1,5 @@
 # Chương 321: Mua!
 
-> **Tiêu đề gốc**: 第321章 买。
-
 Triệu Kim An còn phải nói tiếng cảm ơn, cứ như thể tiền vay ngân hàng thì không cần phải trả vậy.
 
 Nói một cách công tâm, Trần Nhuế là muốn tốt cho Triệu Kim An, nếu không cô cũng chẳng việc gì phải gọi cuộc điện thoại này.

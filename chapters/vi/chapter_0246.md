@@ -1,7 +1,5 @@
 # Chương 246: Người đàn bà về nhà mẹ đẻ
 
-> **Tiêu đề gốc**: 第246章 回了娘家的女人
-
 Thực ra, bán trứng gà ta là món ít lời nhất trần đời!
 
 Ở các tỉnh khác thì không rõ, chứ riêng tại đất Tương Nam này, thương lái về tận ngõ thu mua dưa hấu chỉ trả hai đến ba hào một cân, thế nhưng khi bày lên kệ các sạp hoa quả ở phố thị lại có giá từ hai đồng chín hào chín đến bốn đồng chín hào chín một cân.
@@ -148,7 +146,7 @@ Vương Kim Như toe toét cười đính chính.
 
 Bà nội mỉm cười hiền từ: "Lại còn cả khoản thu nhập từ quán gà rán nữa, mày đừng có hái trụi hết thế, người nhà mình ở quê không ăn nữa hay sao?"
 
-Bà nội thương cô con dâu út này lắm. Năm xưa bà cũng từng thương Đoàn Thu Bình như thế, bà hiểu rõ Vương Kim Như tính toán tằn tiện đủ đường như vậy âu cũng chỉ vì muốn vun vén cho cái gia đình này mà thôi.
+Bà nội thương cô con dâu út này lắm. Năm xưa bà cũng từng thương Đoạn Thu Bình như thế, bà hiểu rõ Vương Kim Như tính toán tằn tiện đủ đường như vậy âu cũng chỉ vì muốn vun vén cho cái gia đình này mà thôi.
 
 Thấy bà nội đứng canh ở mép vườn rau, Vương Kim Như lập tức hiểu ý: "Mẹ, con đi gọi điện thoại cho con bé Hiểu Lan ngay đây ạ."
 

@@ -1,7 +1,5 @@
 # Chương 243: Cuộc gọi đứt quãng.
 
-> **Tiêu đề gốc**: 第243章 电话中断了。
-
 “Kim An, có phải là anh không?”
 
 Mộc Dao vừa đưa tay gạt nước mắt, vừa nghẹn ngào thảng thốt: “Công ty Trăn Nhiên là của anh, siêu thị Trăn Hối Tuyển là của anh, tất cả đều là của anh, chiếc xe Audi kia cũng là của anh có phải không?”

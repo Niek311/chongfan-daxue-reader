@@ -1,22 +1,20 @@
 # Chương 10: Giấy nợ
 
-> **Tiêu đề gốc**: 第10章 借条。
-
 "Triệu Kim An!"
 
-Vừa băng qua bên kia đường, Du Phỉ đã nhanh nhẹn nhảy chân sáo tới trước mặt Triệu Kim An, hồ hởi hỏi: "Cậu đã ăn sáng gì chưa đấy? Để tớ mời cậu ăn sáng nhé, quán bún thịt tươi ngay góc phố này ngon tuyệt cú mèo luôn!"
+Vừa băng qua bên kia đường, Du Phi đã nhanh nhẹn nhảy chân sáo tới trước mặt Triệu Kim An, hồ hởi hỏi: "Cậu đã ăn sáng gì chưa đấy? Để tớ mời cậu ăn sáng nhé, quán bún thịt tươi ngay góc phố này ngon tuyệt cú mèo luôn!"
 
-Bên lề đường quả thực có một quán bún nhỏ nghi ngút khói, Triệu Kim An không hề từ chối nhã ý của cô. Du Phỉ thoăn thoắt chạy lại quầy trả tiền trước.
+Bên lề đường quả thực có một quán bún nhỏ nghi ngút khói, Triệu Kim An không hề từ chối nhã ý của cô. Du Phi thoăn thoắt chạy lại quầy trả tiền trước.
 
-Có lẽ Du Phỉ là khách quen nhẵn mặt ở đây nên bác chủ quán vừa nhìn thấy đã cười đon đả trêu:
+Có lẽ Du Phi là khách quen nhẵn mặt ở đây nên bác chủ quán vừa nhìn thấy đã cười đon đả trêu:
 
-"Du Phỉ đấy à, dắt bạn trai tới ăn bún đấy hả cháu?"
+"Du Phi đấy à, dắt bạn trai tới ăn bún đấy hả cháu?"
 
 "Á! Dạ không phải, không phải đâu ạ, bọn cháu là bạn học cùng lớp thôi!"
 
-Gương mặt Du Phỉ "xoẹt" một cái đỏ bừng như quả cà chua chín, hai tay xua lia xua lịa vội vàng đính chính.
+Gương mặt Du Phi "xoẹt" một cái đỏ bừng như quả cà chua chín, hai tay xua lia xua lịa vội vàng đính chính.
 
-Sau khi hai người tìm được một chiếc bàn trống ngồi xuống, vẫn là Du Phỉ chủ động mở lời trước.
+Sau khi hai người tìm được một chiếc bàn trống ngồi xuống, vẫn là Du Phi chủ động mở lời trước.
 
 "Kim An này, cậu đang gặp phải chuyện gì khó khăn gấp gáp lắm sao?"
 
@@ -28,37 +26,37 @@ Triệu Kim An bình thản rút từ trong ba lô ra một cuốn sổ tay nh�
 
 "Hả!?"
 
-Du Phỉ lại thêm một phen sững sờ kinh ngạc. Viết giấy nợ ư?
+Du Phi lại thêm một phen sững sờ kinh ngạc. Viết giấy nợ ư?
 
-Cô gái tuổi mười tám Du Phỉ — một nữ sinh vừa mới tốt nghiệp cấp ba ngơ ngác há hốc mồm. Bạn bè học chung một lớp giúp đỡ nhau mượn chút tiền tiêu mà cũng phải bày đặt lập văn bản giấy nợ trang trọng thế này sao? Làm như dân làm ăn ngoài xã hội không bằng ấy.
+Cô gái tuổi mười tám Du Phi — một nữ sinh vừa mới tốt nghiệp cấp ba ngơ ngác há hốc mồm. Bạn bè học chung một lớp giúp đỡ nhau mượn chút tiền tiêu mà cũng phải bày đặt lập văn bản giấy nợ trang trọng thế này sao? Làm như dân làm ăn ngoài xã hội không bằng ấy.
 
 Đó chính là nét ngây thơ, vụng dại đặc trưng của những cô nữ sinh chưa từng bước chân ra va vấp với cuộc đời.
 
 "Thôi thôi, không cần đâu, ai lại viết giấy nợ làm gì!"
 
-Du Phỉ vừa nói vừa kéo khóa chiếc túi xách đeo chéo của mình ra, lôi ra một cọc tiền giấy màu đỏ tươi còn mới cứng.
+Du Phi vừa nói vừa kéo khóa chiếc túi xách đeo chéo của mình ra, lôi ra một cọc tiền giấy màu đỏ tươi còn mới cứng.
 
 "Kim An, tớ gom hết cỡ cũng chỉ được có bốn ngàn sáu trăm tệ thôi, ngần này đã đủ cho cậu dùng chưa?"
 
 "Đủ rồi, cảm ơn cậu nhiều."
 
-Nghe câu trả lời của Triệu Kim An, Du Phỉ mới thở phào nhẹ nhõm một hơi. Tối qua cô phải dùng đủ mọi chiêu trò nịnh nọt, mè nheo xin mẹ đổi cho chiếc điện thoại di động mới thì mới vòi vĩnh được hai ngàn tệ tiền mặt.
+Nghe câu trả lời của Triệu Kim An, Du Phi mới thở phào nhẹ nhõm một hơi. Tối qua cô phải dùng đủ mọi chiêu trò nịnh nọt, mè nheo xin mẹ đổi cho chiếc điện thoại di động mới thì mới vòi vĩnh được hai ngàn tệ tiền mặt.
 
 Còn lại hai ngàn sáu trăm tệ là toàn bộ số tiền tiêu vặt mà cô đã tằn tiện tích góp suốt bao lâu nay.
 
-Triệu Kim An đón lấy xấp tiền nhưng không hề đếm lại. Tuy nhiên, anh vẫn cẩn thận, nắn nót viết từng nét chữ rõ ràng lên trang giấy trắng để lập một tờ giấy nợ hoàn chỉnh trao tận tay cho Du Phỉ.
+Triệu Kim An đón lấy xấp tiền nhưng không hề đếm lại. Tuy nhiên, anh vẫn cẩn thận, nắn nót viết từng nét chữ rõ ràng lên trang giấy trắng để lập một tờ giấy nợ hoàn chỉnh trao tận tay cho Du Phi.
 
 "Vài hôm nữa tớ sẽ mang trả lại đầy đủ cho cậu."
 
 "Ừm, biết rồi mà."
 
-Du Phỉ nhận lấy tờ giấy nợ liếc qua một lượt, rồi tiện tay gấp lại nhét vào ngăn trong túi xách. Cô ngập ngừng một thoáng rồi nhỏ giọng nói tiếp: "Tối qua... tớ với Mộc Dao hát mới được nửa buổi thì đã rủ nhau bỏ về trước rồi."
+Du Phi nhận lấy tờ giấy nợ liếc qua một lượt, rồi tiện tay gấp lại nhét vào ngăn trong túi xách. Cô ngập ngừng một thoáng rồi nhỏ giọng nói tiếp: "Tối qua... tớ với Mộc Dao hát mới được nửa buổi thì đã rủ nhau bỏ về trước rồi."
 
 "Cậu đang nói chuyện gì thế?"
 
 Triệu Kim An ngẩng đầu lên, nét mặt lộ rõ vẻ ngơ ngác, không hiểu đầu đuôi câu chuyện.
 
-Du Phỉ nhìn thấy biểu cảm ấy của anh lại càng thêm phần khó hiểu.
+Du Phi nhìn thấy biểu cảm ấy của anh lại càng thêm phần khó hiểu.
 
 "Thì chuyện tối qua bọn họ thi nhau bàn tán, xì xào những lời khó nghe về cậu với Triệu Trí Dũng trong nhóm chat ấy... Thế nên Mộc Dao bực mình bỏ về, tớ thấy thế cũng đi về luôn."
 
@@ -68,7 +66,7 @@ Triệu Kim An bấy giờ mới vỡ lẽ, anh khẽ gật đầu một cái r�
 
 "Ơ kìa!?"
 
-Du Phỉ tròn xoe mắt kinh ngạc, dường như Triệu Kim An thực sự chẳng thèm bận tâm hay mảy may để bụng chuyện này một chút nào.
+Du Phi tròn xoe mắt kinh ngạc, dường như Triệu Kim An thực sự chẳng thèm bận tâm hay mảy may để bụng chuyện này một chút nào.
 
 Không đúng, chắc chắn là anh đang cố gượng tỏ ra bình thản thôi, con trai thời nay ai mà chẳng trọng sĩ diện chứ?
 
@@ -76,7 +74,7 @@ Không đúng, chắc chắn là anh đang cố gượng tỏ ra bình thản th
 
 "Với lại... tối qua tâm trạng Mộc Dao tệ lắm."
 
-Du Phỉ ân cần nhắc nhở một câu, rồi lại vội vã đỡ lời giải thích: "Nhưng mà tớ thấy cậu với Triệu Trí Dũng giỏi giang lắm đấy chứ! Tự mình lao động chân chính kiếm tiền mồ hôi nước mắt thì làm nghề gì cũng chẳng có gì phải xấu hổ cả!"
+Du Phi ân cần nhắc nhở một câu, rồi lại vội vã đỡ lời giải thích: "Nhưng mà tớ thấy cậu với Triệu Trí Dũng giỏi giang lắm đấy chứ! Tự mình lao động chân chính kiếm tiền mồ hôi nước mắt thì làm nghề gì cũng chẳng có gì phải xấu hổ cả!"
 
 "Thế còn Mộc Dao thì sao?" Triệu Kim An bỗng buột miệng hỏi một câu.
 
@@ -88,13 +86,13 @@ Triệu Kim An đặt đũa xuống, rút khăn giấy lau miệng rồi đứng
 
 "Xạo ke, ai mà tin được chứ."
 
-Thấy Triệu Kim An đeo ba lô chuẩn bị rời đi, Du Phỉ vội cất tiếng gọi với theo: "Kim An, cậu định đi đâu bây giờ?"
+Thấy Triệu Kim An đeo ba lô chuẩn bị rời đi, Du Phi vội cất tiếng gọi với theo: "Kim An, cậu định đi đâu bây giờ?"
 
 "Tớ đi Sâm Thành một chuyến."
 
 "Ủa, lên Sâm Thành chơi sao cậu không rủ Mộc Dao đi cùng?"
 
-Du Phỉ lẩm bẩm một mình trong miệng. Cô đinh ninh rằng Triệu Kim An bắt xe lên Sâm Thành là để dạo phố, mua sắm đồ đạc. Hai người họ vừa mới chính thức nhận lời yêu nhau, chẳng phải những lúc thế này nên rủ rê bạn gái đi cùng để vun đắp tình cảm hay sao?
+Du Phi lẩm bẩm một mình trong miệng. Cô đinh ninh rằng Triệu Kim An bắt xe lên Sâm Thành là để dạo phố, mua sắm đồ đạc. Hai người họ vừa mới chính thức nhận lời yêu nhau, chẳng phải những lúc thế này nên rủ rê bạn gái đi cùng để vun đắp tình cảm hay sao?
 
 Thật là kỳ quặc hết sức.
 
@@ -130,7 +128,7 @@ Sau đó, đội tuyển Ý đã giành chiến thắng chung cuộc trên chấ
 
 Ở kiếp trước, Triệu Kim An đã từng vô cùng tiếc nuối cho Zidane, còn Triệu Trí Dũng thì tức tối chửi bới trọng tài suốt nửa ngày trời.
 
-Hôm đó cả Mộc Dao lẫn Du Phỉ cũng có mặt cùng xem trận đấu.
+Hôm đó cả Mộc Dao lẫn Du Phi cũng có mặt cùng xem trận đấu.
 
 Hai cô bạn nữ khi ấy còn cười chê hai chàng trai sao mà quá khích đến thế, dẫu sao thì đó cũng đâu phải đội tuyển quốc gia của nước mình, ai thắng ai thua thì có gì quan trọng đâu chứ?
 

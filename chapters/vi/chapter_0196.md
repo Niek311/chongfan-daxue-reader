@@ -1,7 +1,5 @@
 # Chương 196: Từ Tắc Đống không hề biết các mối quan hệ của con gái
 
-> **Tiêu đề gốc**: 第196章 徐则栋不知道女儿的人脉。
-
 Triệu Kim An: [Sao lại nói xin lỗi?]
 
 Đây là lần thứ hai Từ Mạn Mạn nói câu "xin lỗi" với Triệu Kim An.
@@ -42,7 +40,7 @@ Bộ dạng này đừng nói là đi ăn buffet, ngay cả trường học cô 
 
 "Mạn Mạn, con mở cửa ra đi, mẹ mang thuốc vào cho con này."
 
-Bên ngoài phòng khách đã dứt tiếng khóc lóc om sòm, Lương Huệ Trân khẽ gõ cửa.
+Bên ngoài phòng khách đã dứt tiếng khóc lóc om sòm, Lương Tuệ Trân khẽ gõ cửa.
 
 "Mạn Mạn, là mẹ đây, con mở cửa ra để mẹ bôi thuốc cho con."
 
@@ -54,7 +52,7 @@ Người ta thường bảo, không có hy vọng thì sẽ chẳng có thất v
 
 Đặc biệt là khi nghe mẹ bênh vực rằng Trần Trạch "vẫn còn nhỏ dại", Từ Mạn Mạn chỉ thấy châm biếm khôn cùng. Không phải châm biếm Trần Trạch, mà là tự giễu mẹ và chính bản thân mình — châm biếm việc cô từng ngây thơ hy vọng mẹ có thể đứng ra nói giúp mình vài lời công đạo.
 
-Bên ngoài phòng khách lại vang lên tiếng khóc lóc nỉ non của Lương Huệ Trân.
+Bên ngoài phòng khách lại vang lên tiếng khóc lóc nỉ non của Lương Tuệ Trân.
 
 Từ Mạn Mạn càng thấy mỉa mai hơn, chỉ cảm thấy không gian bên ngoài ồn ào đến phát ngột.
 
@@ -62,23 +60,23 @@ Từ Mạn Mạn càng thấy mỉa mai hơn, chỉ cảm thấy không gian bê
 
 Trước cổng khu chung cư.
 
-Đơn Vĩ nhìn đồng hồ, chiếc xe đã đỗ ở đây suốt hai mươi phút. Anh liếc nhìn qua gương chiếu hậu: "Sếp, chúng ta đi chứ?"
+Đan Vĩ nhìn đồng hồ, chiếc xe đã đỗ ở đây suốt hai mươi phút. Anh liếc nhìn qua gương chiếu hậu: "Sếp, chúng ta đi chứ?"
 
 "Đi thôi."
 
-Đơn Vĩ nhìn qua cửa kính xe, âm thầm ghi nhớ khu chung cư này vào trong đầu.
+Đan Vĩ nhìn qua cửa kính xe, âm thầm ghi nhớ khu chung cư này vào trong đầu.
 
 Đây là lần duy nhất sếp của anh làm việc này. À không, trước đó còn có một lần ở quán đồ nướng tại Sâm Châu nữa.
 
 "Anh có biết 'liếm cẩu' là gì không?"
 
-Nghe câu hỏi từ hàng ghế sau, Đơn Vĩ thoáng ngẩn người. Trước giờ sếp chẳng bao giờ tán gẫu chuyện ngoài lề với anh.
+Nghe câu hỏi từ hàng ghế sau, Đan Vĩ thoáng ngẩn người. Trước giờ sếp chẳng bao giờ tán gẫu chuyện ngoài lề với anh.
 
-Đơn Vĩ suy nghĩ một lát: "Sếp, có phải là kiểu cứ cố xáp lại, mặt dày bám riết lấy người ta không ạ?"
+Đan Vĩ suy nghĩ một lát: "Sếp, có phải là kiểu cứ cố xáp lại, mặt dày bám riết lấy người ta không ạ?"
 
 "Đúng, hiểu theo nghĩa đó cũng chuẩn."
 
-Phải nói cách giải thích của Đơn Vĩ còn chuẩn xác hơn. Đây là lần đầu tiên Triệu Kim An ở kiếp này chủ động đến thế. Từ hôm qua đến hôm nay, cậu thể hiện vô cùng tích cực, thậm chí còn có chút ép buộc Từ Mạn Mạn: Xe tôi đã đỗ trước cổng nhà cậu rồi đấy, mau ra đây đi!
+Phải nói cách giải thích của Đan Vĩ còn chuẩn xác hơn. Đây là lần đầu tiên Triệu Kim An ở kiếp này chủ động đến thế. Từ hôm qua đến hôm nay, cậu thể hiện vô cùng tích cực, thậm chí còn có chút ép buộc Từ Mạn Mạn: Xe tôi đã đỗ trước cổng nhà cậu rồi đấy, mau ra đây đi!
 
 Bữa buffet tối nay đành gác lại. Cốc Siêu Thừa là người đầu tiên lên tiếng trong nhóm chat, bảo rằng Từ Mạn Mạn bận việc, hay là đổi sang dịp khác?
 
@@ -114,7 +112,7 @@ Sáng sớm, Từ Mạn Mạn thức dậy đúng giờ, ngồi vào bàn ăn đ
 
 "Mạn Mạn, con không dùng thuốc à?"
 
-Lương Huệ Trân liếc nhìn lọ thuốc đặt trước cửa phòng con gái, vẫn nguyên vẹn chưa hề đụng tới.
+Lương Tuệ Trân liếc nhìn lọ thuốc đặt trước cửa phòng con gái, vẫn nguyên vẹn chưa hề đụng tới.
 
 "Trong phòng con có sẵn thuốc rồi."
 
@@ -134,7 +132,7 @@ Hay nói đúng hơn, Từ Mạn Mạn trưởng thành và hiểu chuyện hơn
 
 "Mạn Mạn..."
 
-Lương Huệ Trân dường như vẫn thấy xót xa cho con gái.
+Lương Tuệ Trân dường như vẫn thấy xót xa cho con gái.
 
 Từ Mạn Mạn không nhìn mẹ, cô không cần thứ tình thương muộn màng và bất lực ấy. Cô hướng ánh mắt thẳng vào Từ Tắc Đống đang ngồi ở vị trí chủ tọa, cất giọng rành rọt: "Bố, mấy cái thú vui tao nhã của bố, những bức thư pháp và tranh vẽ bố dày công sưu tầm ấy, thực ra rẻ mạt lắm."
 
@@ -150,7 +148,7 @@ Từ Mạn Mạn nhìn chằm chằm vào cha mình, tiếp tục nói: "Những
 
 Đứa con gái do chính tay Từ Tắc Đống rèn giũa dạy dỗ, ông ta làm sao không hiểu ý tứ trong lời nói ấy? Kể từ nay về sau, Từ Mạn Mạn sẽ chỉ tự coi mình như một món đồ tác phẩm của cha, đừng bao giờ đem tình cảm cha con ra mà nói chuyện nữa.
 
-Có lẽ, điều đó cũng bao hàm cả tình cảm mẫu tử với Lương Huệ Trân.
+Có lẽ, điều đó cũng bao hàm cả tình cảm mẫu tử với Lương Tuệ Trân.
 
 Ơn sinh thành thì không thể chối bỏ, ơn dưỡng dục hai mươi năm cô sẽ trả đủ.
 

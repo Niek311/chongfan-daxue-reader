@@ -1,7 +1,5 @@
 # Chương 16: Đời này sẽ không sai nữa
 
-> **Tiêu đề gốc**: 第16章 这一世不会错。
-
 "Đang xới cơm cho bé Duyệt Thiên đấy."
 
 Thực lòng mà nói, nếu Mộc Dao và Du Phi không ghé chơi, bà nội cũng chẳng bày vẽ làm nhiều món đến thế. Nhà tuy không dư dả nhưng cũng chưa đến mức túng bấn cùng cực, chỉ là ngày thường chẳng cần phải cầu kỳ.

@@ -1,7 +1,5 @@
 # Chương 535: Nơi đất khách
 
-> **Tiêu đề gốc**: 第535章 在他乡。
-
 Về tình hình của hai đứa trẻ Triệu Tri Hành và Triệu Tri Vi ngoài Kinh Đô, mọi tin tức đều do hai người bảo mẫu là Khương Di và Trương Uyển "định kỳ" báo cáo lại cho Triệu Kim An.
 
 Có thể dùng chính xác hai chữ "định kỳ" và "báo cáo" để khắc họa thực trạng ấy.
@@ -10,7 +8,7 @@ Mà hai chữ "định kỳ" và "báo cáo" ấy mang hàm ý gì, người tro
 
 Đương nhiên, Triệu Kim An hoàn toàn có thể chủ động bấm máy gọi điện bất cứ lúc nào để hỏi han Khương Di và Trương Uyển về tình hình của các con. Chỉ có điều, vợ chồng Tô Minh Tùng và Quách Uyển Thanh tuyệt nhiên chưa từng chủ động gọi điện để chia sẻ những khoảnh khắc đời thường của hai đứa trẻ với anh.
 
-Hai đứa con thơ được nuôi nấng, bảo bọc trong khuôn viên trang viên Tô gia quyền quý ngoài Kinh Đô, đến mức Du Phỉ cũng từng buột miệng xót xa thốt lên rằng, Triệu Kim An dường như chỉ đang chiếm giữ trên danh nghĩa một cái danh phận "người cha" mà thôi.
+Hai đứa con thơ được nuôi nấng, bảo bọc trong khuôn viên trang viên Tô gia quyền quý ngoài Kinh Đô, đến mức Du Phi cũng từng buột miệng xót xa thốt lên rằng, Triệu Kim An dường như chỉ đang chiếm giữ trên danh nghĩa một cái danh phận "người cha" mà thôi.
 
 Thực lòng mà nói, trong thâm tâm Triệu Kim An luôn cháy bỏng khao khát được đón cả Triệu Tri Hành lẫn Triệu Tri Vi về lại Quận Sa để tự tay mình chăm sóc, nuôi nấng. Thế nhưng Tô Miến trước lúc lâm nạn đã sắp đặt, căn dặn mọi bề chu tất từ trước, tựa như một bản "di ngôn" được khắc ghi; vả lại vợ chồng Tô Minh Tùng và Quách Uyển Thanh đời nào chịu gật đầu buông tay.
 
@@ -64,7 +62,7 @@ Nghĩ đến đây, nơi đáy lòng Nhan Hi bỗng bật ra một nụ cười 
 
 Ngồi ở ghế phụ phía trước, Đặng Thần Bình lập tức siết chặt cơ mặt đầy cảnh giác, bàn tay theo phản xạ tự nhiên thò nhanh xuống hông sờ vào vị trí giắt món đồ phòng thân.
 
-Tài xế Đơn Vĩ tập trung cao độ cầm vô lăng, đưa mắt nhìn chăm chú vào gương chiếu hậu rồi lên tiếng báo cáo: "Thưa ông chủ, hình như là xe của Vương tổng bên Trạch Vũ Địa Sản."
+Tài xế Đan Vĩ tập trung cao độ cầm vô lăng, đưa mắt nhìn chăm chú vào gương chiếu hậu rồi lên tiếng báo cáo: "Thưa ông chủ, hình như là xe của Vương tổng bên Trạch Vũ Địa Sản."
 
 "..."
 
@@ -88,7 +86,7 @@ Là tin nhắn của Vương Phương Dụ gửi tới: "Triệu tổng, gần �
 
 "Vâng, thưa Nhan tổng."
 
-Đối với những người có tài năng thực chiến kiệt xuất như Nhan Hi, những người cận vệ dạn dày sương gió như Đơn Vĩ hay Đặng Thần Bình đều dành cho cô sự nể trọng tuyệt đối từ tận đáy lòng. Đó không chỉ đơn thuần là những tấm bằng thạc sĩ, tiến sĩ xuất sắc hay hàng tá chứng chỉ quốc tế treo trên tường, mà chính là bản lĩnh hành động quyết liệt phi thường. Nhan Hi là cánh tay phải đắc lực, là trụ cột vững chắc có khả năng độc lập gánh vác cả giang sơn Hoàn Vũ Cảng Vụ.
+Đối với những người có tài năng thực chiến kiệt xuất như Nhan Hi, những người cận vệ dạn dày sương gió như Đan Vĩ hay Đặng Thần Bình đều dành cho cô sự nể trọng tuyệt đối từ tận đáy lòng. Đó không chỉ đơn thuần là những tấm bằng thạc sĩ, tiến sĩ xuất sắc hay hàng tá chứng chỉ quốc tế treo trên tường, mà chính là bản lĩnh hành động quyết liệt phi thường. Nhan Hi là cánh tay phải đắc lực, là trụ cột vững chắc có khả năng độc lập gánh vác cả giang sơn Hoàn Vũ Cảng Vụ.
 
 Đương nhiên, mức đãi ngộ tài chính mà cô nhận lại cũng là một con số khổng lồ. Nhan Hi không nhận lương cứng hàng tháng mà hưởng hoa hồng và tiền thưởng trích từ các thương vụ thành công.
 

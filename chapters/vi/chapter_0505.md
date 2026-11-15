@@ -1,7 +1,5 @@
 # Chương 505: Lại mỗi người một ngả
 
-> **Tiêu đề gốc**: 第505章 又要分道扬镳了。
-
 Bên trong căn phòng bao sang trọng, bầu không khí bỗng chốc rơi vào tĩnh lặng như tờ.
 
 Trên chiếc ghế sô-pha dài, một dàn người đẹp ăn mặc khêu gợi ngồi im thin thít.

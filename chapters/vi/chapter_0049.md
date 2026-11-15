@@ -1,7 +1,5 @@
 # Chương 49: Chia thế này rất công bằng!
 
-> **Tiêu đề gốc**: 第49章 这样分很公平！
-
 Vô tình sao?
 
 Triệu Kim An bất giác nhớ lại cuộc chia tay với Mộc Dao ở kiếp trước, cùng vụ ly hôn với Trần Thanh Trĩ sau này, có chăng cũng chỉ có thể dùng bốn chữ "dứt khoát rút lui" để hình dung mà thôi. Anh ngước mắt nhìn Lạc Cẩn Chi, chân thành nói: "Lạc tổng, hãy tin tưởng em một lần."

@@ -1,7 +1,5 @@
 # Chương 181: Không tỏ thái độ
 
-> **Tiêu đề gốc**: 第181章 不置可否
-
 Nhìn thấy Trần Trạch rồi.
 
 Triệu Kim An nhìn thấy.

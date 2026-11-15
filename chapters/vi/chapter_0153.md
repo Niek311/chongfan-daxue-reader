@@ -1,7 +1,5 @@
 # Chương 153: Suốt dọc đường lặng thinh
 
-> **Tiêu đề gốc**: 第153章 一路无话。
-
 "Triệu Kim An, cảm ơn cậu nhé. Cậu lúc nào cũng khẳng định chắc như đinh đóng cột với tôi bốn chữ 'một đi không trở lại'."
 
 Thẩm Tử Ngôn quay người lại, ánh mắt đầy nghiêm túc nhìn Triệu Kim An: "Cậu không hề dùng những từ ngữ nước đôi như 'chắc là, hình như, cá nhân tôi không lạc quan lắm', mà trước sau như một luôn cho tôi một câu trả lời vô cùng dứt khoát."
@@ -94,7 +92,7 @@ Mọi chuyện đúng như những gì Thẩm Tử Ngôn vừa nhận định.
 
 Nhưng dẫu sao đi nữa, đó cũng là con đường do chính Từ Mạn Mạn lựa chọn.
 
-Những ngày này ở xưởng may, Từ Mạn Mạn chỉ tập trung cao độ vào hai khâu sống còn: theo dõi doanh số bán hàng và đôn đốc thu hồi công nợ. Cô thậm chí còn thường xuyên gọi điện cho dì Dương Thục Mỹ để nắm bắt sát sao tình hình tiêu thụ và dòng tiền quay về bên phía Dương Thành.
+Những ngày này ở xưởng may, Từ Mạn Mạn chỉ tập trung cao độ vào hai khâu sống còn: theo dõi doanh số bán hàng và đôn đốc thu hồi công nợ. Cô thậm chí còn thường xuyên gọi điện cho dì Dương Thù Mỹ để nắm bắt sát sao tình hình tiêu thụ và dòng tiền quay về bên phía Dương Thành.
 
 Cô không có năng lực tiên tri biết trước tương lai, chỉ có thể hành xử một cách cẩn trọng, tỉ mỉ từng li từng tí.
 
@@ -102,7 +100,7 @@ Phải cẩn trọng hơn nữa mới được!
 
 Thẩm Tử Ngôn từng bóng gió nhắc nhở, bản thân Từ Mạn Mạn cũng đã tự mình phán đoán ra những rủi ro tiềm ẩn, thế nhưng cô có thể làm được gì hơn?
 
-Khoan hãy nói đến chuyện liệu dì Dương Thục Mỹ có chịu tin lời cô hay không.
+Khoan hãy nói đến chuyện liệu dì Dương Thù Mỹ có chịu tin lời cô hay không.
 
 Dì Dương chuyên làm hàng xuất khẩu gia công, chẳng lẽ khi có khách hàng ngoại quốc mang đơn hàng đến gõ cửa, dì lại lắc đầu không nhận?
 
@@ -112,7 +110,7 @@ Từ Mạn Mạn soạn email trao đổi qua lại, kiên quyết đề nghị 
 
 Cô vốn không học chuyên ngành tiếng Anh thương mại. Những từ ngữ giao tiếp thông thường thì không sao, nhưng đụng đến hàng loạt thuật ngữ chuyên ngành lạ lẫm khiến việc trao đổi trở nên vô cùng chật vật và tốn sức. Thông thường, để duyệt xong một bản hợp đồng ngoại thương, cô phải căng mắt ngồi đối chiếu, tra cứu suốt nửa ngày trời.
 
-Nào ngờ dì Dương Thục Mỹ lập tức gọi điện thoại mắng về, bảo đây là khách hàng ruột lâu năm, uy tín được bảo đảm tuyệt đối trên thương trường.
+Nào ngờ dì Dương Thù Mỹ lập tức gọi điện thoại mắng về, bảo đây là khách hàng ruột lâu năm, uy tín được bảo đảm tuyệt đối trên thương trường.
 
 Rõ ràng là dì Dương không muốn vì chuyện tiền cọc mà đánh mất đơn hàng béo bở này, càng không muốn làm phật lòng khách quen.
 
@@ -132,7 +130,7 @@ Từ Mạn Mạn nhìn đồng hồ thấy trời đã muộn, liền bước sa
 
 Trần Trạch vội vàng tắt máy tính, chụp lấy chiếc điện thoại rồi ba chân bốn cẳng chạy theo sau.
 
-Những lúc ở xưởng, cậu ta thường ngồi lì trong phòng làm việc riêng của Dương Thục Mỹ.
+Những lúc ở xưởng, cậu ta thường ngồi lì trong phòng làm việc riêng của Dương Thù Mỹ.
 
 Nhìn mái tóc có phần rối bời bù xù của Trần Trạch, Từ Mạn Mạn chẳng biết phải nói gì. Cô không hề chê bai vẻ ngoài có phần luộm thuộm ấy của cậu, cô hiểu rõ tâm trạng Trần Trạch lúc này đang rối bời nên chẳng còn bụng dạ nào chăm chút cho bản thân.
 
@@ -170,7 +168,7 @@ Bởi vì bản thân cô đã quyết định bước chân vào xưởng may c
 
 Bởi vì Triệu Kim An đã biết rõ cô chấp nhận dấn thân vào đó.
 
-Bởi vì có Trần Trạch, vì có dì Dương Thục Mỹ, và vì cả sự kỳ vọng của chính bố mẹ cô...
+Bởi vì có Trần Trạch, vì có dì Dương Thù Mỹ, và vì cả sự kỳ vọng của chính bố mẹ cô...
 
 Đến một chút ảo tưởng tươi đẹp, một chút mộng mơ trong trẻo cuối cùng trong lòng cô dường như cũng đã tan thành mây khói.
 
@@ -192,7 +190,7 @@ Từ Mạn Mạn lại lắc đầu một cách vô thức: "Tớ không rõ n�
 
 Bây giờ ngay cả những người ngây thơ như Mộc Dao và Diêu Sân cũng đều biết bảng điện tử chứng khoán ngày nào cũng chìm trong sắc đỏ lao dốc.
 
-Từ Mạn Mạn thực sự không nắm rõ, hay nói đúng hơn là cô không còn dám chắc chắn nữa. Lúc này đây, cô chẳng thể phân biệt nổi đâu là lời nói thật, đâu là lời nói dối từ miệng dì Dương Thục Mỹ và Trần Trạch.
+Từ Mạn Mạn thực sự không nắm rõ, hay nói đúng hơn là cô không còn dám chắc chắn nữa. Lúc này đây, cô chẳng thể phân biệt nổi đâu là lời nói thật, đâu là lời nói dối từ miệng dì Dương Thù Mỹ và Trần Trạch.
 
 Thẩm Tử Ngôn leo xuống giường, vặn mở nắp một lọ đồ hộp rồi dịu dàng đưa tận tay Từ Mạn Mạn: "Cậu ăn chút gì đi cho lại sức."
 

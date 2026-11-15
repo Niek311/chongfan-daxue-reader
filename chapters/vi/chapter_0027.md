@@ -1,7 +1,5 @@
 # Chương 27: Hình phạt... tà ác!
 
-> **Tiêu đề gốc**: 第27章 邪恶...的惩罚！
-
 Trình Tử Liên cũng chẳng hiểu tại sao bản thân lại có cảm tình đặc biệt với nét sạch sẽ và dáng vẻ trầm tĩnh của Triệu Kim An đến thế.
 
 Lại thêm cái tính nghe lời nữa.

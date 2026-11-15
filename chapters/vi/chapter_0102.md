@@ -1,8 +1,6 @@
 # Chương 102: Hứa với anh ngày mai đừng đi nữa
 
-> **Tiêu đề gốc**: 第102章 答应我明天不去了。
-
-Trở về phòng ký túc xá, Hứa Mạn Mạn tắm rửa sạch sẽ rồi leo lên giường. Cô ôm chiếc máy tính xách tay đặt trên đùi, nhìn dòng tin nhắn vừa gửi đến của Trần Trạch mà trong lòng trào dâng một cảm giác khó tả thành lời.
+Trở về phòng ký túc xá, Từ Mạn Mạn tắm rửa sạch sẽ rồi leo lên giường. Cô ôm chiếc máy tính xách tay đặt trên đùi, nhìn dòng tin nhắn vừa gửi đến của Trần Trạch mà trong lòng trào dâng một cảm giác khó tả thành lời.
 
 Cô đưa mắt nhìn khung cửa sổ trò chuyện QQ.
 
@@ -16,7 +14,7 @@ Thậm chí người ta còn có thể đăng nhập vào các trang web trung g
 
 Mấy cậu bạn như Lưu Sấm Phong và Cốc Siêu Thừa ngày nào cũng sang mượn máy tính chỉ để cắm nick cày cấp QQ như thế.
 
-Hứa Mạn Mạn khẽ rê chuột, nhấp vào ảnh đại diện QQ của Triệu Kim An. Nơi ấy hoàn toàn trống trơn, chẳng có lấy một thứ gì.
+Từ Mạn Mạn khẽ rê chuột, nhấp vào ảnh đại diện QQ của Triệu Kim An. Nơi ấy hoàn toàn trống trơn, chẳng có lấy một thứ gì.
 
 Hình đại diện chỉ là một nhân vật mặc chiếc quần đùi trắng đơn sơ mặc định sẵn của hệ thống.
 
@@ -24,7 +22,7 @@ Phần thông tin cá nhân để trắng toàn bộ.
 
 Vào không gian blog QQ của anh, không một dòng trạng thái, không một bài nhật ký, không một album ảnh lưu niệm, trống rỗng đến lạ kỳ.
 
-Hứa Mạn Mạn đâu biết rằng, thuở xa xưa Triệu Kim An cũng từng đặt một cái biệt danh mạng rất đỗi ngây ngô.
+Từ Mạn Mạn đâu biết rằng, thuở xa xưa Triệu Kim An cũng từng đặt một cái biệt danh mạng rất đỗi ngây ngô.
 
 Đó là: Thiếu Niên Đuổi Gió!
 
@@ -32,7 +30,7 @@ Hứa Mạn Mạn đâu biết rằng, thuở xa xưa Triệu Kim An cũng từn
 
 Ngày hôm sau.
 
-Hứa Mạn Mạn đổi sang mặc một chiếc quần bò gọn gàng, khoác lên mình chiếc áo thun chữ T đơn giản, chiếc túi xách hàng hiệu cũng được cô cất kỹ ở nhà.
+Từ Mạn Mạn đổi sang mặc một chiếc quần bò gọn gàng, khoác lên mình chiếc áo thun chữ T đơn giản, chiếc túi xách hàng hiệu cũng được cô cất kỹ ở nhà.
 
 Dù sao thì một thân một mình xách túi Chanel đi làm việc tay chân trông thực sự quá mức kệch cỡm.
 
@@ -156,7 +154,7 @@ Cốc Siêu Thừa cũng tìm đến phòng học. Cậu bỗng nhiên phát hi�
 
 Vốn dĩ Đường Hiểu Tình đã sở hữu gương mặt rất thanh tú, vóc dáng nhỏ nhắn, lúc chạy ra chạy vào lo toan công việc toát lên vẻ tháo vát, nhanh nhẹn lạ thường, khiến Cốc Siêu Thừa nhất thời nhìn đến ngẩn ngơ cả người.
 
-Hứa Mạn Mạn ôm chồng ấn phẩm, cùng các bạn tình nguyện viên bắt đầu đi treo băng rôn khắp các ngả đường trong trường.
+Từ Mạn Mạn ôm chồng ấn phẩm, cùng các bạn tình nguyện viên bắt đầu đi treo băng rôn khắp các ngả đường trong trường.
 
 Cô không hề lớn tiếng chỉ huy ai, nhưng luôn ân cần đưa ra những lời góp ý hết sức hữu ích và chu đáo.
 
@@ -164,17 +162,17 @@ Chẳng hạn như: Chỗ này đã treo rồi thì chúng ta nên dán bổ sun
 
 Nhìn qua thì cô cũng chẳng khác nào một người quản lý thực thụ.
 
-Có Hứa Mạn Mạn ở đó đỡ đần, Đường Hiểu Tình đã giảm bớt được biết bao nhiêu gánh nặng.
+Có Từ Mạn Mạn ở đó đỡ đần, Đường Hiểu Tình đã giảm bớt được biết bao nhiêu gánh nặng.
 
-Ánh nắng ban trưa bắt đầu gay gắt. Hứa Mạn Mạn diện quần bò, áo thun, trên người tuyệt nhiên không còn mang theo chiếc túi hiệu nào nữa.
+Ánh nắng ban trưa bắt đầu gay gắt. Từ Mạn Mạn diện quần bò, áo thun, trên người tuyệt nhiên không còn mang theo chiếc túi hiệu nào nữa.
 
 Trần Trạch đi theo sau được một đoạn, gãi đầu càu nhàu: "Em rước khổ vào thân làm gì không biết? Nghe thằng Duy Đào bảo làm cả ngày trời cũng chỉ được có ba mươi tệ bạc."
 
-Xung quanh đang có các tình nguyện viên khác, Hứa Mạn Mạn khẽ hạ giọng nói nhỏ: "Anh cứ đi chơi đi, không cần phải đi theo em đâu, em không sao cả."
+Xung quanh đang có các tình nguyện viên khác, Từ Mạn Mạn khẽ hạ giọng nói nhỏ: "Anh cứ đi chơi đi, không cần phải đi theo em đâu, em không sao cả."
 
 Trần Trạch hỏi: "Thế anh đi nhé?"
 
-Hứa Mạn Mạn khẽ gật đầu.
+Từ Mạn Mạn khẽ gật đầu.
 
 Trần Trạch liền quay lưng lên xe ô tô phóng đi mất hút.
 
@@ -182,7 +180,7 @@ Chi phí in một dải băng rôn rất rẻ, còn những tấm áp phích qu�
 
 Các ông chủ tiệm tạp hóa và quán net đều rất sẵn lòng cho dán một tấm áp phích ngay trước cửa quán, vừa để làm đẹp lại vừa có thể ké chút không khí sôi động từ giải đấu Cúp Trăn Nhiên.
 
-Hứa Mạn Mạn cùng vài bạn tình nguyện viên chia nhau đi gõ cửa từng quán một. Ban đầu mấy bạn kia còn có phần e dè, ngại ngùng, Hứa Mạn Mạn liền chủ động tiến lên cất giọng dịu dàng trò chuyện, thuyết phục các chủ tiệm.
+Từ Mạn Mạn cùng vài bạn tình nguyện viên chia nhau đi gõ cửa từng quán một. Ban đầu mấy bạn kia còn có phần e dè, ngại ngùng, Từ Mạn Mạn liền chủ động tiến lên cất giọng dịu dàng trò chuyện, thuyết phục các chủ tiệm.
 
 Dần dà về sau, các tình nguyện viên khác cũng tự tin cởi mở hơn hẳn.
 
@@ -194,17 +192,17 @@ Giang Công Kỳ vừa lau mồ hôi vừa hào hứng nói: "Tổng giám đố
 
 "Triệu Kim An!"
 
-Hứa Mạn Mạn cùng vài bạn tình nguyện viên rảo bước đi tới đối diện. Cô thực sự không ngờ lại có thể tình cờ chạm mặt Triệu Kim An ở nơi này, mấy ngày nay làm tình nguyện viên cô chưa từng thấy bóng dáng anh ghé qua phòng học lấy một lần.
+Từ Mạn Mạn cùng vài bạn tình nguyện viên rảo bước đi tới đối diện. Cô thực sự không ngờ lại có thể tình cờ chạm mặt Triệu Kim An ở nơi này, mấy ngày nay làm tình nguyện viên cô chưa từng thấy bóng dáng anh ghé qua phòng học lấy một lần.
 
 "Chờ một lát nhé!"
 
 "Vâng."
 
-Hứa Mạn Mạn cũng chẳng hiểu vì sao bản thân lại ngoan ngoãn đáp lời như một phản xạ tự nhiên.
+Từ Mạn Mạn cũng chẳng hiểu vì sao bản thân lại ngoan ngoãn đáp lời như một phản xạ tự nhiên.
 
 Triệu Kim An kê ngay ngắn chiếc tủ mát vào vị trí, Giang Công Kỳ nhanh nhẹn đối chiếu danh mục hàng hóa đã thỏa thuận với chủ tiệm để xếp hàng lên kệ.
 
-Hứa Mạn Mạn ngập ngừng giây lát, rồi bước tới nhẹ nhàng hỏi ông chủ quán xem có thể cho dán nhờ hai tấm áp phích tuyên truyền ngoài cửa tiệm hay không.
+Từ Mạn Mạn ngập ngừng giây lát, rồi bước tới nhẹ nhàng hỏi ông chủ quán xem có thể cho dán nhờ hai tấm áp phích tuyên truyền ngoài cửa tiệm hay không.
 
 Lo liệu xong xuôi công việc, Triệu Kim An quay sang nở một nụ cười thản nhiên: "Dạo này công ty đang thiếu nhân lực quá."
 
@@ -212,7 +210,7 @@ Lo liệu xong xuôi công việc, Triệu Kim An quay sang nở một nụ cư�
 
 "Vâng."
 
-Hứa Mạn Mạn ngắm nhìn Triệu Kim An một hồi, rồi lại liếc mắt nhìn chiếc tủ mát mới tinh, khẽ gật đầu đáp một tiếng thật khẽ.
+Từ Mạn Mạn ngắm nhìn Triệu Kim An một hồi, rồi lại liếc mắt nhìn chiếc tủ mát mới tinh, khẽ gật đầu đáp một tiếng thật khẽ.
 
 Giữa hai người bỗng chốc rơi vào khoảng lặng im ắng.
 
@@ -220,11 +218,11 @@ Giang Công Kỳ sau khi kiểm đếm xong xuôi với chủ quán liền thu t
 
 Trước lúc rời đi, Triệu Kim An mỉm cười trêu: "Cậu mà bị phơi nắng đen nhẻm đi là tôi không đền đâu đấy nhé."
 
-Hứa Mạn Mạn nghe vậy liền bật cười.
+Từ Mạn Mạn nghe vậy liền bật cười.
 
 Triệu Kim An lại bồi thêm một câu: "Ba mươi tệ một ngày e là không đủ tiền mua kem dưỡng trắng da đâu."
 
-Khóe môi Hứa Mạn Mạn mím lại, nụ cười trên gương mặt càng thêm rạng rỡ, ngọt ngào.
+Khóe môi Từ Mạn Mạn mím lại, nụ cười trên gương mặt càng thêm rạng rỡ, ngọt ngào.
 
 ...
 
@@ -240,7 +238,7 @@ Trần Trạch thì chẳng mấy bận tâm đến mấy chuyện giải đấu
 
 Triệu Kim An khẽ gật đầu, cầm bộ quần áo sạch rồi bước thẳng vào phòng tắm.
 
-Trần Trạch ngồi trên giường châm một điếu thuốc, rút điện thoại ra gõ tin nhắn gửi cho Hứa Mạn Mạn.
+Trần Trạch ngồi trên giường châm một điếu thuốc, rút điện thoại ra gõ tin nhắn gửi cho Từ Mạn Mạn.
 
 Trạch Thiếu: [Mạn Mạn, cái sự kiện đó là do Triệu Kim An phụ trách thật đấy à?]
 

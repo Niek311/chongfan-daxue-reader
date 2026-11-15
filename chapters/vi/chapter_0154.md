@@ -1,7 +1,5 @@
 # Chương 154: Không vướng nhân quả
 
-> **Tiêu đề gốc**: 第154章 不沾因果。
-
 Một ngày sau, Trần Trạch quay trở về phòng ký túc xá.
 
 Trong phòng 303, Vương Duy Đào và Lưu Sấm Phong đang chí choé tranh nhau mấy lọ đồ hộp. Thực ra cũng chẳng phải vì thèm thuồng đến mức không ăn không chịu nổi, đám con trai sinh viên thỉnh thoảng vẫn hay bày trò nhốn nháo như vậy.

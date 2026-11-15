@@ -1,7 +1,5 @@
 # Chương 47: Tao phải đi mách nhà trường!
 
-> **Tiêu đề gốc**: 第47章 我要告状！
-
 Trần Trạch là người duy nhất trong phòng 303 sắm được máy tính xách tay.
 
 Đêm khuya.

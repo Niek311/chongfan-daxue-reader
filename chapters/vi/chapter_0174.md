@@ -1,7 +1,5 @@
 # Chương 174: E là hơi khó cho các cô đấy
 
-> **Tiêu đề gốc**: 第174章 你们怕是有点难。
-
 Màn đêm buông xuống.
 
 Mấy gia đình vẫn tụ tập đông đủ ngoài khoảng sân trước nhà chuyện trò rôm rả, chẳng ai nỡ đứng dậy đi về.

@@ -1,7 +1,5 @@
 # Chương 112: Bất đồng quan điểm
 
-> **Tiêu đề gốc**: 第112章 分歧。
-
 Hôm đó Triệu Kim An đã gật đầu thừa nhận mình có cổ phần trong công ty.
 
 Lưu Sấm Phong, Cốc Siêu Thừa và Trần Trạch đều nửa tin nửa ngờ, chỉ riêng Thẩm Tử Ngôn là tin chắc như đinh đóng cột.
@@ -162,21 +160,21 @@ Chuyện Đường Hiểu Tình mới học xong năm nhất đại học đã �
 
 Người trong làng túm năm tụm ba bàn tán xôn xao không ngớt.
 
-Đơn Vĩ lái chiếc xe van về quê đón người, bởi chiếc Audi A6 không thể nào chở được nhiều đồ đạc lỉnh kỉnh.
+Đan Vĩ lái chiếc xe van về quê đón người, bởi chiếc Audi A6 không thể nào chở được nhiều đồ đạc lỉnh kỉnh.
 
 Anh còn cẩn thận lắp thêm một chiếc ghế phụ vào phía sau.
 
 Đường Hiểu Tình mang tâm trạng hồi hộp, phấn khởi khôn xiết, lòng như lửa đốt chỉ mong nhanh chóng về đến nhà.
 
-Xe chạy qua những cung đường đèo hiểm trở suốt 16 tiếng đồng hồ mới tới nơi. Nhìn những khúc cua quanh co, gập ghềnh khúc khuỷu khó đi đến rợn người, Đơn Vĩ mới thấm thía ngôi làng của Đường Hiểu Tình hẻo lánh và nghèo nàn đến mức nào, muốn bước chân ra khỏi lũy tre làng gian nan biết bao nhiêu.
+Xe chạy qua những cung đường đèo hiểm trở suốt 16 tiếng đồng hồ mới tới nơi. Nhìn những khúc cua quanh co, gập ghềnh khúc khuỷu khó đi đến rợn người, Đan Vĩ mới thấm thía ngôi làng của Đường Hiểu Tình hẻo lánh và nghèo nàn đến mức nào, muốn bước chân ra khỏi lũy tre làng gian nan biết bao nhiêu.
 
 "Đường Hiểu Tình, trước đây em đi học có xa không?"
 
-Lái xe đường dài buồn ngủ, Đơn Vĩ bèn mở lời bắt chuyện.
+Lái xe đường dài buồn ngủ, Đan Vĩ bèn mở lời bắt chuyện.
 
 Đường Hiểu Tình cười tươi đáp: "Dạ cũng không xa lắm đâu anh, hồi cấp hai em đi bộ mất khoảng một tiếng, lên cấp ba xa hơn một chút thì phải đi xe thêm nửa tiếng nữa ạ."
 
-Đơn Vĩ đưa mắt nhìn cô gái nhỏ nhắn nhưng luôn lạc quan, kiên cường này.
+Đan Vĩ đưa mắt nhìn cô gái nhỏ nhắn nhưng luôn lạc quan, kiên cường này.
 
 "Em là sinh viên đại học duy nhất của làng mình à?"
 

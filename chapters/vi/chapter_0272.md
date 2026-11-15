@@ -1,7 +1,5 @@
 # Chương 272: Đừng làm phiền khách hàng, bố mẹ đi theo con
 
-> **Tiêu đề gốc**: 第272章 别打扰顾客，你们跟我来。
-
 "Trăn Hối Tuyển quy mô siêu thị lớn lắm đấy chứ, chẳng phải lần trước chúng ta cũng đã đến đó rồi sao?"
 
 Lương Tuệ Trân tìm cách xoa dịu bầu không khí, nói đỡ cho con gái vài câu.

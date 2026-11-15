@@ -1,7 +1,5 @@
 # Chương 331: Kênh phân phối là vua
 
-> **Tiêu đề gốc**: 第331章 渠道为王。
-
 Có lẽ ai nấy đều ít nhiều tò mò về vị "Triệu tổng" của Trăn Nhiên.
 
 Trăn Nhiên thành lập chưa được bao lâu. Lần đầu tiên Đài truyền hình Trung ương (CCTV) tổ chức đấu thầu danh hiệu "Vua quảng cáo", thương hiệu rượu Khổng Phủ Yến Tửu đã vớ được một món hời lớn. Thuở ấy chưa ai rõ hiệu ứng truyền thông sẽ bùng nổ đến mức nào, nên chỉ với 30,97 triệu tệ vào năm 1994, Khổng Phủ Yến đã dễ dàng ôm trọn ngôi vương.

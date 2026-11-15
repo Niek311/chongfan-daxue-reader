@@ -1,7 +1,5 @@
 # Chương 48: Lòng dạ sắt đá hơn bất cứ ai, lại còn vô tình
 
-> **Tiêu đề gốc**: 第48章 心肠比谁都硬，还无情。
-
 Nghe thấy lời nhận xét của Vương Duy Đào, Trần Trạch cũng chẳng hề tỏ vẻ khó chịu, bởi từ trước tới nay hắn vẫn luôn có cảm giác Triệu Kim An là kiểu người thích sống kín tiếng, ẩn mình.
 
 Bây giờ thì chân tướng đã lộ rõ.

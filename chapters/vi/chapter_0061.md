@@ -1,7 +1,5 @@
 # Chương 61: Sau khi sự thật hé lộ
 
-> **Tiêu đề gốc**: 第61章 真相后。
-
 "Diêu Sân!"
 
 Thẩm Tử Ngôn vội cất tiếng gọi giật lại.

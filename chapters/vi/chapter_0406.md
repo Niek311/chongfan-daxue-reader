@@ -1,7 +1,5 @@
 # Chương 406: Đi một bước tính một bước
 
-> **Tiêu đề gốc**: 第406章 走一步看一步。
-
 Tô Miến không được ăn nhiều, chiếc bánh dày nướng thơm phức cô cũng chỉ dám nhấm nháp một nửa.
 
 Dịp giáp Tết, hiếm hoi lắm Triệu Kim An mới nán lại Kinh Đô thêm vài ngày, bởi các công ty dưới trướng lúc này đều không còn biến động gì lớn.

@@ -1,7 +1,5 @@
 # Chương 126: Đến cả tôi mà nó cũng chặn số?
 
-> **Tiêu đề gốc**: 第126章 他连我都拉黑？
-
 Chỉ ở nhà vỏn vẹn ba ngày, Thẩm Tử Ngôn đã quay lại trường sớm hơn dự định.
 
 Lần này, Lục Mai Tiêu không hề cản trở, thậm chí còn cổ vũ con gái, giục cô mau chóng "bắt" Triệu Kim An mang về nhà ra mắt.

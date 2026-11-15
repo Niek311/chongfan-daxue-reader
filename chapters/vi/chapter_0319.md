@@ -1,7 +1,5 @@
 # Chương 319: Tôi thành quân cờ mất rồi
 
-> **Tiêu đề gốc**: 第319章 我成了棋子。
-
 Chuyến bay từ Quận Sa sang Hy Lạp kéo dài ngót nghét khoảng hai mươi lăm tiếng đồng hồ.
 
 Khoang hạng nhất trên máy bay sở hữu không gian vô cùng rộng rãi và đảm bảo tính riêng tư tuyệt đối, thậm chí còn được trang bị cả buồng tắm vòi sen để hành khách có thể thoải mái tắm rửa, thư giãn.

@@ -1,217 +1,215 @@
-# ﻿Chương 363: Chuyện trong nhóm chat mà cũng kiếm được tiền?
+# Chương 363: Tám chuyện trong nhóm mà cũng bàn chuyện kiếm tiền?
 
-> **Tiêu đề gốc**: 第363章 群里聊天也聊赚钱？
-
-Loanh quanh tìm mãi, Giang Chi Tình chẳng thấy bóng người đó đâu.
+Loanh quanh tìm kiếm khắp nơi, Tưởng Chỉ Tình vẫn chẳng thấy bóng dáng người ấy đâu.
 
 "Kim An, một năm rưỡi rồi."
 
-"Anh đã một năm rưỡi không đến Giang Gia Áo nữa."
+"Anh đã một năm rưỡi chưa tới Tưởng Gia Ao rồi."
 
-Lòng Giang Chi Tình như chìm xuống đáy vực. Cô vòng quanh xưởng nước một vòng, từng chiếc xe cô đều dừng lại nhìn kỹ — không thấy biển số Tương A, không thấy bóng Đơn Vỹ.
+Trái tim Tưởng Chỉ Tình chìm xuống tận đáy vực. Cô đi vòng quanh nhà máy nước một lượt, chiếc xe nào cũng nhìn kỹ với bao hy vọng, nhưng tuyệt nhiên không thấy biển số Tương A, cũng chẳng thấy bóng dáng Đan Vĩ đâu.
 
-Dù hy vọng mong manh như sợi tơ, Giang Chi Tình vẫn muốn nhìn thấy người đó.
+Dẫu biết hy vọng vô cùng mong manh, Tưởng Chỉ Tình vẫn khát khao được gặp người ấy một lần.
 
-Ở Giang Gia Áo, thông tin với cô quá bó hẹp — cô còn chưa biết Triệu Kim An đã thành lập Hoàn Vũ Cảng Vụ. Thậm chí chuyện công ty sắp xây tòa nhà văn phòng, cô mới nghe trưởng thôn con gái là Giang Tri Song kể hai ngày trước.
+Ở nơi thâm sơn cùng cốc như Tưởng Gia Ao, thông tin của Tưởng Chỉ Tình vô cùng bế tắc, cô thậm chí còn chưa biết Triệu Kim An đã thành lập Hoàn Vũ Cảng Vụ.
 
----
+Ngay cả chuyện công ty sắp xây dựng tòa nhà văn phòng cũng là hai hôm trước mới nghe Tưởng Tri Song, con gái trưởng thôn, kể lại.
 
-Đêm giao thừa.
+Đêm Giao thừa.
 
-Năm này Triệu Kim An không gửi phong bì đỏ cho bé Uyển Nhi.
+Đêm Giao thừa năm nay, Triệu Kim An không lì xì cho Tưởng Uyển Nhi.
 
-Sáu trăm tệ cũng không nhiều.
+Sáu trăm tệ tuy chẳng nhiều nhặn gì.
 
-Nhưng cái đêm giao thừa năm kia, Giang Chi Tình đã đặt phong bì đó vào lòng bé Uyển Nhi đang ngủ.
+Nhưng đêm Giao thừa năm trước nữa, Tưởng Chỉ Tình đã đặt phong bao lì xì vào trong lòng Tưởng Uyển Nhi rồi mới đi ngủ.
 
-Hai mẹ con ngủ ngon lành, bình yên lắm.
+Hai mẹ con ngủ rất ngon, rất bình yên.
 
-Ngay cả Giang Tăng Niên và Lưu Lệ Hà cũng hỏi một câu: Triệu Kim An có gửi tiền mừng tuổi cho bé Uyển Nhi không?
+Ngay cả Tưởng Tăng Niên và Lưu Lệ Hà cũng hỏi thăm một câu: xem Triệu Kim An có gửi chút tiền mừng tuổi lấy lộc cho Tưởng Uyển Nhi hay không.
 
-Uyển Nhi đã bảy tuổi, học lớp hai rồi. Cô bé đã biết thổi bong bóng kẹo cao su — thổi được hai tầng cơ.
+Tưởng Uyển Nhi năm nay bảy tuổi, học lớp hai rồi, cô bé đã biết thổi bong bóng kẹo cao su.
 
----
+Loại thổi được hai tầng hẳn hoi.
 
 Dưới lầu.
 
-Giang Chi Tình vừa đi về vừa đảo mắt nhìn quanh.
+Tưởng Chỉ Tình vừa bước đi vừa ngó nghiêng nhìn quanh.
 
-Trước cổng kho Chân Nhiên, mấy tài xế cầm phiếu xếp hàng. Các tài xế bên xưởng đồ hộp cũng đã vào trong lấy phiếu xuất kho.
+Trước cửa kho Trăn Nhiên, các tài xế cầm phiếu xếp hàng dài, cả mấy tài xế nhận hàng xưởng đồ hộp cũng đều đã vào làm thủ tục xuất kho.
 
-Nhân viên xưởng đồ hộp thở phào nhẹ nhõm.
+Nhân viên xưởng đồ hộp cuối cùng cũng thở phào nhẹ nhõm.
 
-Là Thẩm tổng của Chân Nhiên, Thẩm Tử Ngôn đích thân gọi điện mở miệng — những đại lý kia tranh nhau nể mặt cô. Có thể nói chính xác hơn: tranh nhau nể mặt Thẩm Tử Ngôn.
+Với tư cách là Thẩm tổng của Trăn Nhiên, một khi Thẩm Tử Ngôn đã đích thân gọi điện mở lời, các đại lý kia ai nấy đều sẵn sàng nể mặt cô, thậm chí phải nói là tranh nhau nể mặt Thẩm Tử Ngôn mới đúng.
 
-Những đại lý này nhờ phân phối Chân Nhiên mà năm vừa rồi bỏ túi không ít.
+Năm vừa rồi, nhờ làm đại lý cho Trăn Nhiên mà đám thương lái này kiếm bộn tiền.
 
-Nói thế này cho dễ hiểu —
+Nói thế này cho dễ hình dung.
 
-Chỉ một thành phố cấp địa khu như Thần Thành, đại lý phân phối Giang Tiểu Bạch — dòng bạch tửu đó — cũng kiếm được cả chục tỷ trở lên.
+Ngay cả ở một thành phố cấp địa khu như Sâm Thành thôi, làm đại lý cho dòng rượu trắng Giang Tiểu Bạch cũng có thể kiếm lời từ hàng chục triệu tệ trở lên.
 
-Huống chi sản phẩm nước khoáng còn đời thường hơn, lâu dài hơn, mưa dầm thấm lâu hơn bao nhiêu.
+Huống hồ đây lại là sản phẩm nước khoáng thiết yếu hằng ngày, tiêu thụ bền vững và lâu dài hơn nhiều.
 
-Mà những đại lý này đều do Thẩm Tử Ngôn một tay sàng lọc năng lực từng người.
+Mà toàn bộ các đại lý này đều do chính tay Thẩm Tử Ngôn từng bước thẩm định tư cách.
 
-Nếu hợp đồng đại lý hết hạn, Thẩm tổng thay người khác thì sao?
+Nếu hết hạn hợp đồng đại lý, Thẩm tổng đổi sang đại lý khác thì sao?
 
-"Giang xưởng trưởng, phát tài rồi!"
+"Giám đốc Tưởng, phát tài rồi!"
 
-Kế toán cầm phiếu chạy bổ ra, suýt chạy rơi cả dép: "Tổng cộng hơn bốn trăm triệu tiền hàng, đủ trả lương mấy tháng rồi!"
+Nhân viên kế toán cầm xấp hóa đơn chạy lại, suýt chút nữa thì rơi mất một chiếc giày: "Tổng cộng hơn bốn triệu tệ tiền hàng, đủ trả lương mấy tháng liền rồi ạ!"
 
-"Hỏi được là ai không?"
+"Có hỏi xem là ai đặt không?"
 
-Giang Chi Tình mặt đầy hy vọng hỏi.
+Tưởng Chỉ Tình hỏi với vẻ mặt đầy mong chờ.
 
-"Không ai nói."
+"Không thấy nói gì ạ."
 
-Kế toán không quan tâm chuyện đó, chỉ mừng từ nay xưởng không phải cứ ba hôm lại ngừng sản xuất nữa.
+Kế toán chẳng bận tâm những chuyện đó, chỉ biết từ nay xưởng không còn phải dăm bữa nửa tháng lại ngừng sản xuất nữa.
 
-Giang Chi Tình ngẩng đầu nhìn về phía xưởng Chân Nhiên bên cạnh.
+Tưởng Chỉ Tình ngước mắt nhìn sang tòa nhà Trăn Nhiên bên cạnh.
 
-"Không phải Lư xưởng trưởng — Lư xưởng trưởng mở miệng thì đại lý cũng nể mặt, nhưng không ai có thể nể mặt anh ấy đến mức này."
-
----
+"Không phải Lư xưởng trưởng đâu. Lư xưởng trưởng mở lời thì đại lý cũng nể mặt đấy, nhưng Lư xưởng trưởng không có mặt mũi lớn đến thế."
 
 Trên lầu.
 
-Thẩm Tử Ngôn khoanh tay trước ngực nhìn xuống dưới.
+Thẩm Tử Ngôn khoanh tay trước ngực, nhìn xuống Tưởng Chỉ Tình bên dưới.
 
 Khoảng cách quá xa.
 
-Hai người không thể nhìn thấy nhau rõ ràng.
+Ánh mắt hai người không thể nào chạm nhau được.
 
-"Cô ấy đi tìm người trước, chứ không phải xem bán được bao nhiêu..."
+"Chị ta đi tìm người trước, chứ không phải xem bán được bao nhiêu hàng trước..."
 
-Lư Kiều Vỹ cúi đầu không tiếp lời, anh hiểu Thẩm Tử Ngôn không hỏi mình.
+Lư Kiều Vĩ cúi đầu không dám tiếp lời, ông biết Thẩm Tử Ngôn không phải đang hỏi mình.
 
-Thẩm Tử Ngôn chợt quay lại nhìn Lư Kiều Vỹ — vị quản lý bị cô đá thẳng từ Thường Đức về đây.
+Thẩm Tử Ngôn đột ngột quay sang nhìn Lư Kiều Vĩ, vị quản lý từng bị chính tay cô đá văng khỏi Thường Đức.
 
-"Lư xưởng trưởng, dẹp cái lòng trắc ẩn của anh đi. Chuyện không nên nghĩ thì đừng nghĩ."
+"Lư xưởng trưởng, thu lại cái lòng thương hại của ông đi, chuyện không nên nghĩ thì đừng có nghĩ."
 
 "Thẩm tổng..."
 
-Lư Kiều Vỹ giật đầu ngẩng lên.
+Lư Kiều Vĩ giật mình ngẩng phắt đầu lên.
 
-"Anh nói nhiều quá. Còn cái cách anh nhìn cô ấy nữa."
+"Ông nói nhiều quá đấy, cả ánh mắt ông nhìn chị ta nữa."
 
-"......"
+"..."
 
-Lư Kiều Vỹ giật mình trong bụng — bọn trẻ bây giờ tinh thế không!?
+Lư Kiều Vĩ kinh hãi trong lòng, đám người trẻ tuổi bây giờ ghê gớm đến mức này sao!?
 
-"Nếu anh muốn giúp cô ấy mà phải từ bỏ Chân Nhiên, thì đừng lấy danh nghĩa xưởng trưởng Chân Nhiên mà giúp."
+"Nếu ông muốn giúp chị ta thì xin nghỉ việc ở Trăn Nhiên đi, đừng có đội cái mác xưởng trưởng Trăn Nhiên mà làm."
 
-Lời trung nghe khó lọt tai — Thẩm Tử Ngôn đang nhắc nhở Lư Kiều Vỹ: "Ở cái nơi bưng bít như Giang Gia Áo này..."
+Lời thật thường mất lòng, Thẩm Tử Ngôn đang nhắc nhở Lư Kiều Vĩ: "Ở cái xó Tưởng Gia Ao này, thông tin quá bế tắc..."
 
-"......"
+"..."
 
-Lư Kiều Vỹ lại nghe không hiểu — không phải, tụi sinh viên đại học các cô nói chuyện đừng nói chữ à.
+Lư Kiều Vĩ lại chẳng hiểu gì nữa rồi. Khoan đã, mấy cô cậu sinh viên các người nói chuyện đừng có úp mở đánh đố nhau như thế chứ.
 
-"Đừng làm chuyện lén lút sau lưng."
+"Đừng có giở trò sau lưng."
 
-Thẩm Tử Ngôn biết mình giúp Giang Chi Tình một lần, Triệu Kim An sẽ không nói gì. Nhưng nếu anh biết Lư Kiều Vỹ hay Giang Công Kỳ âm thầm giúp Giang Chi Tình, thì ngay cả Lạc Cẩn Chi cũng không che chắn được cho cô nhân viên kỳ cựu này.
+Thẩm Tử Ngôn biết mình giúp Tưởng Chỉ Tình một lần thì Triệu Kim An sẽ chẳng nói gì, nhưng nếu để anh biết Lư Kiều Vĩ hay Giang Công Kỳ âm thầm giúp đỡ Tưởng Chỉ Tình, thì đến cả Lạc Cẩn Chi cũng chẳng bảo vệ nổi công thần kỳ cựu như ông ta đâu.
 
-"......"
+"..."
 
-Lư Kiều Vỹ không dám thở mạnh.
+Lư Kiều Vĩ nín thở, chẳng dám ho he một tiếng.
 
-"Anh thích cô ấy, anh thương cô ấy, anh kính phục cô ấy, anh muốn giúp — anh có thể xin vào xưởng đồ hộp làm trưởng phòng kinh doanh. Đó là lựa chọn của anh."
+"Ông thích chị ta, ông đồng cảm, khâm phục chị ta, muốn giúp chị ta thì cứ sang xưởng đồ hộp làm giám đốc kinh doanh, đó là lựa chọn của ông."
 
-Thẩm Tử Ngôn nói xong liền đi.
+Thẩm Tử Ngôn nói xong liền quay bước bỏ đi.
 
-"......"
+"..."
 
-Lư Kiều Vỹ nhìn theo bóng lưng Thẩm tổng — sao Thẩm tổng xử lý chuyện giống hệt Triệu tổng vậy?
+Lư Kiều Vĩ nhìn theo bóng lưng Thẩm Tử Ngôn, thầm nghĩ chẳng lẽ Thẩm tổng và Triệu tổng giải quyết mọi chuyện giống hệt nhau sao?
 
-Triệu Bác Lan sang còn nói chuyện được vài câu hơn, nhưng mà Triệu Bác Lan là giám đốc tài chính, bà không quản chuyện kinh doanh.
+Nếu là Triệu Bác Lan tới đây còn có thể trò chuyện thêm vài câu, nhưng Triệu Bác Lan là Giám đốc Tài chính, cô ấy không quản mảng kinh doanh bán hàng.
 
-Lựa chọn của anh!
+Lựa chọn của mỗi người!
 
-Đây là điều Thẩm Tử Ngôn hiểu sâu sắc nhất về Triệu Kim An.
+Đây là điều mà Thẩm Tử Ngôn thấu hiểu sâu sắc nhất về Triệu Kim An.
 
-Cô không rõ lý do chính xác khiến Mộc Dao và Triệu Kim An chia tay. Nhưng từ Từ Mạn Mạn đến Giang Chi Tình, có thể thấy Triệu Kim An chưa bao giờ làm khó Giang Chi Tình, chưa xé bỏ hợp đồng gia công nhãn hiệu.
+Cô không rõ nguyên nhân cụ thể khiến Mộc Dao và Triệu Kim An chia tay, nhưng nhìn từ chuyện của Từ Mạn Mạn và Tưởng Chỉ Tình thì thấy rõ: Triệu Kim An không hề làm khó Tưởng Chỉ Tình, cũng không xé bỏ hợp đồng gia công nhãn hiệu.
 
-Cũng chưa từng ra hiệu cho các đại lý, nói không được lấy hàng của xưởng đồ hộp.
+Càng không hề đánh tiếng với các đại lý bảo không được lấy hàng của xưởng đồ hộp.
 
-Chỉ là dứt khoát rút lui, tôn trọng lựa chọn của họ!
+Anh chỉ dứt khoát rút lui, và tôn trọng sự lựa chọn của bọn họ!
 
----
+Điều khiến người ta bất ngờ là mối quan hệ của phòng ký túc xá 406 dường như đã hòa thuận hơn trước rất nhiều.
 
-Điều bất ngờ là quan hệ trong phòng 406 dường như trở nên hòa thuận hơn trước nhiều.
+Sân Hảo Hữu Nhĩ: Tử Ngôn, cậu biến mất cả tháng nay rồi đấy, cậu đi công tác ở đâu thế?
 
-Tân Hảo Hữu Nhĩ: Tử Ngôn mày mất tích một tháng rồi, mày đang công tác ở đâu vậy?
+Thẩm Tử Ngôn hễ đến nơi nào cũng thích thưởng thức đặc sản địa phương, cô vừa ăn mì Sao Tử vừa liếc nhìn điện thoại.
 
-Thẩm Tử Ngôn đến đâu cũng thích nếm thử đặc sản địa phương, vừa ăn tô mì thịt băm vừa nhìn điện thoại.
+Thẩm Tử Ngôn: Tớ đang ở Tưởng Gia Ao.
 
-Thẩm Tử Ngôn: Tao đang ở Giang Gia Áo.
+Mạn Đông Đông: Tỉnh Thiểm nổi tiếng trồng nhiều anh đào với dưa thơm lắm đúng không?
 
-Mạn Đau Đau: Thiểm tỉnh có nhiều anh đào và dưa vàng lắm phải không?
+Thẩm Tử Ngôn: Ừ, các cậu có ăn anh đào không? Ở đây vào mùa anh đào rồi đấy.
 
-Thẩm Tử Ngôn: Ừ, tụi mày muốn anh đào không? Ở đây có rồi đó.
+Sân Hảo Hữu Nhĩ: Có có có, Tử Ngôn ơi, yêu cậu nhất!
 
-Tân Hảo Hữu Nhĩ: Muốn muốn muốn, Tử Ngôn, yêu mày.
+Mạch Thượng Yên Vũ Dao: Ở đó hình như có xưởng đồ hộp đúng không, cạnh nhà máy nước thứ hai của Kim An.
 
-Mạc Thượng Yên Vũ Dao: Ở đó hình như có đồ hộp phải không, xưởng nước thứ hai của Kim An đó.
+Thẩm Tử Ngôn: Có đấy, khi nào có xe về tớ bảo người chở về cho các cậu.
 
-Thẩm Tử Ngôn: Có chứ, tao nhờ người mang về cho tụi mày được.
+Thẩm Tử Ngôn: Anh đào ở đây đẹp lắm, quả vàng quả đỏ mọng nước, có hai ba tệ một cân rẻ như cho không, tớ ăn đến phát ngán rồi.
 
-Thẩm Tử Ngôn: Anh đào ở đây đẹp lắm, vừa vàng vừa đỏ, hai ba tệ một cân thôi, rẻ như cho không vậy, tao ăn ngán tới cổ rồi.
+Sân Hảo Hữu Nhĩ: Rẻ thế cơ á? Anh đào chính là cherry phải không? Nghe cậu kể mà tớ thèm đi quá, bình thường tớ chẳng dám mua ăn đâu, cherry đắt cắt cổ.
 
-Tân Hảo Hữu Nhĩ: Rẻ vậy sao? Anh đào chính là cherry đó đúng không? Mày nói tao cũng muốn đến đó quá, ngày thường tao tiếc không dám mua, cherry mắc lắm.
+Thẩm Tử Ngôn: Lần này cho cậu ăn thả ga, ăn đến khi nào chán ngấy thì thôi.
 
-Thẩm Tử Ngôn: Lần này đủ ăn thỏa thích, ăn đến chán mới thôi.
+Mạch Thượng Yên Vũ Dao: Tử Ngôn, tớ gửi tiền nhờ mua 20 cân làm phúc lợi cho công ty có tiện không?
 
-Mạc Thượng Yên Vũ Dao: Tử Ngôn, tao muốn bỏ tiền mua hai mươi cân làm phúc lợi công ty được không?
+Thẩm Tử Ngôn: Tiện chứ, công ty thường xuyên có xe chạy về Quận Sa mà.
 
-Thẩm Tử Ngôn: Được, công ty thường có xe về Quận Sa mà.
+Mạch Thượng Yên Vũ Dao: Thế tớ đặt hẳn 50 cân nhé.
 
-Mạc Thượng Yên Vũ Dao: Vậy tao đặt năm mươi cân.
+Sân Hảo Hữu Nhĩ: Oa, Dao Dao còn đặt phúc lợi cho nhân viên công ty luôn rồi kìa.
 
-Tân Hảo Hữu Nhĩ: Ôi, Dao Dao giờ đặt phúc lợi cho nhân viên công ty rồi kìa.
+Từ Mạn Mạn nhìn dòng tin nhắn liền hiểu ngay vì sao Thẩm Tử Ngôn lại đi công tác một mình lâu đến vậy.
 
-Từ Mạn Mạn nhìn tin nhắn, hiểu ngay vì sao Thẩm Tử Ngôn lại một mình công tác biền biệt suốt thời gian dài như vậy.
+Thẩm Tử Ngôn: Mạn Mạn, bên Trăn Hối Tuyển có nhà cung cấp anh đào chưa?
 
-Thẩm Tử Ngôn: Mạn Mạn, Chân Hội Tuyển có nhà cung cấp anh đào chưa?
+Thẩm Tử Ngôn không hỏi Liễu Ôn Ninh, mà hỏi thẳng Từ Mạn Mạn ngay trong nhóm.
 
-Thẩm Tử Ngôn không hỏi Liễu Ôn Ninh, hỏi thẳng Từ Mạn Mạn trong nhóm.
+Mạn Đông Đông: Thời gian bảo quản anh đào không dài, rất dễ bị hỏng.
 
-Mạn Đau Đau: Anh đào hạn sử dụng không dài, hỏng rất nhanh.
+Từ Mạn Mạn cũng không né tránh, dù sao đây cũng là công việc của Trăn Hối Tuyển.
 
-Từ Mạn Mạn cũng không né tránh — đây là việc của Chân Hội Tuyển.
+Mạn Đông Đông: Nhưng có thể thử xem sao, mỗi đợt nhập số lượng đừng quá nhiều. Nếu có xe của công ty chở về thì tiết kiệm được phí vận chuyển, tính kiểu gì cũng không lỗ được.
 
-Mạn Đau Đau: Nhưng có thể thử, mỗi lô số lượng đừng quá nhiều. Công ty có xe thì tiết kiệm được phí vận chuyển, tính cách nào cũng không lỗ.
+Thẩm Tử Ngôn: Bán 10 tệ một cân chắc không thành vấn đề chứ.
 
-Thẩm Tử Ngôn: Bán mười tệ một cân được không.
+Mạn Đông Đông: (Mặt cười) Không vấn đề gì đâu.
 
-Mạn Đau Đau: (mặt cười) Được chứ.
-
-Mạn Đau Đau: Táo đông Đại Lệ và táo ở đó chất lượng rất tốt đó.
+Mạn Đông Đông: Táo đông Đại Lệ và táo tây ở đó chất lượng cũng rất tốt đấy.
 
 Thẩm Tử Ngôn: Hiểu rồi.
 
-Mạn Đau Đau: Sau này Chân Hội Tuyển có thêm ba cửa hàng thì lợi thế thu mua sẽ càng lớn hơn...
+Mạn Đông Đông: Sau này Trăn Hối Tuyển mở rộng lên ba cửa hàng thì khâu thu mua sẽ càng có nhiều lợi thế hơn...
 
-Từ Mạn Mạn gõ thêm mấy chữ rồi dừng lại — đây là việc của Liễu Ôn Ninh rồi. Bản thân không còn là phó tổng Chân Hội Tuyển nữa, Thẩm Tử Ngôn chắc chắn sẽ trao đổi kỹ với Liễu Ôn Ninh và Tôn Dũng.
+Đang gõ bàn phím, Từ Mạn Mạn bỗng khựng lại. Đây là việc của Liễu Ôn Ninh rồi, mình không còn là Phó Tổng của Trăn Hối Tuyển nữa, Thẩm Tử Ngôn chắc chắn sẽ tự trao đổi ổn thỏa với Liễu Ôn Ninh và Tôn Dũng.
 
-Ví dụ nếu thử nghiệm tốt, vừa kéo khách vào Chân Hội Tuyển vừa có chút lãi, họ sẽ ký hợp đồng cung hàng dài hạn với nông dân địa phương.
+Ví dụ nếu hiệu quả tốt, vừa kéo được khách cho Trăn Hối Tuyển lại vừa có chút lợi nhuận, họ sẽ ký hợp đồng bao tiêu trực tiếp với một số hộ nông dân.
 
-Bây giờ đang là thời đại của chênh lệch thông tin — rất nhiều người không biết trong nước cũng trồng được anh đào (cherry). Mãi sau này có video ngắn, người ta mới biết trời biết đất.
+Bây giờ quả thực là thời đại kiếm tiền nhờ chênh lệch thông tin, rất nhiều người còn chẳng biết trong nước mình cũng trồng được anh đào (cherry).
 
-Cứ nhìn phản ứng của Diêu Tân — giá vốn hai tệ một cân, bán ở Chân Hội Tuyển sáu đến tám tệ, người Quận Sa chắc chắn xếp hàng mua.
+Phải đợi đến khi video ngắn bùng nổ, thiên hạ mới trên thông thiên văn dưới tường địa lý.
 
-Cũng không lời được mấy, nhưng kéo khách vào cửa hàng được.
+Nhìn phản ứng của Diêu Sân là biết ngay: giá nhập hai tệ một cân, mang về Trăn Hối Tuyển bán 6–8 tệ thì khéo dân Quận Sa tranh nhau mua sạch bách.
 
-Từ Mạn Mạn rút tay lại — không phải không quan tâm Chân Hội Tuyển, mà là hiểu Thẩm Tử Ngôn chuyện gì cũng biết, cô sẽ tự lo với Liễu Ôn Ninh.
+Có lẽ chẳng kiếm được quá nhiều tiền, nhưng lại kéo được lượng khách cực tốt cho Trăn Hối Tuyển.
 
-Tân Hảo Hữu Nhĩ: Tụi mày chuyện trò trong nhóm mà cũng chuyển qua công việc kiếm tiền luôn được à? Triệu Kim An có phát thưởng cuối năm cho tụi mày không?
+Từ Mạn Mạn rụt tay lại. Không phải cô không quan tâm tới Trăn Hối Tuyển, mà cô biết Thẩm Tử Ngôn cái gì cũng hiểu, cô ấy sẽ bàn bạc ổn thỏa với Liễu Ôn Ninh thôi.
 
-Thẩm Tử Ngôn: Diêu Tân mày biết thưởng cuối năm tao được bao nhiêu không? Hai chiếc Mercedes. Mày nói xem?
+Sân Hảo Hữu Nhĩ: Các cậu tám chuyện trong nhóm mà cũng bàn sang công việc với kiếm tiền được à? Triệu Kim An có phát thưởng cho các cậu không đấy?
 
-Tân Hảo Hữu Nhĩ: Tử Ngôn, mày nói chuyện kiểu này sẽ không có bạn đâu đó!!
+Thẩm Tử Ngôn: Diêu Sân, cậu biết thưởng cuối năm của tớ là bao nhiêu không? Hai chiếc Mercedes đấy, cậu nói xem?
+
+Sân Hảo Hữu Nhĩ: Tử Ngôn, cậu nói chuyện kiểu đấy là mất hết bạn bè đấy nhé!!
 
 Thẩm Tử Ngôn: Hahaha.
 
-Tân Hảo Hữu Nhĩ: Dao Dao cũng có BMW rồi! Tao không sống nữa đây! Tử Ngôn, tao đặt hai mươi hộp đồ hộp!
+Sân Hảo Hữu Nhĩ: Dao Dao cũng sắp có BMW rồi! Tớ không sống nổi nữa! Tử Ngôn, cho tớ 20 hộp đồ hộp!
 
-Thẩm Tử Ngôn: Được, ba mươi hộp luôn.
+Thẩm Tử Ngôn: Không thành vấn đề, 30 hộp luôn.
 
-Không ai trong phòng 406 ghen tị với khoản thưởng cuối năm của Thẩm Tử Ngôn — bởi vì bản thân Thẩm Tử Ngôn vốn đã chưa bao giờ thiếu tiền, tám mươi vạn tiền thưởng chỉ là tiền tiêu vặt của Thẩm Tử Ngôn. Vậy mà bố mẹ cô — Thẩm Vĩnh Đàm và Lục Mỵ Hiêu — mỗi lần gọi điện vẫn hỏi con có thiếu tiền tiêu không.
+Trong phòng ký túc xá 406 chẳng ai ghen tị với số tiền thưởng cuối năm của Thẩm Tử Ngôn, bởi bản thân Thẩm Tử Ngôn vốn dĩ chẳng thiếu tiền, tám trăm nghìn tệ tiền thưởng cuối năm chẳng qua chỉ là tiền tiêu vặt của cô mà thôi.
+
+Thế mà lần nào gọi điện thoại, Thẩm Vĩnh Đàm và Lục Mai Tiêu cũng hỏi con gái xem có thiếu tiền tiêu không...

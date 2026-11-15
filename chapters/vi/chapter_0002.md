@@ -1,7 +1,5 @@
 # Chương 2: Năm 2006.
 
-> **Tiêu đề gốc**: 第2章 2006年。
-
 Qua vài câu chuyện trò qua lại, Triệu Kim An mới dần chắp nối được dòng thời gian: hiện tại mới chỉ là năm 2006, cái trò "kích điện" này vẫn chưa bị cấm gắt gao như sau này.
 
 Có lẽ trên tỉnh cũng đã có văn bản chỉ thị từ lâu, nhưng người xưa có câu "ở núi ăn núi, ở sông ăn nước", thời buổi này ra con sông trước cửa nhà kiếm mớ cá cải thiện bữa ăn, chẳng ai rỗi hơi mà đến hỏi han làm khó.

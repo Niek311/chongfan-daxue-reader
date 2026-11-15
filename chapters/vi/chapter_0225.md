@@ -1,7 +1,5 @@
 # Chương 225: Hóa ra chỉ cần cái tên là được miễn phí?
 
-> **Tiêu đề gốc**: 第225章 原来他凭名字就可以免单了？
-
 Đan Vĩ đẩy chiếc xe đẩy hàng đi phía sau. Đã cất công tới "thăm hỏi" người ta thì dẫu sao cũng nên ủng hộ chút doanh thu cho đối tác.
 
 "Cậu muốn ăn gì không, ở đây có nhiều loại sô-cô-la lắm này."

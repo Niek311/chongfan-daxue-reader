@@ -1,7 +1,5 @@
 # Chương 184: Có thật vậy không?
 
-> **Tiêu đề gốc**: 第184章 是真的吗？
-
 Trên đường đi, Triệu Kim An lại nhận được cuộc gọi từ Thẩm Tử Ngôn.
 
 Xem ra anh đoán không hề sai, người đầu tiên Lưu Sấm Phong báo tin chắc chắn là Từ Mạn Mạn.
@@ -164,7 +162,7 @@ Nói một cách thực tế, chút gia sản còm cõi của nhà họ Trần h
 
 Sức hút nhân cách của Trần Trạch cũng chẳng đủ tầm để "thu phục" một cô gái thực dụng và dã tâm như Lâm Thanh Tuyết.
 
-Hơn nữa Trần Trạch lúc này chẳng qua chỉ là một cậu ấm phú nhị đại choai choai, toàn bộ cơ nghiệp gia đình vẫn nằm trọn trong tay mẹ hắn là bà Dương Thục Mỹ.
+Hơn nữa Trần Trạch lúc này chẳng qua chỉ là một cậu ấm phú nhị đại choai choai, toàn bộ cơ nghiệp gia đình vẫn nằm trọn trong tay mẹ hắn là bà Dương Thù Mỹ.
 
 Bây giờ mọi chuyện đâu đến lượt Trần Trạch định đoạt.
 

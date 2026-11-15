@@ -1,7 +1,5 @@
 # Chương 52: Điểm yếu
 
-> **Tiêu đề gốc**: 第52章 弱点。
-
 Rời khỏi nhà ăn, khi còn chưa bước tới gần chiếc BMW, Triệu Kim An cúi đầu liếc nhìn màn hình điện thoại rồi nói: "Tớ về ký túc xá trước nhé."
 
 Lưu Sấm Phong rảo bước sóng đôi bên cạnh Thẩm Tử Ngôn, say sưa thao thao bất tuyệt về những dự định và hoài bão của mình thời đại học, chỉ vì vừa rồi được Thẩm Tử Ngôn buông lời khen một câu: "Thế là rất tốt, có chí tiến thủ."
@@ -44,13 +42,13 @@ Ban đầu hắn còn tính để Trần Trạch bao trọn gói ở một nhà 
 
 Trần Trạch thực chất cũng tính toán sẽ chọn một nơi thật đẳng cấp, đắt đỏ để phô diễn chút mị lực (hay đúng hơn là tài lực) khó lòng kìm nén của mình trước mặt Thẩm Tử Ngôn và Mộc Dao.
 
-Chỉ qua vài lần tiếp xúc, Thẩm Tử Ngôn đã sớm nhìn thấu gia cảnh của mọi người: điều kiện nhà Lưu Sấm Phong hẳn là không mấy dư dả; Cốc Siêu Thừa và Diêu Tân ở phòng cô thuộc diện bình thường; chỉ riêng Triệu Kim An là cô chưa thể nhìn thấu hoàn toàn.
+Chỉ qua vài lần tiếp xúc, Thẩm Tử Ngôn đã sớm nhìn thấu gia cảnh của mọi người: điều kiện nhà Lưu Sấm Phong hẳn là không mấy dư dả; Cốc Siêu Thừa và Diêu Sân ở phòng cô thuộc diện bình thường; chỉ riêng Triệu Kim An là cô chưa thể nhìn thấu hoàn toàn.
 
 Dù nghe đồn chị họ cậu ta lái Range Rover, nhưng điều đó cũng chẳng nói lên được gì nhiều, dẫu sao cũng đâu phải chị ruột.
 
 "Cứ tìm một quán ăn nhỏ là được rồi." Thẩm Tử Ngôn khéo léo, thấu hiểu nói thêm.
 
-Quả nhiên, Cốc Siêu Thừa và Diêu Tân đều lập tức đồng tình, bảo rằng sinh viên với nhau thì không cần phải bày vẽ xa hoa lãng phí làm gì.
+Quả nhiên, Cốc Siêu Thừa và Diêu Sân đều lập tức đồng tình, bảo rằng sinh viên với nhau thì không cần phải bày vẽ xa hoa lãng phí làm gì.
 
 ...
 
@@ -72,7 +70,7 @@ Trần Trạch gãi đầu gãi tai: "Chuyện là... cái đó..."
 
 "Không được, bây giờ chưa được đâu!"
 
-Ở nhà Trần Trạch, bà Dương Thục Mỹ đã sớm dọn sẵn một phòng ngủ riêng cho Từ Mạn Mạn, bà đã chắc mẩm nhận cô làm con dâu tương lai. Thế nhưng Từ Mạn Mạn chưa từng ngủ lại căn phòng đó lấy một lần.
+Ở nhà Trần Trạch, bà Dương Thù Mỹ đã sớm dọn sẵn một phòng ngủ riêng cho Từ Mạn Mạn, bà đã chắc mẩm nhận cô làm con dâu tương lai. Thế nhưng Từ Mạn Mạn chưa từng ngủ lại căn phòng đó lấy một lần.
 
 ...
 

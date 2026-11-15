@@ -1,7 +1,5 @@
 # Chương 226: Cậu lấy đâu ra thể diện ấy?
 
-> **Tiêu đề gốc**: 第226章 你哪里来的面子？
-
 Đơn Vỹ nhẩm tính thời gian, kể từ lần đến Tưởng Gia Áo vào dịp cuối năm ngoái, thấm thoát cũng đã ngót nghét nửa năm.
 
 "Đúng là chẳng hợp lẽ chút nào."

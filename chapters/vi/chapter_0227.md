@@ -1,7 +1,5 @@
 # Chương 227: Nghe trộm ngoài cửa
 
-> **Tiêu đề gốc**: 第227章 听门。
-
 Tỉnh Thiểm Tây, thành phố Trường An.
 
 Chu Sở Hân hấp tấp chạy về văn phòng pha trà, Triệu Kim An liếc nhìn cô một cái: "Cậu là người duy nhất đi công tác mà lại tăng cân đấy."
@@ -116,23 +114,23 @@ Bản thân Trương Tuệ cũng chẳng hề hay biết điều đó. Mỗi l�
 
 Kinh đô Bắc Kinh.
 
-Triệu Kim An đã nhận lời Tô Miện từ trước, lúc anh đặt chân đến Tô gia thì đồng hồ đã điểm mười giờ rưỡi đêm.
+Triệu Kim An đã nhận lời Tô Miến từ trước, lúc anh đặt chân đến Tô gia thì đồng hồ đã điểm mười giờ rưỡi đêm.
 
-Mấy ngày này đúng vào chu kỳ thụ thai của Tô Miện, Triệu Kim An thầm nghĩ bản thân chẳng khác nào một công cụ hình người.
+Mấy ngày này đúng vào chu kỳ thụ thai của Tô Miến, Triệu Kim An thầm nghĩ bản thân chẳng khác nào một công cụ hình người.
 
 "Kim An, em muốn nữa..."
 
 "Lát nữa anh không nhường em đâu đấy."
 
-Đối với Tưởng Chỉ Tình, Triệu Kim An chẳng hề có chút thương hoa tiếc ngọc, nhưng trước mặt Tô Miện, anh lại có phần nâng niu, nhẫn nại hơn.
+Đối với Tưởng Chỉ Tình, Triệu Kim An chẳng hề có chút thương hoa tiếc ngọc, nhưng trước mặt Tô Miến, anh lại có phần nâng niu, nhẫn nại hơn.
 
 "Kim An, anh bảo nhường em cái gì cơ?"
 
-Tô Miện ngơ ngác chưa hiểu hết ẩn ý trong câu nói ấy, nhưng chỉ mười phút sau, cô đã thấu suốt tận tường.
+Tô Miến ngơ ngác chưa hiểu hết ẩn ý trong câu nói ấy, nhưng chỉ mười phút sau, cô đã thấu suốt tận tường.
 
 Tô Mặc rón rén bước ngang qua hành lang ngoài cửa, cố tình nán lại lắng nghe một hồi lâu, rồi mới bước về phía Quách Uyển Thanh đang khoác hờ chiếc áo ngủ đứng chờ bên góc phòng.
 
-Cả Tô Minh Tùng lẫn Quách Uyển Thanh đều mong mỏi có một đứa cháu ngoại ẵm bồng, tháng này Tô Miện còn được tẩm bổ bồi dưỡng theo chế độ đặc biệt.
+Cả Tô Minh Tùng lẫn Quách Uyển Thanh đều mong mỏi có một đứa cháu ngoại ẵm bồng, tháng này Tô Miến còn được tẩm bổ bồi dưỡng theo chế độ đặc biệt.
 
 Nhận được câu trả lời ngầm từ Tô Mặc, Quách Uyển Thanh mới an lòng quay trở về phòng ngủ.
 
@@ -154,7 +152,7 @@ Quách Uyển Thanh nghĩ ngợi một thoáng rồi toan quay người bước 
 
 Tô Minh Tùng thực sự chào thua, không tài nào hiểu nổi mạch suy nghĩ kỳ quặc của đám đàn bà.
 
-Quách Uyển Thanh chỉ cố tình trêu chọc ông một chút. Bà là người hiểu rõ đạo lý vợ chồng, thỉnh thoảng cũng phải thêm nếm vài câu đùa cho không khí bớt phần căng thẳng. Quách Uyển Thanh cười dịu dàng: "Cảnh Ngôn với Cảnh Hành đều sinh con trai cả rồi. Bây giờ trong lòng tôi ấy à, chỉ mong sao con bé Tô Miện sinh được một cô công chúa nhỏ."
+Quách Uyển Thanh chỉ cố tình trêu chọc ông một chút. Bà là người hiểu rõ đạo lý vợ chồng, thỉnh thoảng cũng phải thêm nếm vài câu đùa cho không khí bớt phần căng thẳng. Quách Uyển Thanh cười dịu dàng: "Cảnh Ngôn với Cảnh Hành đều sinh con trai cả rồi. Bây giờ trong lòng tôi ấy à, chỉ mong sao con bé Tô Miến sinh được một cô công chúa nhỏ."
 
 Tô Minh Tùng cười bảo: "Cháu trai nối dõi không tốt hơn sao?"
 
@@ -186,31 +184,31 @@ Triệu Kim An thở phào đầy vẻ đắc thắng, khẽ hỏi một câu: "
 
 "Kim An, anh ôm em đi."
 
-Tô Miện vừa trải qua một trận vất vả đến rã rời, nhưng trong lòng lại ngập tràn niềm hoan lạc đắm say. Cô đưa bàn tay mềm mại lên vuốt ve gò má Triệu Kim An: "Em thế này... có phải khiến anh cảm thấy không được thỏa mãn trọn vẹn không?"
+Tô Miến vừa trải qua một trận vất vả đến rã rời, nhưng trong lòng lại ngập tràn niềm hoan lạc đắm say. Cô đưa bàn tay mềm mại lên vuốt ve gò má Triệu Kim An: "Em thế này... có phải khiến anh cảm thấy không được thỏa mãn trọn vẹn không?"
 
 "Làm gì có chuyện đó."
 
-Triệu Kim An ghé sát tai Tô Miện thì thầm vài câu âu yếm, định bụng vòng tay bế bổng cô dậy để tựa lưng vào thành giường.
+Triệu Kim An ghé sát tai Tô Miến thì thầm vài câu âu yếm, định bụng vòng tay bế bổng cô dậy để tựa lưng vào thành giường.
 
 "Đừng mà."
 
-Tô Miện vội vàng xua tay ngăn lại: "Kim An, em phải nằm thẳng người. Anh lấy giúp em cái gối kê dưới lưng đi."
+Tô Miến vội vàng xua tay ngăn lại: "Kim An, em phải nằm thẳng người. Anh lấy giúp em cái gối kê dưới lưng đi."
 
 "..."
 
-Triệu Kim An đành ngoan ngoãn bước xuống giường, lấy thêm một chiếc gối mềm cẩn thận kê đỡ dưới hông cho Tô Miện.
+Triệu Kim An đành ngoan ngoãn bước xuống giường, lấy thêm một chiếc gối mềm cẩn thận kê đỡ dưới hông cho Tô Miến.
 
 "Em không thấy buồn ngủ à?"
 
 "Ban ngày em ngủ đẫy giấc rồi."
 
-Tô Miện nằm ngay ngắn lại, khẽ mỉm cười: "Kim An, nếu anh mệt thì cứ nhắm mắt ngủ trước đi nhé."
+Tô Miến nằm ngay ngắn lại, khẽ mỉm cười: "Kim An, nếu anh mệt thì cứ nhắm mắt ngủ trước đi nhé."
 
 Nhìn người phụ nữ trước mắt ngay cả những cử động nhỏ nhặt nhất cũng phải nhờ người nâng giấc, Triệu Kim An làm sao có thể chợp mắt cho đành. Anh chợt tự trách liệu lúc nãy mình giày vò cô như thế có phần hơi quá trớn hay không?
 
 Nghĩ vậy, Triệu Kim An liền ghé sát đầu khẽ hỏi han vài lời.
 
-Tô Miện nghe xong lại nở nụ cười rạng rỡ: "Kim An, em phải nằm ngửa, anh nằm nghiêng quay mặt sang ôm em này."
+Tô Miến nghe xong lại nở nụ cười rạng rỡ: "Kim An, em phải nằm ngửa, anh nằm nghiêng quay mặt sang ôm em này."
 
 Chẳng biết đã trôi qua bao lâu, trong cơn mơ màng chập chờn, Triệu Kim An bỗng nghe thấy tiếng gõ cửa cộc cộc.
 
@@ -222,11 +220,11 @@ Chẳng biết đã trôi qua bao lâu, trong cơn mơ màng chập chờn, Tri�
 
 "Chị dâu cả đấy ạ."
 
-Trải qua ba lượt quấn quýt nồng nhiệt, Tô Miện cũng mệt nhoài cả người, mắt nhắm mắt mở lẩm bẩm đáp.
+Trải qua ba lượt quấn quýt nồng nhiệt, Tô Miến cũng mệt nhoài cả người, mắt nhắm mắt mở lẩm bẩm đáp.
 
 Triệu Kim An liếc nhìn đồng hồ, đã hai giờ sáng, anh nhịn không được buột miệng một câu: "Bà chị dâu này của em còn kỳ cục hơn cả thím Kim Như ở quê. Thím ấy dẫu sao cũng chỉ dám rón rén nép ngoài cửa nghe trộm thôi..."
 
-Tô Miện nghe vậy lập tức tan hết cả cơn ngái ngủ, bật cười khúc khích.
+Tô Miến nghe vậy lập tức tan hết cả cơn ngái ngủ, bật cười khúc khích.
 
 Cô chợt nhớ lại lần đầu tiên theo anh về Triệu Gia Thôn, thím Vương Kim Như cũng thập thò ngoài cửa buồng nghe lén như thế.
 

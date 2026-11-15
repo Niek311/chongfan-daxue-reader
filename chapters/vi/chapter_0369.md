@@ -1,201 +1,195 @@
-# ﻿Chương 369: Cô Ấy Nói Sẽ Không Lấy Anh
+# Chương 369: Cô ấy nói sẽ không lấy anh
 
-> **Tiêu đề gốc**: 第369章 她说不会嫁给你。
+"Cô à, cô đừng có đổ tội chuyện công ty phá sản lên đầu cháu đấy nhé?" Triệu Kim An buông lời trêu đùa.
 
-"Dì ơi, chẳng lẽ dì định đổ lỗi phá sản lên đầu cháu?"
+Dương Thù Mỹ cũng khẽ cười, chỉ có điều nụ cười ấy thấm đượm nét cay đắng.
 
-Triệu Kim An cất tiếng đùa nhẹ.
+"Cô đâu đến nỗi hồ đồ như thế... Thật ra cả cháu và Mạn Mạn đều từng nhắc nhở cô vài lần rồi, chỉ tại cô chủ quan không chịu đề phòng. Giá như hồi đó nghe lời hai đứa thì cô đâu đến nỗi rơi vào bước đường cùng thế này."
 
-Dương Thục Mỹ cũng bật cười, chỉ là nụ cười pha chút đắng cay.
+"Cô vẫn còn một nhà máy nữa mà."
 
-"Dì không đến nỗi thế đâu... Thực ra cả cháu lẫn Mạn Mạn đã cảnh báo dì mấy lần rồi, chỉ tại dì không coi trọng, không cảnh giác. Nếu nghe các cháu, dì không đến nỗi lâm vào cảnh này."
+"Thứ đáng giá đâu phải cái nhà máy xác không đó; bây giờ chẳng có đơn hàng, công nhân cũng cho nghỉ gần hết cả rồi."
 
-"Dì còn một cái nhà máy."
+Dương Thù Mỹ ngẩng đầu nhìn thẳng vào Triệu Kim An: "Triệu tổng, có phải là do cháu làm không?"
 
-"Cái nhà máy đó chẳng đáng bao nhiêu. Không có đơn hàng, công nhân cũng đã cho nghỉ gần hết rồi."
-
-Dương Thục Mỹ ngẩng đầu nhìn Triệu Kim An: "Triệu tổng, có phải cháu không?"
-
-Triệu Kim An lắc đầu rồi gật đầu: "Vừa phải vừa không."
+Triệu Kim An vừa lắc đầu lại vừa gật đầu: "Vừa phải mà cũng vừa không phải."
 
 Đó là sự thật.
 
-Chuyện Tô Miên ra tay là do anh khởi đầu — tâm lý "bảo vệ người nhà" ấy, Triệu Kim An không thể nói với Tô Miên: "Em gọi thêm một cuộc điện thoại nữa thôi," anh không cao thượng đến vậy. Lại càng không thể vì Từ Tắc Đống hay Dương Thục Mỹ mà khiến Tô Miên không vui.
+Hành động của Tô Miến suy cho cùng cũng bắt nguồn từ anh. Với cái tính "bảo vệ người nhà" cố hữu, Triệu Kim An chẳng đời nào đi nói với Tô Miến rằng thôi em gọi thêm cuộc điện thoại bỏ qua cho họ đi, anh đâu có cao thượng đến mức ấy.
 
-Không cần phân biệt đúng sai — kể cả nếu Tô Miên sai, Triệu Kim An vẫn sẽ đứng về phía Tô Miên. Với những người trọng lý hơn trọng tình, anh chỉ giữ khoảng cách kính nhi viễn chi.
+Lại càng không bao giờ vì nhà Từ Tắc Đống hay Dương Thù Mỹ mà làm Tô Miến phật lòng.
 
-Dương Thục Mỹ tin, bà gật đầu: "Tiền bán nhà máy Tinh Sa vừa chuyển vào tài khoản là ngân hàng đã phong tỏa ngay."
+Khoan bàn tới chuyện đúng sai; kể cả Tô Miến có sai đi chăng nữa, Triệu Kim An vẫn sẽ đứng về phía Tô Miến.
 
-"Còn nợ nhiều không?"
+Triệu Kim An vốn là kẻ thiên vị người thân chứ chẳng màng lý lẽ, còn đối với những người lúc nào cũng chỉ biết "trọng lý khinh thân", anh chỉ biết kính nhi viễn chi.
 
-"Kinh doanh mà... Đợt khủng hoảng cho vay thứ cấp kéo dài thế này, ai mà không có khoản vay, tiền kiếm được trước giờ đã đổ vào hết rồi."
+Dương Thù Mỹ tin lời anh. Bà khẽ gật đầu: "Tiền bán nhà máy ở Tinh Sa còn chưa kịp về tới tay cô, vừa chuyển vào tài khoản là ngân hàng đã phong tỏa sạch rồi."
 
-Dương Thục Mỹ cười cay đắng: "Triệu tổng cháu nợ ngân hàng mấy chục tỷ euro rồi nhỉ?"
+"Vẫn còn nợ nhiều tiền vay ngân hàng lắm sao?"
 
-Triệu Kim An bật cười khẽ.
+"Làm ăn kinh doanh mà... Đợt khủng hoảng tài chính lần này kéo dài dai dẳng quá, làm gì có ai mà không vay vốn ngân hàng; bao nhiêu tiền lãi kiếm được trước kia giờ đổ sông đổ biển cả rồi."
 
-Món ăn được bưng lên, anh cầm bát húp cơm.
+Dương Thù Mỹ cười tự giễu trong cơn khốn khó: "Chứ chẳng lẽ như Triệu tổng đây, nợ ngân hàng tới hàng tỷ euro sao?"
 
-Dương Thục Mỹ nhìn Triệu Kim An chăm chú, rồi nặng giọng: "Dì đã bán cả biệt thự ở Quận Sa lẫn căn hộ ở Dương Thành rồi."
+Triệu Kim An bật cười thành tiếng.
 
-"Xe thì không đáng tiền."
+Đúng lúc nhân viên phục vụ bưng đồ ăn lên, anh bưng bát cơm lên ăn một cách thản nhiên.
 
-"Ừ."
+Dương Thù Mỹ nhìn chằm chằm Triệu Kim An hồi lâu, rồi trầm giọng nói tiếp: "Biệt thự ở Quận Sa và căn hộ ở Dương Thành, cô đều bán hết cả rồi."
 
-Triệu Kim An không có phản ứng gì đặc biệt — việc Dương Thục Mỹ phá sản không liên quan gì đến anh.
-
-"Dì tìm cháu nhiều lần, còn Trần Trạch..."
-
-"Trần Trạch chưa tìm cháu."
-
-"Nó chưa tìm cháu vay tiền?"
-
-Dương Thục Mỹ ngạc nhiên ra mặt.
-
-Triệu Kim An lắc đầu: "Không, nó tìm Thẩm Tử Ngôn, không tìm cháu."
-
-"Vì Mạn Mạn."
-
-"Không quan trọng."
-
-"Trần Trạch nói nhà họ Thẩm cũng có kinh doanh xuất nhập khẩu, bây giờ thế nào rồi?"
-
-Dương Thục Mỹ cũng đã nghe qua về Thẩm Tử Ngôn, bà nhấc bát gắp ít thức ăn, nhưng không có mấy cảm giác ngon.
-
-"Rất tốt, phát triển rất tốt."
-
-"Dì đến tìm cháu không nói với Trần Trạch."
-
-Dương Thục Mỹ cúi đầu nhìn bát cơm, thủ thỉ: "Nó là người rất sĩ diện, nói không cầu ai, nhất là không cầu cháu."
-
-Triệu Kim An gật đầu, không tỏ ra ngạc nhiên chút nào.
-
-"Hôm đó trên sân thượng, là Lâm Thanh Tuyết nói Trần Trạch muốn nó đi tìm cháu vay tiền."
-
-Dương Thục Mỹ cũng không còn gì để giấu, đến lúc này bà như đang tự nói chuyện với chính mình: "Lâm Thanh Tuyết có đến tìm cháu vay tiền — nhưng là để mua lại nhà máy của dì."
-
-"Dì bán cho ai cũng là bán."
-
-"Đúng."
-
-"Bây giờ nó thế nào?"
-
-"Ngày nào cũng nằm trong xưởng."
-
-Dương Thục Mỹ không biết Trần Trạch đã mở "chiến trường tu la" của Triệu Kim An — bà không có khái niệm đó. Triệu Kim An dùng khăn giấy chấm miệng.
-
-"Dì ơi, cháu đã nói với dì, ánh sáng sắp xuất hiện rồi."
-
-Dương Thục Mỹ biết Triệu Kim An sắp đứng dậy ra về, buổi gặp mặt này sắp kết thúc.
-
-"Ánh sáng có xuất hiện cũng vô dụng, dì hết tiền rồi."
-
-Dương Thục Mỹ vội vàng đứng lên — đúng là không cần phải kéo cái quần nữa rồi, gầy đi nhiều, người trông thê thảm hẳn.
-
-Triệu Kim An nhìn Dương Thục Mỹ.
-
-"Mạn Mạn đi Hộ Thị rồi."
+"Còn xe thì chẳng đáng bao nhiêu tiền."
 
 "Ừ."
 
-Triệu Kim An quay người bước đi, không do dự.
+Triệu Kim An chẳng mảy may biểu lộ cảm xúc gì; chuyện Dương Thù Mỹ phá sản vốn dĩ không liên quan nửa xu tới anh.
 
-"Hôm đó trên sân thượng, Mạn Mạn nói cô ấy sẽ không lấy cháu!"
+"Cô đã tìm cháu rất nhiều lần rồi, còn Trần Trạch..."
 
-Dương Thục Mỹ bỗng cất tiếng gọi.
+"Trần Trạch chưa từng tìm cháu."
 
-Triệu Kim An dừng bước, ngón tay khẽ động.
+"Nó không tới tìm cháu vay tiền sao?" Dương Thù Mỹ lộ rõ vẻ bất ngờ.
 
-"Cô ấy không về Dương Thành, cô ấy đi Hộ Thị rồi."
+Triệu Kim An lắc đầu: "Không hề. Cậu ta từng tìm Thẩm Tử Ngôn, nhưng tuyệt nhiên không tìm cháu."
 
-Dương Thục Mỹ nặng giọng: "Cô ấy không đồng ý tái hợp với Trần Trạch. Hôm đó trên sân thượng có rất nhiều thầy cô giáo chứng kiến — cháu không tin thì hỏi các thầy cô đó là biết ngay, giáo viên nhà trường đều khuyên Mạn Mạn hãy cứ ổn định Trần Trạch trước đã."
+"Là vì Mạn Mạn."
 
-"Cô ấy nói cô ấy sẽ không lấy cháu."
+"Chuyện đó không quan trọng."
 
-Triệu Kim An quay người lại, nhìn Dương Thục Mỹ.
+"Trần Trạch bảo nhà Thẩm Tử Ngôn cũng làm mảng ngoại thương, dạo này bên đó thế nào?" Dương Thù Mỹ cũng đã nghe phong thanh về Thẩm Tử Ngôn. Bà bưng bát gắp chút thức ăn, nhưng chẳng buồn nuốt, hoàn toàn mất hết khẩu vị.
 
-"Nếu là cháu, cháu sẽ chọn thế nào?"
+"Rất tốt, phát triển cực kỳ thuận lợi."
 
-Dương Thục Mỹ hỏi: "Một bên là công việc lương cao, một bên là người đã lớn lên bên nhau suốt tuổi thơ, có tình cảm gần một năm, bây giờ muốn nhảy lầu tự tử — hai mươi năm quen biết, chuyện này cháu biết rồi."
+"Cô tới tìm cháu hôm nay không hề nói cho Trần Trạch biết."
 
-Triệu Kim An không nói gì.
+Dương Thù Mỹ bưng bát cúi gằm mặt nói khẽ: "Nó là đứa cực kỳ sĩ diện, thà đi cầu xin ai chứ nhất quyết không chịu cúi đầu trước cháu."
 
-"Hôm đó trên sân thượng có bao nhiêu thầy cô giáo, có cả dì, trước mặt Trần Trạch ép hỏi: có phải muốn như Lưu Xung Phong không, muốn nhìn nó thất bại, nhìn nó phá sản không — Mạn Mạn nói mong nó ổn, không muốn nhìn thấy nó phá sản."
+Triệu Kim An gật đầu, trên mặt chẳng hề lộ ra chút ngạc nhiên nào.
 
-"Vượt qua được lần khó khăn này."
+"Hôm ở trên sân thượng, chính Lâm Thanh Tuyết kể rằng Trần Trạch bắt cô ấy tới tìm cháu vay tiền."
 
-"Nhưng Mạn Mạn không đến nhà máy Tinh Sa lần nào, một lần cũng không — Lâm Thanh Tuyết về Tinh Sa thu mua nhà máy, cô ấy chưa bao giờ xuất hiện. Cuối cùng... lại không về Dương Thành."
+Đến bước đường này rồi thì Dương Thù Mỹ cũng chẳng còn gì để giấu giếm nữa, bà nói như thể đang tự độc thoại với chính mình: "Quả thực Lâm Thanh Tuyết có tìm cháu vay tiền, nhưng lại là để thâu tóm nhà máy của cô."
 
-Dương Thục Mỹ chân thành: "Thật lòng dì rất muốn cô ấy về Dương Thành giúp dì, nhưng cô ấy chọn đi Hộ Thị."
+"Cô bán cho ai thì cũng là bán thôi."
 
-"Kim An, mỗi người lớn lên trong môi trường khác nhau. Mạn Mạn từ nhỏ rất ngoan ngoãn, ngay cả ăn cơm cũng không dám rơi một hạt, khác với Trần Trạch — Mạn Mạn dường như không có tuổi thơ nổi loạn, cô ấy không biết cách phản kháng."
+"Đúng vậy."
 
-Dương Thục Mỹ không biết Từ Mạn Mạn cũng đã có lần phản kháng lại Từ Tắc Đống một lần.
+"Cậu ta dạo này thế nào rồi?"
 
-"Rơi một hạt cơm, Từ Tắc Đống sẽ mặt tối sầm, nhìn cô ấy nhặt lên ăn vào."
+"Ngày nào cũng nằm dài trong ký túc xá của nhà máy."
 
-"Cô ấy không dám khóc, không dám nhìn Lương Huệ Trân."
+Dương Thù Mỹ chẳng hề hay biết Trần Trạch từng khơi mào cái "Tu La tràng" của Triệu Kim An; ở tuổi của bà làm gì có khái niệm về mấy thứ đó. Triệu Kim An rút tờ giấy ăn lau miệng.
 
-"Rồi sao? Cốt lõi là gì?"
+"Cô à, cháu từng nói với cô rồi đấy, ánh bình minh sắp ló rạng rồi."
 
-Triệu Kim An hỏi như người máy.
+Dương Thù Mỹ hiểu Triệu Kim An sắp đứng dậy rời đi, kết thúc cuộc gặp mặt này.
 
-Dương Thục Mỹ không nói thêm.
+"Ánh bình minh có ló rạng thì cũng vô ích thôi, cô hết sạch tiền rồi."
 
-Hai người đều hiểu ý nhau.
+Dương Thù Mỹ vội vàng đứng bật dậy; lần này bà chẳng cần phải kéo cạp quần nữa, bởi bà đã gầy đi quá nhiều, gương mặt hốc hác tiều tụy thấy rõ.
 
-Triệu Kim An quay người bước ra.
+Triệu Kim An ngước mắt nhìn Dương Thù Mỹ.
+
+Bà buông một câu: "Mạn Mạn đi Hỗ Thị rồi."
+
+"Ừ."
+
+Triệu Kim An xoay người định bước đi, không một chút do dự.
+
+"Hôm đó ở trên sân thượng, Mạn Mạn đã nói là con bé sẽ không lấy cháu đâu!" Dương Thù Mỹ gọi với theo.
+
+Bước chân Triệu Kim An khựng lại, mấy ngón tay khẽ cử động.
+
+"Con bé không tới Dương Thành, nó đi thẳng tới Hỗ Thị rồi."
+
+Dương Thù Mỹ trầm giọng nói tiếp: "Con bé không hề đồng ý quay lại với Trần Trạch. Hôm đó trên sân thượng có biết bao nhiêu thầy cô giáo chứng kiến, nếu cháu không tin thì cứ đi hỏi mấy thầy cô ấy là rõ; ngay cả các thầy cô trong trường cũng khuyên Mạn Mạn tạm thời cứ dỗ dành cho Trần Trạch nguôi ngoai trước đã."
+
+"Con bé nói rằng nó sẽ không lấy cháu."
+
+Triệu Kim An xoay người lại, lặng lẽ nhìn Dương Thù Mỹ.
+
+"Đặt vào vị trí của cháu thì cháu chọn thế nào?"
+
+Dương Thù Mỹ hỏi dồn: "Một bên là công việc lương cao ngất ngưởng, một bên là người bạn lớn lên cùng nhau từ thuở tấm bé, lại từng yêu nhau một năm trời đang đòi nhảy lầu tự tử. Tình nghĩa quen biết suốt 20 năm, chuyện này hẳn cháu cũng biết rõ."
+
+Triệu Kim An im lặng không nói một lời.
+
+"Trước mặt bao nhiêu thầy cô, lại có cả cô ở đó, đối diện với câu chất vấn dồn dập của Trần Trạch rằng có phải con bé cũng muốn nhìn nó gặp nạn, nhìn nó phá sản như Lưu Sấm Phong không... Mạn Mạn chỉ đáp rằng nó mong Trần Trạch sống tốt, không muốn nhìn thấy cậu ấy phá sản."
+
+"Chỉ mong vượt qua kiếp nạn lần này."
+
+"Thế nhưng Mạn Mạn chưa từng đặt chân tới nhà máy ở Tinh Sa lấy một lần. Lúc Lâm Thanh Tuyết xuống Tinh Sa thu mua nhà máy, con bé cũng không hề lộ mặt; đến cuối cùng... cũng chẳng chịu xuống Dương Thành với cô."
+
+Dương Thù Mỹ nhìn anh với ánh mắt đầy chân thành: "Thú thật là cô rất mong con bé xuống Dương Thành phụ giúp cô, nhưng cuối cùng nó lại chọn đi Hỗ Thị."
+
+"Kim An à, mỗi người có một hoàn cảnh trưởng thành khác nhau. Mạn Mạn từ nhỏ đã cực kỳ ngoan ngoãn nghe lời, ăn cơm chẳng bao giờ dám làm rơi một hạt, không giống như thằng Trần Trạch. Mạn Mạn dường như chẳng hề có cái gọi là tuổi nổi loạn, con bé thậm chí còn chẳng biết phản kháng là gì."
+
+Dương Thù Mỹ đâu hề biết rằng Từ Mạn Mạn cũng từng một lần dám đứng lên phản kháng lại Từ Tắc Đống.
+
+"Chỉ cần làm rơi một hạt cơm thôi là Từ Tắc Đống sẽ sầm mặt lại, trừng mắt nhìn con bé nhặt lên ăn cho bằng sạch."
+
+"Nó không dám khóc, cũng chẳng dám nhìn sang Lương Tuệ Trân."
+
+"Rồi sao nữa? Vào thẳng trọng tâm đi cô."
+
+Triệu Kim An cất giọng đều đều lạnh băng như một cỗ máy.
+
+Dương Thù Mỹ bỗng nghẹn lời, không nói thêm được câu nào.
+
+Cả hai người đều hiểu rõ trong lòng như ban ngày.
+
+Triệu Kim An dứt khoát quay lưng bỏ đi.
 
 "Kim An!"
 
-Dương Thục Mỹ lại gọi: "Cứu dì lần này, bốn trăm triệu, cháu mở điều kiện gì dì cũng chấp nhận hết."
+Dương Thù Mỹ lại gọi giật lại: "Cứu cô một lần này đi, 4 triệu tệ thôi, cháu muốn đưa ra điều kiện gì cũng được, cô đồng ý hết."
 
-"Trần Trạch không cầu cháu, dì cầu cháu, dì là mẹ nó, dì cầu cháu."
+"Trần Trạch không cầu xin cháu, nhưng cô cầu xin cháu. Cô là mẹ nó, cô van xin cháu đấy."
 
-Triệu Kim An không đồng ý cũng không từ chối, chỉ nhìn Dương Thục Mỹ.
+Triệu Kim An không nhận lời, cũng chẳng từ chối, chỉ đứng lặng nhìn Dương Thù Mỹ.
 
-Đơn Vĩ và Quan Văn Bách đứng bên cạnh, mặt không biểu cảm nhìn vào.
+Đan Vĩ và Quan Văn Bách đứng cách đó không xa giữ vẻ mặt lạnh lùng không chút cảm xúc.
 
-Nhân viên phục vụ đứng trố mắt nhìn.
+Cô nhân viên phục vụ gần đó thì há hốc mồm nhìn cảnh tượng trước mắt.
 
-Dương Thục Mỹ cúi đầu xuống: "Kim An, cứu dì một lần."
+Dương Thù Mỹ cúi đầu xuống, giọng khàn đặc: "Kim An, cứu cô một lần này đi."
 
-Trần Trạch không cầu cháu, dì cầu cháu — Dương Thục Mỹ đã dùng hết quân bài trong tay, cúi đầu cầu xin bạn học của con trai.
+"Trần Trạch không cầu xin cháu, cô cầu xin cháu" — Dương Thù Mỹ đã tung hết toàn bộ những quân bài mình có trong tay, chấp nhận hạ mình cầu xin chính bạn học của con trai ruột.
 
-Trừ việc đi vay Trần Cẩm Thu.
+Chỉ trừ việc mở miệng hỏi vay tiền Trần Cẩm Thu.
 
-Chưa bao giờ là Trần Trạch — trong chuyện làm ăn, ngay cả Thẩm Tử Ngôn còn không thèm đối thoại với Trần Trạch, coi anh ta chỉ như một đứa trẻ.
+Từ trước tới nay đối thủ chưa bao giờ là Trần Trạch; trên thương trường ngay cả Thẩm Tử Ngôn cũng chẳng thèm đối thoại với Trần Trạch, chỉ coi cậu ta như một đứa trẻ con vắt mũi chưa sạch.
 
-Dùng Từ Mạn Mạn để đổi "vay bốn trăm triệu" — đại khái Dương Thục Mỹ có phần tính toán như vậy, đây cũng là người đàn bà dám đặt cược cả bản thân vì sự nghiệp.
+Đem chuyện của Từ Mạn Mạn ra làm cái cớ để đánh đổi lấy "khoản vay 4 triệu tệ", có lẽ trong thâm tâm Dương Thù Mỹ ít nhiều cũng mang suy nghĩ ấy. Bà quả thực là một người phụ nữ dám làm dám chịu, vì sự nghiệp mà ngay cả bản thân mình bà cũng có thể đem ra đánh cược.
 
-"Số phận tốt."
+"Số nó sướng."
 
-Triệu Kim An cũng nhớ đến lời Cốc Siêu Thừa nhận xét về Trần Trạch.
+Triệu Kim An chợt nhớ lại câu đánh giá của Cốc Siêu Thừa dành cho Trần Trạch.
 
-Người đàn bà dám dấn thân thương trường, tự tay gây dựng từ hai bàn tay trắng — Dương Thục Mỹ vẫn có thể "che chở" Trần Trạch ít nhất thêm hai mươi năm, chỉ cần kinh tế toàn cầu phục hồi thì Dương Thục Mỹ thế nào cũng có thể làm lại từ đầu.
+Là một người phụ nữ dám dấn thân ra thương trường, tay trắng dựng nên cơ đồ, Dương Thù Mỹ vẫn đủ sức "che chở" cho Trần Trạch ít nhất thêm 20 năm nữa. Chỉ cần kinh tế toàn cầu phục hồi trở lại, bằng bản lĩnh của mình, Dương Thù Mỹ kiểu gì cũng có thể gượng dậy làm lại từ đầu.
 
-Người như vậy, cách nào cũng có thể đứng dậy.
+Những con người như bà dù ngã xuống sâu đến đâu rồi cũng sẽ tự tìm cách đứng lên được.
 
-Lưu Xung Phong không phải không qua mặt được Trần Trạch — anh ta và Phương Khiết không phải đối thủ của Dương Thục Mỹ.
+Không phải Lưu Sấm Phong không thể vượt mặt Trần Trạch, mà là cả anh ta lẫn Phương Khiết đều không phải đối thủ của Dương Thù Mỹ.
 
-"Kim An, Mạn Mạn sắp đi Hộ Thị."
+"Kim An, Mạn Mạn sắp đi Hỗ Thị rồi đấy."
 
-Đây là điều Thẩm Tử Ngôn ở khách sạn nói với Triệu Kim An.
+Đây là câu Thẩm Tử Ngôn nói với Triệu Kim An khi cả hai ở khách sạn.
 
-Thẩm Tử Ngôn rất thẳng thắn, quang minh lỗi lạc — dù Từ Mạn Mạn là đối thủ, cô vẫn chọn nói thẳng với Triệu Kim An một câu.
+Thẩm Tử Ngôn vốn tính tình thẳng thắn, quang minh lỗi lạc; cho dù Từ Mạn Mạn là tình địch, cô vẫn chọn cách báo lại cho Triệu Kim An biết một tiếng.
 
-"Đi Tô Thành."
+"Chuẩn bị đi Tô Thành thôi."
 
-"Được."
+"Vâng."
 
-Thẩm Vĩnh Đàm cũng gọi điện hỏi thăm. Triệu Kim An ở Dương Thành quậy tung lên, khiến Thẩm Vĩnh Đàm và Lục Mỵ Tiêu lo lắng anh đang kết thù chuốc oán quá nhiều, lỡ dòng tiền công ty gặp vấn đề thì nguy.
+Thẩm Vĩnh Đàm cũng gọi điện thoại sang hỏi thăm, lo lắng thấy Triệu Kim An ở Dương Thành cứ đi khuấy đảo khắp nơi như vậy; hai vợ chồng Thẩm Vĩnh Đàm và Lục Mai Tiêu sợ anh gây thù chuốc oán quá nhiều, dễ khiến chuỗi vốn của công ty gặp trục trặc.
 
-Triệu Kim An chợt nhớ đến cuộc chiến giao đồ ăn, năm trăm tỷ bù lỗ!
+Triệu Kim An chợt nhớ tới cuộc chiến giao đồ ăn kiếp trước: tung gói trợ cấp 50 tỷ tệ!
 
-Tuyên bố trước thiên hạ: không có kế hoạch sinh lời, đánh đến tận cùng!
+Tuyên bố thẳng thừng ra bên ngoài: không cần lợi nhuận, đánh tới cùng!
 
-Thương chiến thực sự chưa bao giờ có gì cao siêu hay hoa mỹ.
+Cạnh tranh thương trường thực chất xưa nay vẫn luôn mộc mạc, trần trụi như thế.
 
-Cài thiết bị nghe lén? Đó là trong phim.
+Nào có chuyện cài máy nghe lén cao siêu gì đâu, mấy thứ đó chỉ có trong phim ảnh thôi.
 
-Thương chiến thực sự là: dội nước sôi vào cây tài lộc của đối thủ, bỏ độc vào bể cá, thuê người kéo cầu dao điện, chặn xe trên đường đấu thầu — không có gì phức tạp như trong truyện đâu...
+Thương chiến ngoài đời thực là: đổ nước sôi tưới chết cây kim ngân, bỏ thuốc độc vào bể cá phong thủy, thuê người cắt cầu dao điện, chặn xe giữa đường đi đấu thầu, chứ làm gì có lắm chiêu trò hoa mỹ...

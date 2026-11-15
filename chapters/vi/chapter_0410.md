@@ -1,7 +1,5 @@
 # Chương 410: Quá vội vàng
 
-> **Tiêu đề gốc**: 第410章 太急了。
-
 Làm ăn buôn bán nhỏ vốn dĩ là như vậy, bất cứ việc gì cũng phải tự thân vận động, đích thân nhúng tay vào làm. Tiền kiếm được thì có đấy, số tiền mà Lưu Sấm Phong và Phương Khiết kiếm ra lúc này nhiều hơn hẳn so với đồng lương của Đường Hiểu Tình hay Vương Duy Đào, thế nhưng đó lại tuyệt nhiên không phải thứ mà Phương Khiết khao khát nhất.
 
 Cô càng khao khát được đứng ở vị thế như Đường Hiểu Tình, hoặc giả như Thẩm Tử Ngôn vậy.

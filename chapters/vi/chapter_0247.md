@@ -1,7 +1,5 @@
 # Chương 247: Nhận được cái gật đầu
 
-> **Tiêu đề gốc**: 第247章 得到首肯。
-
 Vương Kim Như tạm dừng nói với Doãn Hiểu Lan, nhưng cũng chẳng buồn tránh mặt hay bịt ống nghe điện thoại lại.
 
 "Mẹ ơi, cớ sao con lại phải trích tiền lương của mình chia cho con bé Hiểu Lan chứ?"

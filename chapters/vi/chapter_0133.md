@@ -1,7 +1,5 @@
 # Chương 133: Cửa thắng của Mộc Dao
 
-> **Tiêu đề gốc**: 第133章 沐瑶的赢面点。
-
 Du Phi vốn dĩ không có ý định về quê đợt này.
 
 Chỉ vì nghe Triệu Trí Dũng khoe rằng Triệu Kim An sẽ tự lái xe về nên cô mới đột ngột đổi ý.

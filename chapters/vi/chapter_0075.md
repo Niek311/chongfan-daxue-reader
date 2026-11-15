@@ -1,7 +1,5 @@
 # Chương 75: Dựng xây bộ khung
 
-> **Tiêu đề gốc**: 第75章 搭建班子。
-
 Diêu Sân lập tức buông điện thoại xuống, gương mặt ngập tràn vẻ hóng hớt, nằm bò trên mép giường hướng mắt về phía giường của Mộc Dao.
 
 Từ Mạn Mạn cũng vểnh tai chăm chú lắng nghe.
@@ -74,7 +72,7 @@ Vu Tu Nhiên mời một điếu thuốc rồi bảo: "Triệu Kim An, đại l�
 
 Triệu Kim An châm điếu thuốc, giơ ngón tay ngoắc nhẹ về phía không xa.
 
-Chiếc xe Audi A6 từ từ lăn bánh tiến lại gần, cách chừng mười mét thì Đơn Vĩ mở cửa bước xuống xe.
+Chiếc xe Audi A6 từ từ lăn bánh tiến lại gần, cách chừng mười mét thì Đan Vĩ mở cửa bước xuống xe.
 
 "Mẹ kiếp, tôi đi đây!"
 
@@ -92,15 +90,15 @@ Vu Tu Nhiên là người có chí khí cao ngạo, cứ để anh ta tự mình
 
 "Thưa sếp!"
 
-Đợi chiếc xe buýt khuất bóng, Đơn Vĩ mới lái xe trờ tới cạnh anh.
+Đợi chiếc xe buýt khuất bóng, Đan Vĩ mới lái xe trờ tới cạnh anh.
 
 Có lẽ chịu đôi chút tác động từ khí thế của Vu Tu Nhiên, Triệu Kim An vươn vai một cái, cất giọng: "Đã đến lúc bắt tay vào việc, dựng xây bộ khung cho riêng mình rồi. Bằng không mười năm sau Trưởng ban Vu lại..."
 
-Đơn Vĩ thấy hơi lạ, dường như ông chủ lại có thêm sự thay đổi.
+Đan Vĩ thấy hơi lạ, dường như ông chủ lại có thêm sự thay đổi.
 
 "Sếp, tôi chính là một thành viên trong bộ khung của sếp đây."
 
-Đơn Vĩ chân thành bày tỏ lòng trung thành.
+Đan Vĩ chân thành bày tỏ lòng trung thành.
 
 Triệu Kim An khẽ mỉm cười, rút điện thoại bấm một dãy số.
 
@@ -122,7 +120,7 @@ Vừa bước chân ra khỏi cổng trường, cô đã trông thấy Triệu K
 
 "Lên xe đi."
 
-Triệu Bác Lan ngơ ngác bước lên xe, liếc nhìn người tài xế Đơn Vĩ đang lái xe phía trước: "Kim An, em... xe của ai thế này?"
+Triệu Bác Lan ngơ ngác bước lên xe, liếc nhìn người tài xế Đan Vĩ đang lái xe phía trước: "Kim An, em... xe của ai thế này?"
 
 Không trách Triệu Bác Lan tò mò, cũng chẳng thể trách Triệu Kim An cố tình phô trương thanh thế. Nếu không làm như vậy, Triệu Bác Lan sẽ rất khó nhận thức được rằng Triệu Kim An giờ đây đã là một ông chủ. Thiếu đi nhận thức này thì tâm lý làm việc sẽ rất khó đặt cho đúng vị trí.
 
@@ -130,7 +128,7 @@ Trong tâm trí của Triệu Bác Lan, Triệu Kim An vẫn mãi dừng lại �
 
 Triệu Kim An không giải thích nguồn gốc số tiền, bởi chuyện đó rất khó để nói cho rõ ràng.
 
-Đến nhà Đơn Vĩ, bước lên tầng hai, Triệu Kim An chỉ tay vào một gian phòng: "Đây chính là văn phòng làm việc của chị, phòng Tài chính."
+Đến nhà Đan Vĩ, bước lên tầng hai, Triệu Kim An chỉ tay vào một gian phòng: "Đây chính là văn phòng làm việc của chị, phòng Tài chính."
 
 "Kim An, ý em là... công ty Đông Giang Ấn Tượng sao?"
 

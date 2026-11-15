@@ -1,7 +1,5 @@
 # Chương 476: Nhìn một cái
 
-> **Tiêu đề gốc**: 第476章 看眼。
-
 Triệu Tri Nặc mặc một bộ đồ sơ sinh màu vàng phấn nhạt. Có lẽ do bị bế lên di chuyển, cô bé con mắt nhắm mắt mở lờ đờ tỉnh giấc.
 
 "Oa~"

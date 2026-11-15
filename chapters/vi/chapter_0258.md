@@ -1,7 +1,5 @@
 # Chương 258: Nhà tài trợ doanh nghiệp
 
-> **Tiêu đề gốc**: 第258章 企业赞助商
-
 Thầy Lưu Huy chỉ cảm thấy Triệu Kim An dạo này dường như đã đi quá xa so với quỹ đạo của một sinh viên bình thường.
 
 Chẳng lẽ cậu ta thực sự đã ôm được đùi một phú bà giàu có nào đó bao nuôi rồi sao?
@@ -190,7 +188,7 @@ Cùng thời điểm đó.
 
 "Thím... Thím nhỏ ư?!"
 
-Người con gái ngồi ngay sát cạnh Triệu Kim An chính là Tô Miễn! Dẫu cho ống kính truyền hình chỉ lia qua một tích tắc ngắn ngủi, nhưng Triệu Bác Lan vẫn nhận ra gương mặt thanh tú, thoát tục ấy ngay từ cái nhìn đầu tiên.
+Người con gái ngồi ngay sát cạnh Triệu Kim An chính là Tô Miến! Dẫu cho ống kính truyền hình chỉ lia qua một tích tắc ngắn ngủi, nhưng Triệu Bác Lan vẫn nhận ra gương mặt thanh tú, thoát tục ấy ngay từ cái nhìn đầu tiên.
 
 Những người không quen biết thì chẳng ai để tâm làm gì, giống như Lâm Thanh Tuyết nhìn qua cũng chẳng hề bận lòng suy nghĩ. Thế nhưng trái tim Triệu Bác Lan lúc này thì đang đập thình thịch liên hồi như muốn nhảy ra khỏi lồng ngực.
 
@@ -234,7 +232,7 @@ Thời Quang Thiếu Niên: "Tớ cũng vừa thấy rồi, công nhận là qu�
 
 Lưu Niên: "Vị trí hàng ghế ngồi đấy, chắc chắn không thể nào là loại vé bỏ tiền ra mua được đâu."
 
-Vương Duy Đào ngồi trước máy tính gõ được mấy dòng chữ rồi lại vội vàng bấm nút xóa sạch đi. Cậu ta đã nhìn thấy rõ ràng Tô Miễn ngồi bên cạnh Triệu Kim An, trong cả tập thể Lớp Kế toán 1 này chỉ có duy nhất một mình cậu ta là từng được gặp mặt Tô Miễn mà thôi.
+Vương Duy Đào ngồi trước máy tính gõ được mấy dòng chữ rồi lại vội vàng bấm nút xóa sạch đi. Cậu ta đã nhìn thấy rõ ràng Tô Miến ngồi bên cạnh Triệu Kim An, trong cả tập thể Lớp Kế toán 1 này chỉ có duy nhất một mình cậu ta là từng được gặp mặt Tô Miến mà thôi.
 
 Những người khác trong nhóm chat thì hoàn toàn không có phản ứng gì đặc biệt về cô gái ngồi cạnh.
 

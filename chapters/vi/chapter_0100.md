@@ -1,7 +1,5 @@
 # Chương 100: Phu nhân Thị trưởng?
 
-> **Tiêu đề gốc**: 第100章 市长夫人？
-
 Buổi sớm mai tháng Tư, tiết trời Quận Sa vẫn còn vương lại đôi chút se lạnh.
 
 Khí hậu nơi đây vốn dĩ thất thường, hễ cứ trở trời trở gió là người ta lại phải lôi áo khoác lông vũ ra mặc như giữa mùa đông.
@@ -204,24 +202,24 @@ Chị dâu cả bên kia nghe vậy lại càng cười vui vẻ, sảng khoái 
 
 Trên đường từ sân bay Hoàng Hoa trở về trường Đại học Sư phạm, chiếc điện thoại trong túi Triệu Kim An khẽ rung lên báo có tin nhắn mới.
 
-Hứa Mạn Mạn: [Triệu Kim An, mình vừa nộp đơn đăng ký làm tình nguyện viên cho giải đấu Cúp Trăn Nhiên của công ty cậu rồi nhé.]
+Từ Mạn Mạn: [Triệu Kim An, mình vừa nộp đơn đăng ký làm tình nguyện viên cho giải đấu Cúp Trăn Nhiên của công ty cậu rồi nhé.]
 
 Tại căn phòng học ở tầng một của trường.
 
-Hứa Mạn Mạn bước vào và nhìn thấy Đường Hiểu Tình đang tất bật phân loại giấy tờ. Trần Trạch trước đây từng kể rằng Đường Hiểu Tình cũng là một sinh viên thuộc diện hộ nghèo có hoàn cảnh gia đình rất khó khăn.
+Từ Mạn Mạn bước vào và nhìn thấy Đường Hiểu Tình đang tất bật phân loại giấy tờ. Trần Trạch trước đây từng kể rằng Đường Hiểu Tình cũng là một sinh viên thuộc diện hộ nghèo có hoàn cảnh gia đình rất khó khăn.
 
 Căn phòng học lúc này chật kín người, dòng người ra vào tấp nập, ai nấy đều bận rộn tối mắt tối mũi.
 
-Đường Hiểu Tình nhận ra Hứa Mạn Mạn, cô biết rõ cô gái xinh đẹp này chính là bạn gái của Trần Trạch. Đường Hiểu Tình liền lễ phép lên tiếng: "Chào bạn Hứa Mạn Mạn, công việc tình nguyện viên bên mình tạm thời ban tổ chức vẫn chưa có mức chi trả thù lao cụ thể theo ngày đâu nhé."
+Đường Hiểu Tình nhận ra Từ Mạn Mạn, cô biết rõ cô gái xinh đẹp này chính là bạn gái của Trần Trạch. Đường Hiểu Tình liền lễ phép lên tiếng: "Chào bạn Từ Mạn Mạn, công việc tình nguyện viên bên mình tạm thời ban tổ chức vẫn chưa có mức chi trả thù lao cụ thể theo ngày đâu nhé."
 
-Hứa Mạn Mạn mỉm cười đáp: "Mình biết điều đó mà, mình tham gia hoàn toàn không cần nhận tiền thù lao đâu."
+Từ Mạn Mạn mỉm cười đáp: "Mình biết điều đó mà, mình tham gia hoàn toàn không cần nhận tiền thù lao đâu."
 
 "..."
 
-Đường Hiểu Tình đưa mắt ngắm nhìn bộ trang phục sành điệu của Hứa Mạn Mạn, sau đó lại nghiêm túc nhắc nhở thêm một lần nữa: "Công việc này sẽ phải đi treo băng rôn khắp nơi, phải bốc vác sắp xếp các ấn phẩm truyền thông, phải dầm mưa dãi nắng ngoài trời để dựng sân bãi, rồi còn phải khuân vác từng thùng nước khoáng nặng trịch nữa... Có rất nhiều việc nặng nhọc phát sinh, có lẽ sẽ vất vả lắm đấy."
+Đường Hiểu Tình đưa mắt ngắm nhìn bộ trang phục sành điệu của Từ Mạn Mạn, sau đó lại nghiêm túc nhắc nhở thêm một lần nữa: "Công việc này sẽ phải đi treo băng rôn khắp nơi, phải bốc vác sắp xếp các ấn phẩm truyền thông, phải dầm mưa dãi nắng ngoài trời để dựng sân bãi, rồi còn phải khuân vác từng thùng nước khoáng nặng trịch nữa... Có rất nhiều việc nặng nhọc phát sinh, có lẽ sẽ vất vả lắm đấy."
 
-"Này Hứa Mạn Mạn, thằng Trần Trạch có biết chuyện mày chạy sang đây xin làm tình nguyện viên lao động chân tay thế này không?"
+"Này Từ Mạn Mạn, thằng Trần Trạch có biết chuyện mày chạy sang đây xin làm tình nguyện viên lao động chân tay thế này không?"
 
-Vương Duy Đào đứng cạnh đó cũng nhận ra Hứa Mạn Mạn, cậu ta vừa nói vừa đưa ngón tay chỉ vào chiếc túi xách hàng hiệu Chanel sang chảnh mà cô đang đeo bên hông.
+Vương Duy Đào đứng cạnh đó cũng nhận ra Từ Mạn Mạn, cậu ta vừa nói vừa đưa ngón tay chỉ vào chiếc túi xách hàng hiệu Chanel sang chảnh mà cô đang đeo bên hông.
 
-Hứa Mạn Mạn lúc này mới sực tỉnh nhận ra sự khập khiễng, vội vàng giấu chiếc túi xách ra sau lưng, gương mặt thoáng chút bối rối: "Ngày mai đi làm mình sẽ không mang theo chiếc túi này nữa đâu..."
+Từ Mạn Mạn lúc này mới sực tỉnh nhận ra sự khập khiễng, vội vàng giấu chiếc túi xách ra sau lưng, gương mặt thoáng chút bối rối: "Ngày mai đi làm mình sẽ không mang theo chiếc túi này nữa đâu..."

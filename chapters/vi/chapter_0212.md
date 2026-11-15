@@ -1,7 +1,5 @@
 # Chương 212: Con gái lớp cậu ai nấy đều là nhân tài
 
-> **Tiêu đề gốc**: 第212章 你们班女生个个是人才。
-
 Chỉ một ngày sau.
 
 Lạc Cẩn Chi đã gọi điện thoại về.

@@ -1,7 +1,5 @@
 # Chương 302: Không hẹn mà cùng
 
-> **Tiêu đề gốc**: 第302章 不约而同。
-
 Đáng tiếc là Lưu Sấm Phong và Phương Khiết đã không biết chớp lấy thời cơ ngàn vàng này, sau này khi người người nhà nhà đổ xô vào chạy Tàu Tốc Hành thì hiệu quả thu về sẽ sụt giảm đi rất nhiều.
 
 Đó chính là nét hạn chế trong tính cách của Lưu Sấm Phong.
@@ -132,7 +130,7 @@ Trần Trạch vẫn chưa hết bàng hoàng. Khi nghe tin mẹ Đường Hiể
 
 Hắn không thể nào chấp nhận nổi thực tế này, có nhét vào mồm cũng nuốt không trôi.
 
-Dương Thục Mỹ đã bán đứt căn biệt thự, gom góp được 2,2 triệu tệ rồi vội vã quay trở về Dương Thành gồng gánh sản xuất.
+Dương Thù Mỹ đã bán đứt căn biệt thự, gom góp được 2,2 triệu tệ rồi vội vã quay trở về Dương Thành gồng gánh sản xuất.
 
 Đầu óc Trần Trạch vẫn còn ngây thơ ôm mộng tưởng rằng mẹ mình nhất định sẽ vực dậy được xưởng may vượt qua cơn bĩ cực, rồi đến lúc đó bản thân hắn với Triệu Kim An cũng chẳng chênh lệch nhau là bao.
 
