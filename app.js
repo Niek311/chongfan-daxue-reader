@@ -109,7 +109,7 @@
 
       const basePath = state.currentDataPath || 'data';
       if (window.location.protocol.startsWith('http')) {
-        fetch(`${basePath}/chapters/${chapterId}.json?v=14.0`)
+        fetch(`${basePath}/chapters/${chapterId}.json?v=15.0`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -136,7 +136,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `${basePath}/chapters/${chapterId}.js?v=14.0`;
+    script.src = `${basePath}/chapters/${chapterId}.js?v=15.0`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -202,7 +202,7 @@
     // 1. Load builtin GitHub books
     try {
       if (window.location.protocol.startsWith('http')) {
-        const res = await fetch('data/library.json?v=14.0');
+        const res = await fetch('data/library.json?v=15.0');
         if (res.ok) {
           const lib = await res.json();
           state.libraryBooks = lib.books || [];
@@ -262,7 +262,7 @@
         state.bookMeta = window.BOOK_DATA;
       } else {
         try {
-          const res = await fetch(`${state.currentDataPath}/book.json?v=14.0`);
+          const res = await fetch(`${state.currentDataPath}/book.json?v=15.0`);
           if (!res.ok) throw new Error('HTTP ' + res.status);
           state.bookMeta = await res.json();
         } catch (err) {
