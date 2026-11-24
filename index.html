@@ -7,18 +7,24 @@
   <meta name="apple-mobile-web-app-status-bar-style" content="default">
   <meta name="apple-mobile-web-app-title" content="Trọng Phản Đại Học">
   <meta name="theme-color" content="#f6f1e7">
-  <title>Trở Lại Thời Đại Học - Web Reader (Trung - Việt)</title>
-  <link rel="stylesheet" href="app.css?v=13.0">
+  <title>Web Reader - Tủ Sách & Đọc Truyện (Trung - Việt)</title>
+  <link rel="stylesheet" href="app.css?v=14.0">
   <link rel="manifest" href="manifest.json">
 </head>
 <body class="font-sans size-md spacing-normal">
 
   <!-- Top Navigation Bar -->
   <header id="top-bar" class="app-bar top-bar">
-    <button id="btn-toc" class="icon-btn" aria-label="Mục lục" title="Mục lục">
-      <svg width="22" height="22" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><line x1="3" y1="12" x2="21" y2="12"></line><line x1="3" y1="6" x2="21" y2="6"></line><line x1="3" y1="18" x2="21" y2="18"></line></svg>
-      <span class="btn-text">Mục lục</span>
-    </button>
+    <div class="top-bar-left">
+      <button id="btn-library" class="icon-btn" aria-label="Tủ sách" title="Tủ sách & Upload truyện">
+        <svg width="20" height="20" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><path d="M4 19.5A2.5 2.5 0 0 1 6.5 17H20"></path><path d="M6.5 2H20v20H6.5A2.5 2.5 0 0 1 4 19.5v-15A2.5 2.5 0 0 1 6.5 2z"></path></svg>
+        <span class="btn-text">Tủ sách</span>
+      </button>
+      <button id="btn-toc" class="icon-btn" aria-label="Mục lục" title="Mục lục">
+        <svg width="20" height="20" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><line x1="3" y1="12" x2="21" y2="12"></line><line x1="3" y1="6" x2="21" y2="6"></line><line x1="3" y1="18" x2="21" y2="18"></line></svg>
+        <span class="btn-text">Mục lục</span>
+      </button>
+    </div>
     
     <!-- Quick Language & Pinyin Controls in Header -->
     <div class="header-controls">
@@ -91,14 +97,71 @@
         <input type="text" id="toc-search" placeholder="🔍 Tìm kiếm chương hoặc số chương..." autocomplete="off">
         <button id="btn-jump-input" class="btn-jump">Đến</button>
       </div>
-      <div class="toc-jump-shortcuts">
-        <button class="chip" data-jump="1">Chương 1</button>
-        <button class="chip" data-jump="200">200</button>
-        <button class="chip" data-jump="500">500</button>
-        <button class="chip" data-jump="800">800</button>
-        <button class="chip" data-jump="1101">Mới nhất</button>
-      </div>
+      <div class="toc-jump-shortcuts" id="toc-jump-shortcuts"></div>
       <div id="toc-list" class="toc-list"></div>
+    </div>
+  </aside>
+
+  <!-- Library & Upload Drawer -->
+  <aside id="library-drawer" class="drawer">
+    <div class="drawer-backdrop" id="library-backdrop"></div>
+    <div class="drawer-content library-drawer-content">
+      <div class="drawer-header">
+        <h3>📚 Tủ sách & Upload</h3>
+        <button id="btn-close-library" class="icon-btn-close">&times;</button>
+      </div>
+
+      <div class="library-scroll-body">
+        <!-- Upload Section -->
+        <div class="upload-section">
+          <button id="btn-toggle-upload" class="btn-primary-full">
+            <span>+ Upload truyện mới (.txt, .epub, .json)</span>
+          </button>
+
+          <div id="upload-panel" class="upload-panel hidden">
+            <div class="upload-field">
+              <label for="upload-book-title">Tên truyện (để trống sẽ tự lấy theo tên file)</label>
+              <input type="text" id="upload-book-title" placeholder="Ví dụ: Phàm Nhân Tu Tiên...">
+            </div>
+
+            <div class="upload-field">
+              <label>Ngôn ngữ truyện</label>
+              <div class="toggle-options" id="upload-lang-options">
+                <button type="button" class="toggle-btn active" data-upload-lang="auto">Tự động</button>
+                <button type="button" class="toggle-btn" data-upload-lang="vi">🇻🇳 Tiếng Việt</button>
+                <button type="button" class="toggle-btn" data-upload-lang="zh">🇨🇳 Tiếng Trung</button>
+              </div>
+            </div>
+
+            <label class="upload-dropzone" for="upload-file-input">
+              <input type="file" id="upload-file-input" accept=".txt,.md,.epub,.json" multiple hidden>
+              <div class="upload-dropzone-icon">📂</div>
+              <div class="upload-dropzone-text" id="upload-file-label">Chạm để chọn file <strong>.txt</strong>, <strong>.epub</strong>, <strong>.json</strong> hoặc chọn nhiều file chương cùng lúc</div>
+            </label>
+
+            <div id="upload-progress-wrap" class="upload-progress-wrap hidden">
+              <div class="upload-progress-bar">
+                <div id="upload-progress-fill" class="upload-progress-fill"></div>
+              </div>
+              <div id="upload-progress-text" class="upload-progress-text">Đang xử lý...</div>
+            </div>
+
+            <button id="btn-confirm-upload" class="btn-primary-full" disabled>Bắt đầu nạp truyện</button>
+          </div>
+        </div>
+
+        <!-- Builtin GitHub Books -->
+        <div class="library-section">
+          <div class="library-section-title">🌐 Truyện trên GitHub</div>
+          <div id="library-builtin-list" class="library-book-list"></div>
+        </div>
+
+        <!-- User Uploaded Books -->
+        <div class="library-section">
+          <div class="library-section-title">📱 Truyện đã Upload trên máy</div>
+          <div id="library-uploaded-list" class="library-book-list"></div>
+        </div>
+      </div>
     </div>
   </aside>
 
@@ -176,7 +239,9 @@
 
   <div id="toast" class="toast"></div>
 
-  <script src="data/book.js?v=13.0"></script>
-  <script src="app.js?v=13.0"></script>
+  <script src="data/library.js?v=14.0"></script>
+  <script src="data/book.js?v=14.0"></script>
+  <script src="library.js?v=14.0"></script>
+  <script src="app.js?v=14.0"></script>
 </body>
 </html>

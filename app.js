@@ -7,8 +7,13 @@
   'use strict';
 
   const state = {
+    currentBookId: localStorage.getItem('reader_current_book') || 'chongfan-daxue',
+    currentBookType: localStorage.getItem('reader_current_book_type') || 'builtin',
+    currentDataPath: 'data',
+    libraryBooks: [],
+    uploadedBooks: [],
     bookMeta: null,
-    totalChapters: 1101,
+    totalChapters: 1251,
     currentChapter: 1,
     currentChapterData: null,
     chapters: [],
@@ -32,6 +37,22 @@
     chapterArticle: document.getElementById('chapter-article'),
     loadingSpinner: document.getElementById('loading-spinner'),
     progressText: document.getElementById('progress-text'),
+
+    btnLibrary: document.getElementById('btn-library'),
+    btnCloseLibrary: document.getElementById('btn-close-library'),
+    libraryDrawer: document.getElementById('library-drawer'),
+    libraryBackdrop: document.getElementById('library-backdrop'),
+    libraryBuiltinList: document.getElementById('library-builtin-list'),
+    libraryUploadedList: document.getElementById('library-uploaded-list'),
+    btnToggleUpload: document.getElementById('btn-toggle-upload'),
+    uploadPanel: document.getElementById('upload-panel'),
+    uploadBookTitle: document.getElementById('upload-book-title'),
+    uploadFileInput: document.getElementById('upload-file-input'),
+    uploadFileLabel: document.getElementById('upload-file-label'),
+    uploadProgressWrap: document.getElementById('upload-progress-wrap'),
+    uploadProgressFill: document.getElementById('upload-progress-fill'),
+    uploadProgressText: document.getElementById('upload-progress-text'),
+    btnConfirmUpload: document.getElementById('btn-confirm-upload'),
     
     btnToc: document.getElementById('btn-toc'),
     btnCloseToc: document.getElementById('btn-close-toc'),
@@ -40,6 +61,7 @@
     tocList: document.getElementById('toc-list'),
     tocCount: document.getElementById('toc-count'),
     tocSearch: document.getElementById('toc-search'),
+    tocJumpShortcuts: document.getElementById('toc-jump-shortcuts'),
     btnJumpInput: document.getElementById('btn-jump-input'),
     
         btnPinyinToggle: document.getElementById('btn-pinyin-toggle'),
@@ -74,8 +96,20 @@
         return resolve(state.chapterCache.get(chapterId));
       }
 
+      if (state.currentBookType === 'uploaded' && window.BookLibrary) {
+        window.BookLibrary.getUploadedChapter(state.currentBookId, chapterId)
+          .then(data => {
+            if (!data) throw new Error('Chapter not found in IndexedDB');
+            state.chapterCache.set(chapterId, data);
+            resolve(data);
+          })
+          .catch(reject);
+        return;
+      }
+
+      const basePath = state.currentDataPath || 'data';
       if (window.location.protocol.startsWith('http')) {
-        fetch(`data/chapters/${chapterId}.json?v=13.0`)
+        fetch(`${basePath}/chapters/${chapterId}.json?v=14.0`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -85,24 +119,24 @@
             resolve(data);
           })
           .catch(err => {
-            loadViaScript(chapterId, resolve, reject);
+            loadViaScript(chapterId, resolve, reject, basePath);
           });
       } else {
-        loadViaScript(chapterId, resolve, reject);
+        loadViaScript(chapterId, resolve, reject, basePath);
       }
     });
   }
 
-  function loadViaScript(chapterId, resolve, reject) {
+  function loadViaScript(chapterId, resolve, reject, basePath = 'data') {
     const callbackFn = `loadChapterCallback_${chapterId}`;
-    if (window[callbackFn]) {
+    if (basePath === 'data' && window[callbackFn]) {
       const data = window[callbackFn]();
       state.chapterCache.set(chapterId, data);
       return resolve(data);
     }
 
     const script = document.createElement('script');
-    script.src = `data/chapters/${chapterId}.js?v=13.0`;
+    script.src = `${basePath}/chapters/${chapterId}.js?v=14.0`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -118,38 +152,174 @@
     document.head.appendChild(script);
   }
 
-  async function initBook() {
+  function getSavedChapterForBook(bookId) {
+    const specific = parseInt(localStorage.getItem(`reader_last_chapter_${bookId}`));
+    if (!isNaN(specific) && specific >= 1) return specific;
+    if (bookId === 'chongfan-daxue') {
+      const legacy = parseInt(localStorage.getItem('reader_last_chapter'));
+      if (!isNaN(legacy) && legacy >= 1) return legacy;
+    }
+    return 1;
+  }
+
+  function saveChapterForBook(bookId, chapterId) {
     try {
-      if (window.BOOK_DATA) {
+      localStorage.setItem(`reader_last_chapter_${bookId}`, chapterId);
+      if (bookId === 'chongfan-daxue') {
+        localStorage.setItem('reader_last_chapter', chapterId);
+      }
+    } catch (e) {}
+  }
+
+  function renderTocShortcuts(total) {
+    if (!DOM.tocJumpShortcuts) return;
+    const points = [1];
+    if (total > 10) {
+      const step1 = Math.max(2, Math.round(total * 0.25));
+      const step2 = Math.max(step1 + 1, Math.round(total * 0.5));
+      const step3 = Math.max(step2 + 1, Math.round(total * 0.75));
+      [step1, step2, step3].forEach(p => {
+        if (p < total && !points.includes(p)) points.push(p);
+      });
+    }
+    if (total > 1 && !points.includes(total)) points.push(total);
+
+    DOM.tocJumpShortcuts.innerHTML = points.map((p, idx) => {
+      const label = p === 1 ? 'Chương 1' : (idx === points.length - 1 ? `Mới nhất (${p})` : `${p}`);
+      return `<button class="chip" data-jump="${p}">${label}</button>`;
+    }).join('');
+
+    DOM.tocJumpShortcuts.querySelectorAll('.chip').forEach(chip => {
+      chip.addEventListener('click', () => {
+        const jumpTarget = parseInt(chip.dataset.jump);
+        closeToc();
+        loadChapter(jumpTarget);
+      });
+    });
+  }
+
+  async function loadLibraryData() {
+    // 1. Load builtin GitHub books
+    try {
+      if (window.location.protocol.startsWith('http')) {
+        const res = await fetch('data/library.json?v=14.0');
+        if (res.ok) {
+          const lib = await res.json();
+          state.libraryBooks = lib.books || [];
+        }
+      }
+    } catch (e) {}
+    if (state.libraryBooks.length === 0 && window.LIBRARY_DATA) {
+      state.libraryBooks = window.LIBRARY_DATA.books || [];
+    }
+
+    // 2. Load user-uploaded books from IndexedDB
+    if (window.BookLibrary) {
+      try {
+        state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
+      } catch (e) {
+        console.warn('IndexedDB unavailable:', e);
+        state.uploadedBooks = [];
+      }
+    }
+  }
+
+  async function selectBook(bookId, bookType, targetChapter = null) {
+    state.chapterCache.clear();
+    state.currentBookId = bookId;
+    state.currentBookType = bookType;
+
+    try {
+      localStorage.setItem('reader_current_book', bookId);
+      localStorage.setItem('reader_current_book_type', bookType);
+    } catch (e) {}
+
+    if (bookType === 'uploaded' && window.BookLibrary) {
+      const book = await window.BookLibrary.getUploadedBook(bookId);
+      if (!book) {
+        showToast('Không tìm thấy truyện đã upload, chuyển về truyện mặc định');
+        return selectBook('chongfan-daxue', 'builtin', 1);
+      }
+      state.bookMeta = book;
+      state.chapters = book.chapters || [];
+      state.totalChapters = book.totalChapters || state.chapters.length;
+      state.currentDataPath = '';
+
+      // Auto-switch to the book's available language if current lang has no content
+      if (book.langMode === 'zh' && state.lang === 'vi') {
+        state.lang = 'zh';
+      } else if (book.langMode === 'vi' && state.lang === 'zh') {
+        state.lang = 'vi';
+      }
+      document.querySelectorAll('[data-lang]').forEach(el => {
+        el.classList.toggle('active', el.dataset.lang === state.lang);
+      });
+    } else {
+      const entry = state.libraryBooks.find(b => b.id === bookId) || { id: 'chongfan-daxue', dataPath: 'data' };
+      state.currentDataPath = entry.dataPath || 'data';
+
+      if (state.currentDataPath === 'data' && window.BOOK_DATA && !window.location.protocol.startsWith('http')) {
         state.bookMeta = window.BOOK_DATA;
       } else {
-        const res = await fetch('data/book.json?v=13.0');
-        state.bookMeta = await res.json();
+        try {
+          const res = await fetch(`${state.currentDataPath}/book.json?v=14.0`);
+          if (!res.ok) throw new Error('HTTP ' + res.status);
+          state.bookMeta = await res.json();
+        } catch (err) {
+          if (state.currentDataPath === 'data' && window.BOOK_DATA) {
+            state.bookMeta = window.BOOK_DATA;
+          } else {
+            throw err;
+          }
+        }
       }
-
       state.chapters = state.bookMeta.chapters || [];
       state.totalChapters = state.bookMeta.totalChapters || state.chapters.length;
-      
-      DOM.tocCount.textContent = state.totalChapters;
-      renderTocList(state.chapters);
+    }
 
-      const hashChapter = parseHashChapter();
-      const savedChapter = parseInt(localStorage.getItem('reader_last_chapter'));
-      const initialChapter = hashChapter || savedChapter || 1;
-      
-      loadChapter(initialChapter);
+    DOM.tocCount.textContent = state.totalChapters;
+    renderTocShortcuts(state.totalChapters);
+    renderTocList(state.chapters);
+    renderLibraryLists();
+
+    const chToLoad = targetChapter || getSavedChapterForBook(bookId);
+    const validCh = Math.min(Math.max(1, chToLoad), Math.max(1, state.totalChapters));
+    await loadChapter(validCh);
+  }
+
+  async function initBook() {
+    try {
+      await loadLibraryData();
+
+      const hashInfo = parseHashState();
+      let initialBookId = state.currentBookId;
+      let initialBookType = state.currentBookType;
+
+      if (hashInfo && hashInfo.bookId) {
+        const isUploaded = state.uploadedBooks.some(b => b.id === hashInfo.bookId);
+        initialBookId = hashInfo.bookId;
+        initialBookType = isUploaded ? 'uploaded' : 'builtin';
+      } else if (initialBookType === 'uploaded' && !state.uploadedBooks.some(b => b.id === initialBookId)) {
+        initialBookId = 'chongfan-daxue';
+        initialBookType = 'builtin';
+      }
+
+      await selectBook(initialBookId, initialBookType, hashInfo ? hashInfo.chapter : null);
     } catch (err) {
       console.error('Failed to load book metadata:', err);
       showToast('Tải danh mục thất bại, vui lòng thử lại');
     }
   }
 
-  function parseHashChapter() {
+  function parseHashState() {
     const hash = window.location.hash;
-    const match = hash.match(/^#ch-(\d+)$/);
-    if (match) {
-      const ch = parseInt(match[1]);
-      if (ch >= 1 && ch <= state.totalChapters) return ch;
+    const bookMatch = hash.match(/^#book=([^&]+)&ch=(\d+)$/);
+    if (bookMatch) {
+      return { bookId: decodeURIComponent(bookMatch[1]), chapter: parseInt(bookMatch[2], 10) };
+    }
+    const chMatch = hash.match(/^#ch-(\d+)$/);
+    if (chMatch) {
+      return { bookId: null, chapter: parseInt(chMatch[1], 10) };
     }
     return null;
   }
@@ -196,8 +366,10 @@
     state.isLoading = true;
     state.currentChapter = chapterId;
     state.positionsPerLang = { vi: null, zh: null, dual: null };
-    window.location.hash = `#ch-${chapterId}`;
-    try { localStorage.setItem('reader_last_chapter', chapterId); } catch(e){}
+    window.location.hash = state.currentBookId === 'chongfan-daxue'
+      ? `#ch-${chapterId}`
+      : `#book=${encodeURIComponent(state.currentBookId)}&ch=${chapterId}`;
+    saveChapterForBook(state.currentBookId, chapterId);
 
     DOM.loadingSpinner.classList.add('active');
     DOM.chapterArticle.innerHTML = '';
@@ -276,27 +448,31 @@
     const header = document.createElement('div');
     header.className = 'chapter-title-header';
 
+    const bookTitleObj = (state.bookMeta && state.bookMeta.title) || {};
+    const bookNameVi = (typeof bookTitleObj === 'object' ? (bookTitleObj.vi || bookTitleObj.zh) : bookTitleObj) || 'Web Reader';
+    const bookNameZh = (typeof bookTitleObj === 'object' ? (bookTitleObj.zh || bookTitleObj.vi) : bookTitleObj) || 'Web Reader';
+
     if (state.lang === 'vi') {
       header.innerHTML = `
         <div>${titleVi || titleZhPlain}</div>
-        ${titleZhPlain ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
+        ${titleZhPlain && titleZhPlain !== titleVi ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
         <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Bản Tiếng Việt · ${wcVi} từ</div>
       `;
-      document.title = `${titleVi || titleZhPlain} - Trọng Phản Đại Học`;
+      document.title = `${titleVi || titleZhPlain} - ${bookNameVi}`;
     } else if (state.lang === 'zh') {
       header.innerHTML = `
-        <div>${titleZh}</div>
-        ${titleVi ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
+        <div>${titleZh || titleVi}</div>
+        ${titleVi && titleVi !== titleZhPlain ? `<div class="chapter-title-sub">${titleVi}</div>` : ''}
         <div class="chapter-meta">第 ${data.id} / ${state.totalChapters} 章 · 中文原版 · 约 ${wcZh} 字</div>
       `;
-      document.title = `${titleZhPlain} - 重返大学`;
+      document.title = `${titleZhPlain || titleVi} - ${bookNameZh}`;
     } else {
       header.innerHTML = `
         <div>${titleVi || titleZhPlain}</div>
-        <div class="chapter-title-sub">${titleZh}</div>
+        ${titleZh ? `<div class="chapter-title-sub">${titleZh}</div>` : ''}
         <div class="chapter-meta">Chương ${data.id} / ${state.totalChapters} · Chế độ Song Ngữ (Việt - Trung)</div>
       `;
-      document.title = `Chương ${data.id} (Song ngữ) - Trọng Phản Đại Học`;
+      document.title = `Chương ${data.id} (Song ngữ) - ${bookNameVi}`;
     }
 
     article.appendChild(header);
@@ -307,13 +483,13 @@
         notice.className = 'untranslated-box';
         notice.innerHTML = `
           <div style="font-size: 38px; margin-bottom: 12px;">⏳</div>
-          <h3 style="margin-bottom: 8px; font-size: 1.1em;">Chương này đang chờ cập nhật bản dịch Tiếng Việt</h3>
+          <h3 style="margin-bottom: 8px; font-size: 1.1em;">Chương này chưa có bản Tiếng Việt</h3>
           <p style="color: var(--text-muted); font-size: 0.9em; margin-bottom: 20px; line-height: 1.6;">
-            Bản dịch tiếng Việt chất lượng cao cho chương này đang được dịch và sẽ cập nhật sớm.<br>
-            Bạn có thể chuyển sang bản <strong>Tiếng Trung (kèm Pinyin)</strong> để đọc trước.
+            Hiện tại chương này mới có bản Tiếng Trung.<br>
+            Bạn có thể chuyển sang bản <strong>Tiếng Trung</strong> để đọc ngay.
           </p>
           <button id="btn-fallback-zh" class="nav-chapter-btn lang-swap-btn" style="display:inline-flex; width:auto; padding:10px 24px;">
-            🇨🇳 Đọc bản Tiếng Trung (có Pinyin)
+            🇨🇳 Đọc bản Tiếng Trung
           </button>
         `;
         article.appendChild(notice);
@@ -330,12 +506,32 @@
         });
       }
     } else if (state.lang === 'zh') {
-      contentZh.forEach(p => {
-        const pElem = document.createElement('p');
-        pElem.className = 'chapter-paragraph';
-        pElem.innerHTML = p;
-        article.appendChild(pElem);
-      });
+      if (contentZh.length === 0) {
+        const notice = document.createElement('div');
+        notice.className = 'untranslated-box';
+        notice.innerHTML = `
+          <div style="font-size: 38px; margin-bottom: 12px;">📖</div>
+          <h3 style="margin-bottom: 8px; font-size: 1.1em;">Chương này chưa có bản Tiếng Trung</h3>
+          <p style="color: var(--text-muted); font-size: 0.9em; margin-bottom: 20px; line-height: 1.6;">
+            Truyện này chỉ có bản Tiếng Việt. Bạn có thể chuyển ngay sang Tiếng Việt để đọc.
+          </p>
+          <button id="btn-fallback-vi" class="nav-chapter-btn lang-swap-btn" style="display:inline-flex; width:auto; padding:10px 24px;">
+            🇻🇳 Đọc bản Tiếng Việt
+          </button>
+        `;
+        article.appendChild(notice);
+        const fbBtn = notice.querySelector('#btn-fallback-vi');
+        if (fbBtn) {
+          fbBtn.addEventListener('click', () => setLanguage('vi'));
+        }
+      } else {
+        contentZh.forEach(p => {
+          const pElem = document.createElement('p');
+          pElem.className = 'chapter-paragraph';
+          pElem.innerHTML = p;
+          article.appendChild(pElem);
+        });
+      }
     } else {
       const maxLen = Math.max(contentVi.length, contentZh.length);
       for (let i = 0; i < maxLen; i++) {
@@ -566,7 +762,273 @@
     });
   }
 
+  function openLibrary() {
+    renderLibraryLists();
+    if (DOM.libraryDrawer) DOM.libraryDrawer.classList.add('open');
+  }
+
+  function closeLibrary() {
+    if (DOM.libraryDrawer) DOM.libraryDrawer.classList.remove('open');
+  }
+
+  function escapeHtml(str) {
+    return String(str || '').replace(/[&<>"']/g, s => ({
+      '&': '&amp;', '<': '&lt;', '>': '&gt;', '"': '&quot;', "'": '&#39;'
+    }[s]));
+  }
+
+  function createBookCard(book, isUploaded) {
+    const isActive = state.currentBookId === book.id && state.currentBookType === (isUploaded ? 'uploaded' : 'builtin');
+    const titleObj = book.title || {};
+    const primaryTitle = typeof titleObj === 'object' ? (titleObj.vi || titleObj.zh || 'Không tên') : titleObj;
+    const subTitle = typeof titleObj === 'object' && titleObj.zh && titleObj.vi && titleObj.zh !== titleObj.vi ? titleObj.zh : '';
+    const savedCh = getSavedChapterForBook(book.id);
+    const total = book.totalChapters || (book.chapters ? book.chapters.length : 0);
+
+    const card = document.createElement('div');
+    card.className = `book-card ${isActive ? 'active' : ''}`;
+    card.innerHTML = `
+      <div class="book-card-header">
+        <div>
+          <div class="book-card-title">${escapeHtml(primaryTitle)}</div>
+          ${subTitle ? `<div class="book-card-sub">${escapeHtml(subTitle)}</div>` : ''}
+        </div>
+        ${isActive ? '<span class="book-badge">Đang đọc</span>' : ''}
+      </div>
+      <div class="book-card-meta">
+        <span>📖 ${total} chương</span>
+        <span>🔖 Đọc đến: Ch.${Math.min(savedCh, Math.max(1, total))}</span>
+        ${book.author ? `<span>✍️ ${escapeHtml(book.author)}</span>` : ''}
+      </div>
+      <div class="book-card-actions">
+        <button class="book-btn primary btn-read-book">${isActive ? 'Đọc tiếp' : 'Chọn đọc'}</button>
+        ${isUploaded ? '<button class="book-btn btn-export-book" title="Tải về file JSON">Xuất JSON</button>' : ''}
+        ${isUploaded ? '<button class="book-btn danger btn-delete-book">Xóa</button>' : ''}
+      </div>
+    `;
+
+    card.querySelector('.btn-read-book').addEventListener('click', async () => {
+      closeLibrary();
+      if (!isActive) {
+        await selectBook(book.id, isUploaded ? 'uploaded' : 'builtin');
+        showToast(`Đã chuyển sang: ${primaryTitle}`);
+      }
+    });
+
+    if (isUploaded) {
+      const exportBtn = card.querySelector('.btn-export-book');
+      if (exportBtn) {
+        exportBtn.addEventListener('click', async () => {
+          try {
+            showToast('Đang đóng gói JSON...');
+            const payload = await window.BookLibrary.exportUploadedBook(book.id);
+            const blob = new Blob([JSON.stringify(payload)], { type: 'application/json;charset=utf-8' });
+            const url = URL.createObjectURL(blob);
+            const a = document.createElement('a');
+            a.href = url;
+            a.download = `${primaryTitle}.json`;
+            a.click();
+            URL.revokeObjectURL(url);
+          } catch (err) {
+            showToast('Xuất file thất bại: ' + err.message);
+          }
+        });
+      }
+
+      const delBtn = card.querySelector('.btn-delete-book');
+      if (delBtn) {
+        delBtn.addEventListener('click', async () => {
+          if (!confirm(`Xóa truyện "${primaryTitle}" khỏi bộ nhớ trình duyệt?`)) return;
+          try {
+            await window.BookLibrary.deleteUploadedBook(book.id);
+            state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
+            if (isActive) {
+              await selectBook('chongfan-daxue', 'builtin', 1);
+            } else {
+              renderLibraryLists();
+            }
+            showToast('Đã xóa truyện');
+          } catch (err) {
+            showToast('Xóa thất bại: ' + err.message);
+          }
+        });
+      }
+    }
+
+    return card;
+  }
+
+  function renderLibraryLists() {
+    if (DOM.libraryBuiltinList) {
+      DOM.libraryBuiltinList.innerHTML = '';
+      state.libraryBooks.forEach(b => {
+        DOM.libraryBuiltinList.appendChild(createBookCard(b, false));
+      });
+    }
+
+    if (DOM.libraryUploadedList) {
+      DOM.libraryUploadedList.innerHTML = '';
+      if (state.uploadedBooks.length === 0) {
+        DOM.libraryUploadedList.innerHTML = '<div class="library-empty">Chưa có truyện nào được upload. Nhấn "+ Upload truyện mới" ở trên để nạp file .txt, .epub hoặc .json.</div>';
+      } else {
+        state.uploadedBooks.forEach(b => {
+          DOM.libraryUploadedList.appendChild(createBookCard(b, true));
+        });
+      }
+    }
+  }
+
+  function setupUploadUI() {
+    if (!DOM.btnToggleUpload || !DOM.uploadPanel) return;
+
+    let selectedFiles = [];
+    let uploadLangPref = 'auto';
+
+    DOM.btnToggleUpload.addEventListener('click', () => {
+      DOM.uploadPanel.classList.toggle('hidden');
+    });
+
+    document.querySelectorAll('[data-upload-lang]').forEach(btn => {
+      btn.addEventListener('click', () => {
+        uploadLangPref = btn.dataset.uploadLang;
+        document.querySelectorAll('[data-upload-lang]').forEach(b => {
+          b.classList.toggle('active', b.dataset.uploadLang === uploadLangPref);
+        });
+      });
+    });
+
+    function handleChosenFiles(fileList) {
+      selectedFiles = Array.from(fileList || []);
+      if (selectedFiles.length === 0) {
+        DOM.uploadFileLabel.innerHTML = 'Chạm để chọn file <strong>.txt</strong>, <strong>.epub</strong>, <strong>.json</strong> hoặc chọn nhiều file chương cùng lúc';
+        DOM.btnConfirmUpload.disabled = true;
+        return;
+      }
+      if (selectedFiles.length === 1) {
+        const mb = (selectedFiles[0].size / (1024 * 1024)).toFixed(2);
+        DOM.uploadFileLabel.innerHTML = `✅ Đã chọn: <strong>${escapeHtml(selectedFiles[0].name)}</strong> (${mb} MB)`;
+        if (!DOM.uploadBookTitle.value.trim()) {
+          DOM.uploadBookTitle.value = selectedFiles[0].name.replace(/\.(txt|md|epub|json)$/i, '');
+        }
+      } else {
+        DOM.uploadFileLabel.innerHTML = `✅ Đã chọn <strong>${selectedFiles.length} file</strong> chương truyện`;
+      }
+      DOM.btnConfirmUpload.disabled = false;
+    }
+
+    DOM.uploadFileInput.addEventListener('change', (e) => {
+      handleChosenFiles(e.target.files);
+    });
+
+    const dropzone = DOM.uploadFileInput.closest('.upload-dropzone');
+    if (dropzone) {
+      dropzone.addEventListener('dragover', (e) => {
+        e.preventDefault();
+        dropzone.classList.add('dragover');
+      });
+      dropzone.addEventListener('dragleave', () => dropzone.classList.remove('dragover'));
+      dropzone.addEventListener('drop', (e) => {
+        e.preventDefault();
+        dropzone.classList.remove('dragover');
+        if (e.dataTransfer && e.dataTransfer.files) {
+          handleChosenFiles(e.dataTransfer.files);
+        }
+      });
+    }
+
+    DOM.btnConfirmUpload.addEventListener('click', async () => {
+      if (selectedFiles.length === 0 || !window.BookLibrary) return;
+
+      DOM.btnConfirmUpload.disabled = true;
+      DOM.uploadProgressWrap.classList.remove('hidden');
+      DOM.uploadProgressFill.style.width = '10%';
+      DOM.uploadProgressText.textContent = 'Đang đọc và tách chương...';
+
+      try {
+        const customTitle = DOM.uploadBookTitle.value.trim();
+        const firstName = selectedFiles[0].name.toLowerCase();
+        let bookMeta, chapters;
+
+        if (selectedFiles.length === 1 && firstName.endsWith('.json')) {
+          const parsed = await window.BookLibrary.parseJsonBookFile(selectedFiles[0]);
+          bookMeta = parsed.book;
+          bookMeta.id = 'up-' + Date.now();
+          bookMeta.updatedAt = Date.now();
+          if (customTitle) {
+            bookMeta.title = { vi: customTitle, zh: customTitle };
+          }
+          chapters = parsed.chapters;
+        } else {
+          let parsed;
+          if (selectedFiles.length === 1 && firstName.endsWith('.epub')) {
+            parsed = await window.BookLibrary.parseEpubFile(selectedFiles[0], {
+              bookTitle: customTitle,
+              langPref: uploadLangPref
+            });
+          } else {
+            parsed = await window.BookLibrary.parseTxtFiles(selectedFiles, {
+              bookTitle: customTitle,
+              langPref: uploadLangPref
+            });
+          }
+
+          const bookId = 'up-' + Date.now();
+          const titleObj = parsed.lang === 'zh'
+            ? { zh: parsed.title, vi: '' }
+            : { vi: parsed.title, zh: '' };
+
+          chapters = parsed.chapters;
+          bookMeta = {
+            id: bookId,
+            title: titleObj,
+            author: parsed.author || 'Người dùng tải lên',
+            langMode: parsed.lang,
+            totalChapters: chapters.length,
+            createdAt: Date.now(),
+            updatedAt: Date.now(),
+            chapters: chapters.map(c => ({
+              id: c.id,
+              title: c.title,
+              wordCount: c.wordCount
+            }))
+          };
+        }
+
+        DOM.uploadProgressText.textContent = `Đang lưu ${chapters.length} chương vào trình duyệt...`;
+        await window.BookLibrary.saveUploadedBook(bookMeta, chapters, (pct) => {
+          DOM.uploadProgressFill.style.width = `${pct}%`;
+          DOM.uploadProgressText.textContent = `Đang lưu ${chapters.length} chương (${pct}%)...`;
+        });
+
+        state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
+
+        // Reset upload form
+        selectedFiles = [];
+        DOM.uploadFileInput.value = '';
+        DOM.uploadBookTitle.value = '';
+        DOM.uploadFileLabel.innerHTML = 'Chạm để chọn file <strong>.txt</strong>, <strong>.epub</strong>, <strong>.json</strong> hoặc chọn nhiều file chương cùng lúc';
+        DOM.uploadProgressWrap.classList.add('hidden');
+        DOM.uploadProgressFill.style.width = '0%';
+        DOM.uploadPanel.classList.add('hidden');
+
+        closeLibrary();
+        await selectBook(bookMeta.id, 'uploaded', 1);
+        showToast(`Đã nạp thành công ${chapters.length} chương!`);
+      } catch (err) {
+        console.error('Upload failed:', err);
+        showToast('Lỗi nạp truyện: ' + err.message, 3200);
+        DOM.uploadProgressWrap.classList.add('hidden');
+        DOM.btnConfirmUpload.disabled = false;
+      }
+    });
+  }
+
   function setupEventListeners() {
+    if (DOM.btnLibrary) DOM.btnLibrary.addEventListener('click', openLibrary);
+    if (DOM.btnCloseLibrary) DOM.btnCloseLibrary.addEventListener('click', closeLibrary);
+    if (DOM.libraryBackdrop) DOM.libraryBackdrop.addEventListener('click', closeLibrary);
+    setupUploadUI();
+
     DOM.btnToc.addEventListener('click', openToc);
     DOM.btnCloseToc.addEventListener('click', closeToc);
     DOM.tocBackdrop.addEventListener('click', closeToc);
@@ -615,14 +1077,6 @@
       }
     });
 
-    document.querySelectorAll('.chip').forEach(chip => {
-      chip.addEventListener('click', () => {
-        const jumpTarget = parseInt(chip.dataset.jump);
-        closeToc();
-        loadChapter(jumpTarget);
-      });
-    });
-
     document.querySelectorAll('.theme-btn').forEach(btn => {
       btn.addEventListener('click', () => applyTheme(btn.dataset.theme));
     });
@@ -652,9 +1106,13 @@
     });
 
     window.addEventListener('hashchange', () => {
-      const ch = parseHashChapter();
-      if (ch && ch !== state.currentChapter) {
-        loadChapter(ch);
+      const info = parseHashState();
+      if (!info) return;
+      if (info.bookId && info.bookId !== state.currentBookId) {
+        const isUp = state.uploadedBooks.some(b => b.id === info.bookId);
+        selectBook(info.bookId, isUp ? 'uploaded' : 'builtin', info.chapter);
+      } else if (info.chapter && info.chapter !== state.currentChapter) {
+        loadChapter(info.chapter);
       }
     });
 
