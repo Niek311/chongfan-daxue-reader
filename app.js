@@ -8,10 +8,8 @@
 
   const state = {
     currentBookId: localStorage.getItem('reader_current_book') || 'chongfan-daxue',
-    currentBookType: localStorage.getItem('reader_current_book_type') || 'builtin',
     currentDataPath: 'data',
     libraryBooks: [],
-    uploadedBooks: [],
     bookMeta: null,
     totalChapters: 1251,
     currentChapter: 1,
@@ -43,16 +41,6 @@
     libraryDrawer: document.getElementById('library-drawer'),
     libraryBackdrop: document.getElementById('library-backdrop'),
     libraryBuiltinList: document.getElementById('library-builtin-list'),
-    libraryUploadedList: document.getElementById('library-uploaded-list'),
-    btnToggleUpload: document.getElementById('btn-toggle-upload'),
-    uploadPanel: document.getElementById('upload-panel'),
-    uploadBookTitle: document.getElementById('upload-book-title'),
-    uploadFileInput: document.getElementById('upload-file-input'),
-    uploadFileLabel: document.getElementById('upload-file-label'),
-    uploadProgressWrap: document.getElementById('upload-progress-wrap'),
-    uploadProgressFill: document.getElementById('upload-progress-fill'),
-    uploadProgressText: document.getElementById('upload-progress-text'),
-    btnConfirmUpload: document.getElementById('btn-confirm-upload'),
     
     btnToc: document.getElementById('btn-toc'),
     btnCloseToc: document.getElementById('btn-close-toc'),
@@ -96,20 +84,9 @@
         return resolve(state.chapterCache.get(chapterId));
       }
 
-      if (state.currentBookType === 'uploaded' && window.BookLibrary) {
-        window.BookLibrary.getUploadedChapter(state.currentBookId, chapterId)
-          .then(data => {
-            if (!data) throw new Error('Chapter not found in IndexedDB');
-            state.chapterCache.set(chapterId, data);
-            resolve(data);
-          })
-          .catch(reject);
-        return;
-      }
-
       const basePath = state.currentDataPath || 'data';
       if (window.location.protocol.startsWith('http')) {
-        fetch(`${basePath}/chapters/${chapterId}.json?v=15.0`)
+        fetch(`${basePath}/chapters/${chapterId}.json?v=16.0`)
           .then(res => {
             if (!res.ok) throw new Error('HTTP ' + res.status);
             return res.json();
@@ -136,7 +113,7 @@
     }
 
     const script = document.createElement('script');
-    script.src = `${basePath}/chapters/${chapterId}.js?v=15.0`;
+    script.src = `${basePath}/chapters/${chapterId}.js?v=16.0`;
     
     window.onChapterLoaded = function(data) {
       state.chapterCache.set(chapterId, data);
@@ -199,10 +176,9 @@
   }
 
   async function loadLibraryData() {
-    // 1. Load builtin GitHub books
     try {
       if (window.location.protocol.startsWith('http')) {
-        const res = await fetch('data/library.json?v=15.0');
+        const res = await fetch('data/library.json?v=16.0');
         if (res.ok) {
           const lib = await res.json();
           state.libraryBooks = lib.books || [];
@@ -212,77 +188,44 @@
     if (state.libraryBooks.length === 0 && window.LIBRARY_DATA) {
       state.libraryBooks = window.LIBRARY_DATA.books || [];
     }
-
-    // 2. Load user-uploaded books from IndexedDB
-    if (window.BookLibrary) {
-      try {
-        state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
-      } catch (e) {
-        console.warn('IndexedDB unavailable:', e);
-        state.uploadedBooks = [];
-      }
-    }
   }
 
-  async function selectBook(bookId, bookType, targetChapter = null) {
+  async function selectBook(bookId, targetChapter = null) {
     state.chapterCache.clear();
     state.currentBookId = bookId;
-    state.currentBookType = bookType;
 
     try {
       localStorage.setItem('reader_current_book', bookId);
-      localStorage.setItem('reader_current_book_type', bookType);
     } catch (e) {}
 
-    if (bookType === 'uploaded' && window.BookLibrary) {
-      const book = await window.BookLibrary.getUploadedBook(bookId);
-      if (!book) {
-        showToast('Không tìm thấy truyện đã upload, chuyển về truyện mặc định');
-        return selectBook('chongfan-daxue', 'builtin', 1);
-      }
-      state.bookMeta = book;
-      state.chapters = book.chapters || [];
-      state.totalChapters = book.totalChapters || state.chapters.length;
-      state.currentDataPath = '';
+    const entry = state.libraryBooks.find(b => b.id === bookId) || state.libraryBooks[0] || { id: 'chongfan-daxue', dataPath: 'data' };
+    state.currentBookId = entry.id;
+    state.currentDataPath = entry.dataPath || 'data';
 
-      // Auto-switch to the book's available language if current lang has no content
-      if (book.langMode === 'zh' && state.lang === 'vi') {
-        state.lang = 'zh';
-      } else if (book.langMode === 'vi' && state.lang === 'zh') {
-        state.lang = 'vi';
-      }
-      document.querySelectorAll('[data-lang]').forEach(el => {
-        el.classList.toggle('active', el.dataset.lang === state.lang);
-      });
+    if (state.currentDataPath === 'data' && window.BOOK_DATA && !window.location.protocol.startsWith('http')) {
+      state.bookMeta = window.BOOK_DATA;
     } else {
-      const entry = state.libraryBooks.find(b => b.id === bookId) || { id: 'chongfan-daxue', dataPath: 'data' };
-      state.currentDataPath = entry.dataPath || 'data';
-
-      if (state.currentDataPath === 'data' && window.BOOK_DATA && !window.location.protocol.startsWith('http')) {
-        state.bookMeta = window.BOOK_DATA;
-      } else {
-        try {
-          const res = await fetch(`${state.currentDataPath}/book.json?v=15.0`);
-          if (!res.ok) throw new Error('HTTP ' + res.status);
-          state.bookMeta = await res.json();
-        } catch (err) {
-          if (state.currentDataPath === 'data' && window.BOOK_DATA) {
-            state.bookMeta = window.BOOK_DATA;
-          } else {
-            throw err;
-          }
+      try {
+        const res = await fetch(`${state.currentDataPath}/book.json?v=16.0`);
+        if (!res.ok) throw new Error('HTTP ' + res.status);
+        state.bookMeta = await res.json();
+      } catch (err) {
+        if (state.currentDataPath === 'data' && window.BOOK_DATA) {
+          state.bookMeta = window.BOOK_DATA;
+        } else {
+          throw err;
         }
       }
-      state.chapters = state.bookMeta.chapters || [];
-      state.totalChapters = state.bookMeta.totalChapters || state.chapters.length;
     }
+    state.chapters = state.bookMeta.chapters || [];
+    state.totalChapters = state.bookMeta.totalChapters || state.chapters.length;
 
     DOM.tocCount.textContent = state.totalChapters;
     renderTocShortcuts(state.totalChapters);
     renderTocList(state.chapters);
     renderLibraryLists();
 
-    const chToLoad = targetChapter || getSavedChapterForBook(bookId);
+    const chToLoad = targetChapter || getSavedChapterForBook(state.currentBookId);
     const validCh = Math.min(Math.max(1, chToLoad), Math.max(1, state.totalChapters));
     await loadChapter(validCh);
   }
@@ -292,19 +235,9 @@
       await loadLibraryData();
 
       const hashInfo = parseHashState();
-      let initialBookId = state.currentBookId;
-      let initialBookType = state.currentBookType;
+      const initialBookId = (hashInfo && hashInfo.bookId) ? hashInfo.bookId : state.currentBookId;
 
-      if (hashInfo && hashInfo.bookId) {
-        const isUploaded = state.uploadedBooks.some(b => b.id === hashInfo.bookId);
-        initialBookId = hashInfo.bookId;
-        initialBookType = isUploaded ? 'uploaded' : 'builtin';
-      } else if (initialBookType === 'uploaded' && !state.uploadedBooks.some(b => b.id === initialBookId)) {
-        initialBookId = 'chongfan-daxue';
-        initialBookType = 'builtin';
-      }
-
-      await selectBook(initialBookId, initialBookType, hashInfo ? hashInfo.chapter : null);
+      await selectBook(initialBookId, hashInfo ? hashInfo.chapter : null);
     } catch (err) {
       console.error('Failed to load book metadata:', err);
       showToast('Tải danh mục thất bại, vui lòng thử lại');
@@ -777,15 +710,16 @@
     }[s]));
   }
 
-  function createBookCard(book, isUploaded) {
-    const isActive = state.currentBookId === book.id && state.currentBookType === (isUploaded ? 'uploaded' : 'builtin');
+  function createBookCard(book) {
+    const isActive = state.currentBookId === book.id;
     const titleObj = book.title || {};
     const primaryTitle = typeof titleObj === 'object' ? (titleObj.vi || titleObj.zh || 'Không tên') : titleObj;
     const subTitle = typeof titleObj === 'object' && titleObj.zh && titleObj.vi && titleObj.zh !== titleObj.vi ? titleObj.zh : '';
     const savedCh = getSavedChapterForBook(book.id);
-    const total = book.totalChapters || (book.chapters ? book.chapters.length : 0);
+    const total = book.totalChapters || 0;
 
-    const card = document.createElement('div');
+    const card = document.createElement('button');
+    card.type = 'button';
     card.className = `book-card ${isActive ? 'active' : ''}`;
     card.innerHTML = `
       <div class="book-card-header">
@@ -796,64 +730,17 @@
         ${isActive ? '<span class="book-badge">Đang đọc</span>' : ''}
       </div>
       <div class="book-card-meta">
-        <span>📖 ${total} chương</span>
-        <span>🔖 Đọc đến: Ch.${Math.min(savedCh, Math.max(1, total))}</span>
-        ${book.author ? `<span>✍️ ${escapeHtml(book.author)}</span>` : ''}
-      </div>
-      <div class="book-card-actions">
-        <button class="book-btn primary btn-read-book">${isActive ? 'Đọc tiếp' : 'Chọn đọc'}</button>
-        ${isUploaded ? '<button class="book-btn btn-export-book" title="Tải về file JSON">Xuất JSON</button>' : ''}
-        ${isUploaded ? '<button class="book-btn danger btn-delete-book">Xóa</button>' : ''}
+        ${total} chương · Đang đọc: Chương ${Math.min(savedCh, Math.max(1, total))}
       </div>
     `;
 
-    card.querySelector('.btn-read-book').addEventListener('click', async () => {
+    card.addEventListener('click', async () => {
       closeLibrary();
       if (!isActive) {
-        await selectBook(book.id, isUploaded ? 'uploaded' : 'builtin');
+        await selectBook(book.id);
         showToast(`Đã chuyển sang: ${primaryTitle}`);
       }
     });
-
-    if (isUploaded) {
-      const exportBtn = card.querySelector('.btn-export-book');
-      if (exportBtn) {
-        exportBtn.addEventListener('click', async () => {
-          try {
-            showToast('Đang đóng gói JSON...');
-            const payload = await window.BookLibrary.exportUploadedBook(book.id);
-            const blob = new Blob([JSON.stringify(payload)], { type: 'application/json;charset=utf-8' });
-            const url = URL.createObjectURL(blob);
-            const a = document.createElement('a');
-            a.href = url;
-            a.download = `${primaryTitle}.json`;
-            a.click();
-            URL.revokeObjectURL(url);
-          } catch (err) {
-            showToast('Xuất file thất bại: ' + err.message);
-          }
-        });
-      }
-
-      const delBtn = card.querySelector('.btn-delete-book');
-      if (delBtn) {
-        delBtn.addEventListener('click', async () => {
-          if (!confirm(`Xóa truyện "${primaryTitle}" khỏi bộ nhớ trình duyệt?`)) return;
-          try {
-            await window.BookLibrary.deleteUploadedBook(book.id);
-            state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
-            if (isActive) {
-              await selectBook('chongfan-daxue', 'builtin', 1);
-            } else {
-              renderLibraryLists();
-            }
-            showToast('Đã xóa truyện');
-          } catch (err) {
-            showToast('Xóa thất bại: ' + err.message);
-          }
-        });
-      }
-    }
 
     return card;
   }
@@ -862,172 +749,15 @@
     if (DOM.libraryBuiltinList) {
       DOM.libraryBuiltinList.innerHTML = '';
       state.libraryBooks.forEach(b => {
-        DOM.libraryBuiltinList.appendChild(createBookCard(b, false));
+        DOM.libraryBuiltinList.appendChild(createBookCard(b));
       });
     }
-
-    if (DOM.libraryUploadedList) {
-      DOM.libraryUploadedList.innerHTML = '';
-      if (state.uploadedBooks.length === 0) {
-        DOM.libraryUploadedList.innerHTML = '<div class="library-empty">Chưa có truyện nào được upload. Nhấn "+ Upload truyện mới" ở trên để nạp file .txt, .epub hoặc .json.</div>';
-      } else {
-        state.uploadedBooks.forEach(b => {
-          DOM.libraryUploadedList.appendChild(createBookCard(b, true));
-        });
-      }
-    }
-  }
-
-  function setupUploadUI() {
-    if (!DOM.btnToggleUpload || !DOM.uploadPanel) return;
-
-    let selectedFiles = [];
-    let uploadLangPref = 'auto';
-
-    DOM.btnToggleUpload.addEventListener('click', () => {
-      DOM.uploadPanel.classList.toggle('hidden');
-    });
-
-    document.querySelectorAll('[data-upload-lang]').forEach(btn => {
-      btn.addEventListener('click', () => {
-        uploadLangPref = btn.dataset.uploadLang;
-        document.querySelectorAll('[data-upload-lang]').forEach(b => {
-          b.classList.toggle('active', b.dataset.uploadLang === uploadLangPref);
-        });
-      });
-    });
-
-    function handleChosenFiles(fileList) {
-      selectedFiles = Array.from(fileList || []);
-      if (selectedFiles.length === 0) {
-        DOM.uploadFileLabel.innerHTML = 'Chạm để chọn file <strong>.txt</strong>, <strong>.epub</strong>, <strong>.json</strong> hoặc chọn nhiều file chương cùng lúc';
-        DOM.btnConfirmUpload.disabled = true;
-        return;
-      }
-      if (selectedFiles.length === 1) {
-        const mb = (selectedFiles[0].size / (1024 * 1024)).toFixed(2);
-        DOM.uploadFileLabel.innerHTML = `✅ Đã chọn: <strong>${escapeHtml(selectedFiles[0].name)}</strong> (${mb} MB)`;
-        if (!DOM.uploadBookTitle.value.trim()) {
-          DOM.uploadBookTitle.value = selectedFiles[0].name.replace(/\.(txt|md|epub|json)$/i, '');
-        }
-      } else {
-        DOM.uploadFileLabel.innerHTML = `✅ Đã chọn <strong>${selectedFiles.length} file</strong> chương truyện`;
-      }
-      DOM.btnConfirmUpload.disabled = false;
-    }
-
-    DOM.uploadFileInput.addEventListener('change', (e) => {
-      handleChosenFiles(e.target.files);
-    });
-
-    const dropzone = DOM.uploadFileInput.closest('.upload-dropzone');
-    if (dropzone) {
-      dropzone.addEventListener('dragover', (e) => {
-        e.preventDefault();
-        dropzone.classList.add('dragover');
-      });
-      dropzone.addEventListener('dragleave', () => dropzone.classList.remove('dragover'));
-      dropzone.addEventListener('drop', (e) => {
-        e.preventDefault();
-        dropzone.classList.remove('dragover');
-        if (e.dataTransfer && e.dataTransfer.files) {
-          handleChosenFiles(e.dataTransfer.files);
-        }
-      });
-    }
-
-    DOM.btnConfirmUpload.addEventListener('click', async () => {
-      if (selectedFiles.length === 0 || !window.BookLibrary) return;
-
-      DOM.btnConfirmUpload.disabled = true;
-      DOM.uploadProgressWrap.classList.remove('hidden');
-      DOM.uploadProgressFill.style.width = '10%';
-      DOM.uploadProgressText.textContent = 'Đang đọc và tách chương...';
-
-      try {
-        const customTitle = DOM.uploadBookTitle.value.trim();
-        const firstName = selectedFiles[0].name.toLowerCase();
-        let bookMeta, chapters;
-
-        if (selectedFiles.length === 1 && firstName.endsWith('.json')) {
-          const parsed = await window.BookLibrary.parseJsonBookFile(selectedFiles[0]);
-          bookMeta = parsed.book;
-          bookMeta.id = 'up-' + Date.now();
-          bookMeta.updatedAt = Date.now();
-          if (customTitle) {
-            bookMeta.title = { vi: customTitle, zh: customTitle };
-          }
-          chapters = parsed.chapters;
-        } else {
-          let parsed;
-          if (selectedFiles.length === 1 && firstName.endsWith('.epub')) {
-            parsed = await window.BookLibrary.parseEpubFile(selectedFiles[0], {
-              bookTitle: customTitle,
-              langPref: uploadLangPref
-            });
-          } else {
-            parsed = await window.BookLibrary.parseTxtFiles(selectedFiles, {
-              bookTitle: customTitle,
-              langPref: uploadLangPref
-            });
-          }
-
-          const bookId = 'up-' + Date.now();
-          const titleObj = parsed.lang === 'zh'
-            ? { zh: parsed.title, vi: '' }
-            : { vi: parsed.title, zh: '' };
-
-          chapters = parsed.chapters;
-          bookMeta = {
-            id: bookId,
-            title: titleObj,
-            author: parsed.author || 'Người dùng tải lên',
-            langMode: parsed.lang,
-            totalChapters: chapters.length,
-            createdAt: Date.now(),
-            updatedAt: Date.now(),
-            chapters: chapters.map(c => ({
-              id: c.id,
-              title: c.title,
-              wordCount: c.wordCount
-            }))
-          };
-        }
-
-        DOM.uploadProgressText.textContent = `Đang lưu ${chapters.length} chương vào trình duyệt...`;
-        await window.BookLibrary.saveUploadedBook(bookMeta, chapters, (pct) => {
-          DOM.uploadProgressFill.style.width = `${pct}%`;
-          DOM.uploadProgressText.textContent = `Đang lưu ${chapters.length} chương (${pct}%)...`;
-        });
-
-        state.uploadedBooks = await window.BookLibrary.getAllUploadedBooks();
-
-        // Reset upload form
-        selectedFiles = [];
-        DOM.uploadFileInput.value = '';
-        DOM.uploadBookTitle.value = '';
-        DOM.uploadFileLabel.innerHTML = 'Chạm để chọn file <strong>.txt</strong>, <strong>.epub</strong>, <strong>.json</strong> hoặc chọn nhiều file chương cùng lúc';
-        DOM.uploadProgressWrap.classList.add('hidden');
-        DOM.uploadProgressFill.style.width = '0%';
-        DOM.uploadPanel.classList.add('hidden');
-
-        closeLibrary();
-        await selectBook(bookMeta.id, 'uploaded', 1);
-        showToast(`Đã nạp thành công ${chapters.length} chương!`);
-      } catch (err) {
-        console.error('Upload failed:', err);
-        showToast('Lỗi nạp truyện: ' + err.message, 3200);
-        DOM.uploadProgressWrap.classList.add('hidden');
-        DOM.btnConfirmUpload.disabled = false;
-      }
-    });
   }
 
   function setupEventListeners() {
     if (DOM.btnLibrary) DOM.btnLibrary.addEventListener('click', openLibrary);
     if (DOM.btnCloseLibrary) DOM.btnCloseLibrary.addEventListener('click', closeLibrary);
     if (DOM.libraryBackdrop) DOM.libraryBackdrop.addEventListener('click', closeLibrary);
-    setupUploadUI();
 
     DOM.btnToc.addEventListener('click', openToc);
     DOM.btnCloseToc.addEventListener('click', closeToc);
@@ -1109,8 +839,7 @@
       const info = parseHashState();
       if (!info) return;
       if (info.bookId && info.bookId !== state.currentBookId) {
-        const isUp = state.uploadedBooks.some(b => b.id === info.bookId);
-        selectBook(info.bookId, isUp ? 'uploaded' : 'builtin', info.chapter);
+        selectBook(info.bookId, info.chapter);
       } else if (info.chapter && info.chapter !== state.currentChapter) {
         loadChapter(info.chapter);
       }
