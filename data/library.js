@@ -9,7 +9,7 @@ window.LIBRARY_DATA = {
       },
       "author": "秋收十月",
       "dataPath": "data",
-      "totalChapters": 1251,
+      "totalChapters": 1268,
       "viChapters": 1200,
       "isBuiltin": true
     },
